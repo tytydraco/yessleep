@@ -1,0 +1,90 @@
+There’s a section of forest I’ve liked walking along every evening for the last five months, just before the sun goes down. It leads up a hill from the back of my house, and at the end there is a ridge I sit at until the sun fully sets. Then I wait another half hour for the clouds to finish their usual colour shows before heading back down and home.
+
+Every night. Routine as the sun setting, you’ll find me walking to the ridge and home again.
+
+Not anymore. Not after last night.
+
+The track is about a mile long, nothing extreme but it’s uphill so it gives it a little longer feel when you’re heading for the ridge. The walk back is easy enough, mostly thumping down at awkward angles. I have a high powered flashlight which is ridiculously bright, so I see all the bumps coming.
+
+Last night, I was about a half mile up the track when I noticed a suitcase. Like, one of those large ones that you’d expect a dead body to be inside. I remember joking to myself and saying something like yep, there’s defo a dead body in there. Because obviously there wasn’t. It was on its side and open on both faces. If there had been once, there wasn’t anymore.
+
+A little further along the track I noticed a jacket folded over and hung over a branch. I was half tempted to take it with me because it looked my size and in pretty good condition. A few spins in the washing machine and it wouldn’t even remember who owned it last. I got the feeling that whoever left it there had left it for a reason because it was hung too neatly. So I left it. Just in case they came back for it.
+
+I carried on, and a few minutes later that’s when I saw the hoody and the t-shirt.
+
+Those gave me bad feelings in my gut. Not the same kind of feeling that seeing a woman’s clothes would have evoked—that brought with it a whole extra scope of possibility. While that possibility remained the same, I didn’t find it half as likely to be the case. I just ignored them and carried on. The fact that they were dropped in the dirt made me uneasy though. Then I remembered the suitcase, and everything seemed to click. It was just some kids messing about. Dragging shit out and throwing it around.
+
+Fair enough.
+
+I was getting fairly close to the end of the track, maybe a quarter of a mile left, and the sun was setting fast. I could see what remained of it lingering over the edge of the hill. It was about that time that I saw the shoes and the socks hung neatly over the barbed wire fence bordering the field. They were caught by the laces, dangling upright, socks tucked neatly inside.
+
+The rest of the clothes came as expected, at about equal intervals as the rest.
+
+The underwear turned my stomach a little. They were brown and hella damp. Like someone had pissed them and thrown them off. I could smell it even just standing over them.
+
+I knew I should have turned around then. The likelihood of the clothes being from the suitcase was getting less and less likely. Nobody packed shitty drawers for a holiday. And why were they out this way? There were no main roads, no bus routes close to the track. It was getting weird. I should have turned around and gone home. But I’m a sucker for routine. I’d been up at that spot every night and didn’t want to have to give it up for some kids tossing clothes, or a weirdo stripping to his bare hairs. I mean, one night I’d fallen and broken a finger on a boulder and still stayed to see the sun setting. You think I was going to let some shitty drawers get the better of me?
+
+I wish it had.
+
+The idea of some naked dude sitting at my spot scared the crap out of me, but curiosity had sunken its teeth in by then. I wanted to know what the hell was going on. Part of me was still wondering if it was really a woman’s clothing—something I should report instead of running away from. God knows if it was my daughter or mother I’d have killed the man who walked away instead of making sure they were okay.
+
+I made it to the top of the hill and stared down at the ridge for a good while before I went down, scoping it out. I didn’t see anyone, and the sun was rapidly setting, so I got to my usual spot on the usual rock and settled in for a good one. The sky was a deep orange. My favourite colour.
+
+There were plenty of clouds in the sky when I sat down; the light lit them up amazingly. No matter how many times I went there, no two sunsets were ever the same. I took some pictures, watched it dip beyond the hills on the horizon and waited out the rest of the colours to fade and reduce to the nightly cloudage.
+
+It got cold real fast. It always did. I started wishing I’d brought a jacket with me, and then laughed when I remembered the jacket I’d spotted earlier. I should have grabbed it, diseases or not.
+
+I got up to go while the purples were still fading from the sky. That’s when I noticed them. Someone, just slumped over in a heap a little ways down the ridge. They were completely naked.
+
+I shouted over, asking if they were okay. I should have left them alone. If you see someone lying down naked outside it’s never going to be anything good. But my mind swung to the worse of the possibilities, that the naked person hadn’t made themselves that way by choice. I should have phoned an ambulance, worried about if it was someone out of their mind on junk later once I had other people around.
+
+When they didn’t respond I got closer, and shouted again.
+
+Something moved in the woods. An animal, maybe, but my heart shot up into my throat. The worst thing we get around here are deer. Maybe a badger. It didn’t feel that safe at the time. The body felt more of a warning now, less than a danger.
+
+Again I called out. I was close enough now to see that it wasn’t a person at all. It was just more clothes set out in a pile. It was the weirdest thing though. They looked the exact colour as someone’s skin.
+
+I stuck out a foot and kicked them over. They didn’t separate, just parted where the crease had been and straightened out.
+
+It was skin.
+
+A whole pile of human fucking skin.
+
+I physically jumped away from it, nearly sending myself off the edge of the ridge and down onto the rocky tumble. I thought back on the suitcase and how I’d joked about it being a dead body, and stared at the muss of hair where it must have been a scalp at one point. The horrible part was it was all in one piece. Like someone had simply slipped it off, like a snake, or a full-body leotard.
+
+That was about as much as I could take. I’d been stupid enough walking on after bit of clothing I’d found, but I wasn’t going to make the same mistake again. I took out my phone to call emergency services but ended up sprinting full speed back down the track when I heard more movement in the woods.
+
+Each bit of clothes I passed gave me a terrible sinking feeling of dread in my guts, like I was seeing the skin all over again. I made it to the halfway point when I came across the suitcase.
+
+This time it was in the middle of the path. Sealed. And standing upright.
+
+I didn’t move. I was too stunned. I shone my flash on it and tried to think of every reason it could be like that, but all the rational thoughts were gone. I just froze. And watched the zipper opening, kink by kink.
+
+Two bare and bloodied fingertips pried the zipper along its track, until there was a gap wide enough for an eye to peek out of.
+
+“Please,” I heard it say. “Please help me.”
+
+Nah. I leapt over the fence and into the field of barley. Ran and didn’t stop until I saw the rooftop of my house and the chimney I never lit. I turned back and saw something chasing me. It ran on two legs and for the most part looked human. Just without any skin. Red raw and bloodied. Muscles gnashing at bone. Arms raised and manic. Shrieking like car tires stopping themselves from a crash.
+
+I made it back home and locked both doors, closed every curtain, and spent the night watching out of the upstairs window. Whatever it was sat in the field with the barley up under its chin, watching me. I couldn’t make out a single feature on its face, but I knew it could see me. I couldn’t look away. I was scared that as soon as I did it would charge at the house and in through the window and grab me.
+
+We stayed like that all night.
+
+It ducked beneath the barley as soon as the sun came up. I haven’t seen it all day.
+
+The suitcase was on my doorstep when I went out to check the garden just after noon. I set fire to it in the back and put the ashes in the bin.
+
+I’ve checked into a hotel in the city. I don’t want to sleep in that house again. There was a shirt left in the room, but that’s normal right?
+
+The sun’s due to set in an hour.
+
+I keep thinking about the skin. Why did it take it off?
+
+None of this makes any sense.
+
+I just want to sleep.
+
+But I’m scared.
+
+I'm so fucking scared.
+
