@@ -1,44 +1,34 @@
 The middle of the Everglades is the last location you would want a flat tire.
 
-
-
 Day 1
-
-
 
 “Git up”  
 I looked up. A man stood before me. He was wearing a dingy undershirt stained with mud, undoubtedly from the swampwater. His jeans looked about half as old as he was. “I said, geet up. Worthless sack o’ sheet.” His accent was as thick as his skull. I slowly rose to my feet. I must’ve been, what, 10, 20 pounds lighter than I was when I stumbled upon this little village.
 
- The man pushed the door to the crude cell I was in. He must’ve let out the other prisonmates earlier. I looked around the cell. All that was in there was hay. Hay and shit. I weakly stumbled out of the door. The man stuck his foot out, which I almost stripped on. I walked past him without saying anything. He kicked my calf and I fell onto one knee. He snickered. I could’ve beaten the man had I been at full strength, even with my handcuffs on, but it had been almost 24 hours since my last meal. Besides, even if I was at full strength, I would not be prepared for the backup that would follow.
+The man pushed the door to the crude cell I was in. He must’ve let out the other prisonmates earlier. I looked around the cell. All that was in there was hay. Hay and shit. I weakly stumbled out of the door. The man stuck his foot out, which I almost stripped on. I walked past him without saying anything. He kicked my calf and I fell onto one knee. He snickered. I could’ve beaten the man had I been at full strength, even with my handcuffs on, but it had been almost 24 hours since my last meal. Besides, even if I was at full strength, I would not be prepared for the backup that would follow.
 
 The man went past me and walked up the stairs. I trailed slowly behind, climbing the stairs like an animal. I suppose, to them, I was little more than one. The humid air blasted me as soon as I walked out of the tiny shed the basement with the cell was in. It must’ve been 10:00 in the morning, but it felt like 4:00 in the afternoon. The man heavily walked on the mud trail in the middle of the two puddles surrounding it. It flew onto my shins, some specks even reaching up as far as my groin.
 
- At the camp were the other prisoners. I must’ve been the last one grabbed for our daily feeding. In the middle sat a large bowl of gruel. It was about the size of a small table. I hazily walked toward it, but the man held me back. “What’s yer rush? Don’t be greedy! Wait for yer rahvals! Mm.. hehe.” The other prisoners slowly lined up in a circle around the campsite; in the middle was what appeared to be gruel. A skinny man with a gut and a pistol started counting down. “Ready? 3…2…” he shot one of the feet of the man to the right of me. He yelped in pain and fell to the floor. “GO F\*\*\*\*TS!” The man started shooting the ground more and more. We rushed toward the center, lacking coordination. Two of the seven rushing toward the center stripped on the way. I was lucky. I had made it second, so I got a good serving of the gruel. I scooped it with my dirty hand. Unfortunately, the man with a bullet in his foot didn’t get any. I felt bad. 
+At the camp were the other prisoners. I must’ve been the last one grabbed for our daily feeding. In the middle sat a large bowl, with what I assumed to be our food in it. The bowl was about the size of a small table, and it was hung over a dead campfire. I hazily walked toward it, but the man held me back. “What’s yer rush? Don’t be greedy! Wait for yer rahvals! Mm.. hehe.” The other prisoners slowly lined up in a circle around the campsite; the food in the bowl appeared to be gruel. A skinny man with a gut and a pistol started counting down. “Ready? 3…2…” he shot one of the feet of the man to the right of me. He yelped in pain and fell to the floor. “GO F\*\*\*\*TS!” The man started shooting the ground more and more. We rushed toward the center, lacking coordination. Two of the seven rushing toward the center stripped on the way. I was lucky. I had made it second, so I got a good serving of the gruel. I scooped it with my dirty hand. Unfortunately, the man with a bullet in his foot didn’t get any. I felt bad. 
 
-  
 Afterward, they lined us up by height. “Ahright! Today’s the day of the Blood Sport games! After three days, one of yew lucky fellers’ll get to leave the village! Only one o’ ya, though.” The skinny man with a gut sized us all up. His name was Lee, or as the people of the village called him, Lazyeye Lee. You could picture why. “Hmmm… ew-kay. CURTIS! SHANE! MAE! Less figger out the games fer today.  Homer, you make ‘em kick rocks or sum’in.” Curtis was a short and stubby man. He looked similar to Homer, but different enough to not be related. Shane wasn’t as lanky as Lee, but he was on the taller side (for the village) and had greenish eyes. Mae looked much older, maybe around her mid 60’s, but she looked rather mean. Homer complained in a childlike voice. He was my keeper. “Awww, you nev’r let me help make the game.” Lee looked up, at Homer again. “Jes shut the fuck up. For once in your damn life, shut the fuck up.” Homer sighed. He started walking away. We followed.
 
 In my cell the previous day, Homer talked to me. “Well mister. I bet yer wonderin’ why yer cooped up in here, and why we don’t jest let you go.” I grimly looked ahead. He had a huge grin on his face. “Yer gunna play in our famous Blood Sport games! They’re tuns o’ fun. An’ ya know what?” He leaned in toward me and whispered. “I think *you* gotta gooooood shot at winnin’ this thing.” The Blood Sport games. I could only wonder what that meant.
 
 He showed us to an alligator. “Kill that thing, er sumthin.” He sighed, and walked away, not even taking off our handcuffs. The alligator was sleeping, and besides, we had no way to immediately kill it. The man with the bullet in his foot was still in agony. Another one of the prisoners, Barney, waited until he was out of sight. He said, “We could make a run for it,” rather ambitiously. We all stared at him. “Where would we go? We’re in bumfuck nowhere. The only path out of this patch of dirt these people call their home is on the other side of the camp,” I said. He glumly looked down. 
 
-  
-We waited. The alligator slept like a stone. A small hispanic woman inched up to me. “Hey. I think you’ve got the best chances of getting out of here.” She looked around. “I’m Aurora. You are…?” I put my hand out. “Isaac. Nice to meet you.” She shook it. “Listen… all I want to do is help my little brother. I’m not sure if I’ll last very long, considering I’m the smallest one here. If I don’t make it… could you find a way to help my little brother get out?” I was a little surprised. “How? What other ways could there be?” She looked down. “I don’t know…” I looked ahead, beyond the trees. “Which one is he?” I asked. She pointed to one of the prisoners, one of the ones I hadn’t noticed. “That’s him. Santiago.” The resemblance was there. However, he couldn't have been older than 14. He was skinny, and his hair was a weird middle part. He looked incredibly frightened, but was holding back tears, most likely for his older sister. “How do you know if *he’s* gonna make it through these rounds?” She had a grim expression. “I don’t. I talked to some of the other prisoners, and they said some of the same things.” She paused, then sighed. “This is a tall ask. I know it is. But he has so much to live for. If you go against him, would you…?” I thought about it for a second. Was my life more important than that of this random kid I didn’t know? 
+We waited. The alligator slept like a stone. A small hispanic woman inched up to me. “Hey. I think you’ve got the best chances of getting out of here.” She looked around. “I’m Aurora. You are…?” I put my hand out. “Isaac. Nice to meet you.” She shook it. “Listen… all I want to do is help my little brother. I’m not sure if I’ll last very long, considering I’m the smallest one here. If I don’t make it… could you find a way to help my little brother get out?” I was a little surprised. “How? What other ways could there be?” She looked down. “I don’t know…” I looked ahead, beyond the trees. “Which one is he?” I asked. She pointed to one of the prisoners, one of the ones I hadn’t noticed. “That’s him. Santiago.” The resemblance was there. However, he couldn't have been older than 14. He was skinny, and his hair was a weird middle part. He looked incredibly frightened, but was holding back tears, most likely for his older sister. “How do you know if *he’s* gonna make it through these rounds?” She had a grim expression. “I don’t. I talked to some of the other prisoners, and they said some of the same things.” She paused, then sighed. “This is a tall ask. I know it is. But he has so much to live for. If you go against him, would you…?” I thought about it for a second. Was my life more important than that of this random kid I didn’t know?
 
 I didn’t respond. Aurora got up. “It’s okay. I didn’t expect you to.” She started walking away. I grabbed her before she left. “Wait. Let me sit on it.” She let out a weak smile. “For even considering… thank you.”
 
-  
 Some time later, Homer grabbed us, with a bit more excitement in his eyes. “Coooooooome to papa!” He didn’t check if we killed the alligator or not, fortunately. That seemed to be the end of my luck. He led us back to the camp. 
 
 The sun was far on the west side. It must’ve been 3 or 4:00 PM at this point. Lee had a huge smile on his face. “Awright everyone! Gather ‘round! Yer gunna play…” He paused. “A good ol’ game o’ roulette!” 
 
-  
 After taking off our handcuffs, the gamemasters had us sit in a circle around the area of the campsite where the gruel used to be. An 8 chambered revolver sat in the middle. Oddly enough, there were black burn marks on the handle. Behind us were the residents of the village. Despite the small size of the village and initial crowd, there were lots of people here, some struggling to get a good view. Lee came into the middle. “ALL RIGHT EVERYONE! I’ve loaded this here gun with *one* bullet. Atta these lucky fellers, four of ‘em are gunna be, well… unlucky! This ain’t any old roulette game, though. We’ve added a *twist*!” 
 
-  
 He loaded a bullet into the chamber, before lighting the revolver on fire, and tossing it to the man who got shot in the foot earlier. He yelped and dropped it to the ground. Curtis knocked him on the head with a shovel. A crack could be heard. At the very least, the man was knocked out. He dragged the man away. Lee stomped on the revolver repeatedly, putting it out. “Damn bastard ruined our game! Oh well. Guess that means less rounds for y’all.”
 
-  
 The audience maintained their excitement. Lee reloaded the gun and lit it on fire. I nervously looked around. He tossed it to Santiago. His hands were trembling, and his mouth was hung right before a scream, but he put it under his head and hit the trigger.   
 It clicked.  
  He threw it to the next man, Barney. Barney let out a squeal. He put the barrel next to his head very quickly.   
@@ -51,8 +41,6 @@ She passed it to the left, to a very large man, at least four inches taller than
 The last one was a short Indian man. He had accepted his fate, despite the chance there was still another slot in the barrel. He barely reacted to the flame, lifting the gun up to his head.
 
 BANG!
-
-
 
 The people cheered. Mae hauled off his body this time. Lee loaded three bullets into the chamber this time. His grin said it all. He paused. Two men were making a bet. One pointed at me, the other pointed at Barney. I didn’t have much time to question a bet for a game like this. Lee lit the gun on fire, and tossed it. I knew only two of us at the most would die this time, as he needed four players for the next round of his tournament. He threw it to Santiago. I could tell it hurt more this time, but he lifted it up regardless.  
 Click.  
@@ -71,126 +59,79 @@ BANG!
 She didn’t react.  
 Curtis and Mae had still not returned. Homer was a little confused on how to carry this man. He must’ve been 230 pounds of muscle. Lee clapped his hands. “WOO! Now THAT was a fun one!” He put his arms up in the sky like he was some sort of deity. I suppose to the people of this village, he was, as they started cheering like their team won the Super Bowl. I looked at the men who were betting. One was beating the other. No one was paying attention to them, though. Lee whispered something to Homer and Shane, and they took us away, back to our prisons.
 
-
-
 My heart was still beating very loudly. I felt dead tired. I collapsed against the ground. The woman with the long hair sat on the other side of the cell. She didn’t say a word. I fell asleep.
 
-  
 I woke up many hours later to her looking at the stairs leading out of the basement. She didn’t say anything. “Hey..” I coughed out. She jumped a little. “Uhh… did I scare you?” She breathed. “A little, yeah.” She adjusted herself. “What did they say your name was?” I adjusted myself as well. “Isaac.” She smiled. “Nice to meetcha, Isaac.” I sat still for a second. “You’re not gonna give me your name?” She looked back dismissively. “Does it even matter? Chances are, one of us is going to die in a couple hours.” I looked down again. “You asked me my name, I deserve to know y-” She cut me off. “Do you ever think about what you would do following something like this?” I was confused. She saw my confusion. “This is so… fucked up. Whoever’s ‘lucky’ enough to escape this place is gonna be scarred for life.” I said, “You seem fine to me.” She turned. “Everyone looks fine on the surface. That’s how PTSD works. No one has a look that says, ‘I was raped! I saw my comrades die in war!’ They hide it beneath layers and layers of guilt that only come out at their worst moments.” She paused. “Well, I guess some people do. But those’re only the *really* fucked-up ones.” I chuckled. “Very flowery language you got there.” “Shut your mouth,” she reciprocated.
-
-
 
 Day 2
 
-
-
 I must’ve fallen asleep again. Homer came in again to grab me. I stood up before he could speak. “Wow! Yer a good doggy, aincha?” The woman had also fallen asleep. He took me to do the same ritual as yesterday. Everything about the feeding ceremony was regular, apart from the fact that we ate in less of a rush. Some of the higher-ups, specifically Lee, seemed impatient. I’m not exactly sure if they expected us to eat faster or what, but we didn’t. The crowd from yesterday had already gathered. I presumed that they had already figured out what we were playing, and that there wouldn’t be any last-second decisions like there were yesterday. Every one of the remaining prisoners looked grim.
 
-  
 After we were all finished, Lee clapped his hands. “OH-KAY! I bet y’all are wonderin’ what we’re gonna have you play today!” The crowd cheered. “Make yer guesses right now! What’s the game gunna be?” The audience chattered. Many answers were yelled out. Lee shook his head to each, a sheepish smile on his face. “We’re playin’ volleyball!” He walked toward the group of us. “Hmmm… I think we’re gunna do boys verses gurls. How do y’all feel about that?” The crowd roared. I would have to be working with Santiago. I looked at him. He seemed to be hyperventilating. Then it set in. Either him or his sister were going to die today. I grimly thought, “He’s going to the finals….”
-
-
 
 The game was set up. Some tattered cloth that appeared to be from a tent was strung in between two trees. We were at the disadvantage, as our side was flooded with water, but it was only ankle-deep and it hardly made a difference. The people of the village didn’t seem to care, as many of the men were gathered behind us. In turn, the women were gathered behind Aurora and the long-haired woman. This was all quite childish, although obviously not being the worst thing to come out of this place. We were waiting for the ball. Santiago actually was crying here. Aurora walked up to the “net” and spoke to him. “Santi… I knew this was gonna happen. You’re gonna have to be strong for me. You’re going to get out of here. The nice man on your team will help you.” She paused to look at me. I played along. “ Whatever happens, I’ll love you.” Santiago sniffed. “B… I’m never gonna see you again…” Aurora’s face looked grim. “Sure you will. Some day, we’ll meet up again.” I grimaced. Even if he won the tournament, that day would be soon.
 
-
-
 Soon enough, Lee came over with something behind his back. “Well folks, I finally got us a bawl!” Everyone waited in anticipation. Lee couldn’t wait any longer. He pulled it out from behind his back. 
 
-  
 It was the Indian man’s head.
 
-  
 I tried to hold in the vomit, but I couldn’t. It sank to the bottom of the puddle we were in. I considered fishing it back up, as I wouldn’t be fed again for another 22 hours, but I decided against it. The others could keep their vomit in. Lee walked up to me specifically. “Ohh, are ya supposed tah be on the girls team? Pussy-cat?” I held in my urge to punch his smug face as he made what I assume a person who’s never seen a cat thinks a cat sounds like. It got a chuckle out of the audience. “NOW THEN!” Lee clapped. “LET’S GIT STARTED! FIRST TO 25 WINS!”
 
-  
 He closed his eyes and chucked it at us. Hitting a human head into the air was a lot harder than hitting a ball up. It splotched on my fingers, but I had no time to throw up this time. I hit it up to the other side. Aurora looked freaked out, but she had enough agency to hit the head back up. I wasn’t sure whether this was better or worse than the last game. It didn’t hurt to play, I supposed. It was a volleyball game, with a human head. I wasn’t sure what would happen to the losers, but I came to a conclusion rather quickly.
 
-  
 Each time the head hit the floor, it broke more. Skin started flaying off, hanging in the wind. I cringed every time I heard a crack. After we had hit 10 points, a pebble hit my head. It disoriented me. All of the people in the opposite crowd had items in their hands. Once the game started, they threw them. Sticks. Stones. Eventually the body parts of the losers of the last game. They made sure to throw them at *us* specifically, not the “ball”. Our side of the crowd did as well, they threw things over the net at the women.
 
-  
 This made the next rounds very difficult. By the 20 point mark, we were all bloody and bruised. Each of the rounds went much quicker this way. It was shockingly even. We were trading points.   
 The score was 23-21. After the opposing team scored their 22nd point, that was it for the poor Indian man’s head. It didn’t resemble the man it once was a part of. We started panicking. Lee noticed. “Aw, cain’t you fellers do anything right?” He himself walked away. The crowd was still there and cheering. Was he getting a backup?
 
-  
 Aurora discussed her plan to let Santiago win with the woman. She seemed to agree. I still hadn’t made up my mind on the *next* game, but I supposed that I had the night to mull it over.   
 Lee returned, but it wasn’t with a head. It was with just the brain of the man with the shot foot. “I decided, considering the game’s almost over, to spice thangs up a lil’ bit! Match point! First one to destroy this brain here (he lowered his voice) loses the game. Play ball!” He sized up both teams, and closed his eyes. He threw from his chest at Aurora. Everything seemed to go in slow motion. She caught what remained of the spinal cord, and whipped it around herself. She let it go. It flew into the net, and started slipping out of it. Santiago dived for it. 
 
-  
 It hit the ground with a splat.
 
-  
 Santiago looked completely defeated. His face was crestfallen. The crowd parted as Curtis and Mae grabbed the two by the hands. Aurora was sweating and shaking a lot. The black-haired woman seemed numb, I guess like me. She looked at Santiago as she was walking away. She waved goodbye, and disappeared into the crowd. Santiago was in a collapsed position against the ground. He didn’t even cry. He just laid there.
 
-
-
 Day 3
-
-
 
 I awoke many hours later in the jail cell. I had decided. This was the last time I would awaken. This kid had been through so much…  
 I had felt relatively numb throughout all of these games. I tried to not let the brutality get to me. I felt hollow on the inside, but I knew it was for the best. 
 
-
-
 Homer glumly came in. As he unlocked the cell, he murmured, “Why’s today gotta be the last day?” He didn’t speak directly to me at all.   
 The same breakfast ritual as the last two days was prepared for us. It was even less exciting this time. I let the kid eat more than me. It sucked to have my final meal be… this. Cold, soupy gruel with bits of rotting snook mixed in. I kept trying to tell myself that it was for the greater good, but accepting your fate is hard. After I finished, I made a quick prayer, and lined up next to Santiago.
 
-Lee had a smirk on his face. Not a huge grin, but he had something up his sleeve. “Well, everyone. Today’s the last day! I dunno ‘bout y’all, but this’s been one o’ the best Blood Sport games we’ve had yet! For the final game, I’m gonna let someone else pick the last game.”  
+Lee had a smirk on his face. Not a huge grin, but he had something up his sleeve. “Well, everyone. Today’s the last day! I dunno ‘bout y’all, but this’s been one o’ the best Blood Sport games we’ve had yet! For the final game, I’m gonna let someone else pick the last game.”
 
+All of the higher-ups perked up. 
 
-All of the higher-ups perked up.   
-
-
-“Now, who should it be… well, I know someone who’s been a team player. HOMER! *You* choose the last game o’ the Blood Sports!” The crowd cheered. Homer looked dumbfounded. He came up to Lee. He looked so happy to be doing this. He asked Lee, “Ya gotta deck o’ cards?”  
-
+“Now, who should it be… well, I know someone who’s been a team player. HOMER! *You* choose the last game o’ the Blood Sports!” The crowd cheered. Homer looked dumbfounded. He came up to Lee. He looked so happy to be doing this. He asked Lee, “Ya gotta deck o’ cards?”
 
 He wanted us to play Blackjack.
 
-
-
 He had us wait until sundown. We returned to our cells, quite pointlessly, for them to sort out some extra details. I had a bit of a nervous break in my cell. Maintaining the cold exterior was useless at this point. Both of us were fucked.
-
-
 
 When the sky had turned a hazy orange and the fireflies let out their buzzes, they sat us down at a table. They had us put our right hands on the table, and play with the other one.  They then nailed that hand to the table. It hurt like a bitch. The first to five would win. Except, for each round lost, one finger on that hand would be cut off.  
 I was sweating a lot. It was quite humid out, but even if we were in the dead of Antarctica, I would’ve been sweating. Santiago was confused. He seemed to understand the rules of blackjack well enough.
 
-
-
 My first draw was an ace and a nine. Shit. Santiago said, “Hit me.” After he got another card, he stood. I said, “Hit me” as well. I got a queen. They couldn’t know I wanted him to win, or else they would kill him straight. The crowd could all see my cards, though. They would know. He had a 19, I had a 20. Santiago gave me a look that asked why I had betrayed him, before Homer stabbed down on his hand. His pinky came off, and he started screaming in a much higher-pitched voice than that he spoke in. Everyone around laughed. He hadn’t gotten over the pain by the time Homer passed out the cards again.
 
-  
  A four and a nine. Okay. Santiago stood. I said, “Hit me.” I got a Jack. Good. Homer stabbed down on my hand before I could think anything else. My hand screamed out in pain. Holy shit did it hurt. Abstract thoughts filled my mind. Images flooded my eyes as I tried my hardest not to scream my throat out. I was panting by the time Homer passed out the cards again. Was letting Santiago win worth it? No, no, it was. I had to keep telling myself that. If I had a stubby hand by the end, it wouldn’t matter, because I would be dead. I tried to tell myself that.
 
-  
-I got a King and a 9 the next round. Santiago looked glumly at his cards. He said, “Hit me.” He busted. “No, no wait-” was all he could get out before Homer cut off his ring finger. It must’ve hurt even more now. “Fuck,” was all my absent mind could think as he bawled. Homer passed out the cards again.   
+I got a King and a 9 the next round. Santiago looked glumly at his cards. He said, “Hit me.” He busted. “No, no wait-” was all he could get out before Homer cut off his ring finger. It must’ve hurt even more now. “Fuck,” was all my absent mind could think as he bawled. Homer passed out the cards again. 
 
+An ace and a six. Okay, I could work with this. Santiago stood. Bracing myself, I said, “Hit me.” I got a four. We revealed our cards. Just like the first round. 19 and 21. He looked up in abject terror. Then more blood spattered on his face. It seemed to take a second for the pain to register. He almost tore the nail in his hand out from how much he was jumping. Homer said, “Holy sheet! Quit jumpin’ around!” He hit the nail with his mallet again. Santiago looked like he was about to jump up, but he didn’t.
 
-An ace and a six. Okay, I could work with this. Santiago stood. Bracing myself, I said, “Hit me.” I got a four. We revealed our cards. Just like the first round. 19 and 21. He looked up in abject terror. Then more blood spattered on his face. It seemed to take a second for the pain to register. He almost tore the nail in his hand out from how much he was jumping. Homer said, “Holy sheet! Quit jumpin’ around!” He hit the nail with his mallet again. Santiago looked like he was about to jump up, but he didn’t.  
-
-
-I got a seven and a five. Santiago stood once more. He was getting really unlucky. I hit. A queen. I busted. He was too quick. It was instantaneous. The pain flooded all over me again. I thought I would’ve been more prepared the second time. I really, really thought I would’ve been more prepared…   
-
+I got a seven and a five. Santiago stood once more. He was getting really unlucky. I hit. A queen. I busted. He was too quick. It was instantaneous. The pain flooded all over me again. I thought I would’ve been more prepared the second time. I really, really thought I would’ve been more prepared… 
 
 Homer dealt again. I might have gotten the shittiest hand of all time, a king and a five. I focused on swallowing. Maybe that would dull the pain a bit. **MAYBE THAT WOULD DULL THE PAIN A BIT.** Santiago weakly said, “H…hit…” he got another card. His eyes widened and fear flooded into them. He busted again. His index finger was chopped off. He was down to a thumb. A near-useless hand, in the literal sense. This time, he actually did jump off of the table. Homer swept under him with his foot, and Santiago crashed to the ground. It was like a cartoon. Like a sick, twisted cartoon…  
-This was it. I couldn’t do it. Why did it have to come down to a fucking *luck* game?? Why couldn’t they have us play anything else?  
-
+This was it. I couldn’t do it. Why did it have to come down to a fucking *luck* game?? Why couldn’t they have us play anything else?
 
 Another hand came. I would have to lose three in a row to get this kid and his mangled hand out of here.   
 I got an ace and a Jack. Santiago couldn’t speak anymore from how light-headed he must’ve been feeling, but he motioned to be hit. He motioned to be hit again. He stood.  
 I got hit again.  
 A queen.
 
-  
-
-
    
 I failed.
-
-  
-
 
 He didn’t even scream as they grabbed him and gave him to the crowd to be lynched. He didn’t really react, or flinch. They beat him with stones or other blunt tools. I felt so hollow at that moment. He was fourteen. He was fourteen…
 
@@ -199,4 +140,3 @@ It took me almost until midday the next day to find someone to bring me home. I 
 
 I guess I got off pretty lightly. I suppose I should be happy I left with my life. After all, I only lost two fingers.  
 It made this story a bitch to write.
-

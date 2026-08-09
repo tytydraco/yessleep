@@ -260,12 +260,10 @@ It was so loud it made me jump.
 
 The wind must have caught them. I probably didn't push them back far enough on the tracks. I just lost my single bar of cell service when the metal sealed. The Wi-Fi on my laptop is somehow picking up a faint open network from the landlord's house next door, so I'm trying to post this through the browser right now before that cuts out too.
 
-Something is scratching at the drywall.
+Something is scratching at the wall.
 
-It sounds like it's coming from outside the fake bedroom wall. Right where he painted that water stain. On the other side of the studs out in the dark part of the barn.
+It sounds like it's coming from right outside the fake bedroom, right where he painted that water stain. On the other side of the studs out in the dark part of the barn.
 
-It's slow.
-
-It sounds like hands tracing the outline of the drywall.
+It's slow. It sounds like hands tracing the outline of the drywall.
 
 I'm going to go see what's out there and grab my tools. I'll update you guys when I get back to my car. It's starting to get dark outside.
