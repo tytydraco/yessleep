@@ -1,6 +1,6 @@
 I dropped my knife the moment the hole was cut.
 
-It was the size and shape of a tortilla chip, jagged where my blade slipped. Inside its orange flesh was something white and wriggling. It blinked at me. Iris, the same muddy brown as my own. Its pupil contracted under the overhead lights.
+It was the size and shape of a tortilla chip, jagged where my blade slipped. Inside its orange flesh was something wriggling. It blinked at me. Iris, the same muddy brown as my own. Its pupil contracted under the overhead lights.
 
 A real human eye.
 

@@ -2,7 +2,7 @@ I’ve known Kev since we were kids. 
 
 He’s always been sweet, if not a little paranoid for his own good, and a chronic liar. We had a lot of ups and downs in our relationship. There was even a stretch of years where we didn’t speak at all after he accused me of stealing his medication. He told me I’d taken the bottle right out of the bathroom while he was in the other room. I hadn’t, and I told him that a million times. He didn’t believe me. I stopped answering his calls, blocked him on everything, and that was that for a long time.
 
-I decided to give him a second chance last summer. He reached out first, through a mutual friend. He said he was doing better, that his paranoia and anger were more under control. I missed him more than I wanted to admit. Being the person he calmed down for had always been part of how I understood myself. So I agreed, as long as he was done with that crap.
+I decided to give him a second chance a few years back. He reached out first, through a mutual friend. He said he was doing better, that his paranoia and anger were more under control. I missed him more than I wanted to admit. Being the person he calmed down for had always been part of how I understood myself. So I agreed, as long as he was done with that crap.
 
 We decided to go camping after we met back up in late July. Just the two of us in his old RV. The plan was a couple nights away from the stress of the world, some cheap food, a few beers, the kind of quiet time that used to feel easy between us.
 
