@@ -1,0 +1,151 @@
+I think it’s fair to say most kids go through a stage of being scared of the dark.
+
+The boundless imagination of youthful ignorance can conjure all kinds of things within the empty abyss. From the classic bogeymen of ancient folklore, to the techno demons of archived internet forums. There is no end to the horror kids can create. 
+
+I suppose it makes sense though. For fear of the unknown is born in ignorance, and who are more initially ignorant than children, fresh-faced and blissfully naive to the world around them?
+
+It makes far more sense to suspect ghouls and spectres as the cause of creaking floorboards, rather than the simply rotting oak bowing in a long winter frost. This is what we teach them after all.
+
+Even with newly born infants, we read tales of witches lurking in decrepit woodland, waiting to devour unsuspecting lost boys and girls. We warn them to fear the shadows and are yet surprised to find them tugging at bedsheets of exhausted sleeping parents, dragged from slumber to investigate an ajar wardrobe or a cluttered space under a hastily vacated bed.
+
+We may scold or offer comfort. Reassuring that such dread is unwarranted and to simply return to bed, confident that there no real danger. But they are children, how can they believe anything but the contrary?
+
+Especially from the people who just the very night before described the most harrowing tale while pleasantly sat at their bedside. Tales designed to teach goodness and morality get eclipsed in the shadows of unyielding terror. 
+
+At least that is my experience with such things. As a child, I was indeed scared of the dark. Rightfully so, I assure you. The things I used to glimpse in the late hours of those cold nights will never leave my recollection.
+
+From the shadows creeping in the corners of my toy-adorned bedroom, to the hollow whispers taunting outside my casement window on stormy, hallowed eves. I thought the light was my only salvation. So, with the timid determination of a six-year-old boy, I asked a question.
+
+That night I was put to bed by my mother. With a kiss on the forehead, tightly tucked bedsheets, and a final farewell, her nightly ritual was complete. As she was leaving, I requested that my door be left slightly open, as to allow some ray of luminance from the hallway lamp.
+
+This had become a common request at that age for the last few months, and my mother (despite previous stern objections) finally decided to begrudgingly oblige. Oh, how stupid I was. Not necessarily for the request, but for what that request resulted in.  For if I simply remained in pure darkness, I may have not have been cursed with what still haunts me to this night. The thing that I fear, even as I write these very words. 
+
+You must understand, I didn’t have a night light and wasn’t permitted to have my central bedroom light on during sleeping hours. Though I couldn’t begin to tell you why. I imagine that my financially anxious parents thought it may be too much of an unnecessary expenditure. Or perhaps they were concerned over potential hazards a faulty spark could produce while we slept in peaceful ignorance. Whatever the reason, I wasn’t granted use of my own light source.
+
+That’s why the hallway lamp was eventually left on for me. Though it would, of course, be turned off when my parents would retire to their room several hours after my allotted bedtime. Late enough, they explained, so I would have no need for it, as I should be well into some blissful, fantastic dream by that point.
+
+Little did they know, most nights I would remain awake well into the early hours, with my stuffed animals standing sentinel around the imagined parapets of my bed. While I, of course, hid away under my superhero-embellished linen sheets. I remember in the summers I would swelter and choke on the trapped stale air.
+
+No matter how uncomfortable my sweat-drenched bedspread became, I never dared leave my sanctuary.
+
+Fortunately for me, in this instance, it was far into winter’s cold embrace, and I welcomed the chill descended from Arctic shores. Though that did little to reprieve me from the claustrophobic nightmare imprisoned within my own bed. Yes, the sheets offered protection from the ghouls, but it also left me trapped.
+
+For all I knew, a horde of ravenous monstrosities, having slain my fluffy protectorates, lay in wait for me to take a fresh breath. No, it was far better, I thought, with the hallway lamp on, for at least I could see the danger before it had a chance to sink its nightmarish claws into me. I was just a child, a foolish, naive, scared child. 
+
+The night proceeded as it often did at first. Once I was sure my mother was down the stairs, I carefully tiptoed out of my bed. You see, I also had a routine, even at that age, strange as it may sound.
+
+First, I checked the contents of my wardrobe. As suspected, still full of pre-owned clothing and well-worn shoes. Next, I proceeded to the window. I slowly pulled back the dust-ridden curtains, taking a breath and preparing myself for some dreadful visage of ghastly abhorrence - I let out a sigh of relief, nothing. Just the condensation on the panels slowly trailing down to the damp, chipped, fading white frame.
+
+The last spot was my most dreaded location, but it had to be the final one, as it is where I would rest my weary head for the remainder of the night. Time to check under the bed. The titular abode of all things that go bump in the night. I hated this part, but it had to be done. How could I expect to find any comfort without assuring the safety of where I would finally slumber?
+
+So, I prepared myself. For this task, I needed the assistance of my oldest, a most loyal friend. For they were braver and far more capable for the job at hand. Cuddly Bunny, my first comfort toy. Bunny had been with me since the beginning. From my first nighttime wailing right up to my recent sixth birthday. Though these days he was looking rather worse for wear.
+
+Bunny had needed a few sessions under the surgical care of my mother’s sewing machine. First, a ripped arm, then a loose eyeball, followed by numerous frayed threads and stitchings. I’d like to imagine he was a veteran of a thousand epic battles, returned clutching wounds received with honour and gallantry. 
+
+At this point, some might argue he wasn’t the same bunny who consoled me that first harrowing night. But I knew he was. There was something that even now I can’t truly explain. I just knew he was Cuddly Bunny, and he would protect me.
+
+So, with my old friend gripped tightly in hand, I timidly proceeded. I carefully lifted the overhanging sheet, prepared to face what might await me. Gradually, I lifted, inch by inch, higher and higher. I wished to close my eyes, but I couldn’t leave my friend alone to face such peril. In one last great effort, I flung the remaining fabric over the top of the bed, and there it was.
+
+Some old toys I’d forgotten to collect when my mother ordered me to tidy before bed. Nothing in particular of note: a few plastic dinosaurs, a ball gifted from two summers ago, and some balled-up hairs. Pretty standard for a children’s bedroom floor, including the slightly disgusting copper hairs.
+
+All things considered, I was satisfied. My bedroom was secure, the carrot-loving general had taken command amongst his fellow soft soldiers, and it was finally time for sleep.
+
+I got inside my bedding, greeted by its comforting warm embrace and adjusted my old misshapen pillow to required comfort. Instantly I could feel the effects of fatigue after a long, busy day. My head was heavy, eyes dark and bloodshot, and body exhausted of all its faculties. I was sure sleep would be upon me in mere moments. My eyes began to shut and the manifestation of some whimsical dreamscape proceeded to form around me.
+
+Then, all of a sudden, I was awake. Odd it seemed as I swore it had only been mere moments since my eyes had so readily embraced the sweet reprieve of dreamland. How strange I thought, even in that disoriented state, that I should be so abruptly returned to wakefulness.
+
+Perhaps I had overslept, given my previous exhaustion, and my father had hastily stirred me on his leave for work. However, that seemed unlikely, as I was sure it was a Saturday and my father (workaholic as he was) would most definitely be home for the day.
+
+Maybe then it was my mother; I may have absentmindedly forgotten about some dreary early morning appointment I was often dragged reluctantly along to. Though again that seemed unlikely, as I would have recalled being told the previous day. For even at that young age I was sure to make note of such details. 
+
+I slowly peeled back my bedsheet, peering cautiously to observe my surroundings. It was still night, of that I was certain, as no sliver of daylight permeated my curtains. I noticed the hallway lamp was still emitting its warm glow through the gap left between the wall and my bedroom door. Which meant my parents were yet to go to bed. Surely it can’t have been that late into the night.
+
+The room itself was bathed in twilight silhouettes, hinting at the most ghastly of imaginable possibilities. Still, nothing I wasn’t used to by this point. Indeed, my fear of the abyss was still immense; however, I had become far accustomed to such feelings. Not of course forgetting my previously mentioned routines and precautionary measures. 
+
+This is where I truly became alarmed at the situation. For I shudderingly noticed all my stuffed toys had gone missing. How? Where? I frantically darted my eyes around, searching for some clue to their whereabouts. But it was no use.
+
+It was still far too dark, even with the glow of the hallway lamp; I couldn’t be certain at what I was looking at. I must have knocked them off, yes, of course, during some physical altercation within a rather enthused dream. But no such dream came to immediate recollection.
+
+Furthermore, after a quick inspection, I found no evidence that would suggest the latter, as evident of the emptiness beside my bed. I decided it was time for more thorough investigation. So, with a slight tremble, I fully removed my bedding and cautiously began my search. 
+
+To say I was apprehensive at the time would be an understatement. I was downright petrified, even now in reflection. My mind was already deep in the void of imagination, and all manner of ghoulish reasoning for my current predicament crossed my mind. For I had been told as much by my parents; years of Grimm fairytales and Gothic folklore had given foul precedent to suspect the worst - and the worst is what I certainly suspected.
+
+I made my way across the room with outstretched arms, using my hands to gain some tactility amongst the undefined shadows. I searched everywhere: the windowsill, the bookshelf, my activity desk, even the laundry basket at the foot of my bed, but to no avail. I even searched underneath my bed and still nothing. I was at an impasse and becoming more apprehensive with each passing second.
+
+Then I noticed the wardrobe. Had I left it open earlier? My heart started pounding and my breath quickened. Hesitant with each step, I approached the towering cabinet, expecting some morbid fiend to leap from the aperture.
+
+I closed my eyes and reached my hand inside; shaking and perspiring profusely. My fingers stretched out what little distance they were capable of and finally made contact with the objects of my quarry. I opened my eyes and there they were, amongst the heaps of neatly stacked clothing.
+
+I thought I would feel some semblance of relief; however, now I found myself more vexed than before. For while my toys were indeed located, it was the manner of their placement that caused a lump to form in my throat.
+
+Where I might have expected them to be haphazardly scattered, they were instead huddled in a single corner, with Cuddly Bunny at the forefront seemingly shielding the others. More perplexing was the fact that they seemed to be cowering. How was this possible? Perhaps some misguided joke by my parents? No, something in my gut knew that was not the case. They had their moments, but they were never cruel and knew of my fears.
+
+My mind raced with possibilities. Each more implausible and fantastic than the last. Monsters weren’t real. *Right*? But now all I wished was to return to the sanctity of my bedsheets with my toys in hand.
+
+Then something made me pause in my endeavour. I had an inkling that my toys did not wish to return with me. But they were just toys, inanimate stuffed animals and characters; they didn’t have feelings besides the ones I’d imagine during play. So why, despite my wishes, did I know they begged to remain in the wardrobe?
+
+I shook my head in disbelief and took a step back. I then proceeded to, with great reluctance, retract my hand and make my way back to my bed, scared and alone. 
+
+I re-entered my bedsheets, pulling them hastily over my head. It was hard to return to sleep in my present state of mind. So many thoughts, each more disturbing and ghastly than the last. It felt like my mind was drowning in a sea of infinite possibilities, juvenile horrors and imaginative morbidity. I began to close my eyes, exhaustion of the senses finally offering me some respite, then I heard it.
+
+“Why are you afraid of me?”
+
+I was immediately returned to consciousness. That voice, deep, hollow and gelatinous. It repeated.
+
+“*Why* are you afraid of me?”
+
+This time with more authority, like one of my elderly school teachers, though with wisdom far more ancient and forbidden in nature. I lay there absolutely horror-stricken. My entire body froze, akin to that of rigamortis.
+
+Perhaps I were indeed dead, the netherworld seeming giving grim precedence to these most abhorrent of vocalisations. But no, death had not taken me. I was undoubtedly still of the living, for only the mortal body could produce such dread at the precipice of the unknown. I said nothing. There was silence between each laboured breath as I frantically searched for an answer. It spoke again. 
+
+“Am I the nightmare you tremble so freely before? The torment born of hushed whispers in the primordial caverns of mankind. Am I truly so frightening?”
+
+I still had no answer. I was a boy and had little comprehension for the questions uttered before me. Even now I am unsure of how to reconcile an appropriate consensus. Nevertheless, it continued. 
+
+“You have no need to feel such apprehension. I am as much a part of you as you are a part of me. We are parasites. Endlessly feeding upon each other like the canibalistic ouroboros.” 
+
+I dared not move from beneath my sheets. Gripping them so tightly as to feel my fingernails puncturing through and into the palms of my hands. 
+
+“Look upon me child. Gaze at my visage and grasp the nature of the infinite abyss. Peer into the shadows so I may be satiated. For I hunger. Famished and emaciated, lurking in the places seldom ventured by man. See me as I’ve seen you. So scared, so alone"
+
+"Do you fear the unknown, or simply the \*idea\* of the unknown? You lie there, crippled by your own morbid curiosities. Reviling in terror implied but never at the expense of your mortality. You will grow; depraved and degenerative. Festering and spreading your ill-conceived ideals, a plague by your own short-sighted design."
+
+"In time, you will get sick. Vomiting noxious bile infused with well-meaning fables. You will take your last breath, still scared and alone, you will always be alone. Then you will die. I will remain. As I always have."
+
+"Countless lifetimes across endless millennia: Growing, purging, feasting, never ending. Does that not comfort you? To know something of your being will be truly immortal?"
+
+“You have the audacity to think of me monstrous. You created me. You are the monster. I am the monster. We are the monsters. So, child, I will ask of you again - WHY ARE YOU AFRAID OF ME!?”
+
+Those last six words were spoken with such voracity that I was sure my parents had heard. But no salvation seemed imminent. It was right, I was scared and most certainly alone.
+
+I considered doing as it bade me. Perhaps it would leave me in peace after I submitted to its request. I pondered on this for what seemed like eons: every possible outcome, each awful eventuality, countless scenarios and none with a serene conclusion. Maybe it wouldn’t be so bad; this thing had a voice and so must at least be tangible to our reality. It was in my room after all, so it was unlikely to be some hulking monstrosity, poised to consume me with gnashing fangs upon unveiling.
+
+But then what of my parents? Were they already victims to this beast? Is that why they were yet to come to my rescue? Was I truly alone? Before I had a chance to act, I saw it, through what little light the hallway lamp allowed through my bedding, a shadow extending its long bony fingers towards me. I was out of time. Out of options and surely poised to meet the same grim end befalling my parents.
+
+Closer, closer it came; I closed my eyes. I would not give it the satisfaction it so brazenly demanded. At least that I could assure myself as I prepared to be devoured.
+
+Suddenly, the sheets were torn away from me; I screamed, exhaling every ounce of terror bottled inside.
+
+The banshees would hear me in jealous admiration; ghouls and demons would crawl from their rotting chasms and bow at such effort, and the very pits of the deepest abominable regions of the dammed would quake at my ferocity. No, I would not go quietly into the void, I would not feed it.
+
+Later, my parents explained that they had found me that following morning, screaming and thrashing around in my bedsheets. I was drenched in sweat and babbling incoherently. They had to pry the bedding out of my fingers.
+
+They said I had a night-terror,common at that age and nothing to be ashamed of. They said I should grow out of it as I got older. They told me it would pass, as all terrible things do. They were wrong.
+
+When I was a teenager, a doctor told me I may be prone to *sleepwalking* or *sleep paralysis,* but no test held any significant results. I had naturally outgrown the desire for comfort toys. I'd imagine most were sold or donated to charity shops. Though I think my parents retained my old stuffed rabbit, lost amongst some mound of keep-sakes in a dusty storage box.
+
+I’m in my thirties now, married, and with a son of my own. I take medication to help with the sleep and anxiety. Not that it helps much. I still find myself awake into the early hours of each morning.
+
+At least my son sleeps soundly. He has his toys for comfort.
+
+I like to think I’m doing well as a father. I play with him, take him to the park, and read him stories at bedtime. At the moment we’re reading \*Hansel and Gretel;\* he seems to be enjoying it.
+
+Like most parents, we have a monitor in his room. Though I’m not very fond of looking at it during the night. Something about peering into darkness with that monochromatic night vision sends a chill down my spine. I mostly just keep the audio sensor on, it's sensitive enough to reassure me of his safety.
+
+He turned four a few weeks ago and has since requested a night light. I purchased one this morning. Tonight, I put him to bed with his newly purchased lamp on his bedside. I read his story, kissed his forehead, and wish him sweet dreams.
+
+Then I proceeded to sit down in the living room, poured myself a glass of water, and prepared for another long night of insomnia-infused television. The monitor was positioned on the side table to my left as always.
+
+It had been several hours now and my medication had finally begun to take some effect. My brain was ready to join my wife sound asleep in our bed. I let out one long, exhausted yawn, stood up, and began to walk to the bedroom. Then the monitor’s audio sensor lit up. 
+
+“*Why are you afraid of me*?”
