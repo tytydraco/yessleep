@@ -1,0 +1,477 @@
+I wasn't the best hitman in the world, but I was good enough.
+
+Good enough that people found me without advertisements, without business cards, without a website. They heard whispers. A friend of a friend knew someone who knew me. That's how it always worked.
+
+One of the strange things about being a hitman is that you don't really need marketing. If you're good at your job, word gets around. If you're bad at it, word gets around even faster.
+
+Either way, people find you.
+
+I'd been doing the job for years by then. Long enough to develop a reputation. Long enough that when someone knocked on my door unexpectedly, they usually weren't selling something.
+
+They wanted someone gone.
+
+People often imagine killers spend their nights wrestling with guilt. Maybe some do. I never did.
+
+I killed people for money. That was the truth. Simple enough.
+
+The day you start calling yourself a hero is the day you become more dangerous than the people you're pointing a gun at.
+
+That didn't mean I had no standards. Everyone has standards. Mine just happened to be lower than most people's.
+
+I didn't kill children. I didn't torture people. And I didn't enjoy the work. Beyond that, life got complicated.
+
+The couple arrived on a Tuesday afternoon. The husband knocked twice. The wife stood beside him staring at the floor.
+
+I invited them in and offered coffee. Neither touched it.
+
+The husband looked exhausted. The wife looked broken. Not sad. Not angry. Broken. I'd seen enough grief over the years to recognize the difference.
+
+Eventually the husband slid a photograph across the table. A man in his forties smiled back at me. The kind of smile that immediately made me dislike him.
+
+"What did he do?" I asked.
+
+The wife finally spoke. "He hurt our daughter."
+
+The room became very quiet.
+
+"There was evidence." I nodded. "There were witnesses." I nodded again. "The charges were dropped."
+
+Of course they were. Money had a way of making problems disappear. Especially when those problems were wearing expensive suits.
+
+To be honest, I would've done that one for free. Not because I was a good person. Good people don't shoot strangers for money. But everyone has lines. And men who hurt children happened to cross mine.
+
+"My fee is five thousand."
+
+The husband blinked. "That's all?"
+
+"Moral compass discount you could say."
+
+For the first time since entering my apartment, he almost smiled. Almost.
+
+I spent the next week watching the target. Learning routines was ninety percent of my job. The actual killing was easy.
+
+The man left for work every morning at eight. Returned home around nine. Drank too much. Talked too loudly. His girlfriend looked much younger than him. Every Saturday night she left around nine and didn't return until after midnight.
+
+The pattern repeated twice. That was all I needed.
+
+The following Saturday I parked two streets away and walked the rest. No cameras. No security. No witnesses. Honestly, some people made my job embarrassingly easy.
+
+I knocked. "Who is it?" a voice shouted from inside. I knocked again. Footsteps approached. The door opened.
+
+The man looked annoyed. Then confused. Then frightened.
+
+I shot him once in the chest. The suppressor reduced the sound to little more than a cough. He stumbled backward. I shot him again, before he hit the floor. At the place where it would hurt the most and drain him out of any sort of pride he still had.
+
+The second shot wasn't necessary. I knew that. But sometimes professionalism and personal opinion overlap. That was one of those times.
+
+I left before the body stopped moving. The drive home should have been uneventful.
+
+Instead, it changed my life.
+
+About thirty minutes outside the city, I approached a crossroads and saw someone standing in the middle of it.
+
+Not walking. Not crossing. Standing. Waiting. For me.
+
+I slammed on the brakes.
+
+The guy looked young. Hoodie. Jeans. Hands in his pockets. Normal. At least until he looked at me. Then I noticed his eyes. There was something deeply wrong about them. Not physically. They were just too calm. Like he knew how every conversation ended before it began.
+
+I got out of the car. "Move."
+
+The stranger smiled. "Hey, John."
+
+My stomach tightened. I didn't know him. But he knew me. In my line of work, that was rarely good news.
+
+My hand immediately went for my pistol. A second later I was staring at a banana.
+
+I blinked. Looked at the banana. Looked at him. Looked back at the banana.
+
+"What the fuck?"
+
+The stranger laughed. "Oh John, you won't be needing your toy."
+
+For the first time in years, I felt genuinely nervous. "Who are you?"
+
+He chuckled. "Hell. That word follows me around everywhere."
+
+The silence stretched. Finally he sighed. "Anyway, John, I'm here to present you with an offer."
+
+"I don't accept offers from strangers standing in the middle of nowhere."
+
+I turned to walk back toward my car. I couldn't move. Not metaphorically. Literally. My body simply refused to cooperate.
+
+The stranger shrugged. "What can I say? I really wanted your attention."
+
+That was the moment I stopped pretending he was a normal human being.
+
+"Okay," I said slowly. "What exactly are you?"
+
+His smile widened. "Now we're asking the interesting questions."
+
+He stepped closer. "Tell me, John. How long do you think you can keep doing what you do before ending up in prison?"
+
+I shrugged. "Eventually? Probably."
+
+"What if I told you that would never happen?"
+
+That got my attention. "What do you want?"
+
+"Friendship."
+
+I laughed. Actually laughed. Because it was such a ridiculous answer.
+
+"Friendship?"
+
+"Among other things."
+
+He tilted his head. "Every now and then I'll give you a name."
+
+"And then?"
+
+"You kill them."
+
+"That's it?"
+
+"That's it. I mean, you're already doing it, aren't you? I'll also pay you your usual charges if that's a concern."
+
+He wasn't wrong. I already killed people. This wasn't asking me to become something new. It was asking me to continue being exactly who I already was.
+
+"You're wondering where the catch is."
+
+"There's always a catch."
+
+"Of course there is."
+
+"What is it?"
+
+His smile returned. "You'll find out eventually."
+
+I should've walked away.
+
+Instead, I held out my hand.
+
+"So do we have a deal?"
+
+The stranger's grin became almost childlike.
+
+"We do."
+
+We shook hands. His skin felt impossibly hot and impossibly cold at the same time. Like holding fire and ice together. I pulled away quickly.
+
+A flash of lightning illuminated the road. I blinked. He was gone. Completely gone. The road stood empty. As if he'd never been there at all.
+
+Two months later he appeared in my kitchen. I nearly dropped my coffee.
+
+"Morning, John."
+
+He was sitting at my table. In front of him sat a red envelope. I wasn't even surprised anymore.
+
+"Breaking into people's homes is rude."
+
+"Technically I didn't break anything."
+
+He pushed the envelope toward me.
+
+"Your first assignment."
+
+Inside was a photograph and an address. Nothing else. The target was a human trafficker. A genuine monster. I killed him.
+
+Two months later another envelope arrived. Then another. Then another.
+
+Years passed. The names kept coming. Murderers. Human traffickers. Abusers. Violent gang leaders. The kind of people whose deaths made the world slightly easier to tolerate.
+
+And true to his word, I never got caught. Witnesses forgot details. Security cameras malfunctioned. Evidence vanished. One time a police officer drove past me while I was carrying a rifle to my car. He didn't even look twice.
+
+The stranger had kept his promise.
+
+Unfortunately, promises are often more dangerous than lies.
+
+The first time something felt wrong was six years into our arrangement. The target was a journalist. Not unusual. But nobody had hired me. The name had come from the Devil. Like always.
+
+I investigated him. A habit I'd never completely abandoned. The man wasn't a criminal. Just a journalist asking questions about a series of disappearances.
+
+Still, I completed the job.
+
+Then came a lawyer. A professor. A priest.
+
+Most people think curiosity kills cats. What they don't mention is that it ruins people too.
+
+The lawyer had represented people who claimed they had escaped strange agreements. The professor had spent years researching supernatural bargains. The priest had been helping people walk away from them. And the journalist had been investigating disappearances connected to all three.
+
+Suddenly the pattern became impossible to ignore.
+
+None of them were connected to each other.
+
+They were connected to him.
+
+The next time the Devil appeared, I was waiting.
+
+He materialized in my living room and sat on my couch. Without asking. As usual.
+
+"Hello, John."
+
+"Who are you?"
+
+He smiled.
+
+"We've known each other for years and that's still your question?"
+
+"Answer it."
+
+He leaned back.
+
+"Lucifer. Satan. El Diablo. The Morning Star. The Adversary. The Tempter." He paused. "I'm probably forgetting a few."
+
+"That's a lot of names."
+
+"When you've been around as long as I have, people get creative."
+
+I expected to feel something dramatic. Fear. Shock. Disbelief. Instead I just sat there. After all the things I'd seen him do over the years, that answer wasn't particularly hard to digest.
+
+"You've been using me."
+
+The Devil laughed.
+
+"Of course I have."
+
+"You could've hired anyone."
+
+"I could have."
+
+"Then why me?"
+
+The Devil smiled.
+
+"You were good at it."
+
+I hated how reasonable that answer sounded.
+
+Then I asked the question that had been bothering me for months.
+
+"How long have you been interfering in my life?"
+
+The smile widened. There it was. The question he'd been waiting for.
+
+"The crossroads wasn't the beginning, was it? It started before that. My first client? The man who introduced me to the business? How long?"
+
+The Devil shrugged.
+
+"Would it matter?"
+
+I hated that answer. Because part of me knew he was right. Ten years. Twenty years. My entire life. What difference did the number make?
+
+For the first time in years, I wasn't wondering what the Devil wanted.
+
+I was wondering which parts of my life belonged to me.
+
+And which parts belonged to him.
+
+A week later another red envelope arrived. Inside was a photograph, an address, and a name.
+
+Arthur Hale. Seventy-five years old. Retired bookstore owner.
+
+I spent a month investigating him. Nothing. No crimes. No secrets. No hidden life. The man ran a tiny bookstore and fed stray cats. The most dangerous thing about him was probably his cholesterol.
+
+I visited him three times. Each time I ran out of excuses faster than the last.
+
+Arthur never seemed suspicious. If anything, he looked strangely content. As if he'd already made peace with something years ago.
+
+One afternoon I finally asked him a question. "Do you believe people can change?"
+
+Arthur smiled. "Depends on what they're changing from."
+
+"And if they've done terrible things?"
+
+His eyes lingered on me for a second longer than I liked. Then he returned to arranging books. "I think people can choose differently tomorrow than they did yesterday."
+
+I don't know why that answer stayed with me. But it did.
+
+That night the Devil appeared. Sitting on my couch. Drinking my whiskey.
+
+"Why him?"
+
+The Devil looked at Arthur's photograph.
+
+Then smiled.
+
+"Because he said no."
+
+"No to what?"
+
+"To me."
+
+The room became very quiet.
+
+"When?"
+
+"About fifty years ago."
+
+I stared at him.
+
+"And you've waited this long?"
+
+"I'm very patient."
+
+"He didn't do anything."
+
+"Correct."
+
+"Then why kill him?"
+
+The Devil's smile widened. And for the first time since meeting him, it genuinely frightened me.
+
+"Because if one man can refuse me, others may realize they can too."
+
+For a moment neither of us spoke.
+
+Then everything suddenly made sense.
+
+The journalist. The lawyer. The professor. The priest. None of them connected to each other. They had all represented the same thing.
+
+Choice.
+
+The Devil sat back comfortably. Like we were discussing the weather. "You know," he said, "most people imagine rebellion is loud. It isn't." He picked up Arthur's photograph. "Most rebellions begin with a single person saying no."
+
+I stared at the old man. Nothing remarkable about him. Nothing except the fact that he'd done something I suddenly wasn't sure I could.
+
+"He refused me." The way he said it bothered me. Not angry. Not bitter. Almost impressed.
+
+"Is that what this is all about? Control?"
+
+He smiled. "Such an ugly word."
+
+"An accurate one."
+
+And for the first time in years, I wasn't thinking about the assignment.
+
+Eventually the Devil stood. "So? Will you do it?"
+
+I looked at Arthur's photograph one last time. The old man who had spent fifty years proving the Devil wasn't inevitable.
+
+Then I looked back at him.
+
+"No."
+
+For the first time since I'd met him, the smile disappeared. Not angrily. Not violently. Just... gone.
+
+"No?"
+
+"No."
+
+The Devil studied me. Like I'd become interesting for the first time.
+
+"Why?"
+
+I thought about it. For years I'd wondered how much of my life belonged to me. How much had been arranged. How much had been his. Maybe I'd never know. But I knew this decision was mine.
+
+"This one." I looked him directly in the eye. "This one is mine."
+
+For a long moment neither of us spoke. Then the Devil nodded once. Almost respectfully.
+
+And vanished.
+
+Three weeks later, the police arrested me.
+
+I wasn't surprised. Part of me had been expecting it since the moment I burned the envelope.
+
+The evidence came from everywhere. Security footage. Witness statements. Ballistics reports. DNA evidence. Cases that had been cold for years suddenly became very warm. It was as if someone had spent nearly a decade keeping every mistake I'd ever made hidden in a box — and then decided to open it.
+
+The trial lasted less than a month. The verdict took less than an hour.
+
+Twelve counts of murder. Guilty. Life imprisonment. No possibility of parole.
+
+The newspapers called me a monster. They weren't entirely wrong.
+
+For the first time in years, there were no envelopes waiting for me. No photographs. No names. No assignments. Just consequences. Honest consequences. The kind I'd spent most of my life avoiding.
+
+The first few years in prison were difficult. After that, they became routine.
+
+Prison has a strange way of shrinking time. Weeks become months. Months become years. Eventually decades pass so quietly you hardly notice them.
+
+I got older. My hair turned gray. Then white. The strength slowly left my hands.
+
+Sometimes I wondered about Arthur. Whether he was still alive. Whether he still owned the bookstore. Whether he had any idea that a murderer had gone to prison because of him.
+
+I hoped he never found out.
+
+Some things are better left unknown.
+
+The older I got, the less I thought about the Devil. Not because I'd forgotten him. Because there was no point.
+
+He had won. At least in most ways.
+
+But there was one thing that still gave me comfort. The choice. The one choice that I knew belonged to me.
+
+When the Devil asked for Arthur Hale, I had said no. Nobody forced me. Nobody manipulated me. Nobody arranged it.
+
+I chose.
+
+For most people, that wouldn't sound like much. One decision. One refusal. After a lifetime of terrible choices.
+
+But for me, it mattered. Maybe more than anything else.
+
+Forty-one years passed.
+
+My heart began to fail. The prison doctors told me I didn't have much time left. I thanked them. They seemed surprised. Death had been following me around for most of my life. I was honestly impressed it had taken this long to catch up.
+
+Rain tapped softly against the infirmary window. The room smelled of disinfectant and old age. Machines hummed quietly beside my bed.
+
+I was watching the rain when I noticed someone sitting in the chair across from me. A familiar hoodie. A familiar smile. Not a day older than when we'd first met.
+
+The Devil.
+
+"Hello, John."
+
+I laughed weakly. "Took you long enough."
+
+"I wanted to give you time."
+
+For a while neither of us spoke. The heart monitor continued its steady rhythm.
+
+Finally I looked at him. "You know something?"
+
+The Devil raised an eyebrow. "What?"
+
+I smiled. A small smile. The first genuine one I'd had in years.
+
+"I think I won."
+
+For the first time all evening, he looked surprised. "Won?"
+
+I nodded. "You never got Arthur. You spent years using me. But in the end I said no."
+
+The smile slowly returned. Patient. Interested. Waiting.
+
+"And that was enough?" he asked.
+
+I thought about it. About the crossroads. About the handshake. About the envelopes. About the prison cell. About the decades.
+
+Then I nodded. "Yeah."
+
+The Devil looked at me for a long moment. Then he laughed. Not mockingly. Not cruelly. Genuinely. As if I'd told him a joke he'd never heard before.
+
+"Oh, John."
+
+Something about that laugh unsettled me. "What?"
+
+The Devil leaned forward. "You still think prison was the punishment."
+
+The room suddenly felt colder. "What are you talking about?"
+
+His smile widened. Slowly. Patiently.
+
+"Prison was never the punishment."
+
+For the first time in forty years, I felt fear. Real fear. The kind I used to see in other people's eyes.
+
+"What happens now?"
+
+The Devil stood. Adjusted his sleeves. And looked down at me. For the first time, he looked ancient. Not old. Ancient. Like something that had existed long before history began. Long before humanity learned to write stories about monsters.
+
+"The punishment starts when you die."
+
+The Devil vanished. The monitor beside me continued its rhythm. The rain kept falling. The room stayed exactly as it was. I just lay there, staring at the ceiling, listening to my own heartbeat counting down. Waiting for it to stop. The Devil's last words sitting in my chest heavier than any bullet I'd ever taken.
+
+I'd spent my whole life not fearing death.
+
+Now, for the first time, I was terrified of it.

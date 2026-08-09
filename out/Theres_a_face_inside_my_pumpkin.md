@@ -124,7 +124,7 @@ Vines, like muscles, wound around a frame roughly the same height and width as m
 
 He looked exactly like me, smiling with my mouth.
 
-“Thank you, father, for setting me free,” he said. A fat leg took a set toward me.
+“Thank you, father, for setting me free,” he said. A fat leg took a step toward me.
 
 “You’re…welcome,” I said flatly. 
 
@@ -140,9 +140,9 @@ His head hit the floor and rolled until it came to rest against the Buick. His b
 
 “Can you really blame a guy for trying?” he joked. 
 
-I stomped him out with the heel of my boot until there was nothing left but orange pulp. I cleaned up what I could and burned the rest of the remains out behind the barn. Before crawling into bed, I bandaged my face and arms. By the time Cynthia and the boy came home, the scars looked much worse than I remembered. Furious reds trailing across me. 
+I stomped him out with the heel of my boot until there was nothing left but orange pulp. I cleaned up what I could and burned the rest of the remains out behind the barn. Before crawling into bed, I bandaged my face and arms. 
 
-They saw my wounds when they came home the next morning. I tried to tell them what happened. Tried to show them the body in the burn barrel. But it was gone.
+My family saw my wounds when they came home the next morning. I tried to tell them what happened. Tried to show them the body in the burn barrel. But it was gone.
 
 They immediately called the hospital, explaining that I was having some kind of mental breakdown. 
 
