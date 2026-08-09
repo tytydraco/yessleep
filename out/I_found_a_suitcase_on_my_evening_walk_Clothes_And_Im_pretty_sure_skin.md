@@ -52,7 +52,7 @@ A whole pile of human fucking skin.
 
 I physically jumped away from it, nearly sending myself off the edge of the ridge and down onto the rocky tumble. I thought back on the suitcase and how I’d joked about it being a dead body, and stared at the muss of hair where it must have been a scalp at one point. The horrible part was it was all in one piece. Like someone had simply slipped it off, like a snake, or a full-body leotard.
 
-That was about as much as I could take. I’d been stupid enough walking on after bit of clothing I’d found, but I wasn’t going to make the same mistake again. I took out my phone to call emergency services but ended up sprinting full speed back down the track when I heard more movement in the woods.
+That was about as much as I could take. I’d been stupid enough walking on after every bit of clothing I’d found, but I wasn’t going to make the same mistake again. I took out my phone to call emergency services but ended up sprinting full speed back down the track when I heard more movement in the woods.
 
 Each bit of clothes I passed gave me a terrible sinking feeling of dread in my guts, like I was seeing the skin all over again. I made it to the halfway point when I came across the suitcase.
 
