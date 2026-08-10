@@ -1,6 +1,6 @@
 
 
-My brother is missing and I just found his hard drive
+ My brother is missing and I just found his hard drive
 
 My brother has been missing for three days.
 
@@ -16,7 +16,7 @@ It starts like an internal memo from some kind of research group. No letterhead,
 
 Group Zero wasn't a government program, from what I can tell. It reads like what's left of a handful of independent research circles that got too close to something none of their funders wanted their name attached to. No chain of command, no headquarters. What held them together was simpler than that, they'd seen something that couldn't be unseen, and there was nowhere left to report it.
 
-Over the years they say they catalogued a lot of things that shouldn't exist. Forces that could unmake a galaxy in a single motion. Minds whose waking moment erases entire star systems on contact. Things people in other rooms, other decades, other disciplines had already given names to long before Group Zero ever existed — old names, frightened names, names meant to be gods in whatever reality first spoke them. Group Zero found records of some of those names too, eventually. Filed them. Studied them the way you'd study a candle to understand what a sun is.
+Over the years they say they catalogued a lot of things that shouldn't exist. Forces that could unmake a galaxy in a single motion. Minds whose waking moment erases entire star systems on contact. Things people in other rooms, other decades, other disciplines had already given names to long before Group Zero ever existed, old names, frightened names, names meant to be gods in whatever reality first spoke them. Group Zero found records of some of those names too, eventually. Filed them. Studied them the way you'd study a candle to understand what a sun is.
 
 They thought they'd already seen the bottom of the well.
 
@@ -32,6 +32,8 @@ Azgaron doesn't approach. It doesn't attack. It doesn't expand, not in any sense
 
 Here's the part that took me three reads to actually sit with. The file doesn't describe our universe as fragile against Azgaron. It describes our universe, and every other universe Group Zero had any theoretical model for, as a single grain of sand on a beach that itself sits on the edge of an ocean nobody has measured the far side of. Not one universe. Not our observable slice of one. All of them: every branching timeline, every parallel structure their mathematics could even gesture toward, the entire, uncountable, endlessly multiplying set of everything that has ever existed anywhere under any law of physics. According to the file, none of that is the audience Azgaron is even aware of. It's not that Azgaron could destroy all of it if it wanted to. It's that "all of it" was never a large enough object to register as a thing in the first place. We are not mold growing on the surface of one still, silent world. We are mold that never noticed it's growing on the outside of the jar the ocean was poured out of, in a room no one built, next to other jars we've never seen, holding other oceans we don't have names for.
 
+There's a line in the margin of this section that isn't part of the main file. Different font, like someone added it later, by hand, in whatever the digital equivalent of handwriting is. It says Group Zero ran exactly one internal test on whether the hierarchy itself could be questioned, whether there was any coherent way to model something standing above Azgaron, even as a pure thought experiment, even without believing it. The note doesn't say what happened to the researcher who ran the model. It just says the test is not to be repeated, and that the reason isn't classified, it's simpler than that: nobody who tried finishing that thought stayed a person who could finish thoughts.
+
 When it stirs, and it doesn't stir on purpose because it has no purpose, the file says nothing gets destroyed the way destruction usually works. It just goes back to being the blank page it was apparently taken from, page and ocean and jar and everything else that was ever poured out of it, all at once, without any of it ever having been the point.
 
 There's a section listing what they called recorded anomalies. I'll try to summarize instead of quoting the whole thing.
@@ -39,6 +41,14 @@ There's a section listing what they called recorded anomalies. I'll try to summa
 One entry describes an attempt by an earlier group to fire some kind of directed energy device at a suspected contact zone. According to the file, the device destroyed itself eleven minutes before the order to fire it was ever given. The incident report existed before the incident happened. Then the report disappeared. Then, according to the file, the incident stopped having happened at all.
 
 Another entry talks about zones where space apparently loses its sense of direction entirely. Left, right, up, down don't break, they just stop applying, the way the word loud doesn't apply to a smell. Matter in these zones doesn't vanish, it becomes something the file calls a boiling red mass that exists at every point in three dimensional space at once, and can't be picked up by any instrument directly. They say they don't see it, they calculate it, from the shape of what should be there and isn't.
+
+Another entry is shorter than the others, and it's the one I keep coming back to, because it's the only one that isn't about some far-off contact zone. It's about paperwork. It says that early on, before anyone understood what they were dealing with, a researcher typed the name into an internal case log, just once, just to have something to call the file. She tried to delete the entry the same day, standard procedure, nothing was confirmed yet, no reason to keep an unverified designation on record. The entry didn't delete. Not "wouldn't," the file is careful about that word, it says didn't. The delete command executed. The system reported success. The name stayed exactly where it was, in the exact font, at the exact timestamp, as if the deletion had happened to some other, identical database sitting just outside the one they were looking at.
+
+They tried harder after that, and the file lists what harder meant. Wiping the drive. Physically destroying the drive. Rebuilding the database from a clean backup taken before the name was ever entered. Every time, the name was back before anyone finished checking the backup was clean, sitting in a field it had never been written into during the backup window, with a creation timestamp that matched the original entry down to the second, like it had never actually left, like the whole idea of "before it was written" had been a courtesy the system was no longer willing to extend them.
+
+Someone, out of what the file describes only as poor judgment, tried entering it into a second, unrelated archive, a physically air-gapped system with no possible connection to the first, just to see. The file says the name appeared in both databases at once, on the same overnight cycle, with no transfer log, no network event, nothing to explain how information got from a machine with no outbound connection to one it had never been near. Whoever ran that test flagged it and, according to a note added weeks later in a different hand, was reassigned off all further contact with the file. No further explanation is given. None of the later entries mention that researcher again.
+
+The database that holds the file today, the one this document itself was apparently pulled from, has a standing internal warning attached to any record containing the name: do not attempt deletion. The rationale given isn't that deletion fails safely. It's that every attempt on record has made the surrounding data less stable afterward, not just the entry itself, other unrelated case files, timestamps drifting by minutes, sometimes years, cross-references pointing to incidents that no longer have any other record of having occurred. The working assumption, stated plainly, is that once the name exists anywhere in a system built to hold information, it stops being something that system can be asked to not know.
 
 The last entry is the one that got to me most. It describes people who got close to one of these zones experiencing what they called reverse cognition. Their memory starts running backward, they begin remembering things that haven't happened yet while losing their past, day by day, until their mind collapses back to the moment they were born. The file says there were three documented witnesses. None of them stayed themselves. In their last coherent minutes, all three apparently spoke fluently in a language none of them could have known at birth. Not baby talk. An actual structured language. One that, according to the file, didn't exist yet when they were born.
 
@@ -50,7 +60,6 @@ There's a folder in the drive with my brother's name on it. Inside, one file. La
 
 I haven't opened it yet.
 
-If I do, I'll post part two. If I don't post within 24 hours, please just forget you read this.
+I typed the name into a note on my phone twenty minutes ago, without thinking, just to have it in front of me while I wrote this post. I deleted the note before I started writing. The note is still in my recently deleted folder. I checked. It says it will auto-purge in twenty-nine days like everything else in there. I don't know why that's the detail I can't stop looking at.
 
-
-
+If I open the file, I'll post part two. If I don't post within 24 hours, please just forget you read this.
