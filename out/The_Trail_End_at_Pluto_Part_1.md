@@ -1,0 +1,77 @@
+I didn’t know they were planets, that’s the best way to start. 
+
+I’d been running along the Trans Canada Trail west of Ottawa three to four times a week for almost a year, and I’ve seen the signs hundreds of times by now. I just never paid attention to them.
+
+If you run enough, everything eventually becomes a landmark. Not because you know exactly what it is, but rather what it means. 
+
+The big rock at the end of a path means I’m 3.5km away from my house, the Bungalow with the old man sitting there means I’m 1.6km into my run, and the park with the splash pad means I’m 500m away from the trail. 
+
+The little signs along the trail were the same, I noticed them. Small signs set on the trail at irregular intervals, some close together that I’d pass within several minutes and other kilometers apart, I’d never stopped to read one. 
+
+I’m training for a Marathon, so stopping to read and enjoy the “lore” of the trail isn’t a part of training. 
+
+
+Saturday is my long-run day, and that week I had a 30km scheduled run. Friday night I was sitting behind my computer trying to figure out a route. 
+
+Planning long runs suck. 10K is simple, leave the house, run somewhere, and come home. Once you start getting into the high twenty-plus runs you need to figure out exactly where you’re going or you’re going to spend a lot of time running in the same circle. 
+
+I opened Google Maps as I usually do to chart runs and started tracing the Trans Canada Trail, that’s when I noticed one of the signs had a label **“Planetary Pathway – Earth”**. I clicked it and there were a couple of pictures and an informational sign beside the trail, nothing too interesting. 
+
+Then I noticed farther West, Mars. I zoomed out, Jupiter, Saturn, Uranus, Neptune, Pluto. 
+
+I laughed, I’d apparently been running through the solar system several times a week without noticing it. The signs were laid out as a scale representation of the planets’ distances from the Sun. 
+
+The sun was near my house at the beginning of the trail, whereas Pluto was in the next rural city over. Sun to Pluto and back came out perfectly for my long run. 
+
+That alone probably explains everything that happened afterwards, if the distance would have been 20KM I wouldn’t have done it, if it was 40KM I wasn’t going to do it, but it was pretty much the exact number written on my training plan. 
+
+I searched for the Planetary Pathway because I wanted the precise distances between signs. The first few pages were normal, cycling maps, old trail maps, tourism pages, and influencer blogs. Then I found an old forum post, the site looked like something I’d have used in high school. Grey boring background and blue hyperlinks, and a copyright notice at the bottom of the site that hadn’t been updated since 2010. 
+
+There was a thread from 2009 titled **“Anyone actually done all 9?”**. Someone wanted to know whether anybody had walked the entire Planetary Route. Most of the replies were boring, mostly people arguing whether Pluto was a planet and one person who said they biked it with their kids. Then I saw this exchange:	
+
+* *westbound3am: Not During the Day*
+* *Willoe425: What?*
+* *westbound3am: It doesn’t count during the day*
+* *Willoe425: What doesn’t count?*
+
+No answer after that. I clicked on westbound3am’s username and saw they had 9 posts, all between 2008 and 2009, all about the trail. One said “You start with the Sun, not Mercury”, another “Don’t skip Earth because they’re close, It still counts”, and “If you see somebody between Saturn and Uranus, don’t talk to them”. 
+
+I assumed it was an old urban legend, the kind that teenagers think of because they have nowhere better to drink. 
+
+I searched their username “westbound3am” into Google and got one result from another forum, this time older than the first one. Half the image links were dead and most of the site formatting was broken but the thread was called “The Nine Planet Run”. The original post has been deleted, but the replies weren’t. 
+
+The first few people were mocking it, then someone asked if anything actually happened? One person said *“My brother tried it, nothing happened”*. Someone replied *“Did he reach Pluto?”*. *“No.”* they said, then the user finished with *“Then he didn’t do it >:(“*
+ 
+Further down was another comment from westbound3am, detailing the rules:
+
+* 1.	Begin at the Sun Sign exactly at 3:00AM
+* 2.	Travel From the Sun Toward Pluto
+* 3.	Touch Every Planetary Marker you Pass
+* 4.	Between Planetary Markers, Never Turn Around
+* 5.	Never Leave the Trail
+* 6.	Do Not Speak to Anyone you Encounter
+* 7.	Do Not Stop Moving for Longer than One Minute
+* 8.	Reach Pluto Before Sunrise
+* 9.	At Pluto, Turn Around and Return to the Sun
+
+Someone asked *“And what happens if you finish?”*, westbound3am replied *“You come back.”*
+
+Another user asked, *“From where?”*. No response. That was the account’s final post, dated October 18th, 2009. 
+
+I wish I could say it frightened me, but it didn’t. It made the run sound more interesting, I already had 30KM scheduled, I knew the trail, none of the rules seemed particularly difficult. The only stupid part was the starting time, 3:00AM. At least that would give me the rest of the day with my wife and kids. I usually leave in the middle of the day for 2-3 hours for my long run, so this would be a nice change of pace. No dogs, no cyclists, no families blocking the trail in rows of 4 not knowing how to move over. Just me, my headlamp, and 3 hours of running. 
+
+I decided to do it. I was packing my hydration vest when my laptop pinged with a notification, I looked over to see the website I left open had a new reply. It was from westbound3am, posted at 11:48 PM, saying *“You’re running tomorrow anyway.”*
+
+I stared at it, then refreshed the page, the post disappeared. I checked the account: Last Active: October 18th, 2009. Nine posts, but when I refreshed the page again, it changed. Ten. The tenth post had no thread title, no replies, and it was dated October 19th, 2009. It had a tenth rule now:
+
+* 10.	If you return to the Sun, do not tell anyone where the run begins.
+
+Underneath was an image, it loaded slowly. Gravel, Trees, Night’s Sky, the Sun Marker, and a person standing beside it. Their face was too dark to see, and the caption was one phrase:
+
+**3:00AM**
+
+I closed my laptop, for about 5 minutes I considered cancelling my run, then I looked at my training plan:
+
+**SATURDAY – LONG RUN – 30KM (EASY)**
+
+That’s the part that bothers me most now. Not curiosity, not supernatural compulsion, but that I had thirty kilometers written on a spreadsheet. Apparently that was enough. I went to bed.
