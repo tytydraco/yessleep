@@ -1,0 +1,1442 @@
+I’ve spent six years repairing railway signalling equipment, and until
+last Thursday I would have told you there was nothing mysterious about a
+level crossing activating by itself.
+
+Annoying, yes. Potentially dangerous. But not mysterious.
+
+Water gets into junction boxes. Insulated joints fail. Track circuits
+drop out. Rodents chew things they shouldn’t. Lightning can leave
+equipment behaving strangely for days afterwards.
+
+There is always a reason.
+
+That was what I kept telling myself at 2:13 in the morning while I stood
+beside an empty stretch of track, watching both crossing gates lower in
+front of absolutely nothing.
+
+The red lights began flashing.
+
+The bell started ringing.
+
+Then, through the soles of my boots, I felt something moving along the
+rails towards me.
+
+There was no train on the network.
+
+There wasn’t even supposed to be one within thirty kilometres.
+
+And according to the recordings I’ve listened to since, I made one
+mistake that night.
+
+I opened the crossing.
+
+I’m posting this because the fault has appeared somewhere else.
+
+I work for a contractor that handles signalling maintenance for several
+regional lines. I’m deliberately keeping the location vague because I
+still have my job, technically, and because there is now an internal
+investigation involving people much higher up the food chain than me.
+
+The crossing was nothing special.
+
+Single track.
+
+Two lane road.
+
+Boom gates, flashing lights, audible warning bells. Bush on one side, a
+few scattered houses on the other. The nearest town was maybe ten
+minutes away.
+
+At 1:36 a.m., our control room received a notification that the crossing
+had entered an active state without an associated train movement.
+
+That sounds dramatic if you don’t work around signalling equipment.
+
+It isn’t.
+
+A crossing doesn’t need to “see” the train itself. Depending on the
+setup, it detects occupancy or approaching rail vehicles through track
+circuits or axle counting equipment and begins the warning sequence
+before the train reaches the road.
+
+Faulty detection can make the system think something is there when it
+isn’t.
+
+The safe failure state is generally inconvenient on purpose.
+
+If the equipment becomes uncertain, you want the gates down rather than
+up.
+
+I was the closest technician.
+
+My supervisor, Mark, called while I was driving.
+
+“Probably moisture,” he said.
+
+“It hasn’t rained.”
+
+“Condensation, then.”
+
+“Thirty degrees yesterday.”
+
+“Then a possum pissed in it. I don’t know, mate. Go look.”
+
+That was Mark.
+
+The control centre had reset the crossing remotely once. It returned to
+normal for fourteen minutes, then activated again.
+
+No train movements.
+
+No maintenance vehicles.
+
+Nothing authorised on the track.
+
+When I arrived, the gates were up.
+
+The road was empty.
+
+The crossing looked completely normal.
+
+I parked inside the maintenance area, put on my high visibility clothing
+and contacted control before entering the rail corridor.
+
+For anyone unfamiliar with railway work, you don’t simply wander onto
+tracks because someone told you there aren’t any trains around.
+
+Possession authorities, track protection and network rules exist because
+“there shouldn’t be a train” is a very efficient way to get killed.
+
+Control confirmed that the section was clear.
+
+I started with the equipment cabinet.
+
+No obvious water ingress.
+
+No burnt components.
+
+No animal damage.
+
+The voltages looked reasonable.
+
+I checked the event logger.
+
+The crossing had activated at 1:21.
+
+Reset at 1:22.
+
+Activated again at 1:36.
+
+Then returned to standby at 1:43 without anyone resetting it.
+
+That last part bothered me.
+
+Faults clear themselves all the time, but the sequence looked clean.
+
+Too clean.
+
+The system wasn’t recording a generic failure.
+
+It was recording an approach.
+
+Something was entering the detection section, progressing towards the
+crossing, passing through it and leaving on the opposite side.
+
+Exactly like a train.
+
+I called Mark.
+
+“You sure nothing ran through here?”
+
+“I’m looking at the graph now.”
+
+“Because the logger thinks something did.”
+
+“Track machine, maybe?”
+
+“At one thirty?”
+
+“Could’ve been an unlisted movement.”
+
+That would have been a serious issue in itself.
+
+“Can control check the axle count?”
+
+“Already asked.”
+
+“And?”
+
+“Nothing.”
+
+I looked down the railway line.
+
+The track disappeared into darkness in both directions.
+
+There are different kinds of quiet when you work nights.
+
+You become conscious of them.
+
+A suburban line is never actually silent. Electrical equipment hums.
+Roads hiss in the distance. Houses have air conditioning units and dogs.
+
+Out there, between towns, you hear insects, wind in dry grass and
+occasionally livestock.
+
+That night, there was almost no wind.
+
+I remember that because a plastic inspection tag hanging from the
+cabinet door was completely still.
+
+“Do another physical inspection,” Mark said. “Call me if you find
+anything.”
+
+I checked cables.
+
+Connections.
+
+Battery condition.
+
+Relay states.
+
+Then I walked part of the detection section with my torch, looking for
+damaged bonds or anything metallic lying across the rails.
+
+About two hundred metres from the road, I noticed marks in the ballast.
+
+Fresh compression.
+
+Two shallow lines running parallel between the rails.
+
+Not tyre marks.
+
+Not footprints.
+
+Imagine something extremely heavy pressing down on the stones at regular
+intervals.
+
+I crouched and shone my torch along the marks.
+
+They continued into the darkness.
+
+“Control,” I said over the radio. “Can you reconfirm there have been no
+movements through this section tonight?”
+
+A different controller answered this time.
+
+A woman’s voice. I knew her vaguely. Rachel.
+
+“Confirmed. No rail movements since twenty three forty eight.”
+
+“What was twenty three forty eight?”
+
+“Freight service.”
+
+I looked at the marks.
+
+Maybe they were from that.
+
+They probably were.
+
+I was tired enough that ordinary things were beginning to feel
+significant.
+
+I returned to the cabinet.
+
+At 2:13, a relay changed state behind me.
+
+Anyone who works around relay cabinets knows the sound.
+
+A hard mechanical click.
+
+Then another.
+
+I looked at the indication panel.
+
+Approach occupied.
+
+“Control?”
+
+Before Rachel answered, the crossing lights began flashing.
+
+The bell started.
+
+Both gates descended.
+
+“Crossing has activated again.”
+
+There was a pause.
+
+“We’re not showing anything.”
+
+“Logger shows approach occupancy.”
+
+“Track circuit on our end is clear.”
+
+The gates reached horizontal.
+
+I stepped out of the equipment shelter and looked up the track.
+
+Nothing.
+
+I could see maybe five hundred metres, with the crossing lights pulsing
+against the rails.
+
+No headlight.
+
+No locomotive.
+
+No maintenance vehicle.
+
+Nothing.
+
+Then I felt a vibration through the ground.
+
+Faint.
+
+I stopped moving.
+
+There it was again.
+
+A tremor travelling through the rail.
+
+I put one gloved hand against it.
+
+It was humming.
+
+“Rachel, are you absolutely sure the section is protected?”
+
+“Yes.”
+
+“I’m getting vibration.”
+
+Another pause.
+
+“I’ll check the adjoining sections.”
+
+The vibration increased.
+
+The red lights continued flashing.
+
+There’s something distinctive about an approaching train that you feel
+before you properly hear it. Especially freight. The rails start
+carrying it towards you.
+
+Except there was no engine noise.
+
+No horn.
+
+No headlight.
+
+Only that growing vibration.
+
+I backed away from the track.
+
+Then I heard the ballast.
+
+Crunch.
+
+A second later:
+
+Crunch.
+
+Then again.
+
+Crunch.
+
+It was coming from the darkness to my left.
+
+Not footsteps.
+
+Much heavier.
+
+The sound moved towards the crossing in evenly spaced impacts.
+
+Crunch.
+
+Crunch.
+
+Crunch.
+
+I aimed my torch down the line.
+
+Empty rails.
+
+But each time the sound came, the stones shifted.
+
+Not dramatically.
+
+Just a tiny settling motion travelling towards me.
+
+Like weight passing over them.
+
+My radio crackled.
+
+“Daniel?”
+
+I nearly dropped it.
+
+“Yeah.”
+
+“All adjoining sections clear.”
+
+I stared down the track.
+
+The vibration became strong enough to make the loose latch on the
+equipment cabinet rattle.
+
+“Something’s approaching me.”
+
+“What do you mean?”
+
+“I mean the rails are reacting like there is a train approaching.”
+
+“Do you have visual?”
+
+“No.”
+
+“Then move clear.”
+
+I already had.
+
+The crunching reached the edge of my torch beam.
+
+I watched the ballast compress between two sleepers.
+
+Then the next section.
+
+Then the next.
+
+Nothing was touching it.
+
+I stepped backwards until I reached the road shoulder.
+
+The invisible pressure passed over the first rail side sensor.
+
+The crossing bell stopped.
+
+Not gradually.
+
+It cut off in the middle of a ring.
+
+The lights kept flashing.
+
+The vibration became violent.
+
+And then something passed through the crossing.
+
+I can’t describe what I saw because I didn’t see anything.
+
+That’s the point.
+
+But dust lifted from the road in a long horizontal wave.
+
+The gate nearest me shuddered violently, as though caught in the
+turbulence beside a fast moving train.
+
+Loose gravel jumped between the rails.
+
+My shirt pulled towards the track.
+
+For perhaps five seconds, I heard air rushing past me.
+
+Not engine noise.
+
+Only displaced air.
+
+Then it was gone.
+
+The stones continued compressing along the opposite side.
+
+Crunch.
+
+Crunch.
+
+Crunch.
+
+Fading into the darkness.
+
+The gates rose.
+
+The lights stopped.
+
+Everything became still.
+
+I didn’t move for a while.
+
+Rachel spoke first.
+
+“What happened?”
+
+I gave her the most professional answer I could manage.
+
+“I don’t know.”
+
+Mark arrived forty minutes later.
+
+I expected him to laugh when I explained it.
+
+He didn’t.
+
+That frightened me more.
+
+He checked everything himself.
+
+Then he downloaded the crossing event log onto his laptop.
+
+The detection sequence showed exactly what I had seen.
+
+Approach occupancy.
+
+Crossing activation.
+
+Island occupancy.
+
+Departure occupancy.
+
+Clear.
+
+“What could simulate that?” I asked.
+
+Mark kept staring at the screen.
+
+“Multiple failures.”
+
+“Simultaneously?”
+
+“Could.”
+
+“In sequence?”
+
+He didn’t answer.
+
+At 3:11, we received a call from control.
+
+There was a car waiting at the crossing.
+
+The gates had activated again.
+
+Mark swore.
+
+We drove the maintenance ute fifty metres back towards the road.
+
+An old silver Corolla had stopped at the gate.
+
+A man was inside.
+
+He lowered his window when he saw us.
+
+“How long’s this thing gonna take?”
+
+“Technical fault,” Mark called. “Stay where you are.”
+
+The driver looked in both directions along the track.
+
+“There ain’t a train.”
+
+“We know.”
+
+That wasn’t the right thing to say.
+
+He immediately became more irritated.
+
+“So open it.”
+
+Mark told me to return to the cabinet.
+
+The crossing remained active.
+
+Control showed no rail movement.
+
+But locally, the same sequence had begun.
+
+Approach occupied.
+
+I touched the rail.
+
+Nothing yet.
+
+Mark joined me.
+
+“What?”
+
+“Wait.”
+
+Ten seconds.
+
+Twenty.
+
+Then the hum started.
+
+I looked at him.
+
+He felt it too.
+
+His face changed.
+
+Not fear exactly.
+
+Recognition.
+
+That might have been worse.
+
+“You’ve felt this before,” I said.
+
+“No.”
+
+“You have.”
+
+“No.”
+
+The driver honked.
+
+Mark ignored him.
+
+The vibration grew.
+
+Then came the first distant crunch.
+
+I watched Mark.
+
+He went pale.
+
+“What the fuck is that?”
+
+“So you haven’t heard it before.”
+
+He walked towards the road.
+
+The driver honked again.
+
+“I’ve been sitting here five fucking minutes!”
+
+“Stay in your car,” Mark shouted.
+
+The man opened his door.
+
+“Sir, don’t.”
+
+He got out.
+
+The strange thing is, if we had told him the truth, he probably would
+have crossed sooner.
+
+There’s an invisible train coming.
+
+Right.
+
+Sure.
+
+Instead, Mark told him the signalling equipment was malfunctioning and
+regulations required him to wait.
+
+The driver pointed at the empty rails.
+
+“Mate, I can literally see there’s nothing there.”
+
+The crunching grew louder.
+
+I could feel the rail vibrating now.
+
+“Get back in your car,” I said.
+
+He looked at me.
+
+Something in my voice must have worked because he stopped arguing.
+
+Then Mark did something I still don’t understand.
+
+He walked to the manual gate control.
+
+“What are you doing?”
+
+“Clearing him.”
+
+“Mark.”
+
+“If the system stays active and traffic builds, we’re creating another
+hazard.”
+
+“There is something coming.”
+
+“There is no train, Daniel.”
+
+“You just heard it.”
+
+“I heard a track fault.”
+
+Crunch.
+
+Closer.
+
+The Corolla driver was watching us.
+
+Mark unlocked the maintenance control.
+
+I grabbed his arm.
+
+“Don’t raise it.”
+
+He pulled away.
+
+“This equipment doesn’t get to invent trains.”
+
+That’s almost exactly what he said.
+
+This equipment doesn’t get to invent trains.
+
+Then he manually commanded the road gate upwards.
+
+The boom lifted.
+
+The driver didn’t wait for permission.
+
+He accelerated across.
+
+The crunching was maybe thirty metres away.
+
+I screamed.
+
+I don’t remember what.
+
+Probably only, “STOP.”
+
+The Corolla reached the tracks.
+
+Its front wheels crossed the first rail.
+
+Then the car jerked sideways.
+
+Not forwards.
+
+Sideways.
+
+Like something travelling along the railway had struck it at full speed.
+
+Except there was nothing there.
+
+The driver’s side collapsed inwards.
+
+All the windows exploded.
+
+The entire car spun once and disappeared.
+
+I mean disappeared.
+
+It wasn’t thrown into the bushes.
+
+It didn’t tumble down the track.
+
+It was there, folded almost in half.
+
+Then it wasn’t.
+
+For a fraction of a second, I saw the rear bumper moving impossibly fast
+beside the railway line.
+
+Then darkness.
+
+The air hit us.
+
+Mark went down.
+
+I grabbed the cabinet fence to stay upright.
+
+Dust blasted across the road.
+
+The manual gate snapped backwards so violently that the fibreglass arm
+broke near the hinge.
+
+Something screamed.
+
+I thought it was the driver.
+
+It took me several seconds to realise it was metal.
+
+The sound raced away along the track.
+
+Then silence.
+
+The remaining gate began rising normally.
+
+The crossing returned to standby.
+
+Mark sat in the road, staring at the place where the Corolla had been.
+
+Fragments of glass lay everywhere.
+
+One side mirror.
+
+A strip of silver paint on the asphalt.
+
+No car.
+
+The police found part of it four kilometres down the line.
+
+A section of the rear door.
+
+Another fragment was found nearly eleven kilometres away.
+
+They closed the railway for the rest of the morning.
+
+Search teams went along the corridor.
+
+No driver.
+
+No main wreckage.
+
+No blood that I’m aware of.
+
+Nothing large enough to explain where most of the vehicle went.
+
+The official assumption, at least initially, was that an unauthorised
+rail vehicle had struck the car and failed to report the collision.
+
+That theory lasted until investigators reviewed the data.
+
+There was no authorised train.
+
+No unauthorised train was located.
+
+No corresponding vehicle had entered the network from any accessible
+siding.
+
+And then there was the CCTV.
+
+The crossing had one camera aimed towards the road.
+
+It didn’t show what I remembered.
+
+At least, not completely.
+
+You can see the Corolla waiting.
+
+You can see Mark and me.
+
+You can see the gate rise.
+
+You can see the driver start across.
+
+Then, just before the collision, the video distorts.
+
+Not static.
+
+The picture seems to bend sideways for six frames.
+
+The Corolla compresses into a silver blur and vanishes from view.
+
+The strangest thing isn’t the car.
+
+It’s me.
+
+Three seconds before the impact, the CCTV shows me stepping backwards.
+
+I didn’t remember doing that.
+
+I move directly away from the nearest rail and put my hand against the
+fence.
+
+Almost as though I know exactly how far away I need to be.
+
+Mark doesn’t.
+
+The air blast knocks him down.
+
+I remain standing.
+
+Investigators asked why I moved.
+
+I said I heard it coming.
+
+They asked what “it” meant.
+
+I didn’t have an answer they liked.
+
+I didn’t return to work for two days.
+
+When I did, Mark wasn’t there.
+
+Officially, he’s on stress leave.
+
+He hasn’t answered any of my messages.
+
+The damaged crossing equipment was removed and replaced.
+
+They changed practically everything that could be changed without
+rebuilding the site.
+
+Detection equipment.
+
+Control modules.
+
+Relays.
+
+Cabling around the gate mechanisms.
+
+The new system passed every test.
+
+The track itself was inspected ultrasonically.
+
+Nothing unusual.
+
+During the investigation, I went through the old maintenance records.
+
+I wasn’t trying to prove that ghosts exist.
+
+I was looking for a previous electrical fault we might have missed.
+
+I found three unexplained activations at that crossing.
+
+One from 2019.
+
+Two from 2008.
+
+The 2019 incident occurred at 4:07 a.m.
+
+Crossing activated.
+
+No scheduled movement.
+
+Technician attended.
+
+No fault found.
+
+Buried in the notes was one sentence:
+
+Observed probable heavy rail movement despite control confirmation line
+clear.
+
+That technician no longer works for us.
+
+I tracked him down through someone who knew someone.
+
+His name is Glen.
+
+He didn’t want to speak to me.
+
+Then I mentioned the ballast.
+
+There was silence.
+
+“What about it?” he asked.
+
+“The stones move before it gets there.”
+
+Another long silence.
+
+Then he said:
+
+“You raised the gate, didn’t you?”
+
+My stomach dropped.
+
+“How do you know?”
+
+“Because everyone thinks the gate is malfunctioning.”
+
+“What is it?”
+
+“I don’t know.”
+
+“Did you see it?”
+
+“No.”
+
+“Did someone get hit?”
+
+He didn’t answer directly.
+
+Instead, he asked whether I had noticed the bell.
+
+“What about the bell?”
+
+“When does it stop?”
+
+I thought back.
+
+The first time, the bell stopped shortly before the strongest vibration
+reached the crossing.
+
+The second time, too.
+
+“When it’s close.”
+
+“Exactly.”
+
+I asked him what that meant.
+
+He said the crossing wasn’t malfunctioning.
+
+“At least, that’s what I decided.”
+
+“Then why doesn’t control see it?”
+
+“I stopped caring.”
+
+“You wrote probable heavy rail movement.”
+
+“Because if I’d written invisible train, I would’ve been drug tested.”
+
+That actually made me laugh.
+
+Not because it was funny.
+
+Because I hadn’t slept properly, and it was the first thing anyone had
+said that made the situation feel slightly less impossible.
+
+Then Glen told me something that didn’t make me laugh.
+
+In 2019, he had been instructed to isolate the crossing because repeated
+false activations were delaying road traffic.
+
+He refused.
+
+His supervisor attended.
+
+The crossing activated again while they argued.
+
+There was a truck waiting.
+
+The supervisor manually raised one gate.
+
+Glen said the truck driver started crossing, then stopped.
+
+“Why?”
+
+“Passenger screamed.”
+
+“At what?”
+
+“He saw something.”
+
+“What?”
+
+“He wouldn’t say. Kept saying there were windows.”
+
+I thought I had misheard.
+
+“Windows?”
+
+“That’s what he said.”
+
+The truck reversed.
+
+Seconds later, whatever was coming passed through.
+
+The supervisor apparently felt the displaced air.
+
+Afterwards, he cancelled the isolation.
+
+No incident report mentioned it.
+
+“Why didn’t anyone warn us?” I asked.
+
+“Warn you about what?”
+
+“The crossing.”
+
+“Because I don’t think it’s the crossing.”
+
+I didn’t understand.
+
+Then Glen asked for the date of the previous unexplained activation.
+
+I gave him 2008.
+
+“And before that?”
+
+“That’s all our electronic records have.”
+
+“Find the old paper ones.”
+
+I did.
+
+Our archived maintenance documents had been scanned years ago, but
+anything older than the early 2000s was inconsistent.
+
+Eventually, I found a digitised incident register from the previous rail
+operator.
+
+There had been a fatal collision near the same location in 1987.
+
+At first, I thought that was the answer.
+
+Ghost train.
+
+Old accident.
+
+Simple.
+
+Except the 1987 collision involved a real freight train hitting a ute.
+
+Nothing about unexplained crossing activations.
+
+I called Glen.
+
+“1987 fatality.”
+
+“Keep going.”
+
+There was another accident in 1971.
+
+Then one in 1954.
+
+Different circumstances.
+
+Different trains.
+
+The crossing had existed in some form for decades, so accidents weren’t
+shocking.
+
+Then I noticed something.
+
+The dates weren’t useful.
+
+The notes were.
+
+Several reports mentioned drivers claiming that the crossing warnings
+had activated when no train was visible.
+
+One complained that the gates remained lowered after a train had already
+passed.
+
+Another said the warning equipment activated twice, with only one
+scheduled service.
+
+The oldest relevant record I found wasn’t an accident report.
+
+It was from 1948.
+
+A maintenance note.
+
+The crossing used mechanical signalling then. Nothing resembling our
+modern detection equipment.
+
+The note described complaints of the warning bell operating “without
+corresponding rail traffic”.
+
+Same location.
+
+Different technology.
+
+Different electrical system.
+
+Seventy eight years ago.
+
+I called Glen again.
+
+“This happened before the current equipment existed.”
+
+“I know.”
+
+“So what activates the crossing?”
+
+“I think that’s the wrong question.”
+
+“What’s the right one?”
+
+He hesitated.
+
+“What does the crossing detect that we don’t?”
+
+That sentence has been stuck in my head ever since.
+
+Three nights ago, I went back.
+
+I wasn’t supposed to.
+
+I parked well away from the rail corridor and stayed outside the fence.
+
+The crossing had been repaired.
+
+New gate.
+
+New equipment.
+
+Nothing happened for almost an hour.
+
+At 12:46, a freight train came through normally.
+
+Lights.
+
+Horn.
+
+Engine noise.
+
+The ground shaking.
+
+Everything you would expect.
+
+After it passed, the gates rose.
+
+I waited.
+
+Twenty three minutes later, they lowered again.
+
+No train movement appeared on the public freight schedule.
+
+I called Rachel personally.
+
+She knew why.
+
+“No movements,” she said immediately.
+
+The red lights flashed across the empty road.
+
+I stayed behind the fence.
+
+The bell rang.
+
+For almost a minute, nothing else happened.
+
+Then the rail began humming.
+
+Crunch.
+
+Far away.
+
+Crunch.
+
+Closer.
+
+I didn’t shine my torch this time.
+
+I wanted my eyes adjusted to the darkness.
+
+The sound approached.
+
+As it drew closer, I noticed something I hadn’t seen during the first
+incident.
+
+Not the thing itself.
+
+The absence around it.
+
+Stars above the track disappeared.
+
+Only for tiny fractions of a second.
+
+One after another.
+
+Rectangles.
+
+At first, I thought trees were blocking them.
+
+Then I realised the shapes were moving.
+
+Rows of dark rectangles sliding through the night where the side of a
+train should have been.
+
+Windows.
+
+The passenger in the truck in 2019 hadn’t been hallucinating.
+
+There were windows.
+
+I couldn’t see what they belonged to.
+
+But as the invisible train reached the crossing, I saw something through
+one of them.
+
+A lit interior.
+
+For less than a second.
+
+Yellowish light.
+
+Seats.
+
+People.
+
+Dozens of them.
+
+Sitting perfectly still.
+
+I know how this next part sounds.
+
+One of them was inside a silver Corolla.
+
+Not driving it.
+
+Sitting in it.
+
+The car had somehow been wedged between rows of seats, crushed enough
+that I shouldn’t have recognised it.
+
+But I saw the rear window.
+
+And through it, the driver from Thursday.
+
+Alive.
+
+He was hammering on the glass.
+
+The whole thing passed in maybe two seconds.
+
+I screamed and ran alongside the fence.
+
+I don’t know what I intended to do.
+
+Then the driver saw me.
+
+His face changed.
+
+He stopped hitting the window.
+
+He pointed ahead.
+
+Not at me.
+
+Ahead of the train.
+
+Then he covered his ears.
+
+The last window passed.
+
+A second later, the crossing bell stopped.
+
+I froze.
+
+That was when I finally understood Glen’s question about the bell.
+
+I had assumed it stopped because the train was close.
+
+It doesn’t.
+
+The bell stops before the train arrives.
+
+What I had just seen wasn’t the engine.
+
+It was only part of it.
+
+The passengers passed first.
+
+Something else was still approaching.
+
+The rail beneath me began vibrating hard enough to blur.
+
+I ran.
+
+I made it maybe thirty metres from the fence before the air changed.
+
+The sound behind me wasn’t a locomotive.
+
+It was one enormous metallic inhalation.
+
+The sort of noise you might imagine a tunnel making if it suddenly
+learned how to breathe.
+
+Every crossing light went dark.
+
+Not only the red flashers.
+
+My car headlights.
+
+The nearby house lights.
+
+My phone.
+
+Everything.
+
+For perhaps three seconds, there was absolute darkness.
+
+Then something moved past.
+
+I felt pressure inside my chest.
+
+My ears popped.
+
+And somewhere immediately beside me, from inside that darkness, somebody
+whispered my name.
+
+Not “Daniel”.
+
+My full name.
+
+First, middle and surname.
+
+Then the pressure vanished.
+
+The lights came back.
+
+The gates rose.
+
+I drove home without reporting anything.
+
+Yesterday morning, I called Glen.
+
+I told him about the windows.
+
+The people.
+
+The thing behind them.
+
+He was silent for so long that I thought the call had dropped.
+
+Finally, he asked, “Did it know you were there?”
+
+I told him what I had heard.
+
+He swore.
+
+“What?”
+
+“You need to tell your company.”
+
+“Tell them what?”
+
+“That you’ve been recognised.”
+
+“By what?”
+
+“I don’t fucking know.”
+
+That was the last time I spoke to him.
+
+I’ve called eleven times since.
+
+His phone goes straight to voicemail.
+
+This afternoon, my manager rang and told me not to attend any sites
+until the investigation concludes.
+
+I thought that meant someone had discovered I returned to the crossing.
+
+It didn’t.
+
+At 4:18 this morning, another crossing activated without a train
+movement.
+
+Not the same crossing.
+
+One hundred and sixty three kilometres away.
+
+Different line.
+
+Different signalling manufacturer.
+
+Different detection system.
+
+The attending technician sent an incident report describing vibration in
+the rail despite confirmation from control that the section was empty.
+
+He also reported hearing ballast shifting towards him.
+
+I only know because Rachel forwarded me the internal notification.
+
+There was one detail she highlighted.
+
+Before attending the site, the technician received a call over the
+maintenance radio.
+
+He assumed it was network control.
+
+The voice told him there was a signalling fault and instructed him to
+raise the gates manually if they activated.
+
+Control confirmed that they never made that transmission.
+
+The technician asked who was speaking.
+
+According to the radio recording, the voice gave a name.
+
+Mine.
