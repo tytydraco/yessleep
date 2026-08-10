@@ -100,4 +100,4 @@ It’s filled with hair from floor to ceiling. Filled so much I swear the window
 
 So, riddle me this.
 
-What the fuck do I do?
+What the hell do I do?
