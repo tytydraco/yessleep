@@ -414,7 +414,7 @@ It was a lot less muddy than before which I expected, but the strange thing was 
 
 And across the fence was what I could only describe as a cosmic injustice. It was so completely bizarre I felt like laughing and crying all at once.
 
-The grass was alive, green even. Rows upon rows of tall lush corn and bright golden alfalfa covered their land like a jungle.
+The grass was alive, green even. Rows upon rows of tall lush corn and bright golden canola covered their land like a jungle.
 
 In the distance I saw that they had put up a house, a bright white one with a pretty row of flowers out front. 
 
