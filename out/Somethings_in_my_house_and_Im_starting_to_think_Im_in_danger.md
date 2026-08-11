@@ -1,0 +1,31 @@
+I’m up late writing this, my hands are literally shaking. I’m thinking of leaving my house, but I think it might follow me, and I’m scared of provoking it. I need help, I don’t know anything about this. 
+
+It all started about two months ago, when my dad died. I was in the hospital with him, holding his hand, when he flatlined. He was getting old and his health had been declining for years, so I was devastated but not shocked. 
+
+That night, when I was going to bed, I called out “goodnight” out of habit. The hall lights immediately flashed twice. He was living with me for those last few years, and as he stopped being able to speak, he’d do a double knock in response to my goodnight. 
+
+I don’t know, it felt like something; I knew it might just be the grief, but it made me feel a little better, like maybe he was still with me? I never really believed in ghosts, but I wasn’t a dedicated skeptic either, I figured anything’s possible. 
+
+The next three weeks or so were difficult while I sorted through the grief, but I kept feeling his presence, and it helped. I’d keep getting those flickers goodnight, I smelled his cologne when I missed him most, and I heard footsteps just like his downstairs, as I fell asleep. I sleep with my door open to let my cats roam at night, and sometimes I’d even awake to see his silhouette in the doorway for just a moment, as if he was checking on me. 
+
+Saying it now, it feels so stupid. I don’t know why I wasn’t scared, but it all felt so good. It filled the gaping hole my dad’s death had left in my life. I had spent all my time with him and neglected my friendships; his death left me so lonely. 
+
+Five weeks ago, I went for a nighttime run. I slowed down to a walk as I got to my front yard, and reached for my phone to turn off the music. My phone was in my hand, but I hadn’t looked down at it yet; then, next thing I knew, I was standing stunned, my phone feet away on the ground as if it had been slapped out of my hand. I don’t even remember stopping. 
+
+I looked all around for something, anything, that could’ve done that. I was in an area clear of trees, I didn’t see any animals around, and there was nothing in my path. 
+
+I hurried into my house that night, confused but not really afraid. The light flashed goodnight, and I fell asleep listening to my father’s footsteps. I didn’t realize then, that that was the beginning of something much worse. 
+
+In the weeks to come, my cats started startling at nothing I could see, which I tried to shrug off as bugs, but my house is very spider-prone, and daffodil has been reactive to them.
+
+Next I started seeing horrific images every time I closed my eyes. They started off as my dad in the hospital, the machines that had surrounded him, but it kept morphing. Now I see melting faces, pale not-quite-humans with soulless eyes, and my own graphic death, the same every time. 
+
+And now, this week, I’ve started hearing phrases in my head when I’m tired. My mind is my own until I start to nod off, and then I hear cryptic commands. They’re spoken soothingly, but they’re telling me to do strange things. They want me to light candles and draw symbols I don’t understand. 
+
+I’d been ignoring it, all just symptoms of a grieving mind, right? 
+
+I wish I’d taken this seriously before waking up with a fabric belt wrapped around my throat. 
+
+I don’t know what this thing is, but it’s definitely not my dad. I think it might actually kill me. 
+
+Please, if you know what this could be or how I can protect myself, tell me. I’ve never been this afraid in my entire life. A part of me wants to just give in and let it do whatever it wants to me, just to end this.

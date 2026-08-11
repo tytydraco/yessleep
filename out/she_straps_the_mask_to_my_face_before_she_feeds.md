@@ -1,0 +1,37 @@
+
+I don’t have much time to type this, and honestly— my hands are shaking so badly I can barely hit the keys on my broken phone. I’m writing this from the crawlspace under our cabin while she’s down at the local market buying groceries. If you live anywhere near the Cape Breton ridge, or if you ever see a second-hand medical supply store selling grey-cased ventilators, please read this. DO NOT make the same mistake I did!
+
+We bought the Cape Breton ridge cabin five years ago to escape the noise. Here, where the Appalachian chain drowns its tail in the Atlantic, the fog doesn’t roll in; it sits on your chest and suffocates until you stop fighting. 
+
+Kate belongs to this dirt. 
+My queen—her red hair looks like rust against the dark spruce, her blue eyes too bright for these gray winters. I’ve spent a third of my thirty-five years memorizing the quiet tilt of her wrist when she pours tea. She is my home. 
+
+Which is why the plastic hose tastes like betrayal. 
+
+My snoring had gotten bad—a raw, choking gasp that woke her shaking. Last week she brought the machine back from town: a heavy, second-hand medical block with scuffed gray casing. “For your heart, Clay,” she cooed, fingers cold against my jaw. 
+
+Every night she straps the rubber harness to my face. The motor’s low growl fills the dark, reeking of stale mechanical burn and damp earth. When the mask seals, my lungs don’t fill—they empty. It works like an artificial vacuum, sucking the breath from my throat and locking me into warm, heavy paralysis. I can’t move. I can’t scream. I only watch the ceiling beams rot in the moonlight while my heart thuds, sluggish and thick. 
+
+Then the mattress shifts. Kate doesn’t climb out of bed; she slides. A graceful weight presses against my right side. The rubber muzzle keeps me pinned. 
+
+Wet warmth pools against my neck—not fingers, but a parted, deliberate suction timed to my heartbeat. A tiny metallic sting hums into the bone. Something hollow drains inside my chest, like water swirling down a clogged sink. In the dark I hear her swallow: a wet, heavy click in the back of her throat, a smug half-smile on her beautiful face. 
+
+When the sun broke over the ridge this morning she was back on her side, snoring softly. On my neck sat two tiny, yellow-bruised punctures. 
+
+“You look pale, my love,” she said, scrambling eggs in the cast-iron skillet. Her eyes were clear, entirely loving, entirely mundane. 
+
+Tonight the fog is thick enough to swallow the trees. She is adjusting the straps—tightening them, menacingly in love. Her thumbs press hard into my jaw, sealing the rubber. 
+
+I don’t fight. My lungs collapse as the vacuum engages and pulls the last of my air into the hose. 
+
+She slithers beside me. The wet warmth finds my collarbone, the cold sting pierces, and the swallowing begins. 
+
+As my vision dims, my hand twitches—not from fear, but from a sudden deep vibration traveling through the plastic tubing. I follow the line with my eyes in the pale moonlight. 
+
+The hose doesn’t run to the gray motor on the nightstand. 
+
+It runs straight into her back. 
+
+The machine isn’t filtering air. It’s pumping my breath into its lungs—holding me empty, holding me still, keeping me alive long enough to feed the thing wearing the face of the love of my life. 
+
+I can hear her car tires crunching on the gravel driveway right now. She’s back. I’m hitting post and hiding my phone. God, please— have mercy on my soul.
