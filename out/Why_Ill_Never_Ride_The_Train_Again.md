@@ -1,0 +1,408 @@
+The ringing of the bells echoed through the morning fog like a siren’s call. Only moments later did I see the piercing yellow headlight break through the grey shroud. My breath caught in my throat as I rose from the bench I was sitting on.
+
+The train was here.
+
+“All aboard!” declared the much too cheerful conductor, and I took my place in line.
+
+As I stepped up the metal stairs, wincing with every creak from the aging locomotive, I took one last breath of the outside. The summer air was sweet and thick, and it weighed on me like an anchor as I willed myself to take each step forward.
+
+I felt an immediate resentment toward the smiling train conductor who eagerly clicked my ticket and guided me along. I envied and despised his ceaseless optimism.
+
+The train was sparsely populated with other gloomy passengers. Many kept their heads down, as if the mere act of looking up might afford them the choice to rise from their seats, step back onto the station platform, and cut their journey short.
+
+Not everyone seemed to despair at the thought of the ride, however. A young woman smiled as I walked by, her demeanor shifting only when I hurried past her in search of an empty row to stretch out in.
+
+Thankfully, there were plenty to choose from, and I quickly dropped into a window seat in the back row.
+
+I pulled my wallet from my back pocket. I sifted aimlessly through photographs and old coins, not lingering on any particular piece, just looking over the collection.
+
+I was pulled from my thoughts by a deep grunt and the sound of a man dropping into the seat beside me.
+
+He was an older man, bald with a thick, grey beard. His voice scraped against his throat like a razor blade.
+
+“This seat taken?”
+
+I looked over at him, slightly annoyed by the intrusion.
+
+“This is a big train. Plenty of open rows for you.”
+
+He laughed weakly, then coughed.
+
+“That is true, but I like this seat. The sunrise hits just right from here, and you get first grabs at the dining cart.”
+
+I sighed.
+
+“Not sure you’re going to see a sunrise in this fog. But I’ll move seats if you really want this one so bad.”
+
+He waved me off.
+
+“No, no. You stay. I don’t mind the company.”
+
+“I’m not exactly looking for company.” I pushed myself closer to the window.
+
+“No, no. Of course not. Why would you be? Nobody on this train ever is.” He looked ahead.
+
+“You ride the train a lot?” I asked, almost regretting humoring him.
+
+“Ah, here and there. A few times I almost thought I’d take it to the end of the line, just to see what was there. But I met my wife on this train… wouldn’t you know it. Decided I’d get off wherever she did. Never finished the ride.” He paused. “Oh, but she’s gone now, I suppose I’ll just see where it takes me.”
+
+He never turned to face me. His eyes widened as though he had just replayed the last forty years in front of him.
+
+I didn’t respond, instead turning to look out the window. The fog was dense, like staring into a wall. Condensation dripped from the cold glass, a small drop splashing against my knee.
+
+The cold water against the humidity of the train felt like a last grasp from the outside world, desperately attempting to break through the cool steel of the carriage.
+
+“Where are you coming from?” The old man broke the silence.
+
+“Nowhere you’ve heard of.”
+
+He laughed.
+
+“If I had a dollar for everybody who told me that, I’d buy the train.”
+
+“When does the food cart come by?” I asked, changing the subject.
+
+“Oh, shouldn’t be long now. There’s a bar in the lounge a couple cars up, though.”
+
+A drink sounded like exactly what I needed.
+
+I squeezed my way past the old man, who made no effort to let me out of the seat, and walked down the quiet rows of desolate passengers. None paid any regard to my passing.
+
+As I opened the heavy metal door, a rush of air hit me from outside. I hurried through the small, hot tunnel into the adjoining car. I had already shut the door behind me before realizing I had been holding my breath. I exhaled, breathing in the cool air of the lounge before taking in my surroundings.
+
+Slow jazz played through a stereo speaker mounted on the wall. Velvet-lined benches sat opposite diner tables, a strange clash of styles that somehow felt appropriate. At the end of the car was a modest, round wooden bar. A bored-looking bartender stood shaking together a cocktail.
+
+He handed it to his customer, the smiling woman I had seen when I first entered the train.
+
+She noticed me walking her way and happily patted the stool beside her.
+
+I wagered whether the drink would be worth it and decided it beat returning to the old man still sober.
+
+“Nice to see someone with a pulse.”
+
+She greeted me with an unsettling smile. She was a pretty girl, a little younger than me, but her eyes carried more years than her face did, betraying the cheeriness in her demeanor.
+
+“What’ll it be?” The bartender tapped the table impatiently.
+
+“Jack and Coke,” I said, not taking my eyes off the girl.
+
+The bartender gave a nod and turned his back to us.
+
+“Where are you coming from?” The girl bit her straw as she asked.
+
+“Why does everyone want to know that?” I looked away.
+
+“I mean… we’re all riding the same train.”
+
+“What does that matter?”
+
+Her smile faded slightly.
+
+“Just that it’d be nice to know someone else aboard. Everyone here is just so… robotic.”
+
+Having sufficiently killed her vibe, I resolved to drink in silence. She twirled her straw around her drink, visibly lost in thought.
+
+After a long silence, the bartender loudly tapped the bar, pulling me from my stupor.
+
+“Next station’s coming up. Get back to your seats.”
+
+I trudged back to my seat. The old man had fallen asleep and begun snoring loudly, undisturbed by my attempt at squeezing past him.
+
+it took the blaring of the train horn to wake him as we pulled into the station.
+
+A couple of passengers looked up at the quaint train station poking through the fog. I thought I saw two of them even begin to rise and leave, but they quickly brushed off the inclination and fell back into their seats.
+
+One passenger, however, jolted upright. He left his bags in his seat and bolted for the exit with a surprising burst of energy that felt almost criminal in the bleak dullness of the train car.
+
+The old man cracked a grin at the departing passenger as he ran past.
+
+He then looked at me.
+
+“This your stop?”
+
+I searched for the words.
+
+“No… uh, not here.”
+
+“Well then.” He looked ahead once more. “Looks like we’ll be sharing the tracks a while longer.”
+
+The empty seat of the man who ran off the train was quickly filled by another forlorn passenger as the obnoxiously optimistic conductor once again called out:
+
+“All aboard!”
+
+Other passengers quickly followed and soon the train was rolling quickly down the foggy countryside once again.
+
+“He sure loves his job, doesn’t he?” I asked the old man beside me.
+
+“The conductor? Been doing it ever since I first rode the train.”
+
+I looked at him with disbelief.
+
+“What are you talking about? That guy can’t be older than forty.”
+
+The old man snorted.
+
+“Yeah, I guess it is a little funny.”
+
+I didn’t see the humor.
+
+“Is he always that happy?” I asked
+
+The old man reminisced.
+
+“Never seen him frown.”
+
+I looked back at the man as he spoke. He was definitely fairly old, but somehow, he appeared much older than when he had first sat down. His thick gray beard looked wiry, his eyelids drooped, and his face looked tired and cold. I stopped to think if I had ever really taken a good look at him, or was he really aging right in front of me?
+
+“Hey, are you feeling alright?”
+
+He looked back at me slowly.
+
+“Ah, you know. It’s been quite a long ride. I suppose I’m about ready to make my stop.”
+
+I grew concerned for this man I had barely met.
+
+“Your stop? I thought you were going to the end of the line?”
+
+He chuckled faintly.
+
+“Almost there.”
+
+He reached into his pocket and pulled out a folded photograph.
+
+In the middle stood a couple, a young man and woman smiling happily at the camera. The old man rubbed the photograph fondly.
+
+He turned to look at me.
+
+“We were supposed to board the train together, about ten years back…”
+
+His voice strained as he spoke.
+
+“I didn’t want to ride. So she boarded without me.”
+
+He sighed as he looked back out the window.
+
+“The end of the line. We always said we’d ride it out together. I shouldn’t have let her get on alone.”
+
+A smile peeked through his tired face.
+
+“See? Sunrise hits just right from this seat.”
+
+I looked out the window. The same fog blanketed the surrounding landscape, not letting any light peek through.
+
+“Sunrise? I can’t see anything from here.”
+
+“That really is a shame, son.”
+
+He pushed himself slowly from the seat.
+
+“You’d kill to see that view.”
+
+He stepped toward the back door of the carriage and let out a soft sigh before pushing it open.
+
+“What are you...”
+
+I couldn’t finish my sentence before he stepped off of the train. 
+
+I could only watch from my window as his body struck the side of the rolling train before disappearing into the dense fog.
+
+A red smear shimmered against the stark metal where he had impacted.
+
+That was all that was left of the old man aboard this train.
+
+I stood from my seat, shaken. A massive pit formed inside my stomach. I ran up the aisles of the train, the passengers once again oblivious to my actions. I re-entered the lounge, trying desperately to catch my breath.
+
+The girl sat once more at the bar.
+
+She looked rough. Her hair was matted and blown all over the place. A bruise had swollen around her cheek. I almost couldn’t believe this was the same girl I had spoken to just moments before.
+
+“You’re back.”
+
+She spoke softly, her eyes not rising to meet mine.
+
+I sat down beside her.
+
+“Right… yeah. I’m back.” I replied bluntly, still shaken by what I’d seen.
+
+“What are you doing here, man?”
+
+She finally turned to face me.
+
+“I don’t know anywhere else to be.” I looked down.
+
+“That’s all?”
+
+She laughed cynically, then paused. Once again, she rubbed her wrist. I noticed a bruise there, matching the one on her face.
+
+I searched for any comforting words to give her.
+
+“I’m sorry.”
+
+It was the best I could muster.
+
+“You know…” I started. “There’s gotta be another station coming up.”
+
+“Yeah?” She cut me off. “Why don’t you get off at it?”
+
+“Why don’t you?”
+
+She scoffed, and I found myself wishing for her once obnoxiously optimistic demeanor to come back.
+
+“You’ll think I’m crazy…”
+
+She looked down at her drink.
+
+“The train is a lot better than whatever’s waiting for me at the station.”
+
+I nodded solemnly, understanding.
+
+“So… where do you think the last stop is?” I asked.
+
+“Guess it depends who it’s for. Maybe it’ll drop me off at the beach.” She almost let a smile through. “Or maybe it’ll just plummet into the ocean. I guess either one is fine by me.”
+
+I once again pulled my wallet from my pocket. I sifted anxiously through my old coins and flipped through photographs, stopping at a picture of a young man standing with his grandparents.
+
+He almost looked like me, but the miles between then and now had left him unrecognizable.
+
+I noticed another picture behind it. Curious, I pulled it from the stack.
+
+A young couple stood smiling happily at the camera.
+
+The old man and his wife.
+
+“Family of yours?” the girl asked me.
+
+“Uh… no. The old man I sat with was holding it. I don’t know how it ended up in my wallet…”
+
+I ran my thumb over the photograph. I remembered the man’s face as he looked out the window, and the pain in his eyes even as he walked out the train door.
+
+“Hey, I appreciate you sitting with me. It was nice to meet another person on the ride.”
+
+She paused.
+
+“But I think it’s time for my stop.”
+
+Her words cut through my thoughts, and I felt a rush of emotion I didn’t know I was still capable of.
+
+Instinctively, I reached out for her hand. She recoiled in a primal sort of fear as my fingers wrapped around her wrist.
+
+“I’m sorry. I didn’t mean to… I just…” I struggled to catch my breath. “Do you have to get off here? We could ride it out ’til the next station…”
+
+“You boarded this train, same as I did.” She spoke slowly, rubbing her wrist again. “You know how it ends.”
+
+“It doesn’t have to! We can just get off at the next station. Please. Just wait with me…”
+
+She looked back up at me.
+
+“I made up my mind when I got on the train.”
+
+She reached for the door handle.
+
+“I’m sorry.”
+
+I felt my own eyes begin to well up.
+
+“Don’t say that. Don’t be sorry about this. Just come back to the table…”
+
+I fought every urge to try to stop her from getting off.
+
+“I hope you get off at the next station…” she started. “You deserve another chance.”
+
+With that, she opened the door and stepped backward off the train.
+
+I collapsed as she disappeared into the fog.
+
+It felt like ages walking back to my seat. Finally, I fell into it, pressing my head against the glass.
+
+I tried to rationalize what I was even doing on the train. Everyone here had a reason to ride. What was mine?
+
+I felt foolish.
+
+My spiraling was interrupted by the piercing voice of the cheery conductor.
+
+“Last station is coming up in five minutes, sir! Will you be extending your stay with us?”
+
+I looked up at him. His brutally passionate smile bore into me, and the longer I stared, the angrier I became.
+
+“Why the hell are you so happy?” I snapped. “You’re enabling all of these people. All of these lives. It’s all on you.”
+
+He didn’t drop his smile.
+
+“Sir, I’m sorry you haven’t had a pleasant experience…” He paused. “But I’m afraid you were the one who bought your ticket.”
+
+He marched past without another word, humming softly to himself.
+
+As we rolled up to the final station, I felt the pit in my stomach growing heavier.
+
+I fought with the decision. I remembered the pained face of the old man, and the hopeless look of the girl before she left. All I had to do was get off at the station, and I’d avoid the same fate.
+
+So why was it so hard?
+
+The girl’s last words echoed in my mind.
+
+“You deserve another chance.”
+
+My head ached. I didn’t believe her. I didn’t believe I was strong enough to step off the train and onto the platform.
+
+As the train came to a halt, I noticed something, a break in the fog.
+
+It was nighttime now, but I could clearly see moonlight soaking through the thinning mist.
+
+Looking around at my fellow passengers. Everyone else kept their heads low, keeping to themselves.
+
+I stood up, rejuvenated and rushed over to the closest person I could find.
+
+“Hey! We can get off! We don’t have to stay here!”
+
+I pressed a hand onto their shoulder. They tried to shrug me off.
+
+“Come on! Please! Nothing out there is worse than what’s waiting at the end of this train. Please…”
+
+I fought to wake someone, anyone, from this trance.
+
+I ran from passenger to passenger. Nobody cared enough to look my way.
+
+My mad dash was cut off when I ran straight into the conductor.
+
+He did not budge. He didn’t even shift as I collided with him.
+
+His once-smiling face now held only a dull expression.
+
+“Sir, I will not tolerate anyone disturbing or harassing my passengers.”
+
+He stared down at me.
+
+“I am going to have to ask you to step off of the train.”
+
+I was quickly and unceremoniously ushered off the train.
+
+Once on the platform, I was able to breathe in the thick summer air again. It was sweet and freeing, and I couldn’t believe I had ever tried to escape it.
+
+A line of people stood waiting to board the train.
+
+I ran toward them, frantically begging them to reconsider.
+
+“Please. It’s not too late. You don’t have to do this.”
+
+This met me with the same indifference I had found aboard the train.
+
+Security quickly escorted me out of the station. 
+
+I still lose sleep over the passengers on that train, and what I could have possibly done to help them.
+
+I’m writing this now to reach out to anyone who feels like the train is their only option.
+
+I’ve kept the details about the train intentionally vague to prevent anyone from searching for it.
+
+But the sad truth is, anyone can find this train.
+
+It can pull into any station, at any time, if you go looking for it.
+
+It can look inviting and comfortable. It can look thrilling and adventurous. It can promise you an escape from whatever is behind you on the platform.
+
+I’m hoping my account today can show that the train is none of those things.
+
+It is simply a train.
+
+And once you get on, you have to decide how you’re going to get off.
+
