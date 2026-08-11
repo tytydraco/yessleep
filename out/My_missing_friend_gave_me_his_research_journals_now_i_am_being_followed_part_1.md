@@ -69,7 +69,7 @@ Adam's hand reaches out and touches the soft skin of Eve's face, sweetly he whis
 
 Lilith continued to narrate as the cassette skipped for just a moment…
 
-“the golden serpent of light returns to Adam and Eve, flickering and twisting itself across the branch, inching closer to them, this time from the opposite side of the tree; it hissed an irresistible desire into Eve, Eve spoke while looking at her reflection in the apple 
+“the golden serpent of light returns to Adam and Eve, flickering and twisting itself across the branch, inching closer to them, this time from the opposite side of the tree; it hissed an irresistible desire into her, Eve spoke while looking at her reflection in the apple 
 
 “how could one bite change so much?”
 
