@@ -1,0 +1,168 @@
+I’m not going to start by saying I don’t believe in the supernatural and then spend six paragraphs talking about ghosts. 
+
+Honestly, at this point, I don’t know what I believe. I used to have very confident opinions about things that had never happened to me. After this, I’m not so sure anymore.
+
+This happened in November 2021 when my family decided to sell the old house my grandfather had left us outside a small coastal town.
+
+Calling it an old coastal farmhouse makes it sound much nicer than it was. That’s what a realtor would call it right before adding fifty grand to the price. It had two low-ceilinged rooms downstairs, one upstairs bedroom that turned into an oven every summer and a freezer every winter, and a backyard with an apple tree nobody in the family actually liked. You couldn’t see the water from the house. If you climbed onto the back section of the roof and leaned between two pine trees, you could confirm that the ocean still existed. That was about it for the view.
+
+My grandfather Walter died in 2008. When he was alive, he acted less like the owner of the house and more like its unpaid security guard. He wore the same faded navy baseball cap, the same gray cardigan with the third button missing and sat on a short wooden stool under the apple tree whenever the weather allowed it.
+
+The tip of his left index finger was gone. He’d lost it to a planer at a lumber mill when he was young. He also refused to use a normal key ring. He threaded all his keys onto a loop of green insulated electrical wire. None of us understood what distinction he thought he was making but he liked it.
+
+After he died, the house slowly went from being a family home to being storage, and then to a source of collective guilt. Nobody visited it but nobody wanted to be the person who suggested selling it either. Then a bad fall storm opened part of the roof over the upstairs bedroom, and suddenly everyone became practical.
+
+If you’ve ever dealt with jointly owned family property, you know how it works. Everyone behaves like the sole owner until an invoice arrives. Then they are all distant relatives.
+
+After two months of group texts in which every person said “whatever you guys think is best”, I ended up handling it.
+
+My childhood friend Jason was a real estate agent. I gave him a key, he took some pictures, and he put the listing online. The small bedroom upstairs wasn’t included in the photos because its door had been stuck for years. The key would turn, but the latch wouldn’t pull back. We decided not to break the door down. Whoever bought the place would be renovating anyway.
+
+Jason described the house in the listing as “in need of selective updating” which is real estate language for “we don’t want to be legally responsible for listing everything that’s wrong with it.”
+
+The listing went up on a Wednesday.
+
+At 11:17 Saturday morning, Jason called me. I remember the exact time because I checked the screenshot more than once afterward.
+
+“If you guys already sold the place, I’ll take the listing down,” he said.
+
+I was barely awake. “What place?”
+
+“Your grandfather’s house. The family you showed it to yesterday just called me. They want to bring earnest money on Monday.”
+
+My first thought was that my uncle had gone around us and made some private deal. That would have been irritating but at least it would have made sense. I called him. He’d been at dialysis Friday afternoon. My aunt was out of state. My dad had been with me until after dark. As far as we knew, there were only two front-door keys. Jason had one. I had the other.
+
+I told Jason the buyers must have seen a different house.
+
+He said, “Then let’s make sure they don’t put earnest money on a different house.”
+
+We arranged to meet them there that afternoon.
+
+They were a perfectly normal-looking couple in their early forties with a little girl, maybe six or seven. 
+
+They were moving in from out of state. The husband looked confused when he saw us. Then he pointed at Jason and said, “You weren’t the man here yesterday.”
+
+Jason said, “Nobody was here yesterday.”
+
+That was when the husband’s expression changed.  
+They explained that they’d driven over around five Friday evening just to look at the property from the road. When they pulled up, an elderly man was sitting in the backyard beneath the apple tree. They asked whether this was the house for sale.
+
+He waved them in and said, “Come on. We’ve been expecting you.”
+
+At that point, I went back to assuming some relative had gotten involved without telling me. Before people get scared, they will accept almost any explanation that lets the world keep behaving normally.
+
+The husband said the old man had shown them around for about half an hour. He’d pointed out the three loose black-and-white tiles beneath the kitchen window. He’d told them the chimney flashing leaked on the east side and that replacing a few shingles wouldn’t solve it. He’d also asked them not to cut down the apple tree because its roots were helping hold the old fieldstone retaining wall in place.
+
+All three things were true.
+
+I remembered the loose tiles from childhood. Only someone who’d been on the roof would know exactly where the chimney leaked. And my grandfather was the only person who had ever taken the apple tree’s opinion on structural engineering seriously.
+
+I couldn’t understand why a stranger trying to sell the place would carefully explain all its defects.
+
+“What did he look like?” I asked.
+
+The husband said, “Late seventies, maybe eighty. Thin. He had on an old navy baseball cap.”
+
+That description fit half the elderly men in any small coastal town. I actually felt relieved.
+
+Then his wife said, “He was wearing a gray button-up sweater. One of the buttons was missing.”
+
+Before I could answer, their daughter said “and… his finger was short.”
+
+That was the first moment I remember feeling genuinely cold. It was November, so I had a convenient explanation ready.
+
+Jason still thought a neighbor was playing some elaborate joke. We unlocked the house and went inside. The couple correctly described the kitchen, the location of the old woodstove and the water stain behind the pantry. They could have seen most of that in the listing photos.
+
+Then the wife said their daughter had left her little wooden rabbit in the upstairs bedroom.
+
+The locked bedroom.
+
+“That room doesn’t open” I said.
+
+The husband looked at me. 
+
+“The old man opened it. When we were leaving, he gave her the key. He said we’d be coming back anyway, so she might as well keep it. We were going to return it today.”
+
+The girl reached into her coat pocket and pulled out an old brass key threaded through a loop of green electrical wire.
+
+I took it upstairs and put it into the lock. I turned it once to the right.
+
+The door we’d attacked with oil, screwdrivers and body weight for years opened as if someone had serviced it the day before.
+
+Inside was an old iron bed frame, two empty feed sacks and a small yellow wooden rabbit sitting beneath the window. The toy was new and clean.   
+Everything around it had the kind of dust that makes you reluctant to touch anything.
+
+I looked for footprints because apparently my brain had decided I was in a movie. There were no perfect ghostly tracks and no bloody handprint on the wall. 
+
+By then all of us had walked around the doorway, and the dust was a mess.
+
+We went back downstairs. My hands were shaking while I searched through old photos on my phone. I didn’t tell the buyers what I was looking for.
+
+I found a picture from a Fourth of July cookout in 2006. There were twelve people around a folding table. My grandfather stood near the back in his navy baseball cap, half his face in shadow.
+
+I handed the phone to the husband.
+
+He looked at the picture for maybe two seconds and put his finger directly on my grandfather.
+
+“That’s the man who showed us the house.”
+
+His wife took the phone. She stared longer and then said “he looked a little older yesterday, but that’s him.”
+
+Their daughter saw the picture and said “that’s Mr. Walt.”
+
+I started wondering whether one of us had already used his name in conversation. None of us could remember doing it. Jason still swears we hadn’t.
+
+I told them Walter had died thirteen years earlier.  
+The husband didn’t laugh. He didn’t get angry either. He looked down at the key and realized I was still holding it. He quietly said “then, you should probably keep that.”
+
+They didn’t tour the house again that day. I assumed we’d never hear from them after that but a week later they put down the earnest money. The wife said the experience hadn’t made her afraid of the house. If anything, she felt as if they’d been invited.
+
+We accepted a slightly lower offer because they planned to restore it instead of tearing it down or turning it into another short-term rental. They promised to leave the apple tree alone.
+
+At the closing, Jason joked, “I didn’t show you the house, but I’m still taking the commission.”
+
+The husband said, “what about the old guy who actually did the work?”
+
+Nobody laughed. The title agent looked at us as if she’d missed part of the conversation.
+
+The house still belongs to them. They repaired the roof. The upstairs bedroom became their daughter’s room. The apple tree is still standing.
+
+I stopped by last summer and had coffee with them.
+
+From the road, the place looked better than it had in years. The roof was new, the trim had been painted, and the apple tree was so heavy with fruit that two of its branches had been propped up with boards.
+
+They welcomed me like an old friend. The husband walked me through the repairs while his wife put on coffee. The kitchen was warm and bright. There were family pictures on the refrigerator, and somebody had left a half-finished jigsaw puzzle on the dining table. Nothing about the place felt wrong.  
+The only strange thing was the way they handled certain questions.
+
+When I asked whether the house had given them any trouble, the husband said “nothing you wouldn’t expect at its age” and immediately asked if I was still at the same job.
+
+When I said Walter would have been glad they’d kept the apple tree, his wife stood up in the middle of my sentence and asked whether I wanted pie.
+
+Then I asked how their daughter liked the upstairs bedroom.
+
+“She loves it” the husband said.
+
+His wife immediately started telling me about the girl’s school.
+
+I told myself I was reading too much into it. They had bought a dead man’s house after being shown around by someone who looked exactly like him. They were probably tired of talking about it.
+
+As I finished my coffee, I asked, as casually as I could, whether their daughter still remembered Mr. Walt.
+
+Neither of them answered right away.
+
+Then the husband said “kids say all kinds of things.”
+
+His wife picked up the empty cups and asked if I wanted to see the retaining wall before I left.
+
+Their daughter was outside beneath the apple tree, sitting cross-legged in the grass with the yellow wooden rabbit beside her. She was taller than I remembered, but otherwise she looked like any other kid spending a summer afternoon in the yard.  
+Her parents stopped near the house to look at one of the downspouts. I kept walking toward the wall. When I passed the tree, the girl looked up and smiled.
+
+I smiled back. Then, trying to make a joke out of the thing nobody inside had wanted to discuss, I nodded toward the house and said, “so, how’s Mr. Walt?”
+
+Her smile disappeared.
+
+She tilted her head and looked at me. Something about her expression was wrong, though I couldn’t have said exactly what. A second earlier she’d looked like a kid being polite to an adult. Now she looked annoyed, almost offended.
+
+When she spoke, her voice was low and rough, nothing like the voice of the little girl who had just smiled at me.
+
+“I was never your grandfather.”

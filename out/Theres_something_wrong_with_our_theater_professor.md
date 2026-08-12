@@ -1,0 +1,111 @@
+Maverick should have been dead.
+
+Three nights ago I watched him fall about twenty feet during our final performance of Glee. He was doing some stupid high kicks on the scaffolding above the stage when the boards gave way. The sound his neck made when it hit the stage—a disgusting crunch—stuck in my head.
+
+Everyone screamed. A few people passed out. The curtains dropped. EMTs rushed in. His head still sat wrong on his shoulders at the end of the day.
+
+Two days later he was walking across campus in the evening, a spring in his step, showing off a stack of get-well cards like he hadn’t nearly died just then. People kept saying the same thing: “Yeah, he fell, but it wasn’t that bad.” The height changed depending on who you asked. Some said eight feet. Some said he landed on his feet. Nobody ever mentioned the sound, or the way his head had looked.
+
+It tracks. I’m the new kid. I moved here in January. Everyone’s cagey toward outsiders. Whenever I brought up the fall, people just gave me a forced smile and changed the subject.
+
+Dr. Koschey, the theater director, posted on the school page that Maverick had shown “incredible resiliency” and was being cast as Romeo in the spring production. Romeo. The exact part I wanted. Sophia got Juliet. If anyone was going to get Romeo, I really wanted it to be me. Maybe that would’ve finally given me a chance to tell her how I felt.
+
+I got Tybalt. Yippee.
+
+Rehearsals started the next week. Really late, like ten at night. Koschey said it was the only time the stage was interruption-free, but the building was usually empty after five.
+
+We sat under the work lights, reading through the script, blocking scenes, learning the choreography. The first few nights were relatively normal.
+
+Then one night Dr. Koschey decided George and I would be the guinea pigs for the first big fight scene, George playing Mercutio.
+
+We were clumsy to start, swinging the sharp foils like we were swatting flies. Koschey watched from the edge of the stage, then stood up and walked between us.
+
+He started moving his hands, teeny tiny gestures, like he was playing with Lego figures.
+
+Something clicked behind my eyes. My body followed exactly the way he instructed. I felt compelled to do whatever he asked. My clumsy swings cleaned up. My footwork sharpened. My muscles worked in tandem, like nothing I’d ever felt before. It felt good. The best performance of my life was pouring out of me without effort.
+
+The fight built faster, meaner, realer. I could hear George breathing harder and harder. He was struggling to keep up. I didn’t stop.
+
+Then, like a knife through butter, my blade went right through his chest.
+
+The veil lifted all at once. George was on the ground, struggling, making nasty, gurgly sobs. There was blood everywhere. Everyone around me had gone pale, looking to Koschey for direction. He stood there looking pleased, clapping his hands together.
+
+“That’s a wrap for tonight,” he said. “I’ll take care of George.”
+
+I told him right away that George needed a hospital. Koschey just smiled and said that wouldn’t be necessary. The rest of the cast hadn’t moved to help. Something in the air compelled them not to—compelled me not to. It felt wrong to argue at that moment.
+
+So I just left. I don’t even remember deciding to. I just walked out into the cold and kept walking until I made it home.
+
+George was at his locker the next morning like nothing had happened. He stopped me in the hallway to ask if I was okay. I said I should be the one asking him that. He laughed and pulled his shirt aside just enough to show the thick bandage over his chest.
+
+“Gnarly, right?” he said. “Don’t worry about it. It's just show business.”
+
+He wasn’t angry. He wasn’t even shaken. He looked better than he had before.
+
+Koschey called me to his office during lunch. The room was in the basement under the stage, darker than dark. No windows. One desk lamp. He told me he’d been impressed by my work the night before. He said he saw real potential. He wanted me for the lead in the next show after Romeo and Juliet.
+
+There were other prospects, he said. George. Maverick. But there were still a few who needed to be recruited. Sophia, for instance.
+
+I told him I didn’t understand. Sophia was already in the play. He looked at me like I was being thick on purpose. He told me I needed to stage an accident, something that would most certainly kill her. He promised she’d be walking again by daybreak.
+
+Terrified, I told him I needed to think about it. He nodded like he’d been expecting that answer and dismissed me.
+
+I spent the walk back upstairs hyperventilating. During our final period for the day, I passed Sophia a note. We met in the shop teacher’s room after class. Mr. Olson always left it unlocked.
+
+I told her everything; the fall, the fight, the way I’d had no control over my own body. How Dr. Koschey felt deathly cold to the touch.
+
+She thought I was losing it at first. Then I asked if she’d ever felt like she ever felt inexplicably incredible during performances. Her face changed. She said that during the blocking for the balcony scene, it had almost felt like someone was holding her arms up for her.
+
+I told her she was in grave danger. That we needed to get off campus as soon as we could.
+
+That’s when Maverick and George walked in.
+
+George had a twisted smile on his face. He told me I had no idea what I was missing out on. Maverick just watched me. His eyes were black, like a hungry shark.
+
+I grabbed a pipe wrench from the nearby workbench. George didn’t like that. He started toward Sophia. Mr. Olson came out of the back office asking what the hell was going on. Maverick moved right past him and sliced open his throat with claws, then tackled me to the ground. I held him off with the wrench. His teeth made dents in the steel.
+
+Sophia screamed and ran for the side door. George chased her. She shoved it open and sunlight flooded in. The second it hit him he started screaming. His skin blackened and cracked. Pretty soon he was nothing but ash blowing across the floor.
+
+Maverick hissed and recoiled from the light. That gave me enough time to hit him in the side of the head with the wrench as hard as I could. He fell to the ground spasming. Sophia and I took a moment to process.
+
+“What the fuck,” we both said at the same time.
+
+We figured it out pretty fast after that. Vampires. Dr. Koschey was using the theater program like a farm, turning the ones he liked and feeding the rest to the cause somehow.
+
+We cut a stake from a scrap of oak and put it through Maverick’s heart just to be sure. He didn’t get back up.
+
+Sophia and I drove to the hunting store and Walmart and bought garlic, wood, and a cheap crossbow. I didn’t care about the price tags. My parents have money. Lots of it. We returned to the school before it got dark. I stuck a clove of garlic in my cheek and chewed it into a paste. It tasted like battery acid.
+
+Lined up against the far wall of Koschey’s office was a large cabinet. I could hear breathing inside. When I opened it, he was there, eyes closed, arms crossed over his chest. He looked almost peaceful.
+
+We got the crossbow ready, three steps from the coffin when his eyes opened. He was on us before we could react. Both hands around our throats. He lifted us off the ground like we weighed nothing.
+
+“What are you doing here?” he asked.
+
+“Stopping you,” I managed.
+
+He looked confused.
+
+“Stopping me? Isn’t this what you wanted? Your chance to perform on an eternal stage, to the delight of generations, with the love of your life?” His eyes moved to Sophia and something else crossed his face. “You’re still beautiful after all these—”
+
+I’d had enough of the monologue. I spit the garlic mush straight into his eyes. It sizzled. He dropped us, clawing at his face. I grabbed the crossbow from the floor, braced it, and put a stake dead center in his chest.
+
+He looked down at the wood sticking out of him, then at me. He stumbled back a few steps and collapsed. His body went still. We didn’t bother checking. We ran.
+
+A few weeks later we were sitting in the gym for graduation. They did a short in-memoriam service before the diplomas. George’s name and photo were on the big screen. There was no mention of Maverick or Dr. Koschey. People clapped politely.
+
+I felt a hand settle on my shoulder.
+
+“Now why would you go and do a thing like that?” Koschey asked.
+
+I don’t remember standing up or leaving the gym. The next clear thing is the stage under the work lights. We’re running Romeo and Juliet right now. Then Sweeney Todd. Then something else after that. I don't really care. The shows never seems to end.
+
+Sophia’s here too. We don’t talk as much as we used to. None of us do, except when we’re on stage.
+
+Daylight is treated like a nasty rumor. We’re not supposed to go outside.
+
+I feel stronger than I did before. Clearer. Everything feels effortless. The audience loves us. They always come back.
+
+But I don’t choose any of it, not the roles, not the hours. I just do what I’m told. You don’t want to see Dr. Koschey angry.
+
+This theater program [sucks](https://www.reddit.com/r/TalesFromTheMullet/s/7SA3Kon6gB).
