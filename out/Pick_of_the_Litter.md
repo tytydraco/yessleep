@@ -1,0 +1,113 @@
+# PART I
+
+
+
+If I stretch my mind far enough, I can look past the forest of corpses and sea of blood to arrive at a cherished memory. It was winter. Grey and featureless, a pall of sedate chill hanging over the town. Father had taken us out to Pari Tibba, the hillock above our home from where, on a clear day, one could see the entire sprawl of houses and shops and slums spread across the land like one of those intricate maps schoolchildren use nowadays. There were five of us that day with him. Hero and Heroine, the inseparable twins. Firangi, the Anglo-Indian boy Father had picked up from a seedy orphanage in Dehradun. Spider, who clung to my arm like a burr to a dog’s coat. And of course, there was me.
+
+Father took us to the very edge of the hillock and squatted on his haunches, throwing out an arm to encompass the entirety of the town.
+
+“See that?” he croaked. “That’s a jungle. Make no mistake about it. Never get seduced by their pretty malls and shiny cars and shops selling you convenience twenty-four seven. It’s jam-packed with beasts walking upright who will step over you and walk right away even if you lie bleeding from the arse in front of them.”
+
+Spider shivered, her fingers digging into my flesh. I said nothing.
+
+“What do we do to such beasts, my darlings?” Father swivelled his head back to grin at us, his wolfish face framed by greasy locks.
+
+“We hunt them,” Heroine piped up.
+
+He reached out to chuff her on the cheek. “That’s right.”
+
+After that, he said a few more things, mostly the usual philosophical nonsense that seemed stitched into his very vocal cords, while the children listened to him, enraptured. I did not care. My mind was captivated by better, more subtle things around me. The necks of deodar and birch around Pari Tibba, listing ever so slightly in the breeze, drooping needle clusters and papery bark standing out in stark contrast against the greenery and soft blue sky. The sheep-like clouds drifting overhead, almost lulling me to sleep. And most of all, the town in the distance, gleaming like a forbidden fruit that I could see but never taste.
+
+Then a sound broke the silence.
+
+All heads turned in that direction. From a thicket some five paces away to the west, a stag had emerged into the open. A noble creature, red of hide and limpid-eyed, its rack of antlers rising like a grotesque crown from its head. Like a god of the woods it stood and regarded us, and I thought I could discern cold disdain in its gaze.
+
+After a while, it turned around and vanished into the bosom of the woods.
+
+I never shared my feelings with anyone, but somewhere deep in my heart it registered as an omen of great portent.
+
+Another cherished memory, and the more famous one, is the night the police raided our home.
+
+It all happened so fast; there was no time for a dramatic buildup or any form of resistance. Father had gone out to gather supplies, and all the children were asleep. Pitch-black darkness coated Pari Tibba, punctured only in places by the LED bulbs we had fixed to sockets in all the rooms and passages. I remember waking up all of a sudden and staring around wildly, my eyes passing over the blanket-covered forms of my siblings, the white and black shapes of cupboards, beds and racks asserting themselves in the half-gloom of the cavern. My heart pounded furiously. My senses worked overtime to tell me something was terribly wrong. I removed Spider’s slender arm from my lap and stepped down onto the cool, grained floor.
+
+Voices beyond the house. Muffled footsteps.
+
+I threw a panicked glance at the compound bow and quiver of arrows stashed beneath my bed.
+
+And the thick metallic door of the chamber blew apart.
+
+Figures pounded inside in the blink of an eye. Huge, towering figures, clad in black uniforms and ferocious helmets, sleek, deadly guns gripped tight in their hands. They swept the floors in brilliant coordination, raking all corners with painful torch beams and dragging my siblings from their beds. None offered the slightest hint of defiance. They sprang with cries and sobs, knuckling their eyes and grabbing onto each other, fear stamped clear on their faces. Hero and Heroine were secured first and ushered out of the chamber, out of the house and into the open, where the steady drone of cars and wail of sirens threatened to plunge the world into madness.
+
+I stood rooted to my spot, staring in utmost fascination at the tide of humans that had violated our home. Thick clouds of dust billowed throughout the rooms, and reams of paper and fragments of cups and plates hurtled around, but I could see nothing beyond the humans. Even when Spider tiptoed to my side and grasped my palm in hers.
+
+One of the men eventually sauntered up to us and pulled down his balaclava. A hard, stern face loomed at me, though his eyes were not unkind. He held the gun away from his body and regarded me for some time. I had no idea what he was searching for, but I daresay he did not find it in my dispassionate features.
+
+“What’s your name, boy?” the policeman asked.
+
+I pointed at his firearm. “Is that a Brugger and Thomet MP9?”
+
+His gaze grew troubled. He looked from me to Spider, then placed a gentle but firm hand on my shoulder.
+
+“Come on, son.”
+
+Groups of policemen, some in the khaki Father had long ago taught us to avoid like the plague, were gathered around his bookshelves and assortment of stolen laptops. Others, clad in protective suits, were swabbing every conceivable surface, dusting shelves and running little instruments over the keyboards of the computers. They moved with the methodical patience of men accustomed to finding things other people had tried very hard to hide.
+
+One of them had opened Father’s desk and was laying its contents out on a sheet of plastic: notebooks, loose papers, vials of some dark liquid, several rolls of photographic film and a collection of keys whose purpose I had never known. Another man was photographing everything before touching it.
+
+“Hey, Joshi, you’re never going to believe what the bastard had in his freezer!” another black-clad, gun-toting officer called out to our escort.
+
+“Trust me, I do.” Joshi’s voice was iron. “I’ve seen the breeding room. Anurag is still retching what remains of his lunch.”
+
+Breeding room?
+
+I shared a curious glance with Spider. Father had never told us about a breeding room. I would have known. I was the eldest, and the thought sent a brief, fleeing sting of indignation through my body. What the hell had Father done?
+
+Before we left the house where I had lived all my life, I saw another scene that would haunt me for the rest of my life. Two female constables were escorting a young, buck-naked woman out of a door that Father had told us was his private study, where he went to commune with his ancestors. Her pallid skin gleamed with so many scars, I could never count them in the brief minute our gazes met. Her hair, black and stringy, hung over bony shoulders. Her breasts were lank as bladder and covered with a flimsy towel, and she whimpered and trembled every step of the way.
+
+A bird caught in an ever-constricting cage, living every moment in abysmal horror of its own doom. That was the look in that woman’s eyes. Morbid horror. A terror beyond all terrors. One look, and then she was gone.
+
+The officer nudged me forward.
+
+It was even more calamitous outside than I had thought. All the police cars in the world had descended upon this little corner of the world, and around each were gathered so many cops that it seemed like the apocalypse Father always warned us was around the corner.
+
+*An army of golden, arrogant Devas will come to root out the last remnants of their mortal foes, and the very night will be turned to hideous day by their divine instruments.*
+
+There were also some people with bulky cameras recording other people in sarees and suits, who held microphones in their hands and blabbered excitedly into them. A massive uproar erupted when they caught sight of us, and the reporters surged forward, only to attract a counterattack of policemen rushing ahead to form a protective barrier around us.
+
+A few questions still chased me all the way to a waiting car.
+
+*Boy, boy, are you one of the Asura’s children? Are you REALLY his child? Oh my God, see how he glares! It’s exactly like the monster—*
+
+A rough shove inside, Spider’s alarmed yelp as our hands separated, and a door slammed on my face.
+
+Then I was alone, inside a vehicle I knew to be a car but what Father had spent years telling us was a vahana. A hated vehicle of the Devas.
+
+I listened to the muffled thunder of questions and answers and barked orders, accompanied by the steady thumping of my heart. My thoughts were still in a tizzy. I did not know where my siblings had gone, nor did I know what was going to happen to me. My knowledge of the outside world was absolutely devoid of colour. Like a boy who reads of a dog sitting in a high tower but has never seen one in life. And Father was nowhere to be found.
+
+After what seemed like an age, the doors opened and three men and a woman clambered inside. One of the men took the wheel and the other rode shotgun. Neither spared even a stray glance at me. It was the woman, clad in a coat and possessed of a kindly, austere face, who took my hand in hers and gave it a light squeeze. Warmth seemed to exude from the lines of her visage, twinkling in her merry grey eyes.
+
+I fell back on my training.
+
+“Please, madam. I’m scared. Where’s my sister? She is small and weak, and can’t function without me—”
+
+“Your sister is safe with us,” the woman smiled. “No need to worry about her. Tell me, child. What is your name?”
+
+I took a deep breath.
+
+And told her.
+
+She was quiet for a long time. The driver snorted, and his comrade shook his head.
+
+“Raised them like fucking hounds. Thinks he has some kind of dynasty going on.”
+
+“Language, officer,” the woman chided. “The children are hardly complicit in his crimes.”
+
+She turned back to me. “Now that’s a good name. All your siblings have such odd little names, but I find them cute. So we are going to call you that until you pick a better one for yourself, okay?”
+
+I nodded, though I did not understand at all.
+
+“Where are you taking me?”
+
+The smile did not fade in the least.
+
+“Somewhere your Father can’t find you.”
