@@ -122,7 +122,7 @@ The breakthrough did not come as insight. It came as a sentence, fully formed, a
 
 
 
-*Maybe it all went wrong when we killed the whales. Maybe their songs kept the great dream together. Vast brains slowly carefully ordering the world with action s subtler than the apes could ever see. God is dead. His blubber lit a lamp in London*.
+*Maybe it all went wrong when we killed the whales. Maybe their songs kept the great dream together. Vast brains slowly carefully ordering the world with actions subtler than the apes could ever see. God is dead. His blubber lit a lamp in London*.
 
 
 
@@ -584,7 +584,7 @@ A species of moth whose evolutionary history extended six million years into the
 A child in Reykjavik drew a map of the world with continents slightly misplaced, and satellite data agreed with her for nine minutes. 
 
   
-In Sao Paulo a buildings shadow pointed towards the sun.
+In São Paulo a buildings shadow pointed towards the sun.
 
 
 
@@ -654,7 +654,7 @@ She saw one turn. That was all. It did not look at her. It merely turned. And th
 Then came the sound.
 
   
-A single whale coal.
+A single whale call.
 
   
 Irene woke screaming.
@@ -798,7 +798,8 @@ The thing did not want to destroy them, it simply did not understand why they sh
 Understand how absurd that is. One human. One language. One nervous system. Against something that might have existed before the difference between *one* and *many*.
 
   
-She began to laugh. Then cry. The sing. No whale song, no human song, no melody. She simply began listing things.
+She began to laugh. Then cry. Then sing. No whale song, no human song, no melody. She simply began listing things.
+
 
 "The Thames"
 
@@ -853,7 +854,11 @@ At dawn, London remained.
 
 
 
-The sea returned. The contradictions stopped. For several hours, humanity believed it had survived. Then the whales began singing. 
+The sea returned. The contradictions stopped. For several hours, humanity believed it had survived. 
+
+
+
+Then the whales began singing. 
 
 
 
@@ -861,7 +866,7 @@ Everywhere.
 
 
 
-From oceans where now whales remained.
+From oceans where no whales remained.
 
 
 
@@ -929,7 +934,7 @@ They had known that eventually something would kill them.
 
 
 
-They had known humans might be the ones to od it.
+They had known humans might be the ones to do it.
 
 
 
@@ -953,7 +958,7 @@ The great dream had not been a sleeping god.
 
 
 
-It had been the agreement that the world was worth distinguishing.
+It had been the agreement that the world was something worth distinguishing.
 
 
 
@@ -1018,6 +1023,8 @@ And listened.
 
 
 # Thank you for teaching me how to dream.   
+
+
 
 
 
