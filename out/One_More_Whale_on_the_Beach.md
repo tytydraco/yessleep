@@ -1,0 +1,489 @@
+Marco and I were sitting on a bench, having hot dogs. It was the only kind of meal we could get our hands on before we got to the site. They were getting ready for us, setting up warning tape down by the beach. Marco was savoring every bite of his meal. I’d just finished mine.
+
+“You know, I used to hate mustard on these things,” he said. “Now I can’t get enough of it. Dijon, spicy, honey… love it.”
+
+“Good for you, man. I’m not much of a mustard guy.”
+
+“I’m just saying. The *mustard* was always there. It hasn’t *changed*. It didn’t get better to accommodate me, you know? I changed to better fit the *mustard*.”
+
+“I have a hard time believing that you, wanting to enjoy mustard, was the sole reason for you to evolve your sense of taste.”
+
+“It’s just weird when you think about it. You thinking about it?”
+
+“I’m thinking about it.”
+
+One of the officers waved us over. I got off the bench and whistled for the other volunteers. The sun was about to set, and we had a long night ahead of us.
+
+ 
+
+I’d been to Lullaby Beach at least once or twice a year since I was fifteen years old. Now I was about to turn 42, and I was still around. It was the one place where gray whales tend to get beached. The old ones get swept in by the current, and they get confused by the rocky coastline. I once talked to a marine biologist about it, who called this one particular spot a perfect whale trap.
+
+Still, it broke my heart every time I saw one. Their big cow-like eyes wondering why everything hurt.
+
+We were six volunteers coming down to check her out. We’d got there early, so we would just be assessing damage and making her comfortable for now. If she was okay to be moved, we’d be looking at bringing in some inflatables in the morning and digging out a trench for the current. But for now, we were just looking.
+
+Freddy was already crying. Whales are his favorite animal. The guy has six different shirts with whales on them, all with little hearts and cartoonishly sad eyes. Before we even saw what kind of whale it was, he was bawling his eyes out. He’d already given her a name; Minnie the Whale.
+
+It wasn’t normal for cops to oversee this kind of thing, but we’d had some problems with random people coming down and getting hurt when no one was around. These animals are so immense that even an accidental movement can be enough to get you killed. It happens, and if it happens once, you bet your ass someone is going to make sure it doesn’t happen again.
+
+The cops knew *me* though. Every six or seven months or so, I’d be first on-site.
+
+ 
+
+Walking up to a whale is unreal. You gotta remember that you’re looking at an animal the size of an inner-city bus. While gray whales might not be as big as the famous blue, they’re still humongous. You can’t really fathom their size until you’re standing there with your hand on their rough skin. Like a mix of sandpaper and wet cardboard.
+
+Minnie was different from other gray whales I’d seen. She had this thick layer of salt on her skin, to the point where she smelt like pickles. Her breathing was short and shallow, but that might just have been the distress. Being surrounded by little strange creatures would probably stress out anyone.
+
+“I’m not seeing damage,” Marco called out. “I think she got turned around.”
+
+“How’s the eyes?”
+
+“Closed. I think she’s resting.”
+
+“She’s so *beautiful*,” cried Freddy. “And she’s healthy, right?”
+
+I nodded, looking her over. No unusual smells, no blood in the sand. We’d have a proper marine vet check her out in the morning, but things were looking good.
+
+“Looks like it,” I said. “Let’s get her comfortable and clear the rocks.”
+
+One of the officers overseeing us whistled.
+
+“You got an hour, we can’t stay here all night. Do you what you gotta do.”
+
+“An *hour?*” Freddy protested. “We can’t do *shit* in an hour!”
+
+“It’s what you get for now. We’ll be back in the morning. Can’t leave you folks on your own out here.”
+
+He pointed at me, growing impatient.
+
+“*You* can stay a little longer if you want, we’ve got your papers in order.”
+
+ 
+
+Marco’s initial assessment was that Minnie was healthy enough to make it a day or two. She was an adult, but not elderly. Probably strong enough to have some kids once she got back out there. As the others cleared out, I was left on my own. As a veteran working this beach, and many like it, I had a bit of a working relationship with the law. People who knew what they were doing didn’t get into whale-related accidents, that was just a fact. And someone had to keep an eye on Minnie.
+
+After a while, it was just me and the whale. I got a closer look at her. She had this big scar between the eyes, probably from a boat. She’d been lucky; the Oregon coastline is rocky as hell, but she’d managed to slip right up the smooth sand. If they’re unlucky, they can skewer themselves if there’s something sharp beneath as the tide recedes. I gave her a gentle tap on the head, shushing her as she rested.
+
+“We’ll get you out, girl. Don’t worry.”
+
+There wasn’t much I could do until morning. I’d already sent out the requests and got confirmations, so we were good to go. I figured it was best to sleep in the van; it was an hour drive back home and an hour drive back. I’d only get about three, maybe four hours of sleep at most. Might as well nap in the back of the van.
+
+As I turned to leave, I felt this wave of heat. Minnie was opening her mouth, letting out this pent-up warmth. It smelled like kelp and rock salt. With her mouth open, she made a noise. I stepped a little closer, being sure to give the distressed animal some space.
+
+“It’s okay,” I assured her. “We’ll get you home.”
+
+“…*thank you*.”
+
+ 
+
+I blinked. Where did that voice come from? I took a step back, looking up and down that immense creature. My first thought was that someone else was left behind. It sounded like a woman, but not like any woman I knew.
+
+“Excuse me?” I said. “Who’s there?”
+
+“…*I am here.*”
+
+Such a sweet voice. Like a caring mother, trying to calm an anxious child. Minnie moved her mouth a little.
+
+“…*do you not hear me?”*
+
+The voice seemed more muffled the more closed the mouth was. It seemed to be coming from inside her. I blinked again, trying to figure out just how tired I was. Had I been drinking?
+
+“No, I hear you,” I said. “Who is this? Where are you?”
+
+“…*I am right here, silly.*”
+
+The whale’s left eye stared at me.
+
+ 
+
+I turned my back and walked away. I didn’t even think twice about it, I walked away. Something was clearly wrong with me. I got back up to my van, hopped in the back, and got a first aid kit. I checked my pulse and blood pressure. I tried counting down from ten, and I checked the size of my pupils. Maybe Marco slipped something in my coke while I was in the bathroom at the gas station.
+
+But from what I could see, I was fine. But I couldn’t be, right?
+
+I rolled out a sleeping bag, but my heart wouldn’t stop racing. My mouth felt dry, and I could still smell the salt of the whale. I was *not* okay. But I wasn’t going to be okay just lying there either. I had to take a deep breath, control myself, and look at this objectively. Whales can’t talk. That’s not the kind of world we live in. Hence, I must have imagined it, or it wasn’t the whale doing the talking.
+
+I made my way back down the beach, fully intent on exposing whatever this was. The moment I returned, the eye shifted my way again.
+
+“…*where did you go?”*
+
+“You’re not talking,” I said. “You can’t be talking. You can’t understand me.”
+
+“…*I do*.”
+
+“Then blink three times.”
+
+She did. Three blinks, in rapid succession. My knees weakened.
+
+ 
+
+I walked a couple of laps around her, watching every angle. Apart from the salt, there wasn’t anything strange about her. No stranger than any other unfortunate thing I’d seen on that beach. But she was an animal, not a person. Not a being capable of making polite conversation. And yet…
+
+“If you’re a whale, talking to me, explain why you’re here.”
+
+“…*I promised I would be.*”
+
+“You promised to get stranded and die?”
+
+“…*I promised to meet a friend.*”
+
+“What? What friend?”
+
+“…*she lives in the city. Would you mind fetching her for me?”*
+
+I laughed. I actually laughed. I walked in a circle with my hands on my hips, shaking my head.
+
+“You got some nerve, I’ll give you that.”
+
+“…*you are very helpful. That is one of many reasons I enjoy you*.”
+
+“You *enjoy* me? What’s the hell’s that supposed to mean?”
+
+The whale shook a little. Was that a laugh? Can whales *laugh?*
+
+ 
+
+I moved right up to Minnie and brought out a flashlight, looking into her mouth. The voice was clearly coming from inside, but I couldn’t see the source. Then again, a voice doesn’t really have a *source*, it’s just the way you shape your airways. Problem is, whales don’t have that kind of biology. Hence, the words couldn’t be coming *from* the whale.
+
+“…*are your children well?*” Minnie asked.
+
+“My children? You want to ask about my children?”
+
+“…*yes. Are they well?*”
+
+“I’d rather not talk about my children.”
+
+“…*what of the small one, is he still playing the string instrument?*”
+
+Something cold shot up my lungs. I have two sons, and the younger started playing guitar about a year prior. He was getting pretty good. I scratched my head, as if trying to tune my ears to only hear something that made sense. I was so shocked by the question that I couldn’t even begin to respond. Instead, I asked a question of my own. One I didn’t really want an answer to.
+
+“Do you know my family?”
+
+“…*I know them well.*”
+
+ 
+
+The whale carefully explained. It knew the name of my wife and two children. It knew the name of my dog, and the name of the street where we lived. It knew my full name, including my middle name, and the name of the wildlife rescue organization I worked for. It knew the color of the wallpaper in my bedroom; a flowery arrangement of yellow tulips and blue sunflowers. But by then, I’d made up a theory.
+
+“You’re just me!” I said. “You couldn’t know these things, but I do. You’re just telling me things that are already on my mind.”
+
+“…*find the woman*,” Minnie said. “*She is a stranger to you, why would you know her name?*”
+
+She had a point. If this was my own mind playing tricks, it wouldn’t be able to pinpoint the name and address of a person I’d never heard of. Saying things about my family was one thing, that information was already in there, but this was something else. Something I could *check*. I excused myself and walked back to my van, firing up my laptop. Minnie had given me the full name and address. Galina. It was an unusual name, so I’d remember seeing it.
+
+It didn’t take long for a result to pop up. Galina was, for all intents and purposes, a real person. I confirmed the address and the full name. I checked my contact list and newsletters if there was ever a mention of this woman, but she was nowhere. We didn’t even work in adjacent fields; she was an administrator at a private prison company.
+
+How could a whale know a name? How could it know *me?*
+
+ 
+
+I contemplated my options. I could try to just go to bed and wait for morning. I could go back and talk to Minnie a little more. Or, I could just sit back in my van and pretend I had an answer. Neither of which seemed like good options. I couldn’t get the phone number for Galina, but I had her home address. I could be there just before midnight if I left right then and there. I wasn’t about to ‘fetch her’, but maybe she had some answers.
+
+I checked the time, strapped my seat belt, and drove off.
+
+Hitting the road helped a lot. I could occupy my mind with speed limits and stop signs for a while, occasionally looking down at my GPS. I’d gotten a text message from Freddy, asking if Minnie was okay. I assured him that she was. He’d made an open call for more volunteers to come in the morning to help dig her out. He was getting a lot of likes.
+
+Galina lived in a gated community to the north. It was just further up the pacific coastline, but it was a bit isolated. Not the usual rich people kind of home. Once I got close, the GPS didn’t really know what to do. There were entrances, but they were locked. There was a gated fence, with a night guard on duty. I drove up and slowed down. He came out with his flashlight, giving me a once-over.
+
+“A little late for solicitation,” he said. “You lost?”
+
+“I’m with marine wildlife rescue,” I said. “I’m looking for a Galina.”
+
+I gave him the full name and address.
+
+“Oh, I know she’s all about animal welfare. Not sure she’s expecting you at this hour though…”
+
+He picked up the phone, said three words, and looked genuinely shocked. With no further discussion, the gate swung open, and he directed me to the third house on the right.
+
+ 
+
+There were rows of two-story homes and open yards. B-list movie stars and stockbrokers. Probably some billionaires in a witness protection program, who knows. I didn’t like the vibe of the place; nothing healthy is ever this clean. I followed the guard’s instructions and drove up a gravel road, stopping just short of a garage that could easily hold at least six cars.
+
+The moment I stepped out of my van, a man walked out the front door. He was dressed in a bathrobe and holding a cocktail, pointing at me with his whole hand.
+
+“You!” he yelled. “You get the *hell* out!”
+
+“I’m sorry, I was told Galina was-“
+
+“You don’t talk to her! You get back in your car and *fuck right off*, you hear me?”
+
+I sat back down in my van, only to see a woman emerge from the house with a handgun.
+
+ 
+
+Galina was in her early 50’s, her pale complexion highlighting her crow’s feet. She had these tired brown eyes, and spoke with a soft voice. She raised the handgun towards the man with the cocktail; her husband, or brother, one could assume. She was dolled up. Full makeup, a yellow summer dress, and her hair all done and dandy. No handbag.
+
+“This is happening,” she said. “It’s happening, and you’re not stopping me.”
+
+“For Christ’s sake Gale, you pull a *gun* on me?”
+
+“You’re the one telling me you’re gonna duct tape me to a *goddamn chair*, of course I’m pulling a gun!”
+
+“You can’t be serious!”
+
+“Twenty-eight years!” she spat back. “Twenty-eight years I’ve planned this, and you knew it! You knew it from day one!”
+
+She rounded the van and got in the passenger seat, still holding her gun. She closed the door and put on the seatbelt. She nodded at me to go as the man threw his cocktail on the windscreen, cracking it in the top left corner.
+
+“You can’t just leave!” he called out. “I love you! We’ve got Hayden’s wedding in *six months!*”
+
+She wasn’t answering anymore. She just looked at me, keeping her hand on the gun.
+
+“Drive.”
+
+ 
+
+We left through the gate and got back on the road in silence. As the houses disappeared behind us, she breathed a sigh of relief. She checked her gun; a six-chambered revolver. It was fully loaded. As if just now realizing what she was holding, she popped open the glove compartment and threw the gun in there, holding it with two fingers like it disgusted her. I tried to put my questions into words, but I just ended up stammering a couple of syllables. Finally, I got a full sentence out.
+
+“What do you think this is about?”
+
+“The beach,” she said. “She’s back, isn’t she?”
+
+“You mean the whale?”
+
+“Whale,” Galina snorted. “Yeah. The ‘*whale’*.”
+
+She rolled her eyes, then looked at me. A realization dawned on her as she turned to me.
+
+“Wait, you’re not kidding, are you?”
+
+“No, I don’t think so.”
+
+“I thought you were part of the pod. What are you, fourth in line? Sixth?”
+
+“In line for what?”
+
+She tapped me on the shoulder, pointing at a gas station up ahead. Same one Marco and I had stopped at earlier to get hot dogs.
+
+“Stop for a bit,” she said. “I have to do something.”
+
+ 
+
+We parked at the gas station, and Galina hurried out. She jogged in and started grabbing things by the armful. Cheese snacks, beef jerky, sugary drinks and chocolates. As much as her skinny arms could carry. There were two other guys in there, and they looked at her like she was on drugs. She ran up to the counter and dropped it all off with a fwomp.
+
+“Total is $39.46, will that be cash or credit?”
+
+Galina looked back at me, then down at her snacks. She took off her jewelry. A necklace, an earring, a wedding ring. She put it all down and looked at the cashier.
+
+“The ring alone is $8000. Take it.”
+
+She pushed it over to him. The cashier just stared at her in disbelief. He made no objection as she walked out with her arms full of snacks. Before I could leave, he called out to me.
+
+“Hey,” he said. “Is the lady okay?”
+
+I shook my head and shrugged.
+
+“I have no idea.”
+
+ 
+
+Getting back on the road, Galina was shoveling snacks into her face, ruining her pretty makeup and lipstick. She was almost bouncing in her seat, making these content humming noises as we drove off.
+
+“I can’t believe you haven’t said yes yet,” she said as she devoured a chocolate-frosted donut. “If they got you driving, you’re pretty far ahead though.”
+
+“Said yes to what, exactly?”
+
+“You know, the proposition. Isn’t that why you’re doing this?”
+
+“I’m doing this because I need answers.”
+
+“Well, that’s why I’m doing it too.”
+
+“No, I need to know why a goddamn *whale* can talk.”
+
+“Whales can’t talk, are you crazy?”
+
+“Then what the hell’s that thing on the beach?”
+
+“Why do you need a label?”
+
+“I don’t need a label, I need to know *what the hell is going on!*”
+
+Galina slowed her chewing and washed it down with some red Mountain Dew, spilling it on her pristine dress. She was barely a quarter through her stash, and she was already looking full, letting out a belch. She unclipped her seatbelt, leaned back, and kicker her feet up on the dashboard.
+
+“When I first started, in the nineties, they were just looking for *anyone*. People that didn’t have anywhere to go, people looking for purpose, that sort of thing. But it didn’t know what it *wanted*, right? So those first few people got all torn up.”
+
+She opened the window, letting the wind ruffle her hair a bit.
+
+“We couldn’t keep doing that. So there was a vetting process to make sure we only brought out good people. The *appropriate* people. And hell, I wasn’t even on the list! I haven’t been on the list until *now,* and I’ve been begging for a spot. The fact that you haven’t agreed yet is *ludicrous*.”
+
+“Please just answer me this one thing,” I insisted. “What have you been on the list for?”
+
+Galina closed her eyes, letting out a relieved sigh.
+
+“I’m going far away,” she smiled. “After all these years, I’m going far, far, away.”
+
+ 
+
+We made our way back to the beach, and I put the car in park. Galina kept her eyes closed, listening to the sounds of the ocean. My phone dinged again. Freddy was updating our socials with images of whales we’d rescued over the years to drum up some volunteers for tomorrow. Looking at them, I noticed something. Last whale we helped had a scar between the eyes as well. How could I not remember that? They looked remarkably similar.
+
+“I’ll be honest,” Galina yawned. “I didn’t know if I wanted it at first. It was scary as hell. But once you get a little older, a little more mature… you know what you’re getting into.”
+
+“You’ve met it before.”
+
+“Oh, many times,” Galina smiled. “But she hasn’t *summoned* me before. Not like this. Every time she’s returned, I’ve been rearing to go, and now, *finally*…”
+
+She clasped her hands, offering a silent prayer.
+
+“I’m ready. Let’s go.”
+
+ 
+
+She ran down the beach. I had trouble keeping up. As we rounded the corner and the whale came into view, Galina threw her arms open as if expecting a hug. The whale made a deep trembling noise and flapped a fin.
+
+“…*you are here.*”
+
+“I’m here, I’m here!”
+
+Galine ran up to Minnie and pressed her body against the whale’s skin. There was not a moment of hesitation. Minnie, in return, seemed a little livelier.
+
+“Have you decided where I’ll go? I didn’t know what to pack, so I just put on something pretty. It’s not the cold one, is it?”
+
+“…*not the cold one*,” Minnie reassured. “*You will see the green one, off the coast of Portugal*.”
+
+“Portugal!” Galina squeed. “Oh, my darling, you know me *so well.*”
+
+Galina gave the whale a kiss and turned to me. She put a hand up, waving at me with just her fingers in a dainty goodbye.
+
+“Thank you,” she said. “And don’t worry. It will all be fine.”
+
+Turning back to Minnie the Whale, she held her arms open and closed her eyes. Minnie opened her mouth.
+
+ 
+
+Something emerged. It looked like an expanding flesh-like mass, like a viscous balloon composed of a swarm of tendrils. Hundreds of appendages, like oil-slick newborn arms. Each with dozens of hinge joints, covered in brine and mucus, and ending in a long claw-like spike.
+
+They slowly wrapped around Galina and pulled her into the whale’s mouth.
+
+The last thing I heard from her was an excited laugh – like a kid coming down a roller coaster.
+
+ 
+
+I stared in disbelief, my mouth trembling. Should I say something? Should I run? How far could it reach?
+
+“You ate her,” I mumbled. “You fucking *ate* her.”
+
+“…*thank you for bringing her*.”
+
+“You tricked me! You made me do this!”
+
+“…*I asked politely*.”
+
+“What the fuck *are* you?”
+
+“…*you always use such colorful words*.”
+
+I took a step back as the tendrils emerged again. This time faster. One of them reached out and tripped me while another slipped under the back of my shirt, emerging through the collar. It felt like warm algae rubbing against my skin.
+
+They pulled me back. I protested and flailed, but it kept pulling me back.
+
+“…*you made it further last time*,” Minnie said. “*Perhaps next time, you will not run with such vigor.”*
+
+I was pulled in, and the whale’s mouth closed. I was poked by something sharp as the air turned sour. It felt like being pulled across a pool of wet jellybeans, until the ground gave way and I fell.
+
+ 
+
+You know what the strangest thing is?
+
+It wasn’t a new feeling. I’d felt it all before. Minnie was rifling through my pockets, looking at all the pictures in my wallet. The one with me and my wife in our bedroom, next to our flowery wallpaper. The one with my youngest child playing the guitar. I was choking from a lack of air, but there was something punctured in my leg that made my lungs swell and recede; like I was breathing, but not through my mouth.
+
+The best way to explain it is a conveyor belt. I was pulled down and processed. Clothes removed, hair checked for lice, flipped back and forth like a hamburger. Every fold of skin turned and inspected, cataloged, evaluated. Some of the appendages had hands. Fingers.
+
+The voice was everywhere. I’d been pulled *inside* it.
+
+“…*your loyalty is admirable*.”
+
+I wanted to say something, but as soon as I opened my mouth, something pushed inside. I felt a suction against the roof of my mouth as something chemical pushed into my brain. There was this sickly smell, like burnt sugar and flower detergent. There was a pressure from behind my eyes, so powerful that I couldn’t blink. I couldn’t think. My heart wasn’t even beating of its own accord; it was accepting directions from a foreign agent. An outside being, pushing itself in.
+
+“…*I am so pleased to have you here.*”
+
+ 
+
+I blinked. I was somewhere else, but I hadn’t moved.
+
+I was standing on a warm beach as the sun set. Sand slipping through the space between my toes. In the distance, a city burns. The sky is black from smoke, blocking out the stars. The ocean bathes in lightning strikes as a storm of the century approaches. A storm to end all storms.
+
+Someone grabs my arm and leans on my shoulder. I turn my head to see Galina – but not the way I’d seen her before. She was in her prime, the crow’s feet around her eyes replaced by wonder. Her tiredness gave way for eagerness. She still wears the same yellow summer dress. She hugs my arm tight and closes her eyes contently.
+
+“Don’t be discouraged,” she says. “You’ll get here soon enough.”
+
+“I don’t want this.”
+
+“Neither did I, at first,” she says as she kicks the sand around. “But things change. And even if they don’t, just… look ahead.”
+
+The closer I look at the burning city, the more impressions I get. People cooking alive in the seat of their car. Bomb shelters overflowing, pushing out the elderly and the sick. The sky cracking open above the clouds, out of reach.
+
+Galina kisses me on the cheek as she backs away, letting her feet soak in the ocean. The water is boiling, but she doesn’t seem to mind.
+
+“It’s not everyday you’re invited to someone’s house,” she smiles. “If you never say yes, sooner or later, they’ll stop asking you.”
+
+“Isn’t that a good thing?”
+
+“Depends on the house.”
+
+She laughs as she falls, her body dissolving in the tar-like ocean water. The fires spread, engulfing the beach, as a hundred hands pull me to the safety of the void.
+
+ 
+
+ There’s a soft hand stroking my cheek. Another brushing my hair. There’s laughter, and kindness, and beauty. A refreshing drink after a satisfying sleep.
+
+“…*I will care for you*.”
+
+Sculpted muscles and sensual dances. Fragrant, well-combed hair on a soft pillow. Sweet nothings whispered as I’m half-asleep.
+
+“…*would you care to stay?”*
+
+Fingers intertwining with mine. I push them away. There’s a pain in the roof of my mouth. I shake my head, and I can’t answer, but I make my will crystal clear. I’m willing it a ‘no’. I’m *saying* no. No, no, no!
+
+“…*there is always next time*.”
+
+I grab the thing in my mouth and pull. A six-inch long bone spike recedes as an inhuman pain explodes in my cranium.
+
+Darkness gives way to the morning sun.
+
+ 
+
+I’m face down in the sand, naked. A bright light is crawling up on the horizon. The water’s coming in, slipping into the corner of my open mouth. My arm is numb. I can feel a wound on the roof of my mouth, and it looks like I’ve been stung by something on my shoulder. There are puncture wounds on my skin. Discoloration. Infection?
+
+“Jesus Christ, are you okay?”
+
+Marco’s voice. I try to turn my head, but I can’t bring myself to move. He’s running up to me, his feet splashing me with cool ocean water. I hear Freddy in the distance, and a lot of other people. They brought the cavalry.
+
+“She got loose all on her own?” he laughs. “How did she do that? How did she-“
+
+“Freddy, shut the *fuck* up and look for his clothes!”
+
+Someone said I had a fever. A police officer was calling for medical assistance. A dozen volunteers with Minnie the Whale shirts took pictures of the wet outline in the sand, celebrating her departure. But as it turns out, even people with regular experience of whales can have accidents.
+
+ 
+
+Minnie made it off that beach, and back into the ocean. I was taken to the hospital and given antibiotics. My wife and kids were beside themselves; I’d never been injured at work before. Not like this. I’d gotten stung by nasty insects before, but that was months ago. Come to think of it, I’d gotten similar stings last time I went to help a beached whale. According to my wife, at least. I have no memory of it. That one, too, had barely required any effort on our part. It’s almost like it swam back on its own.
+
+Marco came to visit me in the hospital, chowing down on a cheese and ham sandwich with extra mustard. We were just talking like we always did.
+
+“You know, Marco, I don’t like mustard.”
+
+“I know.”
+
+“I don’t have a taste for it, but I’m getting there. I’ve tried it. Getting used to it.”
+
+“Ain’t that strange?”
+
+“I dunno, Marco. You tell me.”
+
+He thought about it, turning the question over and over. Then he nodded.
+
+“You know, I don’t think it is. It’s delicious. It just takes a while for you to get that.”
+
+“Yeah,” I nodded. “Maybe.”
+
+ 
+
+The moment I got out of the hospital, I wrote down what I could. I’m posting it now, but I suspect I’ll forget that I ever wrote it. Some details are already spotty. I can’t remember what Galina’s husband looked like, or the address where they lived. I can’t remember exactly how tall she was. It’s like there’s this gel in my brain, hardening around just the parts of the night that it wants me to remember. Putting a hand on the skin of a gray whale. Lying down in my sleeping bag, waiting for dawn.
+
+I’ve written down what I can, and I’m sharing it. I hope I’ll come back to this someday. I hope it happens before I change my mind. It’s going to happen again, I know it is. She flat out told me.
+
+I’ve been doing this for decades. I don’t know how many times I’ve said no. I don’t know if I’ve ever been *asked* before. But I know for a fact that, in my heart of hearts, this wasn’t a sure thing. I didn’t give Minnie an *immediate* no.
+
+I’ll just have a *little* mustard. Just a taste.
+
+Maybe I’ll learn to like it.
