@@ -1,0 +1,94 @@
+I know this sounds stupid. I felt stupid just typing out this title. If you're about to tell me in the comments section to go see a psychiatrist, please finish reading the post first.
+
+About a week ago, I started coughing up green stuff. It looked like the shredded remains of some kind of plant with a bit of translucent membrane on it.
+
+Unable to hold back my curiosity, I picked it up with a tissue and took a sniff, and immediately regretted it. It smelled like spinach that had been rotting for months, mixed with damp soil and over-fermented fruit.
+
+Now, some of you might be thinking: "This idiot just doesn't know what tonsil stones are."
+
+No, thank you. I know what tonsil stones are, and I’m not stupid enough to forget what I ate in a day. I haven't eaten broccoli, green peppers, peas, or anything of the sort, and I’m pretty confident three eggs and a liter of coffee wouldn't ferment into green sludge inside my mouth. I’m a model. The most important fashion show of the year is coming up in two weeks, and I’m controlling my weight. So for the past week, I’ve been living almost exclusively on three eggs, a liter of iced coffee, and the occasional vitamin supplement per day.
+
+Zero green food. So that stuff couldn't possibly have come from my stomach.
+
+At first, I suspected I might have caught some strange illness, but that brought up another problem: I couldn't go to the hospital.
+
+It’s not that I hate doctors or hospitals. At the risk of sounding vain, I do have a bit of fame—at least enough that people recognize me on the street. Hospitals are full of people. If I actually coughed up a blob of green unknown substance during an examination and someone snapped a photo to post online, I wouldn't be working for the next few months, or even years.
+
+I checked online and found that extreme stress can cause sleepwalking, and maybe I was eating things in my sleep at night without remembering it the next day. So, I bought a security camera and fixed it to the bookshelf in my bedroom, right where it could capture the entire bed.
+
+Guess what I caught on tape?
+
+You can scroll back up to look at the title of this post. That’s right. Sprites.
+
+Damned, hideous, stupid sprites!
+
+A humanoid creature about ten centimeters tall with two pairs of transparent wings on its back. I don't know what else to call it besides "sprite." It suddenly popped into the frame with a \*bang\*, with stuff like glitter exploding around it. It flew a few loops around my bed, landed right beside my face, used its tiny hands to pry open my lips and teeth, and dove straight in headfirst.
+
+I watched myself snap my mouth shut like a hungry feral cat, and then start chewing. Through the glass screen, I could almost hear the crunch of snapping bones and the faint squeals as I swallowed.
+
+I immediately sprinted into the bathroom and threw up violently into the toilet until my stomach was completely empty. Even though I knew that poor sprite had probably long been dissolved by my powerful human stomach acid, I still threw up until I was retching pure bile. When I returned to the screen, I saw another sprite fly in—and then it dove in, too.
+
+My mouth started chewing again.
+
+Once I calmed down, I sent the video to my uncle to make sure he could see it too, proving I hadn't lost my mind. He replied almost instantly.
+
+"Hey, looks like they finally caught on."
+
+"What?"
+
+"What do you mean, 'what'?"
+
+"How are you not surprised by sprites?!"
+
+"First off, their official classification is 'Tooth Fairy.' Second, because they come by the association every few years to renew their partnership agreement."
+
+"What association?!"
+
+"The Dental Association, of course. Where else did you think all those pulled teeth went?"
+
+I was certain I wasn't on drugs, and my uncle—a highly respected dentist—wasn't on drugs either. Plus, he couldn't drug me through a phone screen.
+
+Wait, could he really not? I mean, he \*is\* working with sprites...
+
+Sorry, I'm straying too far off topic. This sprite bullshit is driving me crazy. Anyway, with my uncle's prompt, I finally remembered the stupid thing I did in my childhood.
+
+My parents were always busy with work and didn't even have time to take care of me on weekends, so I spent my weekends throughout primary school at my uncle's clinic. My favorite game back then was "Hunting for Pearls", which was actually just digging plaster teeth off discarded models in the clinic's storeroom one by one. If it had ended there, I wouldn't be in the mess I'm in today. But... but...
+
+My idiot uncle taught me a great way to make pocket money: tricking the sprites with fake teeth.
+
+"I told you that trick only works AFTER you finish losing your baby teeth!"
+
+"I was eight years old!"
+
+That's right. As long as you keep a plaster tooth in your mouth for 15 minutes to coat it in your saliva, and then put it under your pillow before going to sleep, those foolish little sprites will mistake it for a real tooth that recently fell out of your mouth and swap it for a coin. If you do this after you've finished changing teeth, it's just counted as an operational error on the sprites' part for failing to verify your age in time. But if you do it while you're \*still\* losing baby teeth, these slow-witted sprites won't realize they've been scammed until 16 years later. Then, they'll show up at your bedside every night, trying to pull out your teeth with their tiny hands.
+
+"Oh dear, looks like we have a financial fraudster in the family—a cross-species one, no less."
+
+Like I said, I was eight years old. You can't expect a kid to have the self-control to hold off until they're 14 and done changing teeth just to get some allowance. Besides, I never believed in sprites in the first place; I always thought my parents and uncle were teaming up to tease me. That was why I spent almost every weekend in the storeroom digging out fake teeth, getting plaster dust jammed under my fingernails. After all, if acting cute in front of adults gets you money, who's going to say no to ice cream, gummy candies, and the newest toys?
+
+Anyway, I thought the whole thing would end there. Since my uncle knew the sprites, he should be able to help settle a tiny economic dispute like this. But if that were the case, I wouldn't be sitting at my computer typing this right now.
+
+"Nope, can't do."
+
+"Why? You work with them, shouldn't this be easy?"
+
+"Again, their official classification is Tooth Fairy. Calling them 'sprites' as a blanket term is very rude. Would you like being called a primate?"
+
+"Fine, I apologize! Can we do it now?"
+
+"How should I put this... Tooth Fairies actually have a super hierarchical society. The ones that sign agreements with us belong to the managerial class, possessing intelligence no different from humans. But the ones that fly into kids' bedrooms house by house to collect teeth belong to the very bottom tier. Word is they're dumb as bricks and completely impossible to communicate with."
+
+"Can't you just talk to the management class and have them issue an order? Like, 'This human's debt is settled, stop jumping into his mouth' or something..."
+
+"Still no. Aside from the designated agreement signing times, they're on vacation almost year-round and completely unreachable. Employees working while the bosses enjoying—terrible corporate culture, right?”
+
+"Then when is your next agreement signing?"
+
+"Hold on, let me check my schedule. The next signing is..."  
+"Next year :D"
+
+So now you know everything. Fifteen minutes before typing this, I decided to break off all ties with my uncle for ten years. Three hours ago, I coughed up another massive blob of sprite body parts. 
+
+I tried wearing a mask, and I even tried taping my mouth shut. But those little bastards just called in more backup, and I ended up swallowing even more of these freaky creatures.The number of these sprites is increasing every night. Judging by the wing fragment content in this morning's vomit, the count grew to eight last night. And I don't know what kind of physical structure these sprites have, but their caloric content is terrifyingly high. I've eaten almost nothing this past week, yet I've still gained 8 pounds! If this keeps up, my manager is going to come over and strangle me. Or before that happens, I'll choke to death in my sleep from a mouth full of sprites.
+
+So whether you are a witch, a wizard, a psychic, or a Tooth Fairy manager on vacation—anyone will do. Does anyone know how to get rid of sprites?
