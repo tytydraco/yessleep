@@ -1,0 +1,641 @@
+I never believed in ghosts until my idiot roommate Derek downloaded one from the app store.
+
+Not a normal app either. Not one of those fake EMF readers that beeps every time you stand near a microwave.
+
+This thing had pop-up ads at 3 a.m. promising REAL SUPERNATURAL EXPERIENCES for the low price of £4.99/month, or, according to the small print, “one non-refundable spiritual opening.”
+
+Derek thought that was hilarious.
+
+“Mate,” he said, lying on the sofa in his pants, eating cereal out of a saucepan because all the bowls were in his room, “imagine if it works.”
+
+“That’s exactly why you shouldn’t download it.”
+
+“It’s called SpookMe.”
+
+“Even worse.”
+
+He ignored me, obviously.
+
+He swiped through the filters like he was choosing a takeaway.
+
+“Poltergeist… Victorian Lady… Shadow Figure… Sassy Demon…”
+
+“Do not pick Sassy Demon.”
+
+“I’m not an amateur.”
+
+Then he found something called:
+
+Budget Haunting Package — Entry Level Spooks.
+
+He clicked it immediately.
+
+I said, “Derek, that literally sounds like supernatural Ryanair.”
+
+He said, “Exactly. Affordable.”
+
+On the first night, nothing happened.
+
+Derek was gutted.
+
+“Waste of a fiver,” he said, as if he hadn’t potentially opened a gateway to hell between my coffee table and the router.
+
+The second night, the lights started flickering.
+
+Not scary flickering.
+
+Annoying flickering.
+
+Like the ghost knew Morse code but had learned it from a drunk pigeon.
+
+I filmed it on my phone.
+
+The lights blinked:
+
+G… E… T… O… U… T…
+
+Then paused.
+
+Then flickered again.
+
+J/K LOL U GUYS SEEM COOL appeared in red on the wall.
+
+Derek laughed so hard he nearly choked on a chicken nugget.
+
+I did not laugh.
+
+I said, “We need to delete the app.”
+
+Derek said, “Absolutely not. That’s banter from beyond the grave.”
+
+By day four, the ghost had a name.
+
+Kevin.
+
+He introduced himself by rearranging the fridge magnets into:
+
+KEVIN WAS HERE.
+
+Then underneath:
+
+ALSO I ATE THE GOOD YOGURT.
+
+This was impressive, mainly because we didn’t own fridge magnets.
+
+And because the good yogurt was mine.
+
+After that, the magnets stayed.
+
+None of us knew where Kevin got them from.
+
+Kevin wasn’t terrifying at first. He was more like having an invisible unemployed cousin living with us.
+
+He slammed doors, but only when we were already annoyed.
+
+He wrote BOO in the condensation on the bathroom mirror, then added SORRY THAT WAS WEAK underneath.
+
+He kept changing the TV subtitles to passive-aggressive comments.
+
+During a documentary about sharks, the subtitle read:
+
+DEREK HAS NOT WASHED HIS BEDDING IN 11 WEEKS.
+
+Derek yelled, “Snitches get exorcised!”
+
+The real problem started when Kevin discovered Alexa.
+
+We had one in the kitchen because Derek bought it during a Black Friday sale and used it exclusively to play 2000s emo playlists and ask whether eggs were still safe to eat.
+
+One evening, I walked into the kitchen and heard Alexa say:
+
+“Kevin says he does not like your energy.”
+
+I froze.
+
+Derek, halfway through making toast, turned slowly.
+
+“Alexa?”
+
+The blue ring glowed.
+
+“Kevin says Derek looks like he smells damp.”
+
+Derek pointed at the ceiling.
+
+“Oi. I’ll have you know I smell like Lynx Africa and ambition.”
+
+Alexa paused.
+
+“Kevin says that is worse.”
+
+That was when the haunting became personal.
+
+Kevin used Alexa for everything.
+
+At 2:14 a.m.:
+
+“Reminder from Kevin: you will die one day.”
+
+At 7:30 a.m.:
+
+“Kevin says your alarm tone is emotionally damaging.”
+
+At 11:02 p.m.:
+
+“Kevin has added ‘holy water’ to your shopping list.”
+
+Then:
+
+“Kevin has removed ‘holy water’ from your shopping list.”
+
+Then:
+
+“Kevin has added ‘coward juice’ to your shopping list.”
+
+Derek loved it.
+
+He started talking to Kevin like they were housemates.
+
+“Kevin, should I text Chloe back?”
+
+Alexa lit up.
+
+“Kevin says no. She has standards.”
+
+“Rude.”
+
+“Kevin says accurate.”
+
+I told Derek we needed a priest.
+
+Derek said, “We need content.”
+
+He made a TikTok account called KevinsHauntHouse.
+
+The first video got 400,000 views.
+
+It was just our kitchen cupboard opening by itself, a tin of beans floating out, and Alexa saying:
+
+“Kevin says beans are little prison boys.”
+
+People loved it.
+
+Derek became unbearable.
+
+He started calling Kevin “our brand.”
+
+He bought a ring light.
+
+He asked Kevin to do tricks.
+
+“Kevin, throw something spooky.”
+
+A potato flew across the room and hit Derek in the balls.
+
+Alexa said:
+
+“Kevin says subscribe.”
+
+I’ll admit it. For a while, even I started getting used to him.
+
+There are only so many times a ghost can write LEAVE THIS PLACE on your wall before it starts feeling like decor.
+
+But then the app updated.
+
+It happened on a Sunday night. Derek was on the sofa, scrolling through Kevin’s comment section like a proud parent at sports day.
+
+His phone pinged.
+
+He frowned.
+
+“What?”
+
+I looked over.
+
+The SpookMe app had opened by itself.
+
+Across the screen, in red letters, it said:
+
+CONGRATULATIONS. YOUR FREE TRIAL HAS ENDED.
+
+Derek laughed.
+
+“Classic.”
+
+Then another message appeared.
+
+UPGRADING TO PREMIUM HAUNTING PACKAGE.
+
+Derek stopped laughing.
+
+I said, “Cancel it.”
+
+“I’m trying.”
+
+He tapped the screen.
+
+A loading circle spun.
+
+Then the phone displayed:
+
+CANCELLATION REQUIRES CUSTOMER SUPPORT.
+
+“Okay,” Derek said, “that’s actually evil.”
+
+The room went cold.
+
+Alexa lit up.
+
+“Kevin says he did not authorise this.”
+
+That was the first time I felt properly scared.
+
+Because Kevin sounded scared too.
+
+The lights flickered once.
+
+Hard.
+
+The TV switched on by itself.
+
+The SpookMe logo appeared on screen.
+
+Then a voice came through Alexa.
+
+It wasn’t Kevin’s usual sarcastic little text-to-speech nonsense.
+
+This voice was deep.
+
+Polite.
+
+Corporate.
+
+“Good evening, valued vessel.”
+
+Derek whispered, “Valued what?”
+
+Alexa continued.
+
+“Your household has been selected for escalation.”
+
+I said, “Alexa, stop.”
+
+“Command unavailable.”
+
+Derek held up his phone.
+
+“Mate, it’s charging me £19.99.”
+
+I stared at him.
+
+“There is a demon in our living room and you’re worried about the subscription?”
+
+“It says weekly!”
+
+The floorboards creaked upstairs.
+
+Not Kevin creaks.
+
+Kevin usually made sounds like he was trying to annoy us on purpose. Little taps. Little knocks. One time he played Wonderwall on the pipes for three hours.
+
+This was heavier.
+
+Slow.
+
+Wet.
+
+Something dragged across Derek’s bedroom floor above us.
+
+Alexa said:
+
+“Premium Haunting includes shadow figures, auditory mimicry, sleep paralysis, unexplained stains, and one complimentary possession.”
+
+Derek said, “Complimentary means free.”
+
+I said, “That is not the issue.”
+
+Then we heard Derek’s voice from upstairs.
+
+“Jon?”
+
+Derek was standing next to me.
+
+He went pale.
+
+Upstairs, his voice called again.
+
+“Jon, come here a sec.”
+
+Alexa lit up.
+
+“Kevin says do not go upstairs.”
+
+I whispered, “Kevin, what is that?”
+
+The fridge magnets rattled.
+
+One by one, they slid into place.
+
+MANAGER.
+
+Derek swallowed.
+
+“The ghost has a manager?”
+
+Alexa answered.
+
+“Kevin says everyone has a manager.”
+
+The thing upstairs started laughing in Derek’s voice.
+
+Then my voice.
+
+Then Alexa’s.
+
+Then, horribly, my mum’s.
+
+“Jon? Have you got pants on?”
+
+Derek looked at me.
+
+“Why would it ask that?”
+
+“Long story.”
+
+The stairs creaked.
+
+One step.
+
+Then another.
+
+Then another.
+
+I grabbed the nearest weapon, which was a garlic baguette.
+
+Derek grabbed the ring light.
+
+I said, “What are you going to do, make it look slimmer?”
+
+He said, “I panicked.”
+
+Alexa said:
+
+“Kevin says both weapons are embarrassing.”
+
+The hallway light went out.
+
+Something stood at the bottom of the stairs.
+
+Tall. Too tall.
+
+Its head scraped the ceiling. Its arms reached nearly to the floor. It looked like a person drawn from memory by someone who hated people.
+
+Its face was smooth except for a mouth.
+
+A customer service smile stretched from ear to ear.
+
+Then Derek’s phone pinged.
+
+He looked down automatically, because men will check a notification during anything short of childbirth or war.
+
+His screen said:
+
+RATE YOUR HAUNTING EXPERIENCE.
+
+The thing smiled wider.
+
+Alexa said:
+
+“Please choose from one to five stars.”
+
+Derek whispered, “I’m giving it one.”
+
+The thing’s head snapped toward him.
+
+I slapped the phone out of his hand.
+
+“Are you insane?”
+
+“What? It’s been shit.”
+
+The thing moved.
+
+Not walked.
+
+Moved.
+
+One second it was by the stairs.
+
+The next it was behind Derek.
+
+Alexa screamed in her calm little robot voice:
+
+“Kevin says duck.”
+
+Derek ducked.
+
+A black hand swept through the air where his head had been and smashed the ring light to pieces.
+
+Kevin, God bless his stupid little dead heart, went absolutely mental.
+
+Every cupboard in the kitchen flew open.
+
+Plates launched across the room.
+
+The toaster fired two slices of bread at the thing like pathetic edible bullets.
+
+The fridge magnets rearranged themselves again.
+
+RUN YOU ABSOLUTE DONKEYS.
+
+We ran.
+
+Straight out the back door.
+
+Barefoot.
+
+In the rain.
+
+Derek was now holding the garlic baguette.
+
+We made it halfway down the garden before Alexa’s voice came from inside the house, loud enough to rattle the windows.
+
+“Where are you going?”
+
+I turned.
+
+The thing was standing in the kitchen doorway.
+
+Behind it, floating in the air, Derek’s phone glowed red.
+
+Then Kevin used the fridge magnets one last time.
+
+They flew off the fridge and stuck to the patio door from the inside.
+
+DELETE APP.
+
+Derek shouted, “I tried!”
+
+The magnets shifted.
+
+NOT FROM PHONE.
+
+I looked at him.
+
+Derek looked at me.
+
+Then, at the same time, we both looked toward the cupboard under the stairs.
+
+The router.
+
+The app wasn’t just on Derek’s phone.
+
+It was connected to the Wi-Fi.
+
+Because of course the gateway to hell needed broadband.
+
+We ran back inside because apparently survival sometimes means sprinting directly toward the demon with a garlic baguette and a dream.
+
+The thing turned slowly.
+
+Alexa said:
+
+“Premium Haunting cannot be cancelled during an active billing cycle.”
+
+I yelled, “Kevin, do something!”
+
+The kitchen drawer shot open.
+
+A single butter knife floated out.
+
+Derek said, “That’s it?”
+
+The butter knife wobbled in the air.
+
+Then carved a message into the wall.
+
+I AM ENTRY LEVEL.
+
+Fair.
+
+I grabbed the router.
+
+The thing shrieked.
+
+Not like a monster.
+
+Like a middle manager seeing someone close a spreadsheet without saving.
+
+Derek swung the garlic baguette at it.
+
+It did absolutely nothing.
+
+Actually, that’s not fair.
+
+It got crumbs on the demon.
+
+I yanked the router cable out of the wall.
+
+Everything stopped.
+
+The lights.
+
+Alexa.
+
+The TV.
+
+The horrible thing in the hallway froze mid-smile.
+
+Then collapsed inward, folding into itself like a wet deckchair, until it disappeared with a sound like someone cancelling a direct debit.
+
+Silence.
+
+For three whole seconds.
+
+Then Alexa, completely unplugged, whispered from the kitchen counter:
+
+“Kevin says nice one.”
+
+We moved out the next day.
+
+Obviously.
+
+Well, I moved out.
+
+Derek stayed one extra night because he wanted to “get closure” and also because the TikTok account had just hit 20,000 followers.
+
+He called me at 3:12 a.m.
+
+I answered half-asleep.
+
+For a moment, there was only static.
+
+Then Derek whispered:
+
+“Mate.”
+
+I sat up.
+
+“What?”
+
+He said, “Kevin’s gone.”
+
+Behind him, I heard Alexa’s blue-ring hum.
+
+Then a deep, polite voice said:
+
+“Good evening, valued vessel.”
+
+Derek breathed shakily into the phone.
+
+Then he whispered:
+
+“It’s asking me to leave a review.”
+
+The line went dead.
+
+I haven’t seen Derek since.
+
+His TikTok still uploads every night.
+
+The videos are different now.
+
+No jokes.
+
+No floating beans.
+
+No Kevin.
+
+Just Derek sitting in the dark, smiling too wide while Alexa speaks from somewhere off-screen.
+
+Last night’s video was six seconds long.
+
+Derek stared directly into the camera and said:
+
+“Five stars.”
+
+Then Alexa added:
+
+“Subscription renewed.”
+
+I deleted TikTok after that.
+
+I deleted every app I didn’t recognise.
+
+I even unplugged the Alexa at my new flat and put it in the bin outside.
+
+Which felt sensible.
+
+Responsible.
+
+Adult.
+
+Until this morning.
+
+When my phone lit up with a notification from an app I’ve never downloaded.
+
+SPOOKME: THANKS FOR JOINING DEREK’S FAMILY PLAN.
+
+And from the kitchen of my new flat, where there is definitely no Alexa anymore, a cheerful voice said:
+
+“Kevin says he missed you.”
