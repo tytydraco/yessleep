@@ -1,0 +1,698 @@
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1vd759m/in_the_pines_of_mount_horeb_part_2/)
+
+  
+On Monday, I went back to work.
+
+
+
+Jack had pretty much become a latchkey kid during the school months, but he was still too young to spend the long summer days home alone. So he’d bounce between his friends’ houses while I was at work, and we’d both meet back up at our place in time for supper.
+
+
+
+I let him sleep in and left at the crack of dawn, driving my truck down the airish road as the sky started brightening at the horizon, backlighting the trees with a soft rosy glow.
+
+
+
+It was my first shift back since the funeral. I was hoping to get through it as though nothing had happened, but it’s a bit hard to meet your coworkers’ eyes when they’ve seen you crouched over a body screaming for someone to call 911, when they remember you paralyzed in the back of an ambulance as it pulled away.
+
+
+
+Most of them had known me for years. They’d gone to school with me. They were my neighbors. They were friends of my grandfather’s. I’d grown up going to their cookouts and Christmas parties. They’d been at the funeral, crying harder than I was.
+
+
+
+The moment I pulled into the lot, I knew there was no escaping it.
+
+I clocked in, smiling and nodding as best I could, and spent the safety meeting staring at my shoes, trying to ignore the eyes drifting back to me again and again. I performed the equipment checks and helped unload the latest shipments with a performative mechanicalness.
+
+
+
+But, despite my every effort to show I was doing just fine, it only took until our break for someone to bring it up.
+
+
+
+“Hey, Elijah,” Mike said, walking over to me casually. He was an aging man, old enough to be my father, with the long scraggly beard of a biker. “How ya holdin’ up?”
+
+
+
+“Alright,” I nodded.
+
+
+
+“How’s Jack?”
+
+
+
+“Better than me. Kid’s resilient.”
+
+
+
+“That’s good. I- I, uh, wasn’t sure when to give this to ya,” he said awkwardly, holding out some aluminum wrapped dish of food. “The missus made it for ya.”
+
+
+
+“Oh, that’s real nice of ya’ll. Make sure to tell her I said thanks.”
+
+
+
+I didn’t have the heart to tell him I had enough pot roasts and casseroles in my fridge to feed a small army. Nothing says ‘sorry for your loss’ like poke sallet with bacon.
+
+
+
+“Hell of a thing to happen.”
+
+
+
+“Yeah.”
+
+
+
+“You wanna join us after work?” Jesse added from off to the side.
+
+
+
+I’d known him since kindergarten. It was a bit hard to take him seriously as a grown adult, when I remembered him as the kid who once tried to beat a tree with a baseball bat, only for it to snap back and slice open his forehead. He still had the scar - a faint crescent above his left eyebrow. I once heard him trying to flirt with a hiker passing through, lying to her that he got it in a fistfight.
+
+
+
+“We were gonna go to the bar. Neal’s band’s s'posed to be playin’.”
+
+
+
+He was constantly inviting me out, and I turned him down almost every time. I’d been trying to rebrand myself into a responsible adult, while Jesse didn’t seem quite ready to grow up yet. Admittedly, I was jealous of him in a way.
+
+
+
+“Nah, sorry, maybe next time,” I shrugged, grasping for an excuse, “I don’t got anybody to watch Jack.”
+
+
+
+“Well, hey, I might could for ya sometime if ya need,” Mike offered. “House has been a bit empty since Ellie went off to college anyways.”
+
+
+
+“Thanks, I’ll definitely keep that in mind,” I said, coming off as more dismissive than I’d meant to.
+
+
+
+“Yeah, anytime. Take care of yerself, Elijah.”
+
+
+
+“You too.”
+
+
+
+“And, hey,” Jesse said, putting his hand on my shoulder and lowering his voice as Mike walked off, “If ya ever want to get black out drunk and shoot the shit for a change, let me know.”
+
+
+
+“Yer a real shoulder to cry on.”
+
+
+
+He shrugged. “I had my uncle die on me a few years back. Last thing I wanted was people treatin’ me different, walkin’ on eggshells, bringin’ up all the heavy shit.”
+
+
+
+“Damn, man, I didn’t know. I’m sorry.”
+
+
+
+“Don’t you start.”
+
+
+
+“Right,” I laughed.
+
+
+
+I could tell they were all doing their best. I don’t know if I could have done any better in their place. But I couldn’t help simultaneously wanting to spill my guts to them and punch them across the jaw. I settled on keeping to myself.
+
+
+
+Truth was, I wasn’t that focused on the funeral, at least I was trying not to be. As I got back to work, I found my mind drifting more to the pine tree and the tracks in the woods. I thought about asking somebody about what had happened on the deertrail. I wondered if they’d have similar stories, if there was a simple explanation for it. But I quickly thought better of it. They wouldn’t want to hear it. It just wasn’t something you talked about. I needed to forget the whole thing, put it behind me.
+
+
+
+But despite my best efforts, I wasn’t fully present on the yard. It would take a few attempts for people to get my attention. I found myself zoning out and misplacing my tools. After I almost sliced my hand off with a bandsaw, my supervisor pulled me aside.
+
+
+
+“Maybe ya came back a bit too early?” she asked. I knew what she meant.
+
+
+
+“You want me to go home.”
+
+
+
+“Take a day or two off, that’s all I’m sayin’. I’m not blamin’ you. But you’ll do more harm than good pushin’ yerself like this.”
+
+
+
+“We need the money.”
+
+
+
+“Call it paid time off then.”
+
+
+
+“Really,” I insisted with a breathless smile, trying to hide my humiliation, “that’s not necessary.”
+
+
+
+“He was a good man, Elijah.” I felt an instant prickle in my nose, tightness in my chest, and realized my eyes were watering. I took a deep breath and forced it back. “It’s hard for all of us to come to terms with. And it’s gonna be hard as hell on you, that’s just the truth of it. So, yeah, I’m askin’ ya to go home.”
+
+
+
+She gave me a look that told me it wasn’t an argument. I knew the angle she was trying. Maybe if she acted like a hardass, I wouldn’t rail against the kindness underneath. I knew it was a losing battle. The least I could do was take it with dignity. I clocked out and got back into my truck, imagining the whole time how it must look to the others. *Poor kid*, they’d think. *Can’t even stomach coming back*. Just the thought of it made me angry. And the anger made me feel immature. No winning, huh?
+
+
+
+I decided to swing by the market on the way home, so that the day wouldn’t be a total waste. I had a mental list of things we were running out of. Laundry soap, new toothbrushes, and the like. It was hard to keep track of all the mundane, domestic things that needed to be done on my own.
+
+
+
+I was standing in the aisle, debating whether the cheap toilet paper would last as long as the name brand kind. The rising prices unnerved me slightly. What would we do when all the food we’d been gifted ran out?
+
+
+
+Despite being a bit short for his age, Jack managed to be all lanky limbs and protruding ribs. I was starting to worry he was malnutritioned, but without Papaw’s income on top of mine, we’d already have to stretch the money just to cover three meals a day for both of us. I didn’t know what I’d do once he hit puberty and his appetite grew.
+
+
+
+“Don’t get the cheap ones,” came a voice from beside me, breaking up my thoughts. “You’ll end up spendin’ twice as much with how short they last.”
+
+
+
+I turned to see Pastor Ellis, the local preacher, pushing a buggy full of groceries.
+
+
+
+In an area where there was a church for every denomination every square mile, living in a one church town was how you knew you were really out in the sticks. His father had been the Pastor before him, and his father before him. Their family were the only men of God I knew.
+
+
+
+I tried not to let my dread show on my face. The last time I saw Pastor Ellis was a few days before, when he’d led Papaw’s funeral service and burial. I’d ducked him the entire time, even as I could see him eyeing me from across the chapel, itching to come over and give his condolences. But I hadn’t wanted to speak to him then. I certainly didn’t want to now.
+
+
+
+“What?” I asked, remembering he’d said something to me.
+
+
+
+“The toilet paper- name brand’s better. In my experience at least.”
+
+
+
+“Oh, thanks,” I nodded, hoping this wouldn’t turn into a conversation.
+
+
+
+The Pastor stopped beside me, not even bothering to pretend he was looking for something on the shelves. It was definitely a conversation.
+
+
+
+“Haven’t seen ya in a while, Elijah. Been missin’ ya and yer brother during service,” he said, with that friendly backhandedness. “How’ve ya been holdin’ up?”
+
+
+
+Christ, why did everyone insist on asking that?
+
+
+
+“Pretty good,” I recited. “How’s yer family?”
+
+
+
+“Oh, ya know how it is. Wife’s a saint. Kids are a handful. We’re tryin’ for another actually, God willin’ and all.”
+
+
+
+“Really? How many would that make?”
+
+
+
+“Got five right now.”
+
+
+
+“Wow,” I laughed. “And to think I’ve got my hands full with Jack.”
+
+
+
+“You should bring ‘im by sometime,” the Pastor grinned eagerly, as though he’d been waiting to bring this up. “Bet he’d get along great with my boys. VBS is over, but there’s a youth group that meets twice a week at the church too. Could get him off yer hands for an afternoon at least. Do ya both some good.”
+
+
+
+“Well, that’s awful kind of ya.”
+
+
+
+My reflex was to be dismissive, but it wasn’t actually a bad idea. I’d grown up going to church every week, and even though I’d lost interest, I felt bad depriving Jack of that. He should get a Sunday school education at least.
+
+
+
+I used to be the perfect Christian when I was Jack’s age. I evangelized to other kids on the playground, convinced I was saving them from hell. I used to do that “accept Jesus into your heart” prayer that was meant for newcomers, at the end of every single service - so that in case He didn’t hear me the first time, I could still be sure to go to heaven. The fear of God was so strong in me that I never caused trouble, not even in typical childhood ways, and would go out of my way to confess when I did. I was constantly anxious and guilty and ashamed, and the model son all the same.
+
+
+
+But after Mom died, I didn’t have room in my head left for it, too full already with grief and anger and listlessness. I just wanted to have fun for once. To do all the things I had denied myself in childhood. I started shoplifting, going out to graffiti with my friends, drinking myself sick. Nothing too abnormal for a teenager, but I’d been conditioned to understand faith as a sort of purity. And I was no longer pure. What would God want to do with me? So religion slipped through my fingers bit by bit, until one day I looked back and realized I didn’t believe at all.
+
+
+
+Now, in adulthood, I had managed to slowly shed the reputation I’d had in high school. At least on the surface. But everyone still thought of me as a cautionary tragedy. I could tell by the way they looked at me. When you didn’t show up to church here - people noticed. And my hesitance to go back had turned from a refusal to a pathological avoidance. I didn’t owe them anything.
+
+
+
+So it stood to reason that the Pastor’s offer rubbed me the wrong way.
+
+
+
+Besides, if anyone was a more popular topic of gossip than me, it was him. He had a large family in a large house on a large property. It was only natural that some thought he must be skimming from the collection plate. Tall tales like that seemed to follow him like a shadow. His mother passed under suspicious circumstances. His wife was secretly a drunk. Some particularly nasty ones too, claiming that his father had quietly tried to keep the church segregated in his day, whispers of old familial Klan associations. 
+
+
+
+His appearance wasn’t any more reassuring. The Pastor had a naturally gaunt face and exaggerated features. His collared shirt hung off his frame, cinched by the belt at his waist. I wasn’t a small man by any means, but even still he barely came up to my shoulder. His feathery hair was slicked back loosely. His eyes were dark, half-blunt half-soulful, like twin inkwells. His sharp edges and twitchy gestures gave him a rather crow-like affect.
+
+
+
+Of course, I tried not to put much stock in rumors. He’d always been nice enough to me, and there were plenty of people in the community who’d defend his good name to their dying breaths. But I could see why, behind closed doors and fake pleasantries, some people didn’t trust him.
+
+
+
+Suddenly, the Pastor cocked his head at me and smiled. I had the strangest feeling that he somehow knew exactly what I’d been thinking.
+
+
+
+“Don’t mention it,” he reassured. “Anything I can do to help.”
+
+
+
+I nodded absently, and he took a deep breath of finality.
+
+
+
+“Well!” He clapped his hands. “I won’t keep ya any longer. Sure ya got plenty to get back to. I’ll keep ya in my prayers, Elijah, it was good seein’ ya again.” He extended a crooked, willowy hand for me to shake.
+
+
+
+“Yeah,” I said, taking his hand, soft and callousless to the touch. Despite the summer heat, his skin was ice cold like he’d been working in a meat locker. “Thanks again.”
+
+
+
+“Anytime. Don’t hesitate to reach out.”
+
+
+
+“‘Course.”
+
+
+
+He wheeled his cart around the corner, pointed shoes clacking against the tile floor, and I felt relieved to see him go. I grabbed the cheap toilet paper and headed for the register.
+
+
+
+The drive home should have been uneventful. I’d driven that way countless times, to the point I didn’t even have to think about it, it was all just second nature. But halfway through, when I was alone on a long forested stretch of winding roads, I realized I’d forgotten to pick up some coke and the newspaper from the store for Papaw. And then I realized there was no reason to.
+
+
+
+It was like a train engine had rammed straight into my chest, cracking my ribs like dry twigs and driving the splinters through my lungs. I tried to pull it together, but my vision was clouding over and I couldn’t see the road, so instead I pulled my truck into the shoulder. I parked there for a moment, clenching and unclenching the steering wheel.
+
+
+
+I had known this was coming. You could only ride the high of numbness for so long. And when grief came it was always unexpected and inopportune. It had been the same way with Mom’s death and the same way with Granny’s. But at least with them I’d known they were dying. At least with them I’d had someone left to help me through it afterwards.
+
+
+
+“C’mon, c’mon, c’mon,” I breathed, “c’mon-”
+
+
+
+My voice shattered on a sob. Something was scraping me clean from inside. I couldn’t breathe. I tried to cry, but nothing came out, and the strain left me with a pulsing headache. So I beat the dashboard until my knuckles ached and screamed all the ugliness from my lungs. 
+
+
+
+When the worst of it was over, I stared into space, and laughed darkly to the empty air.
+
+
+
+“Ya left me alone with a kid, ya son of a bitch,” I muttered. “No plan, no goodbye, nothin’. I shouldn’t have to figure all this out on my own. It’s not fair. It’s not fuckin’ fair. And ya know the worst part? The real irony of it? The only person I want to talk to about all this, is you. I still need ya, is that what ya wanted to hear? God, this is just like ya, ya know that? Should’ve expected it. Granny was right about ya. You were always a right bastard.”
+
+
+
+That made me laugh for real.
+
+
+
+I smiled stupidly, running my hands through my hair, and sighed. The train had passed. It wasn’t any better, but it was over for now, and that was enough.
+
+
+
+By the time I slipped through the front door of our house, I was fully worn out. I kicked off my shoes and quietly dropped the poke of groceries onto the dining room table. Exhaustion always brought out the silence in me.
+
+
+
+I hadn’t expected Jack to be home this early, but I heard the clicking of the burner lighting from a room over and immediately followed the sound.
+
+
+
+I stopped short the moment I stepped foot in the kitchen. He was leaning over the stove with a cigarette held to his lips, trying to light it on the blue flame - immediately jumping away when he saw me standing there. He shot me a guilty smile, holding the cigarette behind his back like I was stupid enough not to notice.
+
+
+
+“Hand it over,” I sighed, holding out my hand.
+
+
+
+“But-”
+
+
+
+“Jack,” I warned.
+
+
+
+His smile fell. He passed it over angrily, slamming it down into my hand, and tried to pass me back into the hall.
+
+
+
+“Woah, woah, wait.” I blocked his way, holding up the cigarette. “Who’d ya get this from?”
+
+
+
+“Found it,” he shrugged.
+
+
+
+“You expect me to believe ya just found an unlit Marlboro on the ground or something?”
+
+
+
+“Yer not my dad, alright?”
+
+
+
+“Well, legally, I pretty much am.”
+
+
+
+“It’s not that big a deal-”
+
+
+
+“Did Noah give this to you? Ya know, I don’t think ya should be hangin’ around that kid. There’s always some shit like this with ‘im.”
+
+
+
+“It wasn’t Noah. Jesus.”
+
+
+
+“Calm down, I don’t need the attitude,” I said, exasperated, trying to keep my voice from rising. “What, do ya want to get sick like Granny did? ‘Cause that’s what yer actin’ like.”
+
+
+
+“*Pfft*, Granny didn’t die from smokin’,” he rolled his eyes.
+
+
+
+“What do ya think causes emphysema?”
+
+
+
+“It wasn’t that. Can I go now?” he brushed me off, trying to get past me again.
+
+
+
+“No. What do ya mean it wasn’t that?”
+
+
+
+“Just forget it, alright?”
+
+
+
+“Jack.”
+
+
+
+He fidgeted in place, refusing to make eye contact, and hummed an ‘I don’t know’ sound.
+
+
+
+“Talk to me. What do ya mean?”
+
+
+
+He chewed his lip for a moment, hoping I would just drop it. But by now I was more confused than upset. When I kept watching him expectantly, Jack huffed a breath out his nose and asked, “Remember how she started losin’ her hearing?”
+
+
+
+“Yeah?” I urged him on.
+
+
+
+“Well I was doin’ homework in the kitchen while she was knelt down fixin’ the pipes under the sink, when we heard the whistle. Real close by, like it was comin’ from the yard…” he rambled childishly, voice trailing off. I waited intently for him to continue. “Her… her back was turned and she must’ve mistook it for me sayin’ something, ya know? ‘Cause she said, ‘Speak up, I can’t hear ya.’ And right then there was another, louder whistle. Like- like it was comin’ from right outside the open window. She looked o’er at me and realized, and her face went all pale, and, and- anyways, a week later…”
+
+
+
+I looked at him for a long moment, dumbfounded. I wasn’t sure what to say, so I sputtered out stupidly, “I- I thought you didn’t believe in all that.”
+
+
+
+“I don’t,” he spat. Then he knocked his shoulder against me, forcing his way through the doorway, and stomped across the house to slam his bedroom door.
+
+
+
+I leaned back against the counter and wiped a hand across my face. Was he lying? Making up some story to mess with me? There was no way he hadn’t heard me come inside the house. Obviously he was just acting out to get my attention in the first place. And even if his story was true, did it matter? I had seen the autopsy report myself, and it certainly didn’t list ghosts under cause of death. 
+
+
+
+Then I remembered the cigarette still in my other hand.
+
+
+
+*Aw, what the hell,* I thought.
+
+
+
+I went out back and smoked it, praying Jack wouldn’t come outside and cry hypocrite. I didn’t smoke often, really. It tasted worse than I remembered. But it felt good as hell, cathartic almost. I felt a pleasant lightheadedness, a buzz beneath my skin, and realized I hadn’t eaten anything all day. I exhaled a last plume of smoke, throwing the butt into the yard, and resigned myself to go warm up one of the casseroles for supper.
+
+
+
+I put Jack to bed early that night, as punishment for the cigarette, and stayed up to watch some TV in the living room. I switched channels to the NASCAR night races. Granny had always put them on when I was growing up. “I don’t give a rat’s ass about the cars,” she’d say, “I’m just in it for the crashes.” She’d had a point. I kept waiting for one of them to spin out and barrel roll into some fiery pileup of fiberglass. Morbid maybe, but it felt anticlimactic when they all stayed intact.
+
+
+
+An hour or two passed, along with quite a bit of Papaw’s leftover rotgut, and I was comfortably drunk. It felt like I was so afraid all the time. But in these rare domestic moments, with the ease of alcohol in my bloodstream, I was so damn happy to be alive. For a couple hours or so I was okay with letting everything be alright in the world. I sank back into my chair, listening to the faint hush of wind through the chime outside and feeling stupidly sentimental. 
+
+
+
+My dozing peace was interrupted when I got distracted from the race by a sound coming from down the hall. A soft rattle and dragging screech, like blinds being drawn and the single-hung screen shoved up. I sighed. I’d told Jack a million times, he could keep his window open in the summer, as long as he left the blinds and screen down at night.
+
+
+
+I stood up to go correct him, my head swimming a little with the movement. It felt like I crossed the distance to his room in a split second, barely processing the walk over. But as I stood outside his bedroom, I saw that the light in his room was still off, no telltale glow coming from the crack beneath the door. Not even the pale blue of his night light. But there were still soft, shifting sounds of movement. It was strange to imagine him fumbling around in the pitch dark.
+
+
+
+Unnerved, I threw open the door a little harder than I had meant to and switched on the light.
+
+
+
+Jack was knelt on top of his desk, leaning out the open window with his hands on the sill. He flinched and looked over his shoulder at me like a deer in headlights.
+
+
+
+In the shocked silence, I could hear earth crunching right outside. Heavy and irregular, like footsteps limping away. A shadow skirted around the patch of light thrown out into the yard. I stood frozen for a half-second, confused from the alcohol, too in denial to even move.
+
+
+
+Then a thoughtless rage took control of my body.
+
+
+
+I raced to the window and pulled Jack down from the desk, forcing him behind me. 
+
+
+
+“Hey! Hey, come back!” I shouted into the night. “Ya better stay the fuck away, ya hear? I’ve got a gun! I’ll shoot ya dead if I catch ya here again! I’ll kill ya! Fuckin’ creep!”
+
+
+
+“Elijah, stop,” Jack whispered, horrified.
+
+
+
+“Who was that?” I whirled on him. “And ya better say it was one of yer friends!”
+
+
+
+“Nobody, honest-”
+
+
+
+“Bullshit!”
+
+
+
+“I’m-” he stuttered, tearing up, “I’m sorry.”
+
+
+
+“Jack, this is important, ya need to tell me who the hell that was.”
+
+
+
+Tears were streaming down Jack’s cheeks in earnest now. He sniffled and choked, wiping his face with his sleeves. He focused on one spot in the corner of the room and wouldn’t meet my eyes. I could see him trying to pull himself together. But I didn’t have the patience. The window felt like a yawning cave beside us, close enough for someone to reach through and grab my arm. I glanced over to make sure no one was standing there, knowing that it meant breaking one of the rules yet again. The patch of illuminated grass was empty.
+
+
+
+I turned back to Jack, who looked like he was trying to disappear through sheer force of will. 
+
+
+
+“Enough,” I said, irritated and antsy. “Tell me the truth.”
+
+
+
+Jack mumbled something incoherent.
+
+
+
+“Louder!”
+
+
+
+“I don’t know!” he sobbed in frustration. “I can’t pronounce it. It was foreign or something.”
+
+
+
+“Foreign? What do ya mean foreign?”
+
+
+
+“Like… Heeshun… Leewung…” he tried, mumbling incoherently. “Please, don’t be mad… they only wanted their bones back… I *promise*.”
+
+
+
+“They what?” I snapped, sure I had misheard him and fed up with his nonsense.
+
+
+
+But then I looked down at the desk and realized.
+
+
+
+The collections of rocks and feathers were all there in their scattered piles and labeled jars. But the animal bones were gone. 
+
+
+
+Every last one.
+
+
+
+Every instinct in me went blank, a wild mess of impulses blaring in my head, while my body seized up with some deranged sort of buck fever.
+
+
+
+“I’m boardin’ up this window,” I muttered finally, half-crazed, as I slammed it shut and yanked the blinds closed. “And yer sleepin’ in my room tonight.”
+
+
+
+“But-”
+
+
+
+Jack cut himself off abruptly with a violent flinch, throwing his arms over his face, and I shot him a questioning look. But my confusion quickly softened into horror, my anger dissolving like humidity in a frigid downpour. In my manic gesturing, I had raised my fist without even thinking about it. Not towards him, but close enough. 
+
+
+
+I had never laid a hand on Jack. Never. Neither had Papaw - I’d made damn sure of that. I relaxed my hand, mortified, and shoved it in my pocket.
+
+
+
+I swallowed thickly. “S’not a goddamn debate. Go to my room. Now.”
+
+
+
+Jack watched me warily for a long moment, breathing heavily. A blank expression fell over his face, his eyes almost vacant, and he nodded absently. A sinking guilt poured through me, filling my heart to bursting. I hadn’t touched him. I hadn’t even touched him. But as he turned and left the room, a desolate shame lingered in his wake.
+
+
+
+I quickly shoved the feeling away. I buried it somewhere deep inside myself, where I wouldn’t have to look at it. Like turning away from my own reflection in disgust. I knew I should apologize to Jack, but I didn’t think I could face him. It was best to just forget it had ever happened. I couldn’t undo it. I just had to make sure it never happened again.
+
+
+
+Schooling my expression, I followed after him, making sure the windows in my room were all locked and covered. Then I grabbed the bat from beside my nightstand and sat in a chair by the door, my knee bobbing up and down like a jackhammer. The TV droned on from the living room, but I couldn’t bring myself to leave the room and turn it off.
+
+
+
+Jack curled up in my bed, our mom’s sweatshirt clutched to his chest, still sniffling softly. Eventually his breathing evened out, and as the hours dragged on, he fell into a deep sleep. I got up only once, to pull the blankets over him and brush the hair from his face. Then I went back to my post by the door.
+
+
+
+I didn’t sleep the whole night, tensing up at every creak of the house settling. When the first rays of sunlight slipped through the cracks of the blinds, I put my head in my hands and let out a weary breath. I was dehydrated, nauseous, and achy - my hangover a million times worse for not having slept.
+
+
+
+I waited until I was sure the sun had fully risen before I opened the windows. Softly, I slipped out the bedroom door and into the hall, bat still in hand. The grip was slick with my sweat. There was an indent in my palm from clutching it so tightly.
+
+
+
+I shut off the TV and started heating up some coffee in the kitchen, trying to clear the fog from my head, when there was a soft knock at the front door. I straightened up immediately and listened.
+
+
+
+Quiet.
+
+
+
+Knock, knock-knock-knock. Knock knock.
+
+
+
+Quiet.
+
+
+
+I grabbed the bat from where I had propped it against the cabinets and crept around the corner toward the door. The small windows on either side had their curtains drawn. A shadow eclipsed one of them, leaning up close, like someone trying to look in. It drew away again, towards the door.
+
+
+
+Knock, knock-knock-knock. KNOCK KNOCK.
+
+
+
+I stood a few paces away, bat raised, and waited.
+
+
+
+“Hello?” came a voice, making my breath catch in my throat. “Elijah?”
+
+
+
+I swallowed thickly, my mouth dry. My pulse was beating so quickly I thought my heart might give out. I readjusted my grip on the bat.
+
+
+
+“-it’s Mr. Ellis? We, uh, we talked at the store yesterday?”
+
+
+
+I faltered at that, eyes narrowing at the door. Was it really him? Of course it was him, what was I thinking? Or was that how it got you? Could it be some sort of trick? No. No, it had to be him. I was being absurd. Worse, I was being impolite.
+
+
+
+“I know yer home, yer truck’s parked outside. Are ya there?”
+
+
+
+I lowered the bat hesitantly. It had to be him. What else would it be? I tried to think through the sleep deprivation. Tried to be rational. Yes, it’s him, don’t be insane.
+
+
+
+I put my hand on the doorknob, took a deep breath, and pulled it open.

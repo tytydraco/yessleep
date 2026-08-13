@@ -1,0 +1,57 @@
+I grew up with a typical middle class household upbringing. You didn't leave the fan on if you weren't using it, the radio playing if you planned on leaving the house, and you especially didn't leave the tv on while you went about your day unless you wanted your parents to complain about the electric bill.
+
+Well, here I am 30 years old, my own house, no kids, no spouse, working my own job with my own money to do whatever I want. And while occasionally that just means doing things like eating ice cream for breakfast or staying in my pjs all weekend without someone nagging me, or playing the radio as loud as I can without worrying about people living upstairs, I'm still mindful of leaving my electronics running all day if I am out of the house. Call me frugal all you want, but I find it tacky and wasteful.
+
+And maybe I take it a step further than most people but my tv has a sleep timer on it. All of my tech does, in the case that if I ever forget to turn them off, they'll turn off on their own.
+
+Well, it was a night like any other, I was laying on the couch downstairs, texting my friends, while reruns of Regular Show played in the background. I wasn't watching it really, I was more distracted in the group chat. Ryan was cracking us up, and Amy was sharing photos of her vacation to Cancun.
+
+At some point I got up to go to the bathroom, and when I returned I realized the tv was off. No big deal, I figured I must have lost track of time and the sleep timer must have gone off. Nothing I wasn't used to and since I wasn't interested in watching more tv anyway, I didn't bother to turn it back on.
+
+My mistake.
+
+My lids were getting heavy so I said goodbye to the gc and reclined back on the couch, ready to crash here for the night, since another perk of living alone means I can sleep wherever I want to.
+
+The whole house was in darkness save for the small lamp in my living room.
+
+Now, I don't mean to brag, but I have a nice tv, one of those 70" babies that make my house the place everyone wants to come to to watch the game. I swear, this girl's a thing of beauty. Always crystal clear 4k with her. Naturally, my eyes drifted off to the black screen, kind of unfocused as sleep called to me beyond the horizon.
+
+In the dark screen I could make out the outline of mundane onjects in my house, like shadows. My lamp, the bookcase, the dining room behind me, the couch and my almost sleeping form, just murky black figures.
+
+I was drifting off, no longer paying much attention when I sensed movement. My eyes flicked to the screen, and there it was, my shadowy counterpart lay on the couch, its head turned the way mine was, my reflection looking right at me, until it got up off the couch and walked away. I sat there frozen in shock, turning my head this way and that, certain there was someone else in my house. But then I felt a little ridiculous! Maybe I was the one who got up without realizing.
+
+I stared at the screen again, certain all that would be staring back at me would be my own figure lying on the couch, but from what I could see, everything was there except me?
+
+Something flickered on the screen again, a person, me, walking back to the couch while I lay there, immobile.
+
+I got up immediately and turned on all the lights, grabbing a baseball bat from my glory days and brandishing it as a weapon I searched the house, calling for the intruder to show himself, but I found no one. I checked doors, windows, closets, but still nothing.
+
+Finally, utterly and completely stumped I returned back to the couch, defeated. I looked at the tv again and all I saw of course, was my same living room, completely identical, and my silhouette staring back from the couch.
+
+Again, I felt ridiculous. Ha, too many long nights playing Call of Duty boozed up or staying too late at work with very little sleep, I guess. I laughed and put my feet up, prepared to resume my almost slumber again when I noticed something...there was my reflection but it wasn't reclining, matching my movements the way reflections do, and *should.* Instead my silhouette was sitting up and waving?
+
+I looked behind me. Nothing.
+
+Immediately I found the remote, turned the tv on and the scary imposter figure vanished. Cartoon antics returned and pretty lights replaced its shadowy face.
+
+I went to the settings and turned the sleep timer off, relieved, until *click* the tv shut off on its own. I figured maybe my finger must have slipped while I held the remote. A logical explanation really, it had to be the reason.
+
+I closed my eyes, fumbling for the power button. I did not want to see my silhouette anymore. I kept trying but the tv still wouldn't turn on. I had no choice, I would have to turn it back on manually.
+
+I crouched down on my knees trying to find the button on the side of the tv with one hand covering my eyes. It wasn't easy, in fact, it was near impossible, but luckily I found it and the tv switched back on, noise and color filling the space once again. I felt victorious.
+
+I removed my hands from my eyes and breathed a sigh of relief.
+
+*Click!*
+
+It went off again and my living room was once again submerged in darkness. But greeting me this time not on the couch, was my silhouette waving at me. Where I stood between the couch and the television, with some reasonable distance between us, my silhouette sat pressed against the glass. Somehow it had gotten even closer,  we were face to face now, but it had no eyes and no mouth, in the black of the tv I could only make out its shape.
+
+Experimentally, I turned my head, left. It followed and did the same as I did. I turned my head, slowly, right, and again it repeated the action as I did, just as slowly. I put my head down, making sure to keep my gaze locked on the screen before me and staying vigilant, but to my horror, my silhouette did not move along. It did not budge. 
+
+It sat there watching me.
+
+Then, it waved at me again, but instead of hello, it waved slowly like it was saying a mocking goodbye.
+
+I didn't waste any time, I bolted straight out of my house, my heart in my throat. I didn't even have shoes on.
+
+I'm at my friend Ryan's house right now in his guest room where there's no tv. I've drawn down all the curtains, and I'm typing on my phone right now because even the lock screen going black is making me nervous. What the hell is happening, guys?
