@@ -672,7 +672,7 @@ The crying upstairs stopped.
 
 My phone buzzed.
 
-Previous Baby has ended.
+*Previous Baby has ended*
 
 Then:
 
