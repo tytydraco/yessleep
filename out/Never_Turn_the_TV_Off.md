@@ -6,7 +6,7 @@ And maybe I take it a step further than most people but my tv has a sleep timer 
 
 Well, it was a night like any other, I was laying on the couch downstairs, texting my friends, while reruns of Regular Show played in the background. I wasn't watching it really, I was more distracted in the group chat. Ryan was cracking us up, and Amy was sharing photos of her vacation to Cancun.
 
-At some point I got up to go to the bathroom, and when I returned I realized the tv was off. No big deal, I figured I must have lost track of time and the sleep timer must have gone off. Nothing I wasn't used to and since I wasn't interested in watching more tv anyway, I didn't bother to turn it back on.
+At some point I got up to use the bathroom, and when I returned I realized the tv was off. No big deal, I figured I must have lost track of time and the sleep timer must have gone off. Nothing I wasn't used to and since I wasn't interested in watching more tv anyway, I didn't bother to turn it back on.
 
 My mistake.
 
@@ -16,7 +16,7 @@ The whole house was in darkness save for the small lamp in my living room.
 
 Now, I don't mean to brag, but I have a nice tv, one of those 70" babies that make my house the place everyone wants to come to to watch the game. I swear, this girl's a thing of beauty. Always crystal clear 4k with her. Naturally, my eyes drifted off to the black screen, kind of unfocused as sleep called to me beyond the horizon.
 
-In the dark screen I could make out the outline of mundane onjects in my house, like shadows. My lamp, the bookcase, the dining room behind me, the couch and my almost sleeping form, just murky black figures.
+In the dark screen I could make out the outline of mundane objects in my house, like shadows. My lamp, the bookcase, the dining room behind me, the couch and my almost sleeping form, just murky black figures.
 
 I was drifting off, no longer paying much attention when I sensed movement. My eyes flicked to the screen, and there it was, my shadowy counterpart lay on the couch, its head turned the way mine was, my reflection looking right at me, until it got up off the couch and walked away. I sat there frozen in shock, turning my head this way and that, certain there was someone else in my house. But then I felt a little ridiculous! Maybe I was the one who got up without realizing.
 
@@ -44,11 +44,13 @@ I removed my hands from my eyes and breathed a sigh of relief.
 
 *Click!*
 
-It went off again and my living room was once again submerged in darkness. But greeting me this time not on the couch, was my silhouette waving at me. Where I stood between the couch and the television, with some reasonable distance between us, my silhouette sat pressed against the glass. Somehow it had gotten even closer,  we were face to face now, but it had no eyes and no mouth, in the black of the tv I could only make out its shape.
+It went off and my living room was once again submerged in darkness. But greeting me this time not on the couch, was my silhouette waving at me. Where I stood between the couch and the television, with some reasonable distance between us, my silhouette sat on the floor pressed against the glass. Somehow it had gotten even closer,  we were face to face now, but it had no eyes and no mouth, in the black glass of the tv I could only make out its shape.
 
-Experimentally, I turned my head, left. It followed and did the same as I did. I turned my head, slowly, right, and again it repeated the action as I did, just as slowly. I put my head down, making sure to keep my gaze locked on the screen before me and staying vigilant, but to my horror, my silhouette did not move along. It did not budge. 
+Experimentally, I turned my head, left. It followed and did the same as I did. I turned my head, slowly, right, and again it repeated the action as I did, just as slowly. I put my head down, making sure to keep my gaze locked on the screen before me and staying vigilant, but to my horror, my silhouette did not move along. It did not budge.
 
 It sat there watching me.
+
+Waiting.
 
 Then, it waved at me again, but instead of hello, it waved slowly like it was saying a mocking goodbye.
 
