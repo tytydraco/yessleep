@@ -668,7 +668,7 @@ Then she put her mouth against my ear and whispered:
 
 "Other Ellie."
 
-The crying upstairs stopped.
+The crying upstairs dulled to more of a hissing whine. 
 
 My phone buzzed.
 
@@ -676,7 +676,7 @@ My phone buzzed.
 
 Then:
 
-Would you like to make your current baby the Previous Baby?
+**Would you like to make your current baby the Previous Baby?**
 
 There were two buttons.
 
@@ -696,7 +696,6 @@ She's picking grass.
 
 Every so often she looks at me and smiles.
 
-I can still hear crying upstairs.
 
 But here's why I'm posting instead of calling the police again.
 
