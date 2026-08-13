@@ -6,7 +6,7 @@ But i can’t…..no, the more i look at this, the more i realize that there was
 
 And the worse part? Is the fact that she might be still out there, somewhere.
 
-My name is……..well, just call me Aiden. In my very young age i lived with my mother in an old two floor house that was probably older than herself.  It Isolated from distant civilization you could say. Never really had a friends i could play with, and our closest neighbors were few miles away from us as well as nearby city where my mom used to work.
+My name is……..well, just call me Aiden. In my very young age i lived with my mother in an old two floor house that was probably older than herself.  It was Isolated from distant civilization you could say. Never really had a friends i could play with, and our closest neighbors were few miles away from us as well as nearby city where my mom used to work.
 
 My mom…..i don’t want to use her real name so lets just call her Josephine, was taking care of me all by herself. I never exactly knew my father. My mom  always told me that when i was very very little, he took a job in another country, and he doesn’t have much time to visit us
 
@@ -242,25 +242,6 @@ Even if it will easier my soul, there will still be one thing that will haunt me
 
 That she was never found, and i don’t know if it was some kind of monster……or if it really was my mother.
 
+(Link to my Story also on Wattpad)
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+https://www.wattpad.com/story/401264284?utm\_source=android&utm\_medium=link&utm\_content=story\_info&wp\_page=story\_details\_button&wp\_uname=Jacob\_The\_Narrator
