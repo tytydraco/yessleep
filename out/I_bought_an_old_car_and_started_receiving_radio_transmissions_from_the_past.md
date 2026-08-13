@@ -312,7 +312,7 @@ The headline read: “YOUNG GIRL FOUND DEAD IN THE WOODS, POLICE INVESTIGATES FO
 
 “Oh fuck.” I let slip through my lips.
 
-My eyes naturally drifted to the main article: “A young girl was found deceased today in the woods nearby. The body is that of Charlotte ----. Police suspect foul play and are looking for….”
+My eyes naturally drifted to the main article: “A young girl was found deceased today in the woods nearby. The body is that of Gabrielle ----. Police suspect foul play and are looking for….”
 
 I stopped reading after that. The radio was not lying.
 
