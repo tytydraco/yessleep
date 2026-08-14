@@ -1,0 +1,49 @@
+&#x200B;
+
+I’m writing this at my kitchen table because i need to get it out of my head.
+
+I’m 31. Live alone in a one-bedroom. Night shift at a distribution center, so my sleep is already trash. No roommates, no pets, nothing dramatic. Just a normal boring apartment and a normal boring life until about a month ago.
+
+It started small enough that I wrote it off.
+
+I’d go to bed with a sink full of dishes and wake up with them clean and put away. I figured I must’ve gotten up half asleep and done them. Happens. Then it was the laundry. Dirty clothes I’d left in the hamper were washed, dried, and folded on the chair. Still told myself it was me. Sleepwalking or whatever.
+
+Then the browser history started bothering me.
+
+I’d wake up and there’d be a bunch of tabs open or searches from 2–4 a.m. that I had no memory of. Random shit at first. Weather in cities I’ve never been to. Old news articles. One morning it was a deep dive into the building plans for my apartment complex from 1987. Another morning it was looking up the exact model of the lock on my front door. I cleared the history every time and told myself I must’ve been half awake and bored.
+
+I started setting alarms for 2 a.m. and 3 a.m. just to check. Most nights I slept through them. On the nights I did wake up, everything looked normal. I’d go back to sleep and still find new stuff in the morning.
+
+Two weeks ago I found a text thread on my phone with my sister. Twelve messages sent between 1:50 and 3:10 a.m. I had no memory of sending any of them. They were short and weirdly flat.
+
+“Are you awake”  
+
+“I can’t sleep”  
+
+“Do you ever feel like you’re not all the way in your body”  
+
+“Never mind. Forget I said anything.”
+
+She replied the next morning asking if I was okay. I told her I must’ve been half asleep and rambling. She bought it. I didn’t.
+
+I bought one of those cheap plug in type cameras and pointed it at my bed. First few nights showed me sleeping the whole time. Then last Thursday the footage showed me sitting up at 2:17 a.m., staring straight ahead for almost four minutes without moving, then getting out of bed and walking out of frame toward the living room. I came back at 3:41, lay down, and went still again. I had no memory of any of it. On the second camera in the living room I was just standing in the middle of the room in the dark for a long time, like some fucking psycho. then I opened the front door, stood there looking out for maybe thirty seconds, closed it, and locked the deadbolt from the inside.
+
+I checked the door that morning. Locked. Chain on. I always put the chain on before bed. I know I did that night.
+
+I watched both videos a couple of times, feeling sick. Then I went to save copies to my laptop and the cloud. When I went back to the camera apps later that day, both recordings were gone. Completely deleted. Not in the recycle bin, not in any recently deleted folder, not in the cloud trash. Just gone. The cameras were still recording fine after that, but those specific files had been wiped.
+
+I’ve been trying to stay awake past 2 a.m. the last few nights. Coffee, energy drinks, loud TV. Last night I made it to 2:50 before I must’ve crashed. Woke up at 6:10 with a new note open on my phone. Timestamp 3:22 a.m. It’s in my notes app, typed with my fingerprint unlocked.
+
+It just says:
+
+“You’re getting closer to noticing. Stop looking.”
+
+I deleted it. Then I went into recently deleted and erased it from there too. Didn’t help. I still know what it said.
+
+I checked the cameras again this morning. Last night’s footage is already gone. Same as before. Deleted while I was still asleep.
+
+I called out of work today. Told them I had a stomach bug. I’ve been sitting here since 5 a.m. with every light on, both cameras running, phone face-down on the other side of the room. I keep catching myself glancing at the front door like I’m waiting for it to open again.
+
+I don’t know if I’m blacking out or sleepwalking or having some kind of mental break. All I know is something is using the hours I’m supposed to be unconscious, and it’s careful enough to erase the evidence when it’s done.
+
+I don’t know what I’m supposed to do when the sun goes down again tonight.

@@ -32,7 +32,7 @@ This motherducker was doing something illegal with the isotope.i could just tell
 
 "I don't know what you talking about, sir "he coughed.He looked scared and confused.So, I chocked him harder.
 
-"What are you making item bomb or something" I said loudly.
+"What are you making atomic bomb or something" I said loudly.
 
 "Sir, Are you crazy can't you see this is not a conspiracy theory that's not how the world work, where's your are patient attended, HELP! Somebody Help!!" he cried worrily.
 
