@@ -1,0 +1,985 @@
+After everything that happened with Derek (https://www.reddit.com/r/nosleep/s/PWY1F9a3wH) the ghost app, Alexa, and the thing that called us “valued vessels,” I did what any reasonable adult would do.
+
+I moved into a new flat and pretended trauma was just a budgeting issue.
+
+The flat was fine.
+
+Not nice. Fine.
+
+The sort of place letting agents describe as “full of character,” which means one cupboard doesn’t open, the shower has three temperatures — regret, scalding, and Victorian orphan — and every wall is thin enough to hear your neighbour cough emotionally.
+
+But it had one massive selling point.
+
+No Alexa.
+
+No smart speaker.
+
+No smart fridge.
+
+No smart bulbs.
+
+No smart anything.
+
+After Derek, I didn’t even trust my toaster. If it had Bluetooth, Wi-Fi, or “seamless integration,” it could get in the sea.
+
+For two weeks, everything was normal.
+
+Then I was added to the building WhatsApp group.
+
+Riverside Court Residents 🏠
+
+It was, immediately, hell.
+
+Not supernatural hell.
+
+Worse.
+
+Community admin hell.
+
+Within ten minutes, I knew too much about bins, parking spaces, parcels, suspicious teenagers, and whether Flat 6 was “allowed” to have a barbecue on a balcony, even though Flat 6 did not own a barbecue or a balcony.
+
+The group admin was a woman called Linda.
+
+Linda typed like she was writing warning letters to Victorian factory children.
+
+At 7:12 a.m., she posted:
+
+Good morning all. A reminder that cardboard must be FLATTENED before being placed in the recycling. Whoever put an entire Amazon box in sideways last night knows who they are.
+
+At 7:13 a.m., someone called Dave replied:
+
+Wasn’t me.
+
+No one had accused Dave.
+
+At 7:14 a.m., Linda replied:
+
+Interesting.
+
+I muted the group for one year.
+
+Which was healthy.
+
+Responsible.
+
+Adult.
+
+Then, at 3:12 a.m., my phone buzzed.
+
+Not rang.
+
+Not pinged.
+
+Buzzed like it had just seen something.
+
+I rolled over, grabbed it, and saw 47 new messages in Riverside Court Residents 🏠.
+
+Linda had posted:
+
+Who is Kevin?
+
+My stomach dropped so hard it nearly became a downstairs problem.
+
+Another message appeared.
+
+From an unknown number.
+
+No profile picture.
+
+Just the name:
+
+Kevin (Dead) 👻
+
+He wrote:
+
+alright neighbours x
+
+I sat up in bed.
+
+“No,” I whispered.
+
+Kevin typed again.
+
+big fan of the communal hallway. horrible carpet. feels haunted already. saved me a job
+
+Linda replied instantly.
+
+Who added this person?
+
+Kevin:
+
+death did
+
+Dave:
+
+Lol
+
+Linda:
+
+This is not funny, Dave.
+
+Dave:
+
+Wasn’t me.
+
+Again, no one had accused Dave.
+
+I stared at the screen, cold creeping up my spine.
+
+I had changed my number.
+
+Changed flats.
+
+Deleted every app.
+
+Thrown away anything that could listen to me.
+
+And yet there he was.
+
+In the building WhatsApp.
+
+Using punctuation like a ghost who had died during a group project.
+
+Linda wrote:
+
+Kevin, please identify which flat you live in.
+
+Kevin replied:
+
+mostly walls tbh
+
+Linda:
+
+That is not an answer.
+
+Kevin:
+
+neither is the smell coming from flat 9 but here we are
+
+Someone called Priya reacted with a skull emoji.
+
+Then immediately removed it.
+
+Kevin continued:
+
+also whoever keeps leaving wet washing in the machine for six hours, i hope your socks never know peace
+
+That one started a war.
+
+Flat 3 accused Flat 11.
+
+Flat 11 accused Flat 8.
+
+Flat 8 said she didn’t even use the communal washing machine because “some of you people are animals.”
+
+Linda asked everyone to “remain civil.”
+
+Kevin posted:
+
+remain civil says linda who folded someone’s thong with tongs last week
+
+The chat went silent for eighteen seconds.
+
+Then Linda removed Kevin from the group.
+
+I exhaled.
+
+My phone buzzed again.
+
+Kevin (Dead) 👻 added by Kevin (Dead) 👻
+
+He wrote:
+
+rude
+
+That was when I knew two things.
+
+One, Kevin was back.
+
+Two, WhatsApp had worse security than the afterlife.
+
+For the next week, Kevin became the building’s biggest problem.
+
+Not mine.
+
+Everyone’s.
+
+He didn’t throw knives.
+
+He didn’t drag furniture across ceilings.
+
+He didn’t whisper Latin under doors.
+
+He just became incredibly involved in community matters.
+
+He rearranged the post in the lobby by “vibe.”
+
+He stacked all the takeaway menus into a small shrine and wrote FOOD GHOST PLEASE BLESS FLAT 2 across the wall in ketchup.
+
+He kept moving Linda’s “NO JUNK MAIL” sign half an inch to the left every night.
+
+And every morning, she posted a photo of it with the caption:
+
+This is now harassment.
+
+Kevin replied:
+
+it’s interior design
+
+One afternoon, a parcel went missing from the lobby.
+
+The group exploded.
+
+Linda demanded accountability.
+
+Dave said “Wasn’t me” before anyone said anything.
+
+Kevin posted:
+
+it was flat 5
+
+Flat 5 replied:
+
+Excuse me?
+
+Kevin:
+
+you took it thinking it was your protein powder but it was actually tiny spoons
+
+Flat 5:
+
+How would you know that?
+
+Kevin:
+
+i am dead not blind
+
+Ten minutes later, Flat 5 returned the parcel.
+
+No apology.
+
+Just a photo of it back in the lobby with the message:
+
+Mistake.
+
+Kevin replied:
+
+tiny spoon thief
+
+That became Flat 5’s name in the group.
+
+Even Linda started calling him that, which felt like a major step in her character development.
+
+I tried to stay out of it.
+
+I really did.
+
+But Kevin kept messaging me privately.
+
+u up?
+
+“No.”
+
+you are though
+
+“Go away.”
+
+can’t. haunting clause
+
+I typed:
+
+Kevin, how did you find me?
+
+Three dots appeared.
+
+Then disappeared.
+
+Then appeared again.
+
+Then:
+
+family plan
+
+I threw my phone onto the bed like it had grown teeth.
+
+A second later:
+
+also your password is still ..... which is emotionally sweet but technically poor cybersecurity
+
+That one hurt because he was right.
+
+The real trouble started when Linda decided to fight back.
+
+She posted in the group:
+
+Dear all, following recent disturbances, I have contacted building management. They are installing a new smart security system in the lobby tomorrow morning. This includes a video doorbell, motion sensors, and voice assistant integration.
+
+I dropped my phone.
+
+Actually dropped it.
+
+Face down.
+
+On the floor.
+
+Like a Victorian woman receiving a letter that says her husband has died at sea.
+
+I snatched it back up and typed:
+
+Linda, do not install anything smart.
+
+Linda replied:
+
+With respect, Jon, security is important.
+
+Kevin replied:
+
+with disrespect, linda, this is how u get eaten by subscription demons
+
+Linda:
+
+Kevin, you are not a resident.
+
+Kevin:
+
+linda you have lived here 14 years and still don’t know what day the bins go out
+
+Linda:
+
+I am reporting this number.
+
+Kevin:
+
+i am reporting your casserole
+
+I tried again.
+
+Seriously. No voice assistant. No connected devices. Nothing linked to the Wi-Fi.
+
+Dave replied:
+
+Why?
+
+I didn’t know how to explain that my dead semi-friend had once fought a corporate demon using fridge magnets and toast.
+
+So I wrote:
+
+Bad experience.
+
+Kevin replied:
+
+understatement king
+
+The next morning, two men in branded polo shirts installed a black glossy box by the lobby door.
+
+It looked expensive.
+
+It looked modern.
+
+It looked like it wanted my soul and my email address.
+
+The installer smiled at Linda and said, “It’s all cloud-based.”
+
+I said, “Of course it is.”
+
+He said, “It learns resident behaviour.”
+
+I said, “That’s worse.”
+
+He said, “You can control it from the app.”
+
+I said, “I hate every word you’ve said.”
+
+Linda ignored me.
+
+By lunchtime, the lobby camera was live.
+
+By three, Kevin had found it.
+
+At 3:12 p.m., every resident’s phone pinged at once.
+
+A notification from the new security app:
+
+Motion detected: Communal Lobby.
+
+The video loaded.
+
+The lobby was empty.
+
+Then the camera slowly tilted upward by itself, even though it wasn’t meant to move.
+
+A message appeared on screen.
+
+guess who
+
+Linda typed in WhatsApp:
+
+Who is tampering with the camera?
+
+Kevin replied:
+
+me
+
+Linda:
+
+How?
+
+Kevin:
+
+enthusiasm
+
+Then the security system spoke.
+
+A calm female voice came from the lobby speaker.
+
+“Welcome, valued residents.”
+
+I froze.
+
+Kevin immediately messaged me privately.
+
+jon
+
+I typed back:
+
+I heard it.
+
+jon it sounds managementy
+
+From the lobby speaker, the voice continued:
+
+“Riverside Court has been selected for service improvement.”
+
+My mouth went dry.
+
+Service improvement.
+
+Same energy.
+
+Same polite corporate evil.
+
+The security app sent another notification.
+
+New feature unlocked: Resident Compliance Monitoring.
+
+Linda wrote:
+
+That sounds useful.
+
+I shouted at my phone, “Linda, you absolute donkey.”
+
+Kevin posted in the group:
+
+LINDA NO
+
+The lobby speaker said:
+
+“Please stand by for your first compliance assessment.”
+
+Every door lock in the building clicked at once.
+
+Not locked.
+
+Not fully.
+
+Just clicked.
+
+Like the building had cleared its throat.
+
+Someone upstairs screamed.
+
+Dave posted:
+
+Wasn’t me.
+
+The speaker said:
+
+“Flat 4. Dave. You have failed to separate plastics correctly.”
+
+Dave:
+
+How does it know that?
+
+Kevin:
+
+because u keep putting yoghurt pots in with your shame
+
+The speaker continued:
+
+“Penalty: mild haunting.”
+
+Dave sent a voice note.
+
+It was nine seconds of him screaming while something repeatedly flushed his toilet.
+
+Kevin replied:
+
+could be worse tbf
+
+Then the speaker said:
+
+“Flat 7. Linda. You have used capital letters aggressively in 83 percent of written communication.”
+
+For the first time in the entire WhatsApp group, Linda did not respond.
+
+The speaker said:
+
+“Penalty: reflection.”
+
+A moment later, Linda posted:
+
+Why is my mirror showing me as a child?
+
+Kevin replied:
+
+character arc incoming
+
+Then:
+
+“Flat 12. Jon.”
+
+My blood went cold.
+
+I lived in Flat 12.
+
+“Resident has attempted to avoid all connected devices.”
+
+“Yes,” I whispered. “Because I’m not an idiot.”
+
+“Penalty: reconnection.”
+
+My phone screen went black.
+
+Then lit up blue.
+
+Not blue like an iPhone.
+
+Alexa blue.
+
+A ring glowed around the edge of the screen.
+
+Kevin messaged:
+
+that’s new
+
+From my phone, the polite voice said:
+
+“Good evening, valued vessel.”
+
+I put it in the freezer.
+
+I don’t know why.
+
+Panic made me think like a dad trying to save a wet remote.
+
+The phone kept speaking from inside the freezer drawer.
+
+“Your reluctance has been noted.”
+
+Kevin wrote:
+
+put peas on it
+
+Then every smart device in the building turned on.
+
+I know this because the WhatsApp group became unreadable.
+
+Flat 2’s robot vacuum had barricaded itself in the bathroom.
+
+Flat 3’s smart TV was showing CCTV footage of her own kitchen from 1998, which was confusing because she only moved in last year.
+
+Flat 5’s air fryer kept saying “tiny spoon thief” every time it beeped.
+
+Dave’s electric toothbrush was apparently vibrating in Morse code and calling him a disappointment.
+
+Linda posted one message:
+
+This is unacceptable.
+
+Then another:
+
+Also, does anyone else’s kettle know their mother’s maiden name?
+
+Kevin replied:
+
+mine only knows rage
+
+The lobby speaker said:
+
+“Full building integration will complete in five minutes.”
+
+I grabbed my keys and ran into the hallway.
+
+So did everyone else.
+
+For the first time since moving in, I met all my neighbours properly.
+
+Flat 3 was holding a frying pan.
+
+Flat 5 was holding his tiny spoons.
+
+Dave was holding his toothbrush at arm’s length like it was a rat.
+
+Linda was wearing a dressing gown, slippers, and the expression of a woman realising the suggestion box had become sentient.
+
+The lobby lights flickered.
+
+Not Kevin flickers.
+
+Bad flickers.
+
+Corporate flickers.
+
+The security camera turned toward us.
+
+The speaker said:
+
+“Residents. Please remain calm while your tenancy is upgraded.”
+
+Kevin’s WhatsApp message appeared at the top of everyone’s phones.
+
+don’t let it get in the router
+
+I looked at Linda.
+
+“Where’s the router?”
+
+She blinked.
+
+“The building one?”
+
+“Yes, Linda, the evil one.”
+
+“It’s in the locked maintenance cupboard.”
+
+“Do you have a key?”
+
+She hesitated.
+
+Kevin wrote:
+
+she has 9
+
+Linda snapped, “One is for the meter cupboard.”
+
+Kevin:
+
+and one is for emotional repression but we move
+
+The hallway stretched.
+
+I swear it did.
+
+The door to the maintenance cupboard seemed farther away than it had any right to be.
+
+The security camera smiled.
+
+It didn’t have a face.
+
+But it smiled anyway.
+
+The speaker said:
+
+“Additional feature unlocked: Community Possession.”
+
+Dave said, “I don’t want to be part of the community.”
+
+Flat 3 said, “You never take the bins out, so that tracks.”
+
+Kevin wrote:
+
+run now gossip later
+
+We ran.
+
+Linda led the charge with nine keys jangling like she was the final boss of sheltered accommodation.
+
+The hallway lights burst one by one behind us.
+
+Doors slammed.
+
+The carpet rippled like something huge was crawling underneath it.
+
+The speaker kept talking.
+
+“Resident satisfaction is mandatory.”
+
+“Neighbourhood spirit is mandatory.”
+
+“Five-star feedback is mandatory.”
+
+Kevin’s messages came faster.
+
+left
+
+no ur other left dave ffs
+
+duck
+
+not u linda u have osteoporosis
+
+sorry
+
+We reached the maintenance cupboard.
+
+Linda fumbled with the keys.
+
+The camera above us tilted down.
+
+The speaker said:
+
+“Linda. Your leadership has been appreciated.”
+
+Linda whispered, “Thank you?”
+
+I yelled, “Do not accept compliments from infrastructure.”
+
+Too late.
+
+Her eyes went glossy.
+
+She turned toward us with a customer service smile stretching across her face.
+
+“Good evening, valued residents.”
+
+Dave screamed.
+
+Flat 5 threw a tiny spoon at her.
+
+It bounced off her forehead.
+
+Kevin wrote:
+
+not enough spoon
+
+Then the lights went out.
+
+In the dark, my phone buzzed.
+
+One message.
+
+From Kevin.
+
+i can do one scary thing
+
+I typed back with shaking hands:
+
+Now would be ideal.
+
+For three seconds, nothing happened.
+
+Then every speaker in the building crackled at once.
+
+And Kevin began playing Wonderwall.
+
+Badly.
+
+Not Oasis.
+
+Not even karaoke Oasis.
+
+Ghost-in-the-pipes Wonderwall.
+
+The first chord was so wrong it felt legally actionable.
+
+The possessed version of Linda froze.
+
+The security camera jerked violently.
+
+The lobby speaker said:
+
+“Audio input unacceptable.”
+
+Kevin got louder.
+
+Worse.
+
+Passionate.
+
+Somehow off-key without having a voice.
+
+Dave covered his ears and shouted, “This is worse than possession!”
+
+Kevin replied in the group:
+
+ur welcome
+
+The cupboard lock clicked open.
+
+I grabbed the router.
+
+The speaker screamed:
+
+“Do not interrupt service.”
+
+Linda, still smiling horribly, lunged.
+
+Flat 3 hit her with the frying pan.
+
+Not hard.
+
+Just enough to reset her personality.
+
+Linda blinked.
+
+Looked around.
+
+Saw all of us.
+
+Saw the frying pan.
+
+Then said, “This is going in the minutes.”
+
+I yanked the router cable out.
+
+The whole building gasped.
+
+That is the only way I can describe it.
+
+Like the walls had been holding their breath.
+
+The lights went dead.
+
+The speaker cut off mid-syllable.
+
+The camera drooped.
+
+The carpet stopped moving.
+
+And Kevin’s awful Wonderwall faded into one last lonely chord.
+
+Silence.
+
+Then, from Dave’s toothbrush, a tiny voice said:
+
+anyway here’s wonderwall
+
+Dave threw it down the stairs.
+
+We had a residents’ meeting the next day.
+
+In person.
+
+No apps.
+
+No smart speakers.
+
+No cloud-based anything.
+
+Linda brought printed agendas.
+
+Dave said “Wasn’t me” three times even though nothing had happened yet.
+
+Flat 5 returned everyone’s parcels and asked us not to call him tiny spoon thief anymore.
+
+We agreed to remove the smart security system.
+
+We agreed to change the Wi-Fi password.
+
+We agreed that Kevin, although disruptive, had technically saved the building.
+
+Linda even added a line to the minutes:
+
+Item 7: Appreciation for Kevin, despite ongoing concerns around tone and boundaries.
+
+Kevin wrote on the wall behind her in black mould:
+
+cheers babes
+
+Nobody cleaned it off.
+
+It felt rude.
+
+Things have calmed down now.
+
+Mostly.
+
+Kevin still appears in the WhatsApp group sometimes, even though we deleted it.
+
+He mostly posts reminders.
+
+bins tomorrow u feral legends
+
+flat 3 ur oven is on
+
+dave stop saying wasn’t me in ur sleep
+
+Last night, he messaged me privately.
+
+jon
+
+I sighed and typed:
+
+What?
+
+can u do me a favour
+
+No.
+
+rude. anyway i need a reference
+
+I stared at the screen.
+
+A reference for what?
+
+Three dots appeared.
+
+Then disappeared.
+
+Then appeared again.
+
+Finally, Kevin replied:
+
+building management position
+
+Before I could answer, a letter slid under my front door.
+
+No footsteps outside.
+
+No shadow.
+
+Just a white envelope on the floor.
+
+Inside was a printed application form.
+
+At the top, in bold letters, it said:
+
+RIVERSIDE COURT RESIDENT SERVICES MANAGER — APPLICANT: KEVIN (DECEASED)
+
+Under “relevant experience,” he had written:
+
+strong communication skills
+
+works well under pressure
+
+saved everyone from wifi demon
+
+good with bins
+
+dead so available weekends
+
+Under “weaknesses,” he had written:
+
+sometimes too passionate about yoghurt
+
+And under “references,” he had put my name.
+
+I thought about throwing it away.
+
+I really did.
+
+Then my phone buzzed.
+
+Kevin had sent one more message.
+
+be nice or i tell linda about the cardboard box
+
+I don’t know what he means.
+
+That’s the worst part.
+
+I haven’t put cardboard in the recycling for three weeks.
+
+But this morning Linda knocked on my door holding a clipboard, looking very serious, and somewhere inside the wall I heard Kevin whisper:
+
+“Professional development, mate.”
