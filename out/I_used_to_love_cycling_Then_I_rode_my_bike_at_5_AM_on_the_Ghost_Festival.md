@@ -1,0 +1,51 @@
+I’ve been an avid cyclist for a few years now. There was a time when nothing brought me more peace than clipping into my pedals and hitting the open road.
+
+Living in Malaysia, if you want to get any serious riding in, you have to wake up ridiculously early. By 8:00 AM, the heat and humidity are suffocating, making 5:00 AM the golden hour—it’s blessedly cool, the roads are practically empty, and the breeze off the ocean feels incredible.
+
+I had planned a morning ride along a long, coastal road—a stretch of highway running directly parallel to the beach. Naturally, I didn't want to ride alone, so I invited a few of my usual cycling buddies to join me.
+
+Every single one of them bailed last minute. One claimed he overspent his alarm, another suddenly felt under the weather.
+
+Looking back, I wish I had just stayed in bed, too. Because that day happened to be the start of **鬼节 (Guǐ Jié)—the Hungry Ghost Festival.**
+
+For those unfamiliar with Malaysian-Chinese culture, the Hungry Ghost Festival takes place during the seventh month of the lunar calendar. Belief has it that the gates of the underworld open, allowing spirits, ghosts, and hungry souls to roam the living world. People celebrate—or rather, appease them—by burning joss paper, hell bank notes, and elaborate paper offerings (like cars or houses) at roadside altars. Food offerings are set out, and staged performances called *getai* are held to entertain the spirits.
+
+Even though I am Chinese, I’ve always been a strict skeptic. I thought of it as nothing more than old-school folklore and an excuse for local communities to gather. Ghosts? Spirits? It all sounded absurd to me.
+
+So, despite being completely alone on a festival morning, I shrugged off their cancellations, strapped on my helmet, and rolled out into the pitch-black morning at 5:00 AM.
+
+The air was crisp and cool as I hit the coastal stretch. On my left was the pitch-black ocean, the waves crashing rhythmically against the shore. On my right was the tree line, smelling heavily of burnt incense and ash left over from the midnight offerings. The only light came from my front bike mount and the occasional flickering streetlamp.
+
+I was about an hour into the ride, holding a fast, steady pace—probably around 35 to 40 km/h. My legs were warm, my mind was clear, and the hum of my tires on the smooth asphalt was hypnotic.
+
+Then, the air shifted.
+
+The wind suddenly blew cold—not a refreshing morning chill, but a heavy, damp cold that smelled faintly of salt water and rotting flowers.
+
+And then I heard it.
+
+Right behind my left ear. So close I could feel a faint draft against my neck.
+
+*A woman’s laughter.*
+
+It wasn’t a scream, nor was it a quiet chuckle. It was a high-pitched, melodic, and sickeningly cheerful laugh—echoing clearly over the sound of the ocean waves and the spinning of my gears.
+
+A wave of pure, primal terror shot down my spine. My stomach dropped. I panicked.
+
+In that split second of blind fright, my hands twitched on the handlebars. At nearly 40 km/h, even the slightest mistake is fatal. My front wheel wobbled violently, locked up, and sent me flying over the bars.
+
+The impact was brutal.
+
+I hit the asphalt hard, sliding several yards along the rough pavement. The sound of my skin tearing against the road was drowned out only by my own screams. When I finally ground to a halt, the silence returned—dead, heavy, and suffocating. No laughter. Just the quiet *click-click-click* of my bike's rear wheel spinning upside down in the middle of the road.
+
+I lay there in the dark, gasping for air. The entire right side of my body was screaming in pain. My arm and leg were gushing blood, and large patches of skin had been completely shredded off from the friction.
+
+Shaking, crying from both the agony and the sheer horror of what I had heard, I fumbled for my phone with my left hand. I couldn't even bring myself to look into the darkness toward the trees or the beach. I kept my eyes glued to the phone screen as I dialed my parents, sobbing for them to come pick me up.
+
+It took weeks for my road rash to heal, and the scars on my arm and leg will likely be there for the rest of my life.
+
+As soon as I was able to walk properly again, I listed my road bike online and sold it to the first buyer who made an offer. I haven't touched a bicycle since.
+
+People ask me why I gave up a hobby I was so passionate about. I usually just tell them I had a bad crash and lost my nerve.
+
+I never tell them about the laughter. Because every time I look at the scars on my arm, I remember how close that voice was—and I know that if I ever get back on a bike, she'll be waiting to finish her joke.
