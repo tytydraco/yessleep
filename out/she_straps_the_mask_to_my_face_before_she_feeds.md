@@ -35,3 +35,4 @@ It runs straight into her back.
 The machine isn’t filtering air. It’s pumping my breath into its lungs—holding me empty, holding me still, keeping me alive long enough to feed the thing wearing the face of the love of my life. 
 
 I can hear her car tires crunching on the gravel driveway right now. She’s back. I’m hitting post and hiding my phone. God, please— have mercy on my soul.
+[Update; Part 2] https://www.reddit.com/r/nosleep/s/42UHw3D2Ii
