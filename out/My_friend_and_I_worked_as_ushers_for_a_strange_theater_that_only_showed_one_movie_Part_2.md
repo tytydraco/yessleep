@@ -1,0 +1,183 @@
+[Part 1.](https://www.reddit.com/r/nosleep/s/VnwHSKcYwk)
+
+I remember having disturbing dreams when I finally did manage to fall asleep after the first day at the theater. I saw the smiling man we thought was dead again. He was moving in an odd way that almost looked like floating. His expression didn't change; his mouth never moved, but his forehead seemed to burn with a strange-looking symbol beneath his skin. Then his body was carried aloft and soared down the corridors of a dark and dismal castle-like tunnel. I followed it, unable to turn back or consider my actions in the dream logic.
+
+Eventually my path led to a crumbling rampart on the yellowed castle that overlooked a large shimmering lake. My eyes turned from the ghoulish guide to the ominous dark orbs in the sky. Twin suns scorched the earth, and the heat haze made me feel faint. I remember feeling unsteady and collapsing as the light slowly faded and the odd dual suns drifted down into twilight. The absence of light illuminated thousands of eerie sparks in the sky, and I felt a looming presence pressing into my mind as I beheld a terrible void in space that seemed to be calling out to me.
+
+I woke up in a panicked sweat and almost considered texting Jake to see if he was up, or if he had had any weird visions that night too. I decided against it and just tried to get back to sleep and put the disturbing image out of my mind.
+
+I ended up oversleeping. I saw I had a few missed calls from Jake. We didn't have to be at work until later that day, so I was not sure what he was calling about. I wanted to go back to sleep, but as I closed my eyes again, there was a knock at the door. Sure enough, it was Jake. He looked haggard but excited to talk to me about something; he barged in without a second thought.
+
+“Hey man, you got any Red Bull or something? I’m drained. I had a bunch of freaky dreams last night, but I got a call from Cassie.” He sounded almost giddy, despite his concern about his dreams. I was surprised he was in such a good mood.
+
+“So are you here to talk about the freaky dreams? Or are you here to talk about Cassie?” I mumbled, trying to not sound as tired and irritated as I felt.
+
+“Yeah man, we hit it off. She is great. She’s a total metalhead, used to be a bit of a goth, and a real movie buff too. She said that she is going to get to see the mysterious movie at work; maybe she can hook us up too, and we can finally see what all the secrecy is about.”
+
+I was confused if he had forgotten all the things we had just seen there.
+
+“So you want to see the movie? After everything we saw? I asked dubiously,
+
+“I mean, Cassie said it was just a bit of method acting on the part of some of the guests. Wanna be actors getting a little too into it, maybe. She said Mr. Hasturing is dramatic in the same way. She said he's not so bad.”
+
+I nodded hesitantly, not convinced by the new change of heart, but not wanting to rock the boat either. He was so excited; I hated to question it by bringing up all my concerns about the entire theater, the movie, and everyone else who worked there before us, but I let Jake have it.
+
+We ended up going to grab a bite to eat while I heard him go on about Cassilda or Cassie, as he kept calling her.
+
+Later that afternoon we went back to the Carcosian for our second shift.
+
+We arrived a bit early. I was using the opportunity to look some things up on my phone before we had to turn them in, and Jake, of course, was using the opportunity to chat up Cassilda, who was waiting outside.
+
+At first we were the only ones waiting, but soon others started to show up. It seemed like a large group of customers were waiting just outside for the box office to open. More people poured in silently, and I was amazed. Jake leaned in and whispered,
+
+“This movie must be something else huh?” I shrugged,
+
+“It must be for everyone and more to come back.” I trailed off and noticed that many of the people waiting seemed strangely silent. Jake crept closer to a customer waiting in line and asked,
+
+“How was part one?” The customer turned to face him. It was a middle-aged man who looked sort of dazed. His placid face finally shifted to one of curiosity when he registered Jake’s question, and he responded with a question of his own,
+
+“Have you seen it?” He waited expectantly for an answer, and Jake shrugged,
+
+“Nah, I haven't gotten around to it yet. But I would like to; it must be good.”
+
+The man stepped forward, out of the line, and physically shoved Jake aside and spoke directly to me,
+
+“You…Have you seen the sign? That look, you have seen the first sign; the great change calls out to all those sensitive to it. Come with us and watch the revelation.” He held out his hands in an odd, inviting manner, and I took a step back.
+
+I was getting creeped out, and Jake just chuckled,
+
+“I think he wants you to watch it with him, too bad we have a job to do.” I tried to laugh along and just shook my head at the man, as he slowly returned to the line and resumed his patient vigil.
+
+A while later, we saw Sam and Mr. Hasturing approach the box office. Soon the crowd surged forward, and the line of waiting customers began to get their tickets for the show.
+
+To our surprise, it seemed like nearly every single customer went to the concession stand afterward. It seemed a little strange that they all went at once, like it was mandatory or something.
+
+Mr. Hasturing emerged from the box office, leaving Sam to handle the few remaining customers who had not gotten tickets yet. He waved us over, and Jake and I both went to meet him, but as we were moving, I saw that people were leaving the concession area, not with food or drink, but just holding large tokens of some sort. I was going to ask about it, but Hasturing began to speak,
+
+“Today is the second day for our pilgrims. The majesty of part two can be difficult for some people to handle. You must remain diligent; you must ensure that no one enters the theaters to spoil the story. No one who hasn't seen the first part can be allowed in the second. It must be experienced as intended. You will both see some things beyond the mess from yesterday. You will have to hold your nerve; not every soul can experience the truth. It never happens the same way. Some might get violent, some might attempt more extreme things. The tokens they hold will allow each customer a small dose of Diazepam. To help calm them down in case their excitement…flares.”
+
+I was confused and troubled by the statement,
+
+“Wait, what? Did you say we are giving our customers a sedative?” I couldn't help but ask.
+
+Mr. Hasturing leaned in and spoke quietly but firmly,
+
+“Yes, we are. Without it, the more pliable viewers might get too excited and cause… trouble. You don’t need to worry yourself with that, though. Cassilda will handle the administration; you two just need to be aware of the potential fallout. It is critical you do not engage with the customers after the viewing begins, for their sake and your own. Wait at least fifteen minutes after the shows are over to begin cleaning, and you might wish to give the auditorium doors a wider berth; the songs of creation can cause things to manifest even outside the designated viewing area. So better to be safe.” He gave another one of his hollow smiles, and the more I heard, the more creeped out I was. I had no idea what was going on, and I looked to Jake, who also seemed troubled by the bizarre instructions we had been given.
+
+“Hey, are these people alright? I mean, this is all something they agreed to, right?” He asked expectantly.
+
+Mr. Hasturing clasped his hands together and nodded,
+
+“Oh yes, readily they agreed. Desperate for the truth, for a purpose, for the answers they sought. And more importantly, they paid well. Do not worry, I assure you everything we do, we do for them. Alas, I must go prepare. Please heed my words, and be careful.” Hasturing departed, and Jake and I were left with more questions than answers.
+
+After a while, everyone had shuffled into the theaters, and Jake and I were left waiting outside in a sense of nervous anticipation.
+
+“What kind of movie do you really think that is?” Jake asked, without the former joking expectation from before. He actually sounded troubled by what he had heard so far about what we expected for the night of Part 2.
+
+“I don't know, this whole thing seems a bit cultish. I almost wonder if there is even a movie at all,, or if it's just some excuse to do some sort of brainwashing. Those guests from yesterday, they were acting weird. Something they saw yesterday must have messed them up, but if it did, why come back?” I asked, partly to Jake and partly to myself.
+
+“I don't know man; it is getting a bit weird. Though I will say, my curiosity is more than a little aroused. Or that might just be Cassie.” He grinned as he saw me put my palm over my face.
+
+“I suppose you want to leave me here and go see here right?” I asked with annoyance.
+
+“Nah man, she actually said she can't hang out while the movie is playing, something about monitoring thing and looking for any signs; it sounded weird. I don't know who is even allowed to come out when it's playing or what she could be watching for, but no, you’re stuck with me.”
+
+He laughed again and leaned back against the wall, throwing his walkie up and down, higher and higher, and trying to catch it. I looked at my watch and sighed again; this was going to take a while.
+
+
+
+I decided to stretch my legs and take a short walk around. Jake decided to come with me since he didn't want to just hang out by the entrance.
+
+We walked around the halls, hearing the occasional thundering sound effect and even some traces of music from the film, playing behind those locked doors.
+
+We made sure that neither of us got too close, despite sharing the same curiosity about just what it was that those people were watching.
+
+As we passed by Auditorium 5, we heard a shrill scream that sounded like an actual person. The sound was cut off by a terrible cracking sound. We both stopped walking and moved closer, concerned about the exclamation.
+
+Suddenly, there was a loud cheer and soft music began playing again. We looked at each other uneasily and backed away. Unsure of how to proceed, but also unsure how we could do anything given our instructions and the fact that the people were locked in with the film.
+
+I let out the breath I didn't realize I had been holding and looked at Jake, who was nervously watching the door too.
+
+“Maybe it was just the movie?” He nodded and turned away, and I followed him, unable to believe my own rationalization, but not wanting to investigate further.
+
+Time passed, and we tried to ignore the other sounds we heard emerging from each theater. Part of me wanted to just leave, but morbid curiosity and Jake’s absolute dedication to finding out what was really happening kept me from fleeing.
+
+It was finally time for the audience to leave; the clicking of the auditorium doors unlocking was heard, and unlike before, when the procession of people rushed out, excited and speaking to each other, this group seemed completely different. Many wore expressions of shock, confusion, disbelief, and in some cases horror. Their eyes were downcast, but when they occasionally had to look up at something, I saw a desperate fear in that brief glimpse that disturbed me greatly.
+
+I even saw what looked like wounds on some bodies and faces that I'm sure were not there before. Jake watched with equal concern as the silent audience slowly moved out of the theater. I had so many questions, but I knew we were not supposed to engage with any of them.
+
+Jake nearly reached out to touch one of their shoulders, a man I think he recognized from somewhere, before I warned him against it.
+
+Soon the halls were empty, and the rest of our troubling task lay before us. We had to clean out the theaters again, with even less time left to us, since it was already midnight.
+
+Nodding grimly to each other, we moved into the first auditorium and saw the aftermath.
+
+The place looked like it should have a biohazard warning. Food was the least of our concern; there was blood, vomit, urine, and more covering the ground, the seats, almost everything save the screen. Despite the disgusting nature of what we were witnessing, one thing stood out in disturbing contrast: a small symbol. It seemed to be drawn, rubbed, or etched on the back of chairs, on the walls, and on the floor. That symbol looked disturbingly familiar and I swear I remember seeing it on the body of a man we thought was dead.
+
+I was not sure where to start, but Jake brushed past me and began cleaning promptly, washing away the disturbing signs, many of which appeared to be drawn in human blood.
+
+I couldn't help but ask,
+
+“What the hell were they doing in here?” Before Jake shook his head and replied,
+
+“It doesn't matter; we have a job to do, but I changed my mind. I don't want to see the movie anymore.” He grinned weakly, and I could tell even he was disturbed by what we had seen. Worse, this was only the first theater.
+
+We decided to split up, to try and cover more ground and use the walkies if we saw anything too terrible to handle alone. It worked alright for the first few theaters, but when we reached theater 5, I remembered what we heard earlier. Jake was still finishing up theater 4, and I had to move on.
+
+I slowly walked inside and turned on the light. I tried to stop myself from crying out when I saw what was in there. It was a man, stripped down to his underwear and nailed to the wall by the entrance. Blood still leaked from the places where large nails were driven through his arms and legs. He formed a horrifying center of a larger symbol that, when I stepped back, looked like a large version of that same symbol the other theaters bore. I inched closer to the crumpled body, hanging motionless. I lifted up his head to check something and nearly gasped when I saw it was the same man we found in the theater before. I had no idea how he was here or how he had survived the day before, but most of all I had no idea why the guests had stripped him down and nailed him to the wall. It seemed like this mystery man was involved in another case of attempted murder.
+
+I reached for my walkie to call Jake, and just as I was holding down the button to send, I fell back and screamed for the first time.
+
+The man's head had shot up, and he looked at me with cataract-white eyes. He strained and gasped at the nails keeping his body pinned, and despite not looking like he should be able to see, his stare fell upon me directly as I tried to stand back up.
+
+“You…have you seen it? You have havent you, the black star? It rises; it gives grace to all who hear the call. The entire flock will soon be ready; the shepherd awaits. We will all drink deep from the lake and be reborn; you can still join us, follow the sign.” I backed away and finally stopped my hand from shaking long enough to call Jake,
+
+“Come in, Jake.” A quick pause, and he responded,
+
+“Yeah, man, what’s up? Need help already? I swear I am getting through these faster than you; the trick is you can't let the little things bother you.” I cut him off, “That's great, thank you for the life advice, but I’m going to need you to get over to theater 5 as fast as you can, right now!” I heard his annoyed response,
+
+“Hey, alright, alright, don't have to be…” And I switched off the walkie and stood there listening to the dead man speak more bizarre words I didn’t understand. The gibberish seemed to increase his derangement, and though I had considered trying to help him down, I felt that would be a terribly dangerous thing to do just now.
+
+Jake walked in, and the man on the wall turned his head with a disturbing crunch and literally hissed at Jake like he was some type of snake.
+
+Jake stopped moving and fell back a step,
+
+“Holy shit, what the hell is that!?” He cried out, finally seeing what I was calling him in here to see.
+
+The man on the wall struggled and writhed, then after a moment a sickening tearing sound was heard as he managed to pull an arm free of the nails that had trapped him before.
+
+He pointed a finger at Jake, who just stood there in terrified awe.
+
+“You, you must take off your mask! You must see the sign; you must follow the one who will lead you to the truth, just as I have seen it. Stay with us, watch the film; it will unshackle your mind, you can be free, like us.”
+
+The dead man began shouting more of the random words at Jake and was intensely struggling to free his remaining arm. He finally succeeded, and the sound of tearing flesh and the man dropping to the ground and rising to charge broke both Jake and me out of our terrified stupor.
+
+“Jake, did you?” I started asking, only for him to cut me off,
+
+“No, I forgot, man. Alright, just throw me the mop.” He cried out as the dead man sprang back to his feet and charged Jake. I tossed it to him, and he thrust it forward, catching the charging man in the face. His head snapped back, and he fell down.
+
+He started to move again, and Jake began pummeling him with the handle while I joined in, stomping down on the raving lunatic with my feet.
+
+He finally stopped trying to get up and attack Jake. Somehow it was worse, watching him lie on the floor looking up at us through his swollen and bleeding face. He was smiling and still seemed determined to rise, but we both held our boots down on him. He tried to speak again, but gave up, just gasping, choking, and laughing.
+
+“Go get Hasturing, or someone. We need a phone to call the cops; this guy is crazy, and I’m not letting him out of my sight this time.” Jake agreed and ran off to find our boss.
+
+After a while, he returned, not with Hasturing, who apparently had already left, but with two police officers whom Jake was able to call, using the phone in the office. They had arrived unusually fast, barely two minutes after the call had gone out.
+
+When they entered the theater, I waved them over. I thought it was weird, but I swear one of the officers trembled slightly, and his head twitched when walking inside.
+
+Jake and I explained the situation, and the officers seemed bizarrely uninterested in the story; they just tried to rush us along and roughly lifted the crazed man off the ground to his feet. They cuffed him and started walking him out when Jake called out to them,
+
+“Wait, don't you need a statement or something? Do you even want to know what he did or why he was here?” One of the officers stopped and looked at Jake, then at me, and frowned,
+
+“We will ask him more at the station; you two finish up here. We need everything to be perfect for night three. He turned and left without another word, and then I realized the reason he looked familiar. I had seen both of them enter the theater hours ago; these officers had watched the movie and were less concerned about the crazy man who had tried to kill us, and more about making sure everything went right for the final night of the show.
+
+Jake and I exchanged bewildered looks at each other as the officer left without any other word.
+
+“So we are going to look into that tomorrow, right?” Jake said, rubbing his chin and continuing,
+
+“I mean, Hasturing will have to answer some questions, because those guys were sketchy as hell. And on top of that, they just booked a guy who should have been dead.”
+
+"Yeah." I agreed,  "We might have a little problem." I said, still unable to believe just what I had seen.
+
+But Jake was right. We would have to find out what was really going on here, one way or another. We reluctantly continued our cleaning. Night two was over, and the finale, along with the answers to our questions, would hopefully come at showtime tomorrow.

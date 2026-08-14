@@ -1,3 +1,5 @@
+[Part 2.](https://www.reddit.com/r/nosleep/s/HUOR9Is6sM)
+
 Do you like movies? I do, and so does Jake. When we saw the opportunity to work at a movie theater, it seemed like a no-brainer. We thought nothing could ruin movies for us, but we were wrong. They say that really good movies and really bad ones can leave an impression on people. Though I never imagined that impression would be so direct and that the people who had seen it would be changed irrevocably.
 
 For our part, we did it because we needed another job. Hoping for something simple. Even if it was low pay, low effort, at least it would help pay the bills since the last gig had not gone so well. Though I suppose the owner couldn't pay us because he was worried about the [bigger picture](https://www.reddit.com/r/nosleep/s/qs7yaBrac0).
@@ -280,6 +282,6 @@ Jake and I both looked at each other and knew something here was wrong, but we d
 
 The rest of the night was a paranoid haze. We managed to finish the other theaters and wrap things up at around 2:00 am. We discussed the body a few more times, but eventually we had to come to terms with the fact that we would either have to leave and forfeit our pay, or keep going and try to ignore the disturbing encounter.
 
-Since this was not our first time seeing strange things, we decided to give the second day a shot and resolved to return tomorrow. 
+Since this was not our first time seeing strange things, we decided to give the second day a shot and resolved to return tomorrow.
 
 We were not prepared for how much worse it was about to get.
