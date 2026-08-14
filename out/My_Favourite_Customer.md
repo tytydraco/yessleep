@@ -1,0 +1,107 @@
+I’ve been delivering packages for five years. It’s not the most exciting job out there but it pays the bills.   
+That all changed when I met her.   
+She was so ethereal, her beauty transcended every meaning of the word. I still remember our first encounter.   
+I thought it was just a normal day, the elevator was out on her building. I had to drag myself up four flights of stairs. I looked at the package in my hands “Delilah Samson” I chuckled to myself, her parents had a wicked sense of humour.   
+When I reached her floor, I remembered thinking maybe it’s about time I make use of my gym membership, so out of shape!   
+I think maybe it was the pot of plants and flowers in front of her door, but even from the outside, something felt welcoming.   
+She opened the door before I knocked and I swear I had to jumpstart my heart with a balled fist.   
+“Hello” she said smiling so beautifully I forgot how to speak.   
+She reached out for the package, her eyes not leaving mine.   
+“Uhm, sir?”   
+I realised I was still holding it.   
+“Oh sorry” I said letting go and fumbling for the iPad for her to sign.   
+She turned to place the package behind her and turned back to me, her smile not leaving her face.   
+I handed the iPad to her, our fingers brushed for a second but it felt like my whole body had been electrocuted.   
+She gave it back to me with a now pursed smile.   
+“Thank you” she said taking a step back and closing the door.   
+I stood there for a couple more seconds before remembering how to move my feet.   
+After that, the rest of my day was a blur. When I got home, even my shitty apartment felt brighter, cleaner even.   
+My cat even rubbed himself against me, it was a great day all around.   
+I couldn’t stop thinking about her.   
+I didn’t know humans came in that shape and form.   
+Angelic.   
+My job got a little exciting, I would check every name on the packages hoping to find hers.   
+It was months before that happened. She wasn’t even on my route, but on Tommy’s.   
+“Man, you’re about to see the most beautiful woman in your life. I mean I feel like I’m insulting her by calling her beautiful” I told him, giddy as a child getting his favourite candy.   
+“Who? Delilah? Oh I’ve seen her” he said nonchalantly stacking packages to carry to his truck.   
+“And??”  
+“Yeah she’s pretty”  
+“Pretty?”   
+He shrugged and walked out to his truck.   
+Pretty.   
+He called her pretty.   
+I couldn’t believe my ears.   
+Pink roses are pretty.   
+Sports Illustrated models are pretty.   
+That woman is art, unfortunately not everyone appreciates art.   
+Pretty. Pfsh   
+I delivered my orders for the day and the last one was at an apartment complex I’ve never seen or heard before. The Lilium.   
+I checked the name and it just read “Lilith unit 366”  
+It was getting a bit cold and somehow the inside of this hallway felt even colder.   
+She opened the door as I was raising my hand to knock.   
+It was her.   
+“Hello” she said in that buttery voice of hers.   
+“Hi-llo” I stuttered, my voice and brain betraying me once again.   
+She chuckled.   
+I bent down to pick up the package and handed it to her.   
+Again, she turned and placed it behind her and then faced me.   
+She smiled, looking at me expectantly.   
+“Oh, sorry” I said handing her the iPad.   
+I realised the chilly air stopped biting, it got warm, hot actually.   
+“Thank you” she said handing it back to me. With a slight smile, she closed the door.   
+I walked back to my truck, dumbfounded.   
+“Does she live here now?” I asked myself trying to cool off for a minute.   
+“Maybe she was signing for a friend” I concluded trying not to complicate my life with questions I’d probably never have answers for.   
+Seeing her again felt like that first hit of a cigarette after a long day.   
+More deliveries like that started popping up. In unassuming places, different names, she’d be there. I saw her with her hair up once, signing for a package addressed to Mazi and it was the same every time.   
+She’d open the door before I knocked, greet me with the most perfect smile I’d ever laid my eyes on, sign, thank me, and that’d be it. I’d think about her for the rest of the day or evening.   
+She was all I could think about and soon she was all I saw. Until recently.   
+Back to where it all began.   
+“Delilah Samson”  
+I was ready to have my eyes and soul replenished yet again.   
+I stood there and waited for her to open the door. It took a couple of seconds but I realised maybe I was being silly. I held the package under my arm and I was about to knock when the door opened.   
+It was dark and cold inside. I looked around and realised the pot plants and flowers were dying outside her door.   
+I was about to call out but she peeked behind the door.   
+She looked frail, tired actually. Her eyes were sunken and her hands were shaking.   
+“Hello” I said trying to see if she’s going to step out behind the door.   
+The corners of her mouth moved up in a very uncomfortable fashion.   
+I wanted to ask if she was okay but I couldn’t get the words out.   
+She reached for her package and dropped it on the floor.   
+I handed her the iPad to sign but she stretched her hand and signed it while I was holding it.   
+My soul shattered.   
+I was about to turn and leave when she called out.   
+“Hey!” her voice still sounded like a soft melody.   
+“Yes?” I turned to look at her. Half her body was now visible behind the door, not just her head.   
+“Would you like to come in?” She asked, her eyes not quite meeting mine.  
+I shouldn’t.   
+“I shoul…”  
+“Please?” she pleaded, her voice cracking slightly.   
+She’s obviously not in a good place. Maybe she needs a shoulder to cry on. I try to convince myself, even though every cell in my body is telling me not to do this. I reluctantly step in and she closed the door behind me.   
+Her apartment was enveloped by darkness. Then I heard her laugh.   
+.  
+.  
+.   
+I must’ve fallen asleep at the warehouse. Tommy nudges me awake.   
+“Wake up Buddy, your orders are ready”  
+I try to open my eyes, my head is killing me.   
+“Damn you look like shit” he hit my shoulder, I wince in pain.   
+“Are you okay?” he asks looking very concerned.   
+“Yeah, I’ve just been working a lot I guess” I say trying to rotate my now painful shoulder.   
+“Dude, you were on leave for a week, you should’ve rested up” 
+
+“A week? I don’t…” 
+
+“You didn’t have to be a dick about it. You ignored my calls. We had plans, remember?” he looks at me as if I have any idea what he’s on about.   
+“Anyways, let’s get to work” he’s about to hit my shoulder again but stops himself and walks off, laughing to himself. 
+
+I put the packages in my truck and started driving. First delivery of the day   
+“ Delilah Samson”   
+I chuckled to myself as I walk to the door. 
+
+The pot plants and flowers are green and vibrant as ever. 
+
+She opens the door before I knock. 
+
+“Hello” she says smiling, my heart flutters. She is the most beautiful woman I’ve ever seen. 
+
+I think I’ve seen her before. But let’s be honest, this isn’t a kind of face one would forget. 

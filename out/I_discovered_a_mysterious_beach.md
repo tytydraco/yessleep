@@ -16,7 +16,7 @@ On the drive home, I noticed the dull ache in my bones.
 
 I spent the next few days editing the photos before sending them to my client. Immediately, a new message from them popped up on my screen: **I’m sorry.**
 
-About a week after my first visit, my ex posted a photo with her new girlfriend. To keep myself from bursting into tears and overdosing on the Tylenol I was taking, I decided to de-stress by making some jewelry, a hobby I hadn’t picked up since our breakup.
+About a week after my first visit, my ex posted a photo with her new girlfriend. To keep myself from overdosing on the Tylenol I was taking, I decided to de-stress by making some jewelry, a hobby I hadn’t picked up since our breakup.
 
 Sitting on my bed, I was halfway done with a necklace when I noticed a purple bead had rolled down my calf. When I went to pick it up, it refused to move. Upon further inspection, it wasn’t a bead at all. It was a pearl. No matter how much I pulled, it stayed stuck to my skin. I reached for my scissors and positioned the blades before snapping them closed. A stinging pain and gush of blood ran down my leg, but before I could get up to grab a bandage, the wound healed, replacing the pearl with another much bigger one.
 
