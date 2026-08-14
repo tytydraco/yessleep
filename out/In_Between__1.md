@@ -1,0 +1,27 @@
+I was eight when I first had the dream. I'm seventeen when i wrote this, so the first time is a little hazy, and I'm probably filling in some of the gaps without meaning to, but I'll try to describe it as accurately as I can.
+
+I remember going to sleep that night like I normally did. I still slept with my parents then because I was scared of the dark. Not terrified, exactly. I just didn't like being in a room where I couldn't see everything, so sleeping alone never really worked for me. My parents never said I had trouble sleeping, though. I didn't wake up crying or anything like that, and I don't remember having many nightmares as a kid. I just preferred knowing they were there.
+
+The next morning was completely normal. I went to school, came home, did whatever eight-year-olds do after school, and it wasn't until I took my socks off that I noticed something on my foot. There was a mark around my ankle, almost like something had been pressed against the skin. It was strangely symmetrical, too. Not a bruise or a rash, more like a perfect cylinder drawn around my ankle. I tried washing it off because I assumed it was dirt or maybe some kind of stain from my shoe, but it didn't change at all.
+
+I don't remember telling my parents much about it. I think I showed them eventually, and they weren't particularly concerned. One of them called it a birthmark, which didn't make much sense to me because I'd never noticed it before, but I was eight and didn't really argue about things like that. It didn't hurt, it wasn't swollen, and nothing seemed to be happening to it, so I forgot about it.
+
+A couple of weeks later, I started remembering pieces of a dream I'd had the night before. I don't remember waking up from it. I don't even remember thinking about it when I opened my eyes that morning. The memory just came back later, while I was doing something completely unrelated.
+
+I was standing somewhere that looked like a desert, except it wasn't the kind I'd seen in pictures. There was hardly any sand. The ground was mostly pale rock, and I was standing near what I remember thinking was the edge of a cliff, although when I try to picture it now it might have just been a steep drop in the ground. Behind me was this huge flat area, almost like a plateau.
+
+I remember knowing what a plateau was because we'd just studied them in EVS.
+
+There were other people there. That's one of the things I remember most clearly because even then it felt strange that I wasn't alone. They looked like people, but not quite. Their bodies seemed almost transparent, although I don't remember being able to see through them properly. It was more like they didn't have the same solidity that I did. Their feet barely seemed to move when they walked. Nobody spoke to anyone else, either. They just wandered around the plateau as if they were supposed to be there.
+
+The sky was wrong, too, although I don't know how else to describe it. The sunlight didn't look like normal sunlight. I remember the rays looking fragmented, almost as though the light had been broken into separate pieces before reaching the ground.
+
+At some point I understood that this wasn't the first time I'd been there.
+
+I remembered the mark on my ankle and somehow connected the two, even though I couldn't remember getting the mark. I don't know why that didn't scare me more. Maybe because nothing bad had happened in the dream. Nobody had chased me, nobody had spoken to me, and I'd never been hurt there. As far as I knew, it was just somewhere I went when I slept.
+
+For a while, that's exactly what I thought it was.
+
+Then I started going there more often.
+
+*PS: i found this in my old journal, im 21 now and well.... things might have gone downhill, im writing this to find the people i see in the Between*
