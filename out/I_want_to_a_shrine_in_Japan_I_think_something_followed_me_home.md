@@ -1,0 +1,20 @@
+Last month I had a break from work for a couple of weeks that the higher ups gave to me for getting a promotion so I decided to finally take that trip I've wanted to for many since I graduated collage.
+
+Everything was normal once I got there, no real signs that do.ethjng would go wrong -- just the normal tourist destinations and stuff, that is untill I visited one of the local shrines --- the shrine itself was normal, nothing we're about that just the uneasy feeling I had while there, I don't know how to describe the feeling other then it felt like I was being watched or that I was being stalked, very strange, I know right? So I left early, I didn't want to be having those feelings anymore and I wanted to enjoy my vacation.
+
+The rest of my vacation was normal, i left a couple days later and everything was normal including the trip home, everything was completely normal.
+
+Fast forward to when I got home, I started work as usual and everything was normal for the first couple days,.that was untill something happened. A couple days later at around the middle of the night I saw something a flash of white and a little later I heard what I thought was scratching coming from outside my front door, it sounded like an animal or something outside, i had no idea what is was, all I knew was that is that it was real, I knew i didn't mishear it.
+
+The next day I was talking to some people at work and they were telling me about how they were hearing and seeing things last night as well, could it have just been a coincidence? I don't know what that animal was but I could have just been a coincidence or maybe it was something else, I dont know what it is.
+
+I decided that I was going to put up motion detecting cameras around my house to see if I could spot the animal,I and I also put a knife on my nightstand to have some protection in case whatever it was came back, I needed to know what is was fast so I could protect myself.
+
+But the issue is, every time I see activity on the camera it's always just a flash of white before it disappears and the scratching noises continue, I have no idea what this is but I don't think it's an animal, I'm not sure what it is 
+
+Now every time I go to work, people keep asking me questions, I think they are getting suspicious of me because they keep saying that they hear it as well, I don't know what's going on and why it's messing with me and my coworkers but something is up. Yesterday I finally heard it, or something I'm not sure what I heard but I thought I heard something it sounded like a whisper or something similar, I have know what it is or what it wants for me but it's not leaving me alone.
+
+I tried talking to my family about it, but they don't seem to care very much they just say it's stress and that I need to take a break from my new promotion and work, I tried to tell them that it's not that but they won't listen, I'm not even sure if they're experiencing anything. 
+
+  
+Could somebody help me here please? I feel like I'm going crazy and I feel like it's gaining confidence and might try something bolder soon.
