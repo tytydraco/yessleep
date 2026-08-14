@@ -1,0 +1,135 @@
+My husband and I had been so proud when we bought our first house. Even though it was a fixer-upper, we were excited to build a life together after getting married.
+
+The humble, weathered starter home was all we could afford on our meagre combined salaries, but we hadn’t cared. It was easily beyond the scope of what we could repair ourselves, though. Jammed door hinges, broken floorboards, crumbling walls, cracked windows, collapsing shelves. We both agreed that, if we were going to make this place presentable for visitors and ourselves, we would need some help.
+
+And then came the solution to all these issues.
+
+One of my husband’s work colleagues gave him the name of a handyman we could contact. Apparently, the guy’s services were more than affordable. More importantly, he was supposedly the perfect handyman. His colleague Scott said there was *nothing* he couldn’t fix.
+
+If I had known then what would happen to our lives, we would have told Scott to shove it. We would have just happily lived together in that rundown house, as if it was a mansion instead. Those crumbling interiors would have been far safer for us.
+
+But instead, Daryl reached out to the handyman that night.
+
+“Hello, Handyman Jim speaking. You break it, I fix it. What can I do for you today?” came a cheerful and deep male voice from the phone.
+
+“Hi—my wife and I are in desperate need of a handyman for…where should I start?”
+
+Daryl and I decided that the first thing we would have Jim repair was the busted staircase and landing railings. Not only was it one of the biggest safety risks for our house, but it wouldn’t take as long for him to complete as some of the other needed repairs—the perfect trial job to assess the quality of his work.
+
+He arrived promptly at 10am sharp the next day. I was stunned at what I saw. Jim the handyman looked to be in his mid-40s, and yet, at the same time, he looked remarkably well-preserved.
+
+With a full head of short-cropped brown hair, a wide and bright smile, and a fit and muscled body, he definitely didn’t look as if the years of hard work had worn him down at all. In his neatly pressed carpenter overalls, stepped out of his pickup truck and walked over to us on our front porch.
+
+“You must be Jeanette and Daryl—what a pleasure to make your acquaintance” he beamed in that polite, rumbling voice, shaking our hands. “Now where is this damaged railing you need help with?”
+
+We led him inside to the damaged balcony railing in question and he instantly got to work on it. For the most part, Daryl and I stayed out of his way as he shuttled back and forth to his truck to get supplies or lay down tarp. I did catch glances of him working occasionally, though, hammering in nails or drilling through wooden pieces. He moved fluidly and quickly, as though he had done this a million times before and always knew exactly what he would do next. 
+
+It was like a calling for him. Any doubts I may have had were instantly eased by me knowing this was clearly an experienced professional.
+
+Only a few hours later, I heard the sounds of construction stop and saw Jim poking his handsome face around the living room door to tell us that he was done.
+
+The handiwork we saw when Daryl and I observed the final result  was simply incredible. Polished, neat wooden railings lined the stairway and upstairs landing, with not a single dark wooden pillar out of place. Resting my hand against it, the railing was as secure as it looked. As the cherry on top, Jim had cleaned up the area immaculately, leaving behind not even a loose nail.
+
+In the middle of our rinky-dink house, there was a first class quality bannister and staircase. If this was the kind of quality he brought to one job, imagine how he could transform the rest of our home.
+
+“Wow—thank you so much! This is a fantastic job, and done so fast, too!” Daryl exclaimed, as thrilled by the work as I was. “Jeanette, can you grab my wallet, dear?”
+
+For a job of this quality and speed, anyone could have expected a fee of tens of  thousands of dollars. But, to our utter elation, Jim charged us only a mere percentage point of that amount. 
+
+That should have been the first red flag—that you ultimately get what you pay for. But I didn’t pay it a second thought, choosing to gleefully accept that this handyman was just a kind and charitable soul, helping out newlyweds and building up a client-base.
+
+There was strange behaviour from Jim, however, that did attract my attention—at least for a second.
+
+When Daryl handed him the wad of cash notes, instead of placing them straight in his pocket, Jim separated them. Splitting the pile exactly in half, he then placed each smaller stack into one of his left and right back pockets. It was at this point where I noticed how perfectly symmetrical his clothing was, from his shoes to his sleeves. Not even a birthmark or stain imbalancing the mirror images.
+
+“Hey, balance is important, right?” he grinned, noticing our quizzical expressions. “It’s what keeps houses from toppling on their sides—and people too.”
+
+We both chuckled at this quip and dismissed the quirk. It was often the most brilliant, capable people with some of the oddest habits, after all. And brilliant his work had been. Daryl and I both knew already that we wanted to use more of Jim’s services. 
+
+By that same evening, we were already picking up the phone to book Jim in for another job, this time to repair the ceiling of our entryway. Unfortunately, this was the night that Daryl’s phone decided to break out of nowhere, so we made the call on my mobile instead. Jim picked up just as promptly and happily as he had before.
+
+And so began our many months of employing Jim’s handyman services for our house.
+
+Every new job that he completed for us was as top-notch as the first had been. Just as he had for our staircase job, he would show up on time and complete the job that same day, even for jobs which I might have anticipated would take more. He also worked solo each time—only *he* would show up in that grey pickup truck each morning, and leave it in it each afternoon. The man was an absolute workhorse in the amount of progress he made in the gaps between checking on him.
+
+All throughout this time, Jim was perfectly professional and we continued getting along with him. We even tried to respect his little idiosyncrasy for balance, serving him snacks on a symmetrical tray or water with symmetrical cubes. I even mended a rip in his shirt one day so it could be perfectly symmetrical. Anything to repay his generosity.
+
+Section by section, our house began to look less dilapidated and more like a nurturing family home—the kind of place where we could soon start to plan raising children in.
+
+However, keeping us from this decision were the setbacks that began occurring.
+
+Like the cellphone that had gone kaput out of nowhere, more and more devices around our household began to break as well. We would have written this off as the wear-and-tear of daily life. But every one of these failures, in turn, triggered some kind of dangerous incident. And, what I soon began to notice was, this would always be after one of Jim’s miraculous repair jobs.
+
+On the day Jim fixed our wobbly kitchen countertop, our main TV set broke. As a result, we missed an emergency weather warning, almost drowning in a flash flood during a visit to the beach.
+
+On the day Jim replaced our cracked living room windows, one of my high heels snapped. As a result, I almost stumbled off the side of a skyscraper rooftop while we were out at dinner.
+
+On the day Jim repaired our rotted attic floorboards, Daryl’s car brakes failed. As a result, he almost drifted into oncoming traffic on his way to work one morning before he got it under control.
+
+Even on the night that the phone had glitched out, after Jim’s first repair job, we had almost been left unable to contact the police when we saw thieves breaking into nearby houses. The timing of these coincidences was so peculiar and consistent. Of course, it couldn’t be Jim breaking our stuff. He was already packed up and gone from the house each time a possession of ours called it quits. 
+
+Maybe our pride in our improving house was making us complacent in how we took care of our other belongings.
+
+Unlike the various scrapes we got into, Jim never got a scratch on him. We put this down to workplace safety—of course a tradesman as skilled and journeyed as him would take precautions not to get hurt on the job. However, the man never got so much as a splinter. Strangest of all was the time his nail gun misfired. I could have swore I saw the sharpened nail bounce off his skin before hitting the ground. Probably a trick of the light—but it didn’t draw blood. Talk about calluses.
+
+We had hoped that our bad luck with appliances might lift as our house renovations neared completion. Sadly for us, it would be just the opposite.
+
+I’ll never forget the day that my inhaler broke. Endlessly gasping for air, clicking the jammed asthma puffer to no avail. Jim had just left after re-tiling the bathroom when my throat closed up. I don’t know how I got my breathing under control that day and I came back from the brink of death.
+
+The strange series of misfortune with our property had taken its toll on mine and Daryl’s marriage now. For one of the first times in our relationship, we argued openly about how to proceed. My husband couldn’t bring himself to believe my theory that Jim’s repair work and our perilous device failures were interlinked—symmetrical, even. He didn’t believe what I’d seen with the nail gun either.
+
+I should have fought harder, but I didn’t. We agreed, instead, to let Jim finish his current projects before letting him go.
+
+Years prior, my husband had gotten an insulin pump installed to help control his diabetes. This was the next device of ours to suddenly, lethally break, once Jim had finished fixing our broken bed frame.
+
+I ran into the hospital room in panicked tears, terrified of what I’d find. My poor Daryl was in a diabetic coma, and had suffered a stroke from the insulin imbalance. As I sat by his bedside all weekend, weeping in regret, I didn’t see how things could get any worse.
+
+Until I remembered: Jim was booked to revamp our backyard patio awning today. Every time he fixed something in our house, something critical in our lives broke. Looking at my unconscious husband and wires and tubes hooked up to him, horrified realisation set in.
+
+“Hi. You’ve reached Jim the Handyman. I’m currently completing a job and can’t answer your call. Please leave a message.”
+
+That same answering machine message played again and again as I left messages pleading with Jim to cancel the job. To finally end his corrosive effect on our lives. To leave us be with our lives intact.
+
+By the time I arrived at my house, however, it was too late.
+
+I saw Jim walking out of our house, his toolbox in hand, that same, shiny white smile glinting at me.
+
+“Job’s all done” he cheerfully stated—and winked. Up until then I had thought maybe Jim’s strange curse upon us was unknown to him. But any notion that he was oblivious to his destruction was dispelled in that instant. He knew what he was doing to us.
+
+At that exact moment, my phone rang. Tear-stricken, I knew what the call would be before I answered. The hospital mournfully went on to inform me that my husband’s life support equipment had stopped working out of the blue. He was dead.
+
+And the sinister being in front of me was the reason. 
+
+I glared in fury at hell’s handyman, the one who had taken my husband from me through his lethal, supernatural curse.
+
+“Get the fuck out of here!” I screamed, voice shaking. “What the hell did you do to me and Daryl?!”
+
+Jim just laughed, as if I’d told him a mild joke instead of accusing him of murdering my husband.
+
+“Gosh, I didn’t do anything to him. I guess the *universe* just appreciates balance as much as I do. There’s a price for every fix.”
+
+His voice now yielded a malice that overtook his entire folksy persona.
+
+“As for me no longer helping you, I’m afraid I can’t do that—there’s still more work left to be done on your house. It’s not like anything can get rid of me. I mean, hey, you saw that yourself. So—what do you want me to fix next?”
+
+Horrified, I thought back to that nail bouncing off his skin and to his well-preserved appearance. The creature in front of me wasn't human, wasn’t going to leave me alone, and wasn’t going to die either. Not until his “balance” had killed me, too.
+
+Balance…
+
+An idea flashed through my mind. In a flash, I raced past the eldritch handyman into the house. Moments later, I re-emerged with two objects.
+
+Facing the amused Jim, I held the mended shirt up in front of him.
+
+“You love balance right? Well, I *fixed* this for you. Which, by your rules, means I can *destroy* something of yours too.”
+
+Mirthfully, I tossed the clothing at his feet. Jim looked down at it for a second, and looked up just in time to see the gun pointed at his chest.
+
+*Bang.*
+
+The bullet I fired into the being’s chest didn’t bounce off this time. Instead, blood gushed from the wound. Jim looked up at me, his trademark smile gone, and demonic rage flickered in his eyes for a second.
+
+Then he slowly turned, shambled to his pickup truck… and drove away. Just like that, the cursed being which had threatened to dismantle what remained of my life was gone.
+
+It’s been years since that day and I still live in that home. Far from a starter home, I plan on living out the rest of my life in it. Daryl died for this house, after all. In all this time, Jim hasn’t returned to finish me. That hasn’t stopped me from waiting on the front porch swing for him every morning, shotgun in hand—just in case.
+
+I’ll admit that it is a beautiful porch swing to keep watch for a demon handyman on. That bastard did a fine job building it.

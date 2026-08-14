@@ -1,0 +1,87 @@
+ It was almost morning I was tired and Stiff and unrested from all the weirdness but I had to go to city Chandigarh to the hospital for a very special diagnostic test. 
+
+I went to take appointment for a test on the same day 1 year ago and I was bit shocked and displeased with date I got for test because not only it was a yearly wait but because on the priority list of low, medium ,High ,severe, after my doctor marked my condition for the severe category . 
+
+The worriness totally resolved when I found out that other who were with me on the appointment got longer waiting period one patient of low priority category even got a 10 year waiting period. I took the government bus and reached Chandigarh by 8:00 a.m. waited for an about an hour while i submitted the files and idli powder and curd. 
+
+Then I went to room number 9. Inside of the room there were there were small concrete structures built like bunkers with windsield to look inside of them and a hole probably to irradiate the radioactive radiation onto the idlies .From my file I could see the radioisotope they were using were of Sulphur and technicium. 
+
+A tall doctor looking like the grim eater from Ratatouille served me the idlis in a big red bowl which could easily fit my head inside of it. Then an assistant told me to sit in the 'radioactive idlis eating room' just outside the room no. 9 with other patients. By the looks of it the idli served to me were pretty hot almost steaming and had slightly yellowish hue ,giving ominous Vibes, the doctor's assistant asked me to not touch the idlies with my hands or to touch the idli on my face, nose and said if I follow his instruction I will be safe, which was totally not comforting cause I have to eat and digest them and they are going to pass through my soft and squishy organs. 
+
+When I took the first bite the smell was like burning sulphur inside my mouth and burnt all my nose hairs and the taste if simply described in one word was 'pukeinducing '. My body was refusing to swallow and I was gagging after every spoon full and top of that they were really dry and my body salivary glands were clearly not keeping up with the demand.
+
+ All the other patients were finished and left for the scan and I was left alone in the room then i heared whispers "and we should handle it with care and follow all the regulations and this is how you measure it's quantity on this scale to make sure that none of the isotope is missing, we don't want any bad guys to get hold of this afterall,ok students, " The tall doctor who served me Idlis came out of the room no.9 with a small crowd of interns the interns who probably did all the work of mixing the radioisotope afterall the sophisticated doctor doesn't want himself to be irradiated by it. 
+
+I looked closer at the doctor. 
+
+I could tell something from the Smriky little smile on his elongated overly smart face. 
+
+This motherducker was doing something illegal with the isotope.i could just tell.i kept staring at him
+
+"Sir ,you are standing in my way" he said to me like a big nerd he was.
+
+"Pretty interesting character you playing back there about being ethical and about good use of something as dangerous as the radioactivity" I said .
+
+"Thank you sir, but I am not playing a character"he said with that smug smile again .
+
+"of course, of course, In fact, I would like to make some suggestion to help out patients to you alone in private" I lied and gestured to the room he just came out.
+
+"Sure ,I can have a quick word." he said." as long as it is for the betterment of the needy".
+
+"Over there,Over there" I said to him pointing to the dark room where glowing bunkers were. When we got there I locked the door behind him and grabed him by his collar and slammed him into the wall. "what are you doing, tell me" I said."What illegal shit is that u tryna make with the radio isotope ".
+
+"I don't know what you talking about, sir "he coughed.He looked scared and confused.So, I chocked him harder.
+
+"What are you making item bomb or something" I said loudly.
+
+"Sir, Are you crazy can't you see this is not a conspiracy theory that's not how the world work, where's your are patient attended, HELP! Somebody Help!!" he cried worrily.
+
+"Nobody is coming to save you" I smacked him harder against the windshield of a bunker.
+
+"A waiting period given to a patient was 10 years and you are not working in the favour of patients that could only happen if somebody in the critical chain of handling radio isotope is stealing it or using it to make other stuff and who better to know about it then you!" I said and slid him across the bunker and threw onto the weighing scale." What's your weight, tell me or be ready to die" i shook him .
+
+He replied fast and scared "60.9kgs".
+
+"Ha! ,that proves it the scale on which you are lying right now shows 65 kgs,you tampered with the weighing scale and were teaching interns wrong soo you don't get caught!"I said ,logically, proving my point.
+
+Now at this point he was almost about to faint he said "alright, you got me "catching his breath "alright, I am telling you what I am doing with it".
+
+I was just bluffing when I said I'm gonna kill him I don't want to do that ,I'm not a psychopath afterall,
+
+I know something was off and I actually wanted to benefit the patients unlike him .
+
+"For that you have to come to my secret bunker office" he said .Now he didn't look scared ,he was overly confident rather, like he was out of his made up character,something which I didn't like the feeling of.
+
+We passed down the bunkers lined up one after another.and we faced each other at the last bunker no. 14 .It looked like inside of it there was a florescent bulb instead of glowing radioactivity.he said "are you ready for this".In the hindsight I can tell you i wasn't.
+
+"Yes, don't build suspense, open it"and open he did the windshield with an intricate dexterity of his fingers like opening a cars hood. And before any of you say, yup, that's a task very hard for me.
+
+And revieled what looked like a restored powerhouse with large grids of electrical wiring, switches, and levers. He turned on the lights by pulling up a comically large lever. And gestured for me to enter. Without hesitation i pushed him inside just to check for any traps and then went inside. There I can see the wiring lead to large cylinderical containers filled with greenish mossy liquid and people!? And A bear!? People sucked to bone out of flesh and blood with tubes and pipes attached to every hole of their body.
+
+"What kind of matrix shit is this!"i said to the tall doc face to face.i was close enough that I could read his nametag now. All i could think was this guy is doing experiments on people using uranium and turning them into mutants and what not and storing them into these pods.
+
+He said with an unnerving calm "you see, sir, I'm reasearching side effects of radiation on human body and these are not alive people they are just corpses i managed to get my hands on through my connections and before you ask or say you'll tell everyone about this .,know that govt. Knows about it, well, the important higher ups in the govt. knows and infact it's a govt. incentivised research
+
+How do you think my department is going to explain 5 kgs of radioisotope core and I'm making super humans for them." he saw that I was not even a little bit convinced so he continued. "You can kill me but then somebody else who maybe is more cruel than me will take the lead of this project and you can't keep fighting the system, the society forever".
+
+"I'm still in doubt whether I believe you and that the right thing to do is to do nothing !"i said wanting more explanation .
+
+"Soo, you see this is definitely real and I'm exploring the possibilities of super human strength and better human experience in everything in strength,agility and intelligence,."dr. explained
+
+"If human body is functioning exactly the way it's supposed to then how laid back is to change it in the ways we can't imagine "said I feeling like a futile puppet in front of the development obsessed world.
+
+"First it's going to help the differently abled and neurodivergent but then you start but then you start to wonder that maybe someday everyone will get this treatment like antibiotics and vaccine which are preventative medicine and already well accepted and soon it will become a thing that a healthy person will feel pressuried to get in order to compete with others who have this and to live a better ,longer and healthier life .The future of medicine is very scary but really good because we are getting closer to removing health related suffering but I don't think we humans will stop there ,so, who knows,what kind of new suffering will come from our desire of becoming better and better"the tall doc said and i actually believed his dystopian thinking. And didn't like the feeling that this could be true.
+
+"you know getting medical kits from third world countries and giving yourself infusions"i tried to lighten up the situation with this silly joke .
+
+"And the thing is you can do nothing about it, i mean you can try to tell everybody, but who would believe you everybody will call you crazy, even if you build the most loyal audience on reddit and gave them undeniable proof of this happening ,for this reality it's still gonna be called a real good story and not a reality and bet you can only do soo much breaking with the culture and society before you become an outcast like it's going to become very hard for you to find connections and friendship when your ideas conflict with the society at large, trust me, I've tried. So how about we go out own separate ways and pretend like it's never happened I'm gonna not tell the higher ups and they are not gonna come after you " he put his hand forward "shake on it, and i won't tell anybody to come after you"
+
+"Wait why did you mention it out of nowhere and who is gonna come after me" i said.
+
+"They gonna come if you stay here for longer" he said and i did the thing every sensible person in horror stories should do that is shook his hand as a deal between two enemies promised to not backstab each other.and pretend like this never happened and i had nothing to do with it.
+
+After that I got out and went to get my scans done feeling tired and fed up I was a little late so the Idlis went cold I was able to push them down my throat slowly processing and repeating the incident finding anything in my memory to let it go as a day dream, but I failed. then at last after eating it I felt kind of relieved knowing that I did not like eating radioactive things, afterall ,who knows maybe after eating those i may have let out some deep down uncontrollable fetish of me going on a spree to eat radio active foods. The scan took 60 seconds or 72 hours depending on your definition of the scan itself. In short, the scan took 60 second but they have to do it after every hour until six pm for three days oh and I forgot to tell that I haven't eat an anything since the last night and can't eat until 6 pm everyday. I was also skeptical if my poop is gonna be radioactive which I am pretty sure would have glown in the dark if I have Shined U.V. light on it.
+
+So a quick information before I start this is the second chapter of my series about my real life incidences and the first chapter is gonna be uploaded after it,also I'm gonna attach undeniable proof of my test report if I manage to figure out how to attach links of photos I'm new to reddit and this is my first time posting and I'm gonna try my best to reply to all of your questions 
+
+Thanks.
