@@ -1,0 +1,277 @@
+Marissa and I were two drinks in when we started trolling r/AskReddit. “Oh, wait, I got a good one,” she said, grabbing my laptop.
+
+>u/throwaway1122333xa
+
+>Dead people of Reddit, how did you die?
+
+I looked at her. “Seriously?”
+
+Up until then, our questions were along the lines of what 12-year-olds might post, despite the fact that we were in our late 20s. This was a rather macabre turn of events, although for Marissa—who survived on a steady diet of B-rate horror flicks and Diet Coke—it was to be expected.
+
+“It’s funny because they can’t reply if they’re dead,” she explained.
+
+“The mods are just gonna remove it.”
+
+But at 20 minutes in, the mods still hadn’t removed our post. We’d accumulated several comments, which were basically what you’d expect:
+
+Jokes:
+
+>u/\[redacted\]
+
+>I died in 2008, when your mom sat on my face.
+
+Copypastas and similar:
+
+>u/\[redacted\]
+
+>I’m actually a coroner and it’s well-documented that the bodies are still “living” for moments or even minutes after they’re pronounced dead. Someone could be semi-comatose and still be able to answer how they died. The best example of this was in 2014 when Hell’s Demon threw Ghost Rider out of the ring and he flew twenty feet into the crowd!
+
+And bots.
+
+>u/\[redacted\]
+
+>That’s a great question. Many of us wonder what the afterlife holds. It’s not curiosity – it’s a quest to know your purpose.
+
+But then we saw it. One comment at the bottom, posted 3 minutes ago.
+
+>u/\[redacted\]
+
+>Car accident.
+
+Marissa grabbed the laptop from me and hit Reply. *Pics or it didn’t happen,* she began typing.
+
+“Dude, you can’t post that, everyone has AI now,” I said.
+
+“I thought they didn’t allow you to generate gruesome images. Like a car accident.”
+
+“Yeah, but they could just do, like, a car on fire…” I sighed and grabbed the laptop from her: 
+
+>u/throwaway1122333xa
+
+>Receipts?
+
+Seconds after, the notification bell showed a red “1”. When Marissa refreshed the page, the reply appeared, with a single URL.
+
+>u/\[redacted\]
+
+>[www.kwbtv.com/2026-02-08/\[redacted\]](http://www.kwbtv.com/2026-02-08/[redacted])
+
+A local news article loaded, showing a photo of a small sedan crumpled at the base of an enormous tree. “Driver dies in early Sunday accident on 217,” I read. “It doesn’t name the victim.”
+
+“Oh, that’s clever. Finding some accident where the driver’s anonymous and just saying you’re that person,” Marissa said. “Check their post history.”
+
+I clicked, expecting the posts to be hidden. But instead, the profile was open, and it looked like the only two posts they’d made were the replies to us.
+
+“Huh, weird.” Marissa grabbed the laptop and typed:
+
+>u/throwaway1122333xa
+
+>Sorry you’re dead. What’s the afterlife like?
+
+Within a minute, they replied.
+
+>u/\[redacted\]
+
+>cold and dark.
+
+A chill went down my spine. I glanced at Marissa. She wasn’t smiling anymore either, her face lit in the blues from my computer screen. “Okay, this is stupid. This guy’s just fucking with us.”
+
+“Nonono, wait.” *So you think you’re in hell? What do you see?* I began to type. But before I could hit reply, Marissa yanked the laptop out of my hands.
+
+“No no no.” She erased my answer and wrote:
+
+>u/throwaway112345
+
+>Prove it.
+
+The reply came within seconds.
+
+>u/\[redacted\]
+
+>look out your window.
+
+Instantly, both of us turned to the window. I only saw the reflection of our faces, blue-lit and ghostly, reflecting on the glass. I ran over and, after a quick glance outside, pulled the blinds down.
+
+“Was someone out there?” Marissa whispered.
+
+“Not that I saw. Come on, that’s like the classic scary Reddit response. ‘Look behind you!’ ‘Look out your window, I’m watching you!’ You’re right. This guy’s fucking with us.”
+
+“But what if…”
+
+“We are posting on a throwaway account. There’s no way some random person on the internet could know where we live.”
+
+Her eyes went to the screen—and she paled. “They replied.”
+
+“What? What did they say?”
+
+She turned the laptop to me.
+
+>u/\[redacted\]
+
+>why did you do that?
+
+“That could mean anything,” I said.
+
+“They saw you close the blinds!”
+
+“They *did not!* Come on, even if they could somehow find us, unless they live like a mile away they couldn’t get here that fast!”
+
+“What if it’s a ghost?”
+
+“A ghost using the internet? Really?”
+
+I stared at her, chest heaving. She looked back at me, wide-eyed.
+
+“No more drinks,” I said, grabbing the bottle of whiskey and stowing it under the bed. “Come on. It’s late. We should go to sleep.”
+
+“Caroline…”
+
+“What?”
+
+She was staring at something over my shoulder.
+
+I whipped around. Through the tiny gaps in the blinds, I could see… the faint glow of red and blue lights flashing.
+
+Like a police car was stopped on my street.
+
+Like there’d been an accident.
+
+*Shit.*
+
+My heart pounded in my chest as I took a step towards the window. Then another. “Don’t look,” Marissa said in a small voice behind me.
+
+I parted the blinds—
+
+Peered out—
+
+*Nothing.*
+
+No one was there.
+
+The street was dark, completely, save for the single streetlamp. “There’s nothing there,” I said, stepping away from the window.
+
+“They replied,” Marissa said in a small voice behind me.
+
+>u/\[redacted\]
+
+>did you read the article?
+
+She clicked back to the tab, that was still on the link they’d sent. *Drivers die in early Sunday accident on 217.* She scanned the website, biting her lip.
+
+“Ignore it,” I said.
+
+“Okay.”
+
+We went out to the kitchen and drank some water. The room wasn’t spinning so fast and I felt the first waves of sobriety kick in. With it, the whole thing seemed even more stupid. Of course some troll was going to take our bait and reply to our question. Of *course.*
+
+We were just drunk enough to fall for it and scare ourselves shitless.
+
+*What about the police car lights?*
+
+*Must’ve just been a police car just driving by.*
+
+*This is a dead end street, idiot.*
+
+I tried to slow my thoughts and forget about the whole thing as we walked back to my bedroom. “Want to watch a movie?” I asked, opening the laptop.
+
+“Sure.”
+
+Then I froze.
+
+We’d left the Reddit page open. And in bright white text blazing across the screen, I saw we had five replies.
+
+>u/\[redacted\]
+
+>did you read the article?
+
+>did you read the article?
+
+>did you read the article?
+
+>did you read the article?
+
+>did you read the article?
+
+Before I could stop her, Marissa grabbed the laptop and wrote out a response.
+
+>u/throwaway112345
+
+>Yes. We read the article. We know you died in a car accident. I’m really sorry that happened to you. Please leave us alone now.
+
+“We should be ignoring them! You’re just fanning the fire!”
+
+“I want them to stop!”
+
+“And they will, *if we just ignore them!”*
+
+There was a reply waiting for us. With shaking hands, Marissa clicked it.
+
+>u/\[redacted\]
+
+>Good.
+
+“What the fuck does that mean?” she asked.
+
+I grabbed the laptop from her. Scrolled up and clicked on that stupid fucking article again. Clearly there was something wrong with it, if they wanted us to click on it so much. Viruses or a scam or something else entirely. I’d rather know now.
+
+But when the article loaded… it was different.
+
+The image wasn’t of a sedan anymore. It was a silver SUV. In fact, it looked awfully similar to… *my* SUV.
+
+“Wasn’t it a sedan before?”
+
+“I don’t know. I didn’t really look,” Marissa said.
+
+“That looks like my car.”
+
+“I guess.”
+
+I glanced at the headline. *Drivers die in early Sunday accident on 214.* The article still didn’t name a victim.
+
+I turned to Marissa. “Wait… 214? Like, a few miles from here? Did it always say that?”
+
+“No. It said 217.”
+
+A horrible feeling settled in my gut. I turned back to the laptop—
+
+Every muscle in my body froze.
+
+The headline had changed again.
+
+*Local women die in early Sunday accident on 214*
+
+I blinked—
+
+*Local women die in early Sunday accident on Morning Glory Lane*
+
+*Local women die in early Sunday home invasion—*
+
+A photo of my house, the window broken, police cars parked outside—
+
+But the article still didn’t name victims, and before it could change again I closed out of the window. Out of Reddit. Everything.
+
+And I *swear* I heard the soft rustle of footsteps outside the window, receding away from the house.
+
+\*\*\*
+
+We called the cops. There were footsteps in the mud, sure enough, leading away from the house. Not much they could do about it—there wasn’t an actual break-in, and it was too muddy for the footprints to be examined and matched.
+
+They advised us to put up security cameras and told us they’d patrol the street.
+
+I don’t think that’s the end of it, though.
+
+I keep waking up to shooting pain in my chest. And a dark red mark beneath my collarbone, about an inch long.
+
+Like I’ve been stabbed.
+
+Yes, I keep waking up to this pain at exactly 2:23 AM each morning. Each *Sunday* morning.
+
+I checked my browser history… and that was the exact time Marissa and I clicked on the link.
+
+Each week the pain gets worse. I don’t know how much longer I have. Or if it’ll never kill me, and I’ll just keep waking up to shooting pain.
+
+But I do know this.
+
+Be careful what links you click on.
+
+And don’t *ever* post a question online, asking the dead how they died.
