@@ -1,0 +1,199 @@
+I stayed at Ryan's for a couple more days, until finally, I got my shit together and left. His son, Adam, 13, was the only one who disagreed with my decision to leave.
+
+Adam claimed to have seen his own shadow and communicated with it through ASL, but the only things he'd been able to translate were incredibly hard to decipher. At first, I was frightened, but then I started losing my patience.
+
+The last thing Adam had signed was "they like it when you look at them."
+
+"Is that a bad thing or a good thing?" Ryan had asked him. But Adam's expression turned deadpan which basically meant that whatever he was talking about he certainly never stayed long enough or elected himself as volunteer to find out.
+
+Well, Ryan had clapped his hands, said "that's enough of that." And I toughened it out for as long as I could but eventually I began to miss my own bed, my own kitchen, and definitely my own shower.
+
+Both Adam and even Ryan looked wary when I got up to leave but I promised Ryan I'd call if anything weird started happening again.
+
+"But really," I said. "I'm sorry to have made such a big deal about this whole thing. I don't want you worrying about me."
+
+"It's okay to ask for things, buddy," Ryan said.
+
+"I can handle this, trust me. Thanks again." But I'd hugged him, promised to call.
+
+It was weird coming back home, for one thing, I had a lot of mail, which was to be expected after being gone for a few days. But the moment I stepped inside, the house felt *normal*. I covered my eyes and turned on the tv, prepared to put it on the lawn if it started acting strange again, but to my shock, and I hate that I even have to say that, it was fine. It felt nice to be back.
+
+That night, after a long shower, some freshly ordered pizza, some reruns of Family Guy and Ryan on speaker phone, I tried to pretend like the last few days hadn't happened. And it was starting to work. I could hardly remember that this was the same house I had just run from three days ago.
+
+"Hold on Ryan, I'm about to lose you," I was telling him after I heard the telltale beep. "My phone's about to die."
+
+"Course it is," he teased.
+
+"Shut up." I laughed. "You're the last person who gets to call anyone irresponsible."
+
+"Oh really? Because I remember when a certain some--" Ryan was still talking when the phone finally gave up and went dead. I pulled it away from my ear, my eyes locked on the black screen when my shadow appeared and I froze, dropping the phone out of my hands immediately on instinct. *Shit*
+
+What the hell was wrong with me?
+
+I leaned down to pick it up from where it had landed on the floor. In the background Peter Griffin's familiar laugh filled my ears as I looked for my damn charger, feeling insane as I held my phone screen-side down so I wouldn't have to face my reflection again.
+
+And then I realized what the hell I was doing. I got up off the ground, charger be damned and instead found my remote and turned the tv off.
+
+I waited.
+
+My reflection stared back at me.
+
+I waited some more.
+
+And of course, nothing happened. But I still, exhaled a sigh of relief. Ha! I *knew it*. I *knew* it was all just in my head.
+
+I knew I just needed a proper night's sleep--
+
+But in the black glass of my television set my silhouette raised its hand while both mine remained perfectly still.
+
+It signed: you left.
+
+*What?*
+
+I was dumbstruck. Please don't tell me this was happening *again*
+
+I had so many questions like who are you? What are you? How many of you are there? What exactly did you say to Adam? *What the hell do you want from me?*
+
+Instead I settled for: "yeah," I signed. "I left. What's it to you?"
+
+"Why? Were you scared?"
+
+"No," I huffed. "Dream on, buddy."
+
+"No?"
+
+I stared at it. "Why would I be scared? This is just weird, that's all. Obviously. So why would I stay? Who would?"
+
+I couldn't make out its expression, but it tilted its head.  "Why is this weird?" it signed.
+
+“Is that a serious question?" I asked out loud.
+
+"Did your dad do it again?"
+
+"Huh? What the hell do you know about my dad?"
+
+"Did he do it again?"
+
+"Do what?" God this thing was annoying.
+
+"Make you stop talking to me."
+
+A cold sweat broke across my brow. "What the fuck are you on about?"
+
+It wasn't easy, he signed like it was new for him, which suited me well since I was still taking ASL lessons to learn how to communicate with Adam and I was far from fluent. I still had to largely rely on Ryan sometimes for translation. But Ryan, of course, wasn't here. I thought briefly of calling him, but then thought better of it. Besides, my phone was still dead
+
+"When you were little."
+
+I shook my head. "I don’t remember that. Besides how could I talk to you when you don't even speak?"
+
+His hands motioned the word: picture. "You used to draw for me."
+
+He continued. "You were afraid of the dark."
+
+A tv glowing in the corner tugged at the back of my mind. My childhood bedroom. My father telling me to turn it off. Black crayons. A piece of paper...a shape on the wall. "You would keep me company so I wouldn't be afraid. I showed Dad the pictures I drew, but he would tell me to put them away. That they weren't making my fears any better. So I...listened until I stopped seeing you."
+
+"He was the bravest man I knew, sort of like, my hero" I explained as best I could. "I just wanted to be like him." A smile tugged at my lips.
+
+"It's okay," he signed, shrugging. "You were little."
+
+I scratched my head. "So all these years, you what? Just waited for me? Didn't you get bored?"
+
+He tilted his head. "Bored?"
+
+"Yeah," I signed. "You know, bored. What could you possibly be doing this whole time? Do you not get lonely?"
+
+It shook its head. No.
+
+I laughed, scratching the back of my head. "Huh, why? I mean, what do you do when I'm not watching tv? Or looking at my phone or my computer?"
+
+He pointed at me and signed: "watch you" like it was obvious.
+
+"Me?" I questioned. "How? That's impossible. I'm not always here, you know."
+
+My shadow signed: "you are."
+
+And I froze. "Okay, what the hell does that mean?"
+
+And then it hit me. "Can you always see me?"
+
+It nodded.
+
+"...So when I'm not home?"
+
+"You are."
+
+“No."
+
+It pointed at me.
+
+"You are always with me."  Then it pointed to itself. "And I am always with you."
+
+A chill shot down my spine. "Okay, I'm going to ask this carefully, *what* do you want from me?"
+
+I watched its hands: "friend" it signed.
+
+I shook my head. "No. Fuck no."
+
+He stared at me, but I was beginning to get overwhelmed. "Look, I'm sorry, you seem..." I tried to choose my words carefully. "*nice* but I don't want this. Ahh, no offense"
+
+It lowered its hands seemingly in defeat then raised them again. Then quite suddenly. "WHO?"
+
+"What?"
+
+"WHO IS MAKING YOU SAY NO?"
+
+"Excuse me?" I asked. "Nobody."
+
+"RYAN?"
+
+"No."
+
+"THE BOY?"
+
+"You mean Adam?"
+
+I had no idea what to do but stare.
+
+"HIM?"
+
+I knew exactly who he meant. "My father?"
+
+"YES." It nodded frantically.
+
+I raised my hands in surrender. "Listen calm down. Nobody is making *me do anything*." But it wasn't listening to me.
+
+"HE TOLD YOU I WASN'T REAL. HE MADE YOU FORGET ME. HE MADE YOU LEAVE."
+
+"No," I repeated, getting to my feet. "No." I shook my head, negating every word. "I live alone. I don’t have a wife. I don’t have kids. I have a childhood I can barely remember and a father whose approval I’ve spent most of my life trying to win. I own this house. I live two hours away from my parents who I barely see. I’ve always told myself I wanted to work for everything I had. My father's my inspiration. He worked hard for everything he had, with no help from anyone and that is what I always told myself. That maybe I stayed away from people because I like to be independent. But I know that's only bullshit." I leaned in real close to the screen.  "You and  I both know that's bullshit. Maybe I was afraid, afraid to ask for help, afraid to let people get too close to me and I think you know why. I could pretend I was ashamed. Pretend I had too much pride, but I think you and I *both* know why my life is so *empty*."
+
+My shadow did not raise his hands again. It sat there. listening. I took his silence as an invitation to get my baseball bat. "I know what happens to people who are my friends. I've had to live with the consequences."
+
+I think you guys can guess what happened next: of course, I smashed that fucking tv to pieces and it felt *so good.* The screen was nothing but shards and I just stood there for a few seconds, breathing hard, waiting.
+
+But nothing moved. Nothing weird happened. No more jumping silhouette.
+
+"Three strikes." *HAHA*
+
+That night, I went to bed, slept like a rock.
+
+The next morning, I brushed my teeth and looked in the bathroom mirror, practically skipping and singing show tunes. Of course, my reflection smiled back at me.
+
+I winked. "Hello handsome," I laughed as I admired myself. Then I gave myself the bird. "And fuck you."
+
+I even lingered a little longer than necessary just to check. But nothing out of the ordinary. So far, so great.
+
+I walked out the door feeling like a brand new man.
+
+I didn’t notice my reflection was there waving goodbye.
+
+My entire world came crashing down when I got the call from my mother, I hadn't even made it halfway out the house yet. I was tempted to let it go to voicemail but my gut told me to answer. I picked up but it took a long time for her to say anything.
+
+"Mom? Are you okay?"
+
+She was crying. When she finally spoke her voice was raw and serious. I've only heard her voice like this at very few moments in my life and seeing this change in my usually cheerful mother, never failed to make me immediately uncomfortable. The last time was when I was 9 and she had to tell me my dog, Larry, "ran away" from home. "Honey..."
+
+"Yeah?" I swallowed, but it felt like my heart was in my throat.
+
+"It's your father..."
+
+[Never Turn the Tv Off](https://www.reddit.com/r/nosleep/s/kX1iXIXlnY)
