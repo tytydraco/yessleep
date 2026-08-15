@@ -1,0 +1,109 @@
+I’m going to try to tell this story in a way that’s most accurate to how I remember it. Keep in mind I will be adding some thoughts I’ve had about these events since.
+
+
+
+Hello. It’s been a couple of years since I returned from Whiteridge in the upstate. I was 18, and I had never been to the country. I had spent most of my life in New York City, specifically New Rochelle, which is a suburb of it. I had grown up in an upper-middle class household (as much as I had tried to deny it to sound tough), and my parents thought I was always coddled. So they sent me way up through the upstate to a small town called Whiteridge.
+
+
+
+Whiteridge is a pretty small town shaded by a massive forest. I believe it’s to the northwest of Lake Ontario, although I would have to check. Like any teen would, I complained, but my dad said it would toughen me up before I went out west to college.  I think they just wanted me out of the house for a summer, as it was my parent’s 20th anniversary around that time. 
+
+  
+Regardless, our contact there was an old family friend named Mark Ryan. My parents and him were neighbors in Washington D.C (we moved away when I was four, but my parents had lived there prior to my birth for 6 years). Mark was a carpenter when my parents had known him, but he moved to Whiteridge about two years after my parents left D.C to become a logger. My parents told me that these days he’s mostly retired, and produces firewood. Mark was in his early 60s, and needed something to do with his time. 
+
+
+
+The drive up there was long and sort of somber. I didn’t even have a drivers license at that time (you don’t really need one in NYC), so my dad drove me. I was angry at him for the ride up. The drive felt a lot shorter than it actually was.   
+When we arrived in Whiteridge, everything seemed so… dry. It was about 2:00, and the streets of the town were empty. I’m not sure what I expected, because it had less than 2,000 residents. I went into a Circle K to get some Nerds Gummy Clusters, and we moved on, as Mark’s place was a ways away.  
+
+
+Arriving at our final destination outside Mark’s wood cabin, my dad eagerly got out of the car, and hugged a pleasant looking Mark. I was still sulking, but I got out to meet the man. He was a little taller than me, with a head full of thick black hair, although the white was creeping up. He had a scraggly beard that saw the same whiteness as his hair. He looked rather normal, until I got to his eyes. They were blue, a pretty regular shade of blue, but what surprised me were the bags under his eyes. Huge creases had formed under them, but those weren’t enough to hide the grayness. My dad commented on this. “Haven’t been sleeping well?” Mark chuckled. “These last couple days it’s been thundering. Lucky the clouds disappeared when you two came along.” My dad smiled, and looked down at me. “Well, Cart, get used to this place. Make sure to call or text every now and then.” I said nothing. My dad said to Mark, “He’s… not always like this,” and Mark said, “Oh, I’m sure I’ll get him to open up.” My dad put his hands on his hips. “I better get going. I’ll stay longer when I pick Cart up, I promise!” and Mark said, “Don’t worry about it. You have a good one!” Dad waved goodbye, and just like that, he was off.
+
+
+
+“So, can I call you Cart?” I looked at the man. I coldly said, “Carter’ll do.” “Right, right. Sorry.” said Mark. He was trying his hardest. Looking back, I can tell I was just being an angsty teen.   
+The interior of his house was actually pretty nice. I would be sleeping upstairs, which led from some steep stairs straight into a small bedroom. A small window peeked outside to the backyard, which I saw for the first time when unloading my stuff. It was surrounded by a thick forest. I assumed some of the trees had been cut down for Mark’s part time job, but even so… it was so thick.   
+“Well, got any questions?” Mark said. I asked if I had to work today. “No, no. I’ll get you to work when I think you’ve settled in.” I was relieved to hear this, being as lazy as I was. 
+
+
+
+Three days passed, and not much had happened with me. I had pretty much been on my phone nonstop. Texting friends, watching Youtube or whatever. It got pretty boring. On this fourth day, I decided I wanted to do something. So, instead of working, I adventured out into the forest.   
+It was midmorning, and the sun tried its hardest to shine through the thick smog that was the leaves of these trees. The ground was rocky and slippery at times, but my shoes had a good grip, so I had no problem. I had explored some forests as a kid when visiting my grandparents, but none like this. It seemed almost untouched. I eventually got lost, but I wasn’t too worried, considering how early it was. I eventually found a hill, and tried to climb to its summit. It was tough. Time and time again, I slipped. I eventually used some rocks to my advantage to climb to the top of the summit. When I reached the top, it felt… like nothing. It’s not like I could see anything because of how many trees there were. I sighed and tried to make my way back home. 
+
+  
+At this point it was about noon. I was lost, but I was vaguely sure I went east, so I tried to return west using the sun as a compass. Walking through the trees, I felt a shudder go down my spine. I looked around. I could’ve sworn I saw a black figure. Then my head swelled. It ached a lot. I saw spots like I had just gotten up from sitting too fast, except it went on for much longer. Tons of colors clouded my vision. I shook my head nonstop. Then, just like that, it… went away. I saw a figure towering over me. At the bottom of its neck was a hole, leading into something… wonderful. I blinked, and it was gone. I hardly remembered what it looked like, as I was so disoriented. It was just a black blob that lumbered four feet above me. One thing I could remember though, was in its neck. It was colors, incomprehensible to me. I didn’t understand what about colors could make them incomprehensible, but somehow those ones were.
+
+
+
+I made it back to Mark’s cabin. I hid in my room for the rest of the day, only coming out for dinner around the fire. I was seriously freaked out. Mark could tell. “Did you have a run-in with a bear or something?” he asked. “I… this *thing* gave me a fucking *seizure*” His eyes were wide. “A thing, you say… Could you be a bit more descriptive?” I didn’t know how else to describe it. “It was big, like as tall as a tree, and completely dark, except for a spot on its neck…” A lightbulb lit in Mark’s brain at the moment, I could tell.
+
+  
+“There was a legend from colonial times (so we’re talking hundreds of years ago) about a creature up here. Supposedly, a Dutch explorer got lost all the way up here. He never returned. Legend has it that he encountered the same thing you’re talking about. It’s called the Boxman. 
+
+  
+It’s a smaller legend, but I’ve seen my fair share of cryptid hunters come up here looking for the thing. Most don’t find it. The Boxman only shows for certain people. Why he only shows for certain people and what those people have in common, I don’t know. 
+
+  
+There’s only been one eyewitness account. Man’s name was… uhm…” He thought for a good second. “I can’t remember his name. Go and sue me. Anyway, he lived here around the late 70s. He ventured slightly outta the town and got completely lost. That’s when he met the thing.   
+He described it as being giant, the height of a small building, with a navel at the bottom of its neck a lot like how you described it, except he said there was a mesmerizing pattern. He said that it spoke a garbled mess into his head that he could remember understanding at the time, but what it actually was, he couldn’t remember. He named it ‘the boxman’ because he felt like looking into the hole in its neck was like looking into Pandora’s Box.” 
+
+  
+I was pretty freaked by this. I was always gullible, to be honest. W…what happened? Like to him?” I said, shocked. 
+
+  
+Mark leaned back. “He mighta been faking it, mighta not.” He opened his eyes more. “Are *you* faking?” I wasn’t actually sure if what he was telling me was true or not. “Anyway, I wouldn’t trust the dude. He was accused of assaulting his partner three weeks later, supposedly. Before the accusation, he was only inside. He must’ve had that poor woman tied up or something.  Went to jail a couple months for that one. He seriously messed her up too, because for each interview, she gave a different response for what happened.” I was pretty freaked out, but he smiled. “Ahhh, quit being so serious. I thought kids these days were more skeptical! With the internet and everything.” He paused. “Are you sure *you’re…*  okay?” I actually was not sure. “I, uh…” Mark patted me on the shoulder. “I gotta go into town tomorrow, anyway. I’ll get you checked up while I’m down there. For now, try to rest.”
+
+
+
+The next day was pretty boring. We went to the “downtown” of Whiteridge, where you could see the tiny suburbs and large forests even from the town square. He bought his groceries for the week which were, to my chagrin, pretty basic, organic stuff. I did still get some Nerds Gummy Clusters, though.
+
+  
+When we went down to the doctor (who’s name was Dr. Thompson), after about two hours, she couldn’t prove there was anything wrong with me. I saw that as a relief at the time, but I should’ve been more concerned. I left a lot less worried, but I’m not sure why I was so relieved. I had still seen that creature, the Boxman. At the time, I thought it was a result of a lack of sleep, or dehydration, or maybe a sickness that had gone away overnight. Whatever it was, I wasn’t worried.
+
+The day after was the day I began working. I was worried about it being hard, but I also found that I was doing nothing better, so I decided to give it a shot.   
+I had to be taught how to actually use the axe, but once I got th
+
+e hang of it, it wasn’t particularly hard. It wasn’t very hot that summer. It also was a good way to get out my anger. Putting all of your muscle into cutting a block in two was almost therapeutic.  I was initially shocked to find myself enjoying it, and that enjoyment would only increase. Hearing the sound of the wood splitting was addictive to me the same way drugs were to some of the bums I had seen in the Bronx. And yet I never thought about this.
+
+I came to work on chopping these blocks feverishly. I was in a sort of trance. I didn’t open my phone for a while. When the day was done, I could barely remember what happened during it. They flew by. Before I knew it, it was the Fourth of July. I could barely remember what had happened throughout the previous month.
+
+Mark was pretty happy at first to find that I was enjoying his passion. It devolved into a sort of worry as the days started to blend together. My memory of that time is a mush of green and brown. I started losing sleep over the chopping. When I did go to bed, it was all I could think about. My resting mind spent its energy remembering my memory of chopping. At this point, it was sort of impossible for me *to* be concerned. I was numb, in a sense.
+
+  
+He asked me plenty of times if there was something wrong. I would always give a simple answer. They always sounded apathetic, a contrast to my moody tone earlier. He would say, “okay”, but he knew something was wrong, even if from the last check-up I had, nothing appeared to be.  
+One day, I pulled an all-nighter. I was chopping wood for the whole night. He went into town, so I didn’t eat dinner or even lunch. The rhythmic chopping of the wood was like a dance to me. Countless thoughts were rushing through what remained of my consciousness, but they were all skin-deep. I wasn’t actually thinking about anything, but I was also thinking about everything at the same time.
+
+   
+I noticed the Boxman in the corner of my eyesight, but I paid him no mind. He wasn’t here to hurt me. I was simply doing my task.
+
+Eventually, my time had come. He grabbed my hand, and took me on a walk. It felt like the nights I stayed up to see the sleeping city, except this time it was for the forest. Something must’ve changed in my brain, because I can remember this one walk incredibly well. It was cold, much colder than it should be at nighttime, even in Whiteridge. Goosebumps dotted my skin, whether they were from the Boxman or the cold, I don’t know. The moonlight lit up where it could, but it was mostly pitch-black. I only knew where the Boxman was because he was holding me. I noticed his skin wasn’t completely black, but a very dark gray with scratches on it. It was leathery. Looking back, I’m not sure if what he was holding me with was a hand or not, because it didn’t feel like one. It engulfed my entire hand. It was warm and comforting, though.
+
+We walked for what felt to me like years, but I was at peace. I didn’t care how long it took. I understood the phrase “it’s the destination, not the journey” for the first time in my life. As we progressed through the forest, the trees started dying. Soon enough, they lacked any leaves. Where there was little sign of life before, there was none now. At what appeared to be the end of the forest, the Boxman stopped. He let go of me. I went forward beyond the forest to a flat plain that was filled with shallow water, like the largest puddle on the earth. He slowly came behind me. I turned around. He towered over me, once more. But when I blinked he didn’t disappear. He walked into the center of the plain where there was some sort of hatch. He began to open it.   
+Just then, a fragment of consciousness came back to me. It was curiosity. I picked away at him as he was opening the hatch. Specks of his skin flaked off to reveal the mass of colors beneath. They were so beautiful. I kept picking and kept picking. He didn’t react. He kept opening up this hatch. Water was flowing into it. The hole I was making in him now covered his entire back. The colors were so pretty…  
+I eventually stepped back to look at him. The rest of the world was an icy blue, but the colors emitting from the Boxman were anything but icy. He turned around. The skin was flaking off of him, being pulled into the air by the wind. He reached out to me. The colors flooded my eyes. The same thing as before happened to me now. They washed over my vision, and my ears heard only a whooshing sound. I could feel the Boxman laying on my back. He engulfed me, or… I engulfed him? It was hard to say. A rush of consciousness came over me, billions of emotions I hadn’t felt in months, but the most prevalent one was panic.
+
+  
+
+
+There was this kid me and my friends always used to bully in school.  
+I was one of the popular types, but I wasn’t ever the *most* popular, so I often went along with my friends and did whatever they did. In my Junior year, a freshman named Aarush came to our school. He was clearly a foreigner, as he had a thick accent. He was short, and my friends often picked on him, as they were in the same class as him. He was often in their classes, because he was an accelerated learner. Me and my friends constantly made racist jokes around him. I specifically remember grabbing him during lunch and forcing him to take a hit of weed. I don’t remember what our threat was, but it was clearly enough to get him to take a hit. The rest of the day he was really paranoid, and I think he was called up to the front office.   
+All of this is to say that we made Aarush’s life *really* difficult. We even found his address and lit some fireworks at his front door. He often skipped school in my senior year and his sophomore year. When he did come to school, he looked pretty bad. His hair was greasy and thinning around the sides. He had bags under his eyes that were yellow-ish. And never once did we think it was time to stop.  
+In February of the year I went to Whiteridge, he made an attempt on his own life.  
+He jumped off a tall building downtown. He received tons of medical aid, and he didn’t die, but he was crippled. He would never walk again.  
+He never showed up to school again.
+
+  
+
+
+I’m not exactly sure what happened to the Boxman. It’s been too short of a time to definitively say, as he’s only sighted maybe once every 5 years. I’m not sure if I killed him, absorbed him, or what.   
+In one of my dreams, I remember him coming up to me, missing the hole in his neck. He showed me a small cube. I was absorbed into it. It showed me a desolate landscape, a city with no inhabitants. It was empty. The sky was very dark gray, with scratch marks all over it, similar to the Boxman’s skin. I walked into an area that was exactly like my old home in Washington D.C. I climbed the stairs into my room, and blankly looked over the crib I slept in as a baby.
+
+Mark described how I came home that evening as sleep-walking, except my eyes were wide open. “The weird part is that when I let you in, you said ‘we are among the stars, now’, before collapsing on the ground”. He apparently took me to the hospital, which was about an hour away from Whiteridge. I woke up an hour after I was checked in there. 
+
+I had a premonition that something bad would happen to me. It’s been three years since, and so far, nothing has. The Boxman still visits me in my dreams, though. My memory has been weird ever since. College has been impossible. Some days, I lack any sort of short-term memory. I asked Mark recently if that story he told me was really true, and if so, where it came from. This is his response.
+
+“It’s true. I’m sure of that. The man’s name was Carter, just like yours, but even after all this time, I still can’t find his last name.   
+Anyway, the story is true. Each day, I remember getting it from a different place. The only way I know this is because my friends have told me that when I retell the story. Like you said to me, when I told it to you, I thought I came up with it from my imagination. Right now, I can swear your dad told me it back when we were neighbors. I think I got it that way, but to tell the truth, I’m not sure where I got it from. Maybe dementia’s getting to me, who knows.”
+
+Who knows.
+

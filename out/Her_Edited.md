@@ -1,0 +1,21 @@
+There are many benefits to being a good partner that most people don’t even realize — like having a great sleep routine with early mornings and productive days. I mean, I have to wake up before her so I can watch those dopey blue eyes open and start the day. It’s not easy, though, being this good of a partner. You have to have dedication. Especially when she’s being difficult.
+
+For example, the other day I tried being a gentleman and paid for her bar tab. Not even a thank‑you text or anything. Of course, she didn’t know it was me who paid for it, and I left her a note at her house letting her know. Then she moved back home with her friends in Oregon. It’s okay — relationships are hard sometimes, and it’s nothing a quick fake passport and ID can’t fix.
+
+See, my partner keeps me healthy and fit. She’s always so concerned about my well‑being that she’s even begun jogging! Sadly, I can’t run alongside her yet. She prefers her jogs alone and with music. That’s okay; I don’t mind trailing behind. Once she even left me her bottle of water on a bench. So sweet — and it’s so practical I take it everywhere.
+
+Lately, though, she’s been going to this really divey bar. Now, I love a nice buzz just like the next guy, but the people who come here are utter scum. Like this asshole — can’t take no for an answer and piss‑drunk. He even has the nerve to follow her to her car. Oh, shit, he’s grabbing her and throwing her into the backseat.
+
+Without hesitation, I dart over to protect my love, throwing my arms around his throat from behind as I pull him out of the car. His leather jacket is slick from the rain as he squirms. I reach my free hand down his pants and crush his balls in my grip. No mercy for this scum. I keep squeezing and pulling like I’m starting a lawnmower. He eventually stops howling when his balls are torn free, and he passes out in my arms.
+
+Then I look up and see her — not her face, but her perfectly round ass exposed to the world, hanging out of the backseat. In a trance, I step closer as the man’s body thunks to the ground, splashing me with rainwater and blood. The lighting keeps giving me glimpses of her curves showing through ripped pants and panties, the tattered clothes wrapped around her hips and trembling legs.
+
+I stand where he stood and let my hands rest on her hips. I almost take her right there in the backseat.
+
+“Nope!” she says, smacking my hands away playfully and kicking me backward onto my ass as she stands above me. “You went a little extra on this one, so now you have to wait until we get home to have your fun\~.”
+
+“Anything you say, my queen,” I smirk as she steps between my legs, letting me kiss her soft thighs as a reward for being a good partner.
+
+“Good boy. I expect you home in no more than two hours; that should be plenty of time to clean up your mess and get home to me,” she says, caressing my chin before getting back into her car and heading home.
+
+I told you guys — being a good partner can be hard and takes a lot of work, but fuck me if she isn’t worth it all.
