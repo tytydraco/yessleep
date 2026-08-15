@@ -1,0 +1,37 @@
+I have always been a heavy sleeper. Like really heavy. My alarm clock has two different alarms set five minutes apart and I still usually hit snooze twice before I actually wake up. It drives my roommates crazy. But it also means I sleep through a lot. Loud noises don't bother me. Moving around in my sleep is not uncommon. Sometimes I wake up on the floor. I think it's a blessing and a curse. Mostly a blessing though because I never really worry about things like bumps in the night. That is until I got a new dog.
+
+  
+My new dog Barnaby is a tiny little chihuahua pug mix. He's a rescue. He's also terrified of everything. Every shadow every creak every car driving by outside sends him into a barking fit. He's also a total cuddle monster so he has to sleep in my bed. Which means that now I hear everything. I wake up every time he barks. And he barks a lot. So I bought a pet cam.
+
+  
+It was a pretty cheap one. Just a basic camera that connects to my phone. I figured I would just use it to see what he was barking at and then I would be able to sleep through it. I set it up on my nightstand. It's a pretty small camera. It just sits there and records. I can check it whenever I want. I figured it would mostly show me Barnaby sleeping or occasionally barking at nothing. I was wrong.
+
+  
+The first few nights were normal. Barnaby would bark at the door. He'd bark at the window. He'd bark at the closet. All normal Barnaby stuff. Then I started to notice something else. He would bark at my bed. Like directly at the underside of my bed. I thought it was weird. I have a bed frame that sits pretty low to the ground. There isn't much space under there. Just enough for some dust bunnies and maybe a lost sock. I didn't think anything could actually be under there.
+
+  
+But Barnaby kept doing it. He'd bark and growl and sometimes he'd even whimper. It was really starting to freak me out. I checked under the bed during the day. Nothing. Just the usual dust. I even got down on my hands and knees and shined a flashlight under there. Still nothing. I figured it was just Barnaby being Barnaby. Overly dramatic. But then the cam caught something.
+
+  
+It was a few nights ago. I was woken up by Barnaby barking like crazy. I looked at my phone and checked the live feed from the camera. Barnaby was standing at the foot of my bed. Barking like a maniac. He was staring directly under my bed. His fur was all bristled up. He looked genuinely terrified. I zoomed in on the feed. I couldn't see anything at first. Just the dark space under my bed. Then I saw it. A shadow.
+
+  
+It wasn't a normal shadow. It was moving. Like something was shifting around. It was too dark to make out any details. But it was definitely moving. And it was big. Too big to be a rat or a mouse. It looked like a person. Or at least something human shaped. It was just a black shape against the slightly less black background of the floor. It moved slowly. Like it was trying not to be seen. But Barnaby saw it.
+
+  
+He barked even louder. He started scratching at the floorboards. Like he was trying to get at whatever was under there. I was totally freaked out. I grabbed my phone and went to turn on my bedroom light. But then I stopped. What if it was someone? What if they were still under there? What if turning on the light would make them come out?
+
+  
+I just watched. Barnaby kept barking. The shadow kept moving. It seemed to be moving towards the head of my bed. Towards me. My heart was pounding. I wanted to scream. I wanted to run. But I couldn't move. I was frozen. Paralyzed with fear. The shadow moved closer and closer. Then it stopped. Right under where my head was resting.
+
+  
+Barnaby was still barking. But his barks were softer now. More like whimpers. He was shaking. And then the shadow slowly, deliberately, reached out. A hand. A long thin hand. It reached out from under the bed. It was pale and bony. It looked like it had long sharp nails. It reached out and touched the underside of my mattress. Just for a second. Then it retracted back into the shadows.
+
+  
+Barnaby whined. He lay down at the foot of my bed. His head on his paws. He was still shaking. I stayed awake for the rest of the night. Watching the cam. Nothing else happened. The shadow didn't come out again. But I didn't sleep a wink.
+
+  
+In the morning I got up. I felt like I hadn't slept in days. Barnaby was still curled up at the foot of my bed. He wouldn't go near the side of the bed where the hand had come out. I checked under the bed again. Still nothing. Just dust. I even moved the bed. Still nothing. I don't know what it was. I don't know who it was. But I know it was real.
+
+  
+I'm still using the pet cam. Every night I watch it. I'm waiting. Waiting for the shadow to come out again. Waiting for the hand to reach out. I haven't seen anything else yet. But Barnaby still barks at the underside of my bed sometimes. And I still can't sleep through the night. I think I'm going to get a new bed. One with no space underneath. Just in case.
