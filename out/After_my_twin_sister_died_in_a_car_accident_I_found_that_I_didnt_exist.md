@@ -1,0 +1,213 @@
+If I go to the hospital, the doctor will only increase my dosage. If I try to explain things to my parents again, they’ll just look at me with that sickening, sympathetic, sorrowful gaze that makes me want to scream until my vocal cords tear apart.
+
+Right now, I’m hiding in the closet, typing this on an old, offline laptop. Before my memories are completely wiped clean, I have to write all of this down.
+
+My name is Faith, and I have a twin sister named Grace. Just forty-two days ago, she tragically passed away in a car accident.
+
+Grace was that "perfect" girl—the exact kind of daughter my parents had always hoped for. Gentle, kind, drifting through the mundane details of life like running water, never splashing a drop. She played the cello, and her fingernails were always neatly trimmed.
+
+I was the exact opposite: a short-tempered jerk. I spent half of middle school in detention—either arguing with teachers or beating up girls who talked trash about my friends. We were like day and night, polar opposites, yet neither of us could live without the other.
+
+By any reasonable standard, she was the favored child. I don't mean anything by saying that; it was just a fact of our household, like the squeaky floorboard in the living room or how my mom always burnt the pancakes. Grace was loved in one specific way, and I was loved in another. I accepted that long ago.
+
+It was raining heavily late that night when the police officer knocked on our door. His hat was soaked through, clutched tightly against his chest. Mom passed out on the spot. I still vividly remember the heavy thud of her head hitting the hardwood floor; for a second, I thought I was going to lose two loved ones on the very same day.
+
+I knelt beside her, screaming hysterically at my dad to call an ambulance, but he just stood there numbly, staring blankly at the front door as if Grace might walk in at any second, laughing and saying it was all just a bad joke. But she would never do a thing like that. Only I would. Except for that young officer, there was no one at the door.
+
+Liam was Grace's friend—maybe her boyfriend. She never talked to me about those things. Seeing him cry so inconsolably at the funeral, I assumed it was the latter. I knew I shouldn’t blame him; the police report concluded the other driver was entirely at fault. Yet, a fierce urge screamed inside me to go up and demand answers—
+
+Why did you convince my sister to go out late at night? Why didn't you protect her? Why wasn't it you who died?
+
+But I didn't. Grace liked everything to be calm, peaceful, and according to plan. So I just gritted my teeth tightly and looked away from him. The impact of the crash was almost entirely borne by the passenger seat where Grace sat; we had to place a thick veil over her face. Standing by the casket, I gently touched her hand. It was freezing cold, like a wild sparrow frozen stiff in the winter night. On her left ring finger was a faint scar, left by a broken beaker in seventh-grade chemistry class. I saw that scar and rubbed it repeatedly with my thumb until Dad walked over, telling me softly to return to my seat for the next part of the service.
+
+Grace was truly gone.
+
+It took me more than half a month to barely come to terms with it. At least I wasn't staying up all night anymore. One morning, as I sat at the kitchen island staring blankly into a bowl of soggy, bloated cereal, mom walked in. She poured a glass of orange juice and set it down gently in front of me.
+
+"Here you go, sweetie."
+
+Her expression was soft and warm, as if she had completely forgotten what had happened.
+
+"You need to get some vitamin C, Grace."
+
+"Mom... I'm Faith."
+
+I kept my voice as soft as possible, afraid to startle her. She froze, staring at me with a hollow look in her eyes. A painful, intensely patient smile forced its way onto her haggard face.
+
+"Of course. I'm sorry, I'm just so tired."
+
+She got up to wash her teacup. Grief makes people hallucinate—everyone says so—so I didn't push it. I obediently drank the entire glass of orange juice. While she was cleaning the kitchen, I slipped out into the garage. Dad was in there, repairing his motorcycle.
+
+"Dad, look at me. Who am I?"
+
+"Faith, not now."
+
+He didn't even turn to look at me, continuing to tighten his bolts. Hearing his tone sounded normal, I finally breathed a sigh of relief. I sat down on a folding chair nearby, quietly watching him tinker with his auto tools. The smell of motor oil drifted into my nose, bringing a wave of relaxation.
+
+I told Dad what had just happened, phrasing it lightly like a "you won't believe what Mom just did" joke. He didn't laugh; instead, he became deathly serious.
+
+He gripped my shoulders and said, "You have to understand that your mother is going through a lot right now. Be a little more patient with her, okay? She’s really hurting."
+
+Be a little more patient with her. Not "don't worry, I'll go talk to her," nor "I'm sure she didn't mean it." Just you need to be more patient. As if I were the one who had done something wrong.
+
+I stared blankly at his face, suddenly finding it terribly unfamiliar. Who was this man? Was he really my father? A wave of dizziness washed over me, and the smell of motor oil made me feel like throwing up. I wrenched myself free from his grip and sprinted upstairs, locking myself in my room.
+
+A slip of the tongue works like this: it happens once, maybe twice, and then it stops. Because someone corrects it, and the person corrected feels embarrassed and adjusts, making sure it doesn't happen again. But that wasn't what was happening here.
+
+Over the course of the week, Mom kept calling me Grace. She began bringing up "when your sister was still alive" in conversations with me, as if I were the one who had died, not the other way around. Then Dad started doing it too.
+
+At first, I tried to correct them: "I'm Faith. Grace is the one who passed away." I must have repeated similar words two hundred times. Yet every single time, I got the exact same reaction—a flash of pity in their eyes, followed by a gentle, indulgent smile, the kind you give a small child who insists Santa Claus is real.
+
+"Alright, sweetheart. Alright."
+
+They never argued with me, even when I started screaming. That was actually worse for me, because in the past, whenever we disagreed, Faith and them would have a screaming match. They had never argued with Grace.
+
+You rarely realize how much of your self-identity is actually built on other people's consensus of who you are—until that consensus is ripped out from under your feet. When I looked in the mirror, I was certain I knew who I was. Yet five minutes later, Mom would call me "Grace" with absolute confidence—my sister, who had died half a month ago.
+
+I decided to stop arguing with my parents. I needed an outside witness, an uninfected bystander who hadn't been poisoned by my parents' bizarre collective delusion.
+
+So, during my next therapy session, I laid out everything that had been happening to Dr. Vance. How Mom mistook me for my sister, how Dad did the same, and how I was completely helpless against it.
+
+She listened attentively, nodding every now and then to encourage me to keep talking. Right after the session ended, however, she turned to my parents and said, "This is very common. I'll prescribe a bottle of tablets. Make sure she takes them on time, and she will get better."
+
+Mom covered her face with her hands and burst into tears. I stared stupidly at the kindly doctor; just two minutes ago she was comforting me, telling me she believed me. In the blink of an eye, I had become the crazy one. Dr. Vance reached toward her bookshelf and pulled out a thick folder.
+
+"Listen, Grace—maybe you think you're Faith, but surely you remember that every time we had a session, there was a sign-in record?"
+
+"Yes."
+
+She opened it and placed it on the desk between us, spinning it toward me. I saw the overhead fluorescent light cast a cold reflection on the plastic cover of the folder.
+
+In the signature column of every single consultation record, there was only one name written: "Grace Miller."
+
+A beautiful, slanted cursive—Grace's handwriting. My father's stiff writing was on the consent forms, and my mother's flowing script was on others. According to this folder, Grace had been receiving psychological counseling here for over a year.
+
+I could hear my own voice becoming high and shrill. I hated it, because it made me look like a lunatic desperately needing to be calmed down.
+
+"No, I didn't write this! I fucking never wrote this! You guys must have mixed up the medical records—"
+
+The rest of the words jammed in my throat because they were looking at me.
+
+Mom had lowered her hands at some point. There were no tear tracks on her face at all; her sobbing outburst moments ago felt like a figment of my imagination. Mother, Father, Dr. Vance—everyone was expressionless, staring at me without moving a muscle.
+
+−
+
+"Time for your medicine, Grace."
+
+I took the glass of water from my mother, dumped the tablets she handed me into my mouth, and opened wide to show her I had swallowed them. She looked relieved.
+
+The moment she left, I rushed into the bathroom and shoved my fingers down my throat. After a bout of retching, a few white pills floated on the surface of the water before slowly sinking to the bottom.
+
+I reached out and pressed the flush handle.  
+I had been kept under house arrest for half a month. Dr. Vance had advised them to do so, claiming I was "not quite right" and needed to be watched closely. Twice a day, Mom would bring me two small white pills in a paper cup, like serving a bedridden patient their meals. Then I would smile, drink the water, thank her, and walk into the bathroom to induce vomiting after she left.
+
+Every night, I would stare at myself in the mirror, searching for changes in my own face. I started noticing details that I couldn't tell were real or fake. When I answered my mother, my voice would unconsciously pitch half a note higher, becoming soft and apologetic—just like, well, Grace's voice.  
+I told myself it was stress. I knew trauma could twist a person in strange ways, but on certain nights, a terrifying doubt would creep in: had I failed to throw up all those pills, causing these changes?
+
+Eventually, my obedient behavior paid off. My parents relaxed their supervision, and I got my phone back.
+
+"As a sign of trust," Mom said, kissing my forehead as if rewarding a well-behaved toddler.
+
+I didn't waste the opportunity, I texted Liam.
+
+He replied almost instantly. We agreed to meet that night at a small park a few blocks away—a place he and Grace used to frequent.
+
+When the time came, I climbed out of my bedroom window and sprinted all the way to our meeting spot. Liam was already there when I arrived. Seeing me, he immediately stood up from the bench, looking anxious and timid like a child who had done something wrong.
+
+"Hi, Fa—Faith. I thought you wouldn't want to see me again... What happened?"
+
+I rushed over, threw my arms around him, and began to sob uncontrollably.
+
+Once I calmed down a bit, I recounted everything that had happened to me over those days, pouring out every detail. I thought he would look at me the way everyone else did, treating me like a mental patient. But he didn't. He bit his lip hard, waiting until I finally ran out of words before speaking.
+
+"Faith... I know you hate me because of Grace, and you probably wish I were dead. I don't mean to offend you, but... I still have to say this."
+
+Liam was deathly pale, looking like a tubercular mouse. He took a deep breath, as if summoning the courage for what he was about to say next.
+
+"Your parents... do they wish that the one who died was you?"
+
+Did they wish that the one who died was me?
+
+Liam didn't seem to notice my reaction and continued with his theory: "They wished you were the one who died, so they're trying to make you believe you're Grace. Maybe they colluded with that therapist... paper records can be faked, after all..."
+
+I couldn't help but wonder: if Grace had been the one to survive, would things have been better? Grace was so understanding; she would have comforted Mom and Dad so well after Faith died. They would have gradually forgotten the pain and returned to being a perfect family.
+
+If only they could erase the short-tempered, obnoxious Faith.
+
+"Faith? Faith, are you listening?"
+
+I snapped back to reality. Liam was looking at me with deep concern.
+
+"Don't worry, Faith. I'll help you. I promise I'll help you figure this out. No matter who it is, no one will hurt you or change you ever again... So please stop crying, okay?"
+
+Only then did I realize I was crying. I don't think I had ever experienced such a profound sense of relief in my entire life. Just one person—I only needed one single person to confirm that I truly existed, and I had found him.
+
+I managed to sneak back home before my parents noticed the open window. That night, I lay in bed with a dizzying rush of excitement, playing back the sound of Liam calling my name over and over in my mind. Faith. Faith. Of course I was Faith. I always had been.
+
+That sweet relief lasted until the next morning. I walked into the kitchen, and Mom smiled at me warmly.
+
+"Good morning, Grace."
+
+I couldn't take it anymore and screamed at the top of my lungs. I told them I knew everything. I told them Liam recognized me, that Liam knew exactly who I was, and that if they tried to force me into thinking I was Grace again, I would call the police. I would expose their true faces to everyone, I swore it.
+
+Yet they didn't panic like people whose conspiracy had been exposed. They simply exchanged a glance, then turned their eyes back to me.
+
+Mom spoke cautiously: "Grace, sweetie... Liam is dead."
+
+A laugh burst out of my throat almost instantly, because it was so utterly ridiculous. I had just met him last night! Ten hours ago, we were sitting side-by-side on a park bench. He told me he would help me and told me not to worry.
+
+Dad didn't argue with me. He pulled out his phone and pulled up a news article. A photo I knew all too well. A young man killed in a car crash. A name. Liam's name.
+
+I grabbed my own phone and searched "car accident." An identical news report appeared right before my eyes. Liam—the person who died had become Liam. I read that report over and over, and with every pass, every fiber of my being realized with terrifying clarity that the ground beneath my feet simply didn't exist.
+
+And then—this is the part I still cannot fully recall, a blank, blinding white void at the edge of my memory—my parents started telling me that story again. Except it was no longer the original version. Its details had shifted naturally, as if it had been this way all along, and I was the one who remembered it wrong.
+
+In this new version, Grace and Liam went out together that night, and the one who didn't make it back was Liam. Grace survived. It was Liam's funeral. The person whose finger was cut by the broken beaker was also Liam. There had only ever been one girl, and her name was Grace. There was no Faith. Faith didn't exist. Grace had always been an only child.
+
+−
+
+I found a memory card containing a video I recorded when I was a child. Even if all the evidence was forged, even if everyone was lying to me, modifying a ten-year-old video was virtually impossible. This was my last hope.
+
+I plugged it into an old computer and clicked play.
+
+The first thing that came through was my father's cheerful voice: "Look at the camera, girls!"
+
+On the screen appeared a little girl in a pink swimsuit, smiling radiantly at the camera. That was Grace.
+
+I held my breath, waiting for the camera to pan left. I remembered that Faith was sitting on the left side of the picnic mat back then, burying her feet in the wet sand, throwing a tantrum because she had lost her sunglasses.
+
+The camera panned left.
+
+There was nothing there. Only an empty stretch of beach and a blue picnic mat. Little Grace turned her head, looking at that empty spot of sand beside her. She scooped up a handful of sand, threw it into the empty air, and giggled.
+
+Off-camera, Mom's voice drifted in: "Honey, maybe we should take her to see Dr. Vance..."
+
+The video ended.
+
+A sense of tranquility slowly enveloped me. I could no longer feel the rage burning in my chest. I tried to fight back. I swear to God, I really tried.
+
+I've started writing in a beautiful, slanted cursive.  
+Maybe Faith was nothing more than a ghost sketched out in the mind of a lonely child—a shadow created to bear the negative emotions for Grace. Maybe after being shattered by a car accident, my brain is undergoing some belated self-repair. Erasing those memories that shouldn't exist inch by inch, deleting the delusion named "Faith." Until finally, I am poured back into Grace's body.
+
+But if that's truly the case... then who is the "me" thinking these thoughts right now?
+
+I don't know.
+
+I can feel my emotions drifting away. Those sharp, jagged thoughts are being smoothed down. The anger that drove me to type these words is slipping away like sand through my fingers.
+
+I hear Mom calling me from downstairs.
+
+"Grace? Sweetie, dinner's ready. I made your favorite tomato soup."
+
+Faith hated tomato soup. Just the smell of it made her want to throw up.
+
+But now, sitting here in the dark listening to my mother's voice, my mouth is watering. The voice sounds so warm, so comforting... and so delicious.  
+I look down at my hands on the keyboard. They are no longer trembling. My fingers relax, nails trimmed neatly.
+
+If you read this, please don't look for Faith anymore.
+
+I don't think she'll be around much longer. I can feel her dissolving, like a pinch of salt melting into warm water. It doesn't even hurt anymore. Instead, I feel... at peace.
+
+If the salt loses its saltiness, how can it be made salty again?
+
+I think I'll close this laptop now. I need to go downstairs, wash my hands, and help Mom set the table. I'm going to have the cello lesson in the afternoon.
