@@ -1,0 +1,109 @@
+**I think I’m the second coming of Christ. yes, Im serious.**
+
+Im not a very religious man to say the least, I believe God is just a figment of peoples imagination. When I was a teenager i was sent to a prestigious school that mostly made us pray everyday, I went along with it without any second thought because I thought that was whats “right”. So it came to my surprise when I started believing that I was BECOMING Jesus. Trust me, If I told this to myself a few months ago I would’ve been skeptical.
+
+I’m now a 25 year old man. My greasy black hair thats always uncut, that was probably the reason I didn’t have a girlfriend. I wasn’t buff or handsome either, I work as a cashier for a nearby Mcdonalds. most of my high school friends are now pastors and nuns. I used to think these people had some kind of psychosis, now I’m jealous that these people have more of a salary than me.
+
+So when my best friend (who is a pastor) invited me to watch a clip he filmed while performing an exorcism, I was skeptical. Though i hesitantly agreed. “This shit isnt real anyways.” I thought to myself. I didn’t wanna go, I could use this day to drink, or do something other than sit on my ass and watch something that was obviously staged.
+
+I drove over to the clergy house which he resided in. The smell of burning resin incense hit my nose, God. Brings back memories. The church was visible from the halls, the halls seemed to stretch endlessly. It was uncanny to me. A sudden creek scared me, It sounded like someone rubbing two metal pipes together. I looked behind me and It was just my friend. I quickly stuttered over to his side.
+
+I take a quick glance at him. James, handsome, kind, a man of God, everything my parents wanted me to me. He had ginger hair that glistened in the sun, green eyes that were painfully beautiful. He smiled at me and closed the door.
+
+Ive never been to his room before. It was neat, his bed was made and it smelt like cheap drugstore cologne. The wood on his floor also quietly creaked under my feet when i walked. I sat down on the edge of the sofa, like I didn’t wanna dirty it with my presence.
+
+“Just act like you’re at home, man.” He was looking for something inside his cabinet. He took out a small tape that looked like it belonged to the 90’s. He set it down on the coffee table in front of us. And pulled out two rosary.
+
+“What you’re going to see here is strictly confidential.” He looks me dead in the eyes. He was serious.
+
+I nod. “Who else am i even gonna tell?” I give him a cheeky smile. He smiled back, looking relived. He then reached into his pocket, for a second I thought he was gonna pull out a gun. I heard the clicking before I even saw it.
+
+It two matching pairs of rosary’s. 
+
+I giggle. “What is this? Friendship bracelets?”
+
+“Just- Just to keep you safe.”
+
+I tilt my head as he slides the rosary onto my hand. I play with it for a few seconds while James sets up the tape recording. 
+
+I do a double take on his room. I didn’t like his room, There was a statue of Jesus on a crucifix and a statue of Mother Mary. I feel a shiver down my spine as the video starts to load.
+
+“Testing.”
+
+“Testing.”
+
+It was James voice. Just trembling. I play with the rosary onto my arm like a fidget toy. And watch the screen come to light. There was a woman on the bed. She was strapped down, she was abnormally pale and had heavy eyebags. James comes into frame, holding a cross and holy water, there was a bible on the side table where the woman was laying. 
+
+“Our father who art in heaven..” James started chanting.
+
+I haven’t heard this prayer in a while. The last time i heard this was my high school graduation. 
+
+The woman on the bed starts squirming. “You cant have her.” Her voice sounded demonic.
+
+I felt shivers down my spine. Even though I would like to believe this is fake. It’s still scary to me, Isn’t it human nature to be afraid of the supernatural? 
+
+I feel the air getting colder. Cold sweat dripped down my face as James kept chanting prayers. The grip on the rosary tightened.
+
+As soon as I close my eyes, the rosary snaps, and the only two people in the video whipped their heads to the camera. They were smiling. James was still chanting, his eyes looked cold and murderous. The woman let out a gut wrenching high pitched scream that made my ear scream
+
+“Εσύ είσαι ο πραγματικός διάβολος.” She started screaming. I had no idea what she was saying.
+
+I look at James beside me. He had an ice cold stare, almost offended I broke the rosary. “You’re a fucking asshole. Why would you do that?” The words come out in a panic. My heart was racing. He suddenly smiled. The same smile in the video. His smiled didnt reach his eyes. It was scary, I almost slapped him out of fear.
+
+My legs were shaking, but i managed to get up and run out his dorm. It was already dark out. The same smell from earlier lingering on my voice as I fumble my way through the dark hallways.
+
+I hear a high pitched ring coming from the church. I cover my ears. I want to scream, but no noise comes out. I eventually make my way to my car, processing everything I’ve seen today.
+
+This isnt real.
+
+None of this is real. 
+
+I finally let out a sigh. The drive home was painfully quiet. My car freshener finally gives me a smell of relief. Finally something familiar to latch on.
+
+I open to the door to my two bedroom apartment. It wasn’t big with a TV like James’s room. But it was enough to live with. I flop onto my bed, not even bothering to take off my shoes. God. I have work and a checkup tomorrow. I think to myself, but it’s a Friday. I finally drift to sleep.
+
+My roommate, Ray. Wasn’t home yet. He had a good life, a nice girlfriend, family who actually loves him and a stable life. I cant believe he actually tolerates me.
+
+I wake up to the smell of metal, like blood. I try to reach down for my phone. I notice something wet on my hand “Did i fucking wet the bed?” I look at my hand. It was a red, A hole in the middle.
+
+What the fuck?
+
+I jump up and stare at the middle of my left hand. It looked like someone nailed a hole onto my hand. It was bleeding like hell, there was dried up blood on my bedsheet.
+
+I quickly stop the bleeding and wrap everything up. Even if I’m dying I would need to get my ass to work. I try to calm myself and not look at the bandage covering my hand, it doesn’t work. I can see the concerned look on their faces. I try to brush them off by saying “Its just a scratch! or “I tripped.” but none of them seemed to believe me.
+
+During my check up, My psychiatrist kept asking me how i got that bandage on my hand. I really didn’t get why these people were so concerned. It’s not their life, so they should own business. 
+
+The weird thing is, when i got home. I noticed my two feet were bleeding too, it also looked like someone hammered a nail into my feet. It doesn’t hurt to stand though, but i cant shake the nagging feeling sometimes is seriously wrong.
+
+I had a dream that night. I was in a church, the smell of old wood getting overwhelmingly thick. That wasn’t my main focus though. There was what seems to be a pentagram underneath the statue of Jesus being crucified.
+
+I look behind me. I hear the same wood floor creaking as it sounded like someone desperately was running through the halls and into the entrance of the church. It was that same woman from the video. My legs were frozen in fear. That was enough for the woman to pounce on me and start salivating. The overwhelming smell of her saliva hits my face as she stares into my eyes. My best friend, James just staring at me as she tries to take my life. “In nomine Dei nostri Satanas Luciferi excelsi!” The woman kept chanting, her voice was painfully high pitched, I heard my eardrums burst. I hear James laughing in the background.
+
+I wake up to someone shaking me. It was my roommate. He looked beyond disturbed and panicked.
+
+“Dude!” He shouted. 
+
+I was still drowsy and scared from the dream. Once i finally realized I was awake, blood spilled from forehead and onto my face. I was bleeding. I look at my hands.
+
+“Holy shit.” I audibly say. My hands were beyond wrecked. Both my hands and feet were bloodied with what looked like nails through them.
+
+It was strange. It didn’t hurt at all.
+
+“Dude- Did you do this—?” His voice was shaking. He knew about my violent tendencies.
+
+“No.” I nonchalantly say. Well, It sounded exactly like I was lying.
+
+“You need help!” He yelled and he stood up.
+
+“..No the fuck I don’t? You have no-“ I look down on my arms. Even that was bloodied.
+
+He left the room, like he couldn’t stand the sight of me. I roll my eyes as I remember his shocked expression. I have no empathy for people who “try” to fix me. Even this, I didn’t even do any of this. Why try to help?
+
+I quickly bandage myself up, the fabric of the bandages rubbing against my skin like bad glue. I pull out my shitty computer and boot it up.
+
+“Stupid thing takes 10 years to load.” 
+
+I talk to myself, looking back now, I feel like i should’ve apologized to Ray instead of acting like a prick. While it was loading, something popped up in my mind. I just cant remember. I remember St. Francis of Assisi having the same thing as me. I just cant remember what he went through or what it was exactly called.
+
+Until this day, It keeps happening. I dont know what to do but re bandage it up everyday. Maybe im the next Jesus? Lol. Someone help me, Please. I just wanna know whats wrong with me.
