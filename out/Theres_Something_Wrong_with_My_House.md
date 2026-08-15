@@ -1,0 +1,259 @@
+It all began with a house.
+
+It was a two-storey place from the 1920s, halfway up what I then considered the steepest street in Wellington. I moved in because it was cheap and because a falling-out with my old flatmates had given me a fairly urgent reason to move.
+
+There were three other people living there: a guy and two girls. They seemed nice enough. More importantly, they mostly left one another alone. I had no interest in communal dinners, flat movie nights or the particular kind of household where one person bought a board game and suddenly everyone else was expected to have a personality about it.
+
+My room was downstairs, off a small living area at the back of the house. Kahurangi, the only guy in the flat, had the room opposite mine. The neighbour’s bamboo had grown across most of the larger windows, so the whole lower floor existed in a kind of permanent green-grey dusk. Even at midday it smelled faintly of damp carpet and cold timber.
+
+My bedroom was worse. The window looked directly onto a concrete retaining wall, with the upper storey hanging over it, so very little natural light made it inside. I had a lamp on most afternoons. The room never quite warmed up.
+
+I did not know Kahurangi particularly well, and there was something mildly unnerving about sleeping a few metres away from a man significantly stronger than me in a part of the house nobody else had much reason to enter. I think most women would have registered that, even if only in the background. But he had never given me any reason to be frightened of him. He was usually at the gym or at his girlfriend’s, and when she stayed over I was mostly aware of them for less sinister reasons.
+
+I had met her a couple of times, which made hearing them have sex considerably more awkward. She was lovely. Pretty, funny, the sort of person who remembered something you had said once and asked about it again weeks later. Unfortunately, this meant that when I heard them through the wall I could picture both of them far too clearly: him pushing her onto her hands and knees, her hair falling forward, his hands on her hips. Occasionally I became jealous, which felt like an especially pathetic thing to do while sitting alone in a damp bedroom pretending not to listen.
+
+At twenty-four, I was not where I had expected to be.
+
+This was not unusual, obviously. I am aware that twenty-four is not generally considered the age by which a person should have completed everything worth doing. At the time, however, I had expected more. I wanted my thesis finished, preferably published. I wanted a studio apartment in the centre of town, one of those converted places with graffiti outside, enormous windows and a mezzanine bedroom overlooking the kitchen.
+
+I had viewed one once with an ex and wanted it so badly that I nearly threw a tantrum when they said it would not work for us. Our schedules were too different. They worked nights. An open-plan apartment where the bedroom overlooked the living room was, objectively, a terrible idea.
+
+They were right, which made the whole thing much worse.
+
+Instead I had a dark room beneath a house, a concrete wall outside my window and a thesis that was nowhere near finished.
+
+The earliest night I can attach anything concrete to, I was sitting at my desk trying to work. The desk was too small for the number of books I insisted on keeping open at once, so several were stacked on the floor beside me and one was balanced against the wall. Beyond the window was my usual view: concrete, damp streaks, a thin strip of moss attempting to establish itself near the bottom.
+
+On my laptop was a document titled *When Something Is There: Presence, Agency and the Interpretation of Ambiguous Experience in Contemporary Supernatural Belief.* Yes, I know. I had taken a religious studies paper in my first year because a friend told me it was an easy way to pick up credits, then rather inconveniently discovered that I loved it. Not religion itself, exactly, or at least not the part people usually assumed when I told them what I studied. I was less interested in why somebody who had gone to church every Sunday since childhood might dream about Jesus. By that point, Jesus already had a name, a face and roughly two thousand years of cultural reinforcement helping him along.
+
+I was interested in what happened before that: the stupid little moments when something ordinary stopped feeling ordinary. You are lying in bed and something shifts at the edge of the room. *Something moved.* You are walking home at night and become suddenly, irrationally certain that somebody is behind you. *Someone is following me.* You step into an empty house and stop before you have consciously heard or seen anything at all. *There is something in here.*
+
+That was the part I cared about. Not belief itself, but the fraction of a second before belief, when the world stops being neutral. A noise becomes a footstep. A shadow becomes a person. Random movement acquires motive. Something meaningless becomes something with intent.
+
+My argument, at that stage, was disappointingly reasonable. Human beings are very good at detecting other human beings, including where none exist. We find faces in dark windows and figures in piles of clothes. We hear voices inside static and footsteps in pipes, walls and settling timber. Give the brain incomplete sensory information and it is remarkably willing to turn it into something social.
+
+There are sensible evolutionary reasons for this. If a bush moved beside one of our ancestors, there was very little cost in assuming something dangerous had caused it and getting out of the way. The ancestor who consistently decided it was *probably just the wind* may have enjoyed a reputation for admirable scepticism, but presumably had fewer opportunities to pass that scepticism on.
+
+So we became very good at finding intention where there might only be movement, sound or chance. Eventually, we became clever enough to give some of those mistakes names. Ghosts. Spirits. Presences. Things standing in empty rooms.
+
+That was more or less the thesis, anyway. The irony is obvious now. At the time, it wasn’t.
+
+I was finally making headway, chasing down some source or another, when Liv called.
+
+“What are you doing?”
+
+“Working.”
+
+“What are you working on?”
+
+“You know what I’m working on.”
+
+There was a pause, traffic humming behind her. Liv had a habit of calling while she walked home, partly because she claimed Wellington hills were easier if she had someone to complain to while climbing them.
+
+“Your ghost thesis?”
+
+“It’s not a ghost thesis.”
+
+I leaned back in my chair. “It’s about anomalous experience.”
+
+“That’s worse.”
+
+“It’s about how people interpret ambiguous sensory information and attribute agency to—”
+
+“You could have done something normal.”
+
+“Like what?”
+
+“The Bible.”
+
+“That famously uncomplicated subject.”
+
+“Exactly.”
+
+Her breathing was getting heavier as she climbed. “How much have you written?”
+
+“Enough.”
+
+“Eve.”
+
+“Some.”
+
+“So none.”
+
+“It means some.”
+
+“Have you eaten?”
+
+“Yes.”
+
+A pause.
+
+“What?”
+
+“Nothing.”
+
+“I have.”
+
+“What did you eat?”
+
+I looked towards the door. “That’s invasive.”
+
+“Eve.”
+
+“I’ll make something.”
+
+“Right.”
+
+“I was going to anyway.”
+
+“Sure.”
+
+She let me change the subject after that. Liv was good at that. We talked until she reached wherever she was going, and then she told me not to stay up until four in the morning reading about Victorian women vomiting ectoplasm.
+
+“It was relevant.”
+
+“Goodnight, Eve.”
+
+“Night.”
+
+After she hung up, I sat there for another minute before closing the article. Then, mostly out of spite, I made dinner.
+
+Nothing interesting. Pasta, I think, with jarred sauce and cheese grated directly over the pot because I couldn’t be bothered finding a plate. I ate in front of my laptop, washed the pot so nobody could accuse me of being one of *those* flatmates, then went upstairs to shower.
+
+The house was quiet, but not unusually so. Just weekday quiet: pipes knocking in the walls, somebody’s dryer going the house over, cars occasionally groaning their way up the hill outside. When I came back downstairs, Kahurangi’s door was open and his room dark, so I assumed he was at his girlfriend’s again.
+
+I got changed, went back to my room and tried to work for another hour or so. Eventually even I had to admit I wasn’t reading anymore. I was moving my eyes across sentences and thinking about other things.
+
+It must have been around midnight when I gave up. I was sitting cross-legged on my bed, brushing my hair, when I heard someone walk down the hallway.
+
+There were three boards outside my room that creaked when you stepped on them. I’d lived there long enough to know the sounds the house made. *Creak. Creak. Creak.* Then nothing.
+
+I kept brushing my hair. A few seconds passed.
+
+“Kahurangi?”
+
+No answer.
+
+“Hello?”
+
+Still nothing. That irritated me enough to get up.
+
+I opened my bedroom door. The hallway was empty. I looked towards the living room, then the stairs: no bathroom light under the door, no shadow on the staircase. Kahurangi’s room was still dark and empty.
+
+I checked my phone. One of the girls had mentioned she was working an overnight shift. The other had sent something to the flat chat earlier about staying at her boyfriend’s. I stood there for a moment, brush still in my hand, then went back into my room.
+
+I wasn’t frightened, which is important. I was annoyed, because I knew exactly what footsteps in an empty house meant: old timber, a drop in temperature, a damp, badly insulated house halfway up a Wellington hill. They meant I was tired and had spent the last three hours reading papers about people hearing things that weren’t there. In other words, they meant nothing.
+
+I woke up the next day feeling silly. Had I seriously let myself get spooked by an old house? Surely I shouldn’t be letting my own subject matter get to me. Mostly I was ashamed and annoyed because I hadn’t slept very well.
+
+So I did what any reasonable person would do and tried to prove myself right. I googled timber movement, old villa foundations, plumbing noises and, eventually, rodents. There were an alarming number of forum posts by people who had heard something moving in their walls and later discovered a rat the size of a small cat, which was somehow less comforting than the alternative.
+
+I read about piles shifting in Wellington soil, pipes knocking as they cooled and joists flexing with changes in humidity. Apparently, structural movement tended to produce low groans and pops, while the sharper creak of a floorboard could come from timber rubbing against a nail as it contracted.
+
+The temperature had dropped that night. The house was over a hundred years old and damp enough that I kept finding mould on things I hadn’t known could grow mould. Thermal contraction wasn’t just possible; it was boringly likely. That was what I settled on.
+
+It would have been nice if it were that easy. The problem was that once I started paying attention to the house, I kept finding things to explain.
+
+For several nights, nothing happened. No footsteps outside my room, no strange sounds I couldn’t immediately place. I slept badly once or twice, but that was hardly unusual, and after a few days I started feeling embarrassed about how much time I’d spent researching the noises old houses made.
+
+Then I started noticing the doors. The first was the linen cupboard at the top of the stairs. I came home one afternoon and found it open by about a handspan. Nothing remarkable about that: the cupboard was always overfull, and you had to give the door a proper shove to make the latch catch. Somebody had taken out a towel and failed to close it.
+
+I shut it and forgot about it. A few days later, I came home to find my bedroom door open.
+
+That irritated me more, because I was fairly sure I’d closed it. I nearly always did. There was nothing valuable in my room, but I hated the idea of people looking into it from the living area. A bedroom felt private even when there was nothing particularly private happening inside it. My washing was on the floor, my books stacked badly against the wall, my sheets never quite straight. I didn’t want any of it on display.
+
+Still, I could have forgotten. Then it was the bathroom door, then the linen cupboard again.
+
+It took nearly two weeks before I thought of it as a pattern, and even then it was a pathetic one: a door would be open when I thought I’d left it closed. There were four people living in the house. All four of us used doors. It was hardly evidence of anything except that I had become unbearably observant.
+
+I assumed one of the others was being careless. “Can you guys close the doors properly when you’re done with them?” I asked one evening in the kitchen.
+
+One of the girls looked up. “What doors?”
+
+“Bathroom. Linen cupboard. My room, sometimes.”
+
+“Why would I be in your room?”
+
+“I don’t know. I’m just saying.”
+
+“I haven’t been.”
+
+The other girl said she hadn’t either. Kahurangi barely looked up from his phone.
+
+“Wasn’t me.”
+
+Nobody was defensive. Nobody seemed particularly interested, which somehow made me feel more ridiculous for asking.
+
+“Okay,” I said. “Whatever.”
+
+The obvious explanation was that somebody was opening the doors and not remembering. People are terrible at remembering routine actions. That was practically the point of half the literature I was reading. You don’t remember locking the front door each morning; you remember that you’re generally the sort of person who locks it. Once you start asking yourself whether you definitely did something, memory becomes surprisingly accommodating.
+
+So I started checking—not ritualistically, not yet, but experimentally. Before I left for university, I closed the linen cupboard, the bathroom door and my bedroom door. I didn’t touch anybody else’s room because, even then, I had some sense of how insane that would look.
+
+Most days, everything was still closed when I got home. Then one morning, mostly because I was annoyed with myself for not trusting my own memory, I took a photograph of the hallway before I left.
+
+I felt stupid doing it. The photo showed the linen cupboard shut, the bathroom door shut and, downstairs, the edge of my bedroom door closed as well. Fine. There was my baseline.
+
+I went to university and forgot about it until I came home that evening. The linen cupboard was open.
+
+I stopped halfway up the stairs. I wasn’t frightened. If anything, I felt a small, sharp pulse of satisfaction. I pulled out my phone and checked the photograph.
+
+Closed. I zoomed in anyway: definitely closed.
+
+For the first time, I had something that wasn’t dependent on memory. A before and an after. The door had been shut when I left, and now it wasn’t. Good. Actual evidence.
+
+One of my flatmates came through the front door while I was still standing there.
+
+“Oh,” she said. “Did you find my charger?”
+
+I looked at her. “What?”
+
+“My white one. I came back at lunch because I thought I’d left it somewhere. I checked everywhere.”
+
+I glanced at the cupboard. “You opened that?”
+
+“Yeah.”
+
+“Oh.”
+
+She frowned. “Why?”
+
+“No reason.”
+
+She disappeared into her room. I stayed on the stairs for a few seconds, phone still in my hand. I should have felt relieved. Instead, I was disappointed.
+
+Turns out that was not something I should have been feeling.
+
+Looking back, I sometimes wonder whether any of this would have happened if I hadn’t been so interested in the house. If I’d shrugged at the footsteps, ignored the doors, stopped taking photographs. Sometimes I think I must have been testing something without realising it: fate, maybe, if you believe in that sort of thing. Or attention itself. Perhaps I stared at the surface of the pond for so long that eventually I convinced myself I could see ripples. Other times, I think that gives me far too much credit. Either way, I wouldn’t be disappointed for long.
+
+The first thing I genuinely couldn’t explain happened in the bathroom. It was late—not obscenely late, but late enough that I should have been asleep.
+
+I was brushing my teeth with the bathroom door open behind me because I’d stopped bothering to shut it when nobody else was home. The mirror above the basin was one of those wide, cheap rectangular ones with a thin metal frame, and if I stood slightly to the left, I could see most of the hallway reflected behind me.
+
+I was looking down when I noticed it. Not a person, exactly. Not at first. Just something in the mirror that hadn’t been there a moment before.
+
+I lifted my eyes. At the far end of the hallway, someone was standing in the dark.
+
+I couldn’t see a face. No clothes, no hair, nothing useful at all. It was only the shape that made it human: the rounded suggestion of a head, shoulders beneath it, a body narrowing into shadow.
+
+For a second, I did absolutely nothing. The toothbrush stopped in my mouth and foam slid onto my bottom lip. I remember that with absurd clarity. The figure didn’t move, and neither did I.
+
+Then I turned around. The hallway was empty.
+
+I laughed—actually laughed. One short, stupid sound, like I’d caught myself doing something embarrassing. There was nothing there. Obviously there was nothing there.
+
+I turned back to the sink. The figure was in the mirror again, closer.
+
+I spun around so fast my hip struck the basin. Nothing. The hallway was empty from one end to the other. The linen cupboard was shut, my bedroom door was shut and the stairwell beyond was dark. There was nowhere for anyone to have gone without me seeing them.
+
+I looked back at the mirror. Nothing there either.
+
+I did not investigate, which is a detail I feel the need to defend now, because people always imagine they would. They picture themselves walking slowly into the dark, checking behind doors, calling out, maybe grabbing some conveniently heavy object from a nearby table. I didn’t. I spat into the sink, grabbed my phone and keys and left.
+
+I forgot my shoes. I realised halfway down the front path, when the concrete started hurting my feet, but there was no chance I was going back inside for them. I kept going, climbed into the car barefoot and locked the doors behind me.
+
+For a while I just sat there, staring at the house through the windscreen. Nothing moved in the windows. No figure appeared behind the glass. From outside, it looked exactly as it always had: old, damp, badly insulated and completely ordinary.
+
+I started the engine and drove to Liv’s. At the time, I thought leaving was the sensible thing to do: get out of the house, get some sleep, come back in daylight and find an explanation for whatever exhaustion or trick of reflection had made me see a person standing in an empty hallway.
+
+I still thought there would be a rational explanation. That was the part I hadn’t understood yet. The figure in the mirror wasn’t the end of something; it was the beginning.
