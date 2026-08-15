@@ -1,0 +1,56 @@
+[\[Part One\]](https://www.reddit.com/r/nosleep/s/zHeDNxgVj7)
+
+Nic’s truck stayed idling in the driveway all night. By 4:00 AM, it ran out of gas, the headlights slowly dimming until I was left sitting in total darkness with a loaded shotgun across my knees.
+
+As soon as the sun cracked the horizon, I didn't call the police. In a town like Blackwood Creek, the sheriff’s grandfather was on the 1982 council calling them was just handing the ledger back to the people who owed the debt.
+
+Instead, I drove out to the old Hayes homestead.
+
+It’s been abandoned since my Uncle Mikey disappeared in '82. My dad always said the family couldn't bear to live on the land anymore, but looking at the property now, it felt intentional the overgrown brush and rotting timber looked like a perimeter fence kept up to keep people out.
+
+Behind the ruined barn, buried under three decades of dead briars and rusted tractor parts, I found a heavy cellar door. It wasn't locked. In fact, the latch was freshly oiled.
+
+I clicked on my flashlight and went down the steps. The air hit me instantly cold, thick, and smelling heavily of damp earth and decayed vegetation.
+
+At the bottom wasn't a root cellar. It was a chapel.
+
+Rough wooden pews faced a low stone altar in the center of the room. On top of the altar sat a glass jar filled with yellowed river water and a thick stack of index cards. I walked over and picked up the top card.
+
+It was a modern photograph of Nic, taken through his living room window while he was sleeping, stamped with a date from three days ago. Beneath it was my own high school senior portrait, cross-hatched in red ink with three simple words underneath:
+
+DEBT PENDING: JACKSON.
+
+I was so focused on the photo that I didn't hear the footsteps coming down the cellar stairs behind me.
+
+"You shouldn't have opened that box, kid."
+
+I spun around, leveling my flashlight. Standing at the bottom step was Mayor Vance. He wasn't wearing his suit just a stained jacket and muddy work boots, holding a rusted crowbar. He looked exhausted, the bags under his eyes deep and purple.
+
+"Where is Nic?" I demanded, my hands shaking on the flashlight handle.
+
+"Where everyone goes when the soil turns sour," Vance said softly. "The Hollow Men don't take lives, boy. They take time. They hold what's given to them until the debt is cleared. Your uncle is still out in those woods. He hasn't aged a day since 1982 because he belongs to the earth now."
+
+He stepped closer, the concrete grit crunching under his boots.  
+"In '82, your grandfather handed Michael over to save three hundred acres of corn. This year, the drought is worse. The council met last month. We tried to offer livestock, timber, cash they don't care about paper. They want the bloodline that holds the land."
+
+"My dad would never agree to this," I said.
+
+Vance gave a bitter, dry laugh that sounded like dead leaves scraping across pavement. "Who do you think signed the modern addendum in that book, kid? Your dad didn't sell you out to be cruel. He did it because forty years ago, he was supposed to be the one taken instead of Mikey. He’s just settling an old tab."
+
+Vance didn't try to fight me. He just laid the crowbar down on the altar and handed me a small, brass bell the kind teachers used to use in old one room schoolhouses.
+
+"You have until the full moon on Friday," Vance said, turning back toward the stairs. "If you ring that bell at the tree line near the old water tower, they’ll take you and give Nic back. If you don't, they take both of you, and they'll harvest the rest of your family to cover the interest."
+
+I drove home in a daze. When I pulled into my driveway, my dad’s pickup was parked out front.
+
+I walked into the house, the ledger heavy in my backpack. My dad was sitting at the kitchen table in the dark, staring at a framed photograph of him and Uncle Mikey as kids on the farm. He didn't look up when I walked in. He just kept tracing his thumb over his brother's face.
+
+"You found the book, didn't you?" he asked, his voice barely a whisper.
+
+I didn't answer. I just took the brass bell out of my coat pocket and set it heavily on the table right in front of him.
+
+He looked at the bell, then up at me, and for the first time in my life, I saw my father cry. But he didn't apologize. He just reached into his pocket, pulled out an identical brass bell, and set it next to mine.
+
+"There's two of them because they need two," he rasped. "And I'm not letting you go alone."
+
+Tonight is Thursday night, the full moon is tomorrow, and my dad is loading three rifles in the living room are we about to sacrifice ourselves, or start a war with something that can't die?
