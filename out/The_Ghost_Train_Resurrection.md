@@ -1,0 +1,325 @@
+My mother died when I was young. Her last words were "see you soon." She said it to my father, who was on his knees, balled up as though his guts were being ripped out of him. It was a terrible sight. He wouldn't speak for weeks, until one day he got up, went to the store, and picked up six brown bottles that smelled like fire. 
+
+
+
+My father was never the same after that. His lips drank more than he spoke, and he spoke often. Blaming me for the bills, my sister for killing my mother. We loved him all the same. It was mom's fault he was like that. That's what both of our young minds thought. 
+
+
+
+That was when me and my sister decided to catch mom's soul on the ghost train.
+
+
+
+The legend goes like this: On Friday nights, in the open valley, where abandoned tracks yawned across the dark woods, was a train carrying the souls of the dead out of the world and into the afterlife. 
+
+
+
+Can you imagine it? Black shadows of the dead, stirring in boiling regret, screaming and raging as the train roared through the black night and into oblivion? 
+
+
+
+Can you hear it? Their cries? Their regret, as they claw with quivering phantom hands against the ancient upholstery of that heaving mass of iron? Begging on deaf ears for another chance, another moment with the living, a chance to erase their shame or to behold justice in their lifetime. 
+
+
+
+We heard the stories, the terror in the teller's voice. But the pain of seeing our father sat drunk on the recliner, saying mom's name as he sang himself to sleep, was enough to drive us into the coldest depths of hell. 
+
+
+
+And so we waited for the train. We would get on at the last cart and find her soul somewhere in the carriages. 
+
+
+
+"What do you think mom looks like?" I asked my sister, the tall grass brushing against our shins as insects hopped through the brush like rain on a lake. 
+
+
+
+"I bet she looks like a zombie!" She said, raising her arms to spook me. 
+
+
+
+"Nuh uh. I bet she'll still have that big dent on her head."
+
+
+
+My sister whined, a sniffle starting to bubble up. "No! She's... She's gonna be beautiful! She's an angel now!" She stifled her pout at the word, as though the words were someone else's. She was an angel. I hoped so too. 
+
+
+
+We arrived at the tracks, the dead trees lining around the rails, the roots clawing beneath the tracks and raising them in odd places. Younger trees grew beneath the tracks. It looked impossible for a train to cross through it, but we believed in the legend all the same. 
+
+
+
+"Do you think she'll still have our little brother in her belly?" My sister asked. 
+
+
+
+Before I could reply, we heard it. 
+
+
+
+The train. 
+
+
+
+A great chugging echoed across the valley, and grew ever closer, roaring through the woods. In the moonlight we saw a thousand birds scurry away from their homes in the branches. 
+
+
+
+"It's here!" I yelled. 
+
+
+
+We hid by the gnarled trees, and soon we saw the train's spectral face making headway through the forest, passing through the young trees and ignoring the crooked tracks. It glided through with furious rumbling. 
+
+
+
+"Hold your breath!" Cried my sister, her voice barely rising through the loud \*chuga chuga\* of the train. You shouldn't breathe when the train passes. The train workers might see you. 
+
+
+
+We waited with arrested breath, as frigid winds pressed against our faces, the train rolling through the forest. We could hear the moans of the dead, their cries. I closed my eyes and held my sister's hand. 
+
+
+
+Soon the sound of the engine fell away, leaving behind the rolling wheels of a long train. We raised our heads and found that the tail end was close by. We stalked closer to the tracks, ready to hop on. 
+
+
+
+And we did. We caught the last carriage just in time, landing on to the deck with a great thud. We could breathe again. 
+
+
+
+"Do you have the coins?" I asked, holding on to the railing with trembling hands as the air rushed by us, whistling. 
+
+
+
+My sister fumbled through her pockets, and we hear a \*ka-chink ka-chink\*.
+
+
+
+"I snuck mom's wedding ring too." My sister whispered. She took out the golden wedding band and slipped it between her cheek and brow, wearing the ring like a monocle. That would let her see in the darkness of the first cart. No one knew what came after the first cart, but we didn't care. We were ready. 
+
+
+
+At that moment, I opened the cabin door, and was greeted by a gaping abyss. How do I begin to describe it? It was blacker than black. A deep yawning darkness that swallowed light and anything that dared wander in it. My sister shined a flashlight and revealed nothing but a dark death. Blacker than sleep and blacker than forest nights. 
+
+
+
+We went in, hands held, eyes closed, and as we stepped in, the door closed behind us. 
+
+
+
+There was no sound it that place; the darkness ate that too. No sound. Not even my own breathing. There was only the warmth of my sister's hand in mine, as she led me through that breathless corridor. 
+
+
+
+I could feel her small hand trembling. I wanted so badly to take the ring from her, take the burden of sight off her. But it was my mother's ring. Father's was deep in the river. Has been since the day mother died. 
+
+
+
+We stumbled in the dark for minutes, hearing nothing, seeing nothing. The cart was Impossibly larger than it's exterior. We continued walking, until I began hearing something. I squeeze her hand twice, letting her know what I'd heard. 
+
+
+
+Just then, she stops, and squeezes twice. I held my breath. I heard it. Wheezing. Gasping. It began with one. Soon ten, then a hundred. Soon the cart was crackling with the sound of a thousand hollow throats gasping for air for lungs that were not there. I heard one get right up to my ear, as it waited for me to breathe. 
+
+
+
+I could only hold my breath for so long, as I felt my head swirl and chest ready itself to implode, things in the dark muttering and choking all the while. I heard them, in scratchy gasps and grunts, so many of them, yet I could feel nothing on my skin but a sharp cold that seeped into my bones. 
+
+
+
+My sister's hand was squeezing mine, harder and harder. She was holding her breath too. Eventually, I let out a sharp exhale.
+
+
+
+That was when something else squeezed my arm. Hard. 
+
+
+
+I felt a cold hand wrap around my arm. It sunk long calloused fingers into my skin, and I felt my flesh pop under fingers rough and as cold as ice. 
+
+
+
+I held in my scream, as warm liquid trickled down my pants. In my hands I could feel my sister struggle, squeezing hard on my hand as she pulled me in zigzagging directions, the cold grip on my arm pulling me like an anchor. Eventually, she stands still, and I feel her reach into her pocket and throw something. 
+
+
+
+At that moment, the gasping turns to a terrifying clamber, wild with frantic desperation, as a thousand hands scrape the floor with unbearable hunger.
+
+
+
+My sister pulls on me and runs, the long, giant hand on my arm letting go and scraping after the coins. 
+
+
+
+My legs burned, my lungs ached, as we ran for what felt like forever. I could hear the things in the dark pass us by, the sound of coins flattering against wood floors, slipping through the calloused hands of a legion thousands strong. Suddenly, my sister stops and lets go of my hand. A moment later, a bright light in the shape of a door appeared before me, and I run in without a second thought. 
+
+
+
+I stumble in, falling face first, and find myself in an empty passenger cart. It was long. I could barely see the other end,  the opposite door swallowed away by distance and fog. But it was empty. 
+
+
+
+Soon enough, my sister stumbles in after me, panting. I see her face, bleeding and raw in some places, her sleeves torn by cruel hands. 
+
+
+
+"What was in there?!" I cried, as tears began to flow and my chest heaved stones. "What the heck was in there with us?!"
+
+
+
+She began crying too, shaking as she falls to her knees. She shakes her head. "It was —it was..." She began sobbing, her tears falling into great gashes on her face as she curled into a ball. "I don't wanna be here anymore..."
+
+
+
+"But we need to save mom!"
+
+
+
+"NO!" She yelled. "I hate this! I want to be with..." She stopped cold. She was about to say she wanted our dad. We both knew that wasn't true. "I want to go home."
+
+
+
+"Without mom?" The question lingered in the air as the train rumbled on, the windows on the train revealing ancient dark woods. 
+
+
+
+"Look" I told her, "we just have to get through a few more carts. Besides," I put my hands up and squared up, and threw punches in the air. "They were lucky it was dark in there. I would've eaten those freaks alive."
+
+
+
+She giggled. Smiled even. I would've gone through it all again to see that smile. One last time. 
+
+
+
+We Kept walking then, the cart completely void of anything, except leather seats and trolleys full of refreshments. As we got into the middle, we saw it. 
+
+
+
+Out of the window, we passed by our town. Little homes on the hill crawled slowly across the view as the woods began thinning out. It was midnight, and all the houses were dark, save for ours. A low hanging brick house at the edge of town, its chimney billowed out lazy smoke. We could barely make out our father standing on the lawn, arms at his hips. Maybe he was looking for us, or maybe he was gonna singing himself to sleep. The stars were beautiful. 
+
+
+
+That was when I felt it. Two hard squeezes on my hand. I held my breath immediately, but it was too late. Suddenly, the empty carriage became cold, as a heavy mist enveloped the cart. I couldn’t see past my arms. I was afraid to turn away from the window. But I do turn. I see my sister, eyes wide and afraid. She came close and whispered "Something’s watching us."
+
+
+
+I turn towards the end of the carriage, and see a something dark standing in the distance. A vacancy in the shape of a thing.
+
+
+
+Tall. Too tall. Arms too long and fingers too many and soon those fingers raced, raced through the mist and the air, black fingers, black as death, palms blue and open, open, wide open as it whizzed to my face like a bullet. 
+
+
+
+I blink, and see my sister jumped in front of me, head wrapped around by black dead fingers. 
+
+
+
+In a moment, it reels back, taking her head along with it. My sister's small body slumping down like a ragdoll, twitching and bobbing.
+
+
+
+The man disappeared.  My sister was dead. 
+
+
+
+I ran towards the thing that wasn't there. Ran to it with burning rage boiling in my chest. Boiling. Boiling. Hot and burning and painful until it condensed into tears. Kettle's whistle. I cried out until I couldn't, until it hurt to breathe. 
+
+
+
+I don’t know how long I spent curled up into a ball. But when I finally looked out the window, I could see the sky begin to light up. There was not enough time to mourn. I had to finish what we started. I kneel before my sister’s body and scrounge her pockets. I found the bottle. The one we were supposed to use on mom. Just one.
+
+
+
+I shambled across the carriage, lungs sore and throat ripped apart by terrible cries. I made my way to the other end. The carriage seemed to contract around me as the door seemed to inch closer or closer. Or maybe it was my delirium. Either way, I made it to the end of the carriage, and was met by a wooden door to the next cart. I steeled myself, desperately trying to convince myself not to turn around and get off the train.
+
+
+
+I opened the door and was greeted by a full carriage. 
+
+
+
+Men, women, children. Some dressed in work clothes, some in suits, some in nothing. All of the screaming. Moaning. The sounds of the dead. The sound of hell.
+
+
+
+“Let me out! Let me out of here!” One screamed, standing in the walkway.
+
+
+
+“My Mary, let me talk to my daughter!” Cried another.
+
+
+
+Some begged, some screamed, but most cried. Quiet, frantic sobbing as they faced the end.
+
+
+
+I walked through the carriage, cramped and wet with tears. No one seemed to pay me any mind. Their cries were deafening. It was not something my ears got used to. I ran through that torrent of grief with heavy legs, as I watched the sky through tight windows the sky being set ablaze by the early morning sun, the trees casting long black shadows like fingers. I pushed through monks and soldiers, tailors and bank tellers, each one lost in their own grief. They were restless, pacing the walkway endlessly. I think it was the waiting that made them dread it. 
+
+
+
+Eventually, I found them. My sister and my mother sat next to each other. My sister held on our mother’s pregnant belly with trembling arms, as my mother sobbed quietly, stroking her shoulder and singing to her. My sister didn’t have a head. My mother had a gaping dent on her temple.
+
+
+
+“Mom?” She looked up with terrified eyes. 
+
+  
+“Oh God.” She winced, “Oh God. Baby, you’re not supposed to be here!” She was beautiful. But there was blood on her cheeks. Blood on her head. She looked like Christ.
+
+
+
+“It’s okay mom, I’m alive!” I got by her side and held them both, the screams of the damned bellowing all the while.
+
+
+
+“Honey,” She said, stroking my hair, “you have to get out of here. It’s no place for you two.”
+
+  
+“I know mom. We came to get you.” I said, showing her the little glass bottle where I could sneak her soul into.
+
+  
+She was silent. She only hugged her daughter tighter.
+
+
+
+“I don’t want to leave.” 
+
+
+
+“Mom?”  
+  
+
+
+“There’s just… Just some things you won’t get until you’re older.”
+
+
+
+“Mom!” I yelled, “We did this for you! Look what it cost us!” In blind rage, I took my headless sister by the collar. She did not know why she was separated from her mother once more, and so she reached out frantically, her arms searching and finding only me. She wrapped her cold arms around me, and the stump of her neck arched down over my shoulder. If she had a head, she would’ve cried. She was so afraid. She wanted to be with mom again, but mom didn’t want the same.
+
+
+
+“Then take her!” Mom screamed. “I can’t go back! I can’t!” She curls into a ball and cries. I let go of my sister, whose headless body stumbled down unto our mother and held her. “Your father is a bad man. Please. Let me rest.”
+
+
+
+The window showed a red sky slowly turning blue. I didn’t have much time left. I needed to make a decision.
+
+
+
+“Mom. I -I dunno what to do.” I whimpered. “I’m scared mom.”
+
+
+
+“Oh, come here, Junebug.” She held me for a long time. Her warmth was so familiar. That’s when a great whooshing came from my right. My sister was gone, and in my mother’s hand was the bottle. She’d made the choice for me. “Remember, kid. I love you. I’m sorry for being a coward. Please understand. Please forgive your dumb mama.”
+
+
+
+At that, I was back where I first got on the train. It was morningtime. The sky was blue and the moans and screams of lost souls were replaced by gentle birdcalls. In my hand was the bottle that held my sister’s soul. All I needed to do was open it.
+
+  
+  

@@ -1,0 +1,333 @@
+A lot of people dream about having a lucid dream. Being able to control it, do whatever you want, go anywhere, be anyone. What most people don't think about are the dangers that might come with it.
+
+Until tonight, I was one of those people.
+
+I stumbled across a forum about lucid dreaming a couple of weeks ago and decided to try some of the techniques people were recommending. After a while, I came to the conclusion that it was mostly a waste of time.
+
+Waking up an hour before your alarm, going back to sleep, and repeating to yourself, *"When I start dreaming, I'll realize that I'm dreaming,"* sounded ridiculous. All it seemed to do was mess up my sleep schedule.
+
+Still, I kept doing it.
+
+The first time it worked was about a week ago.
+
+After a particularly exhausting day, I fell asleep and found myself somewhere high in the atmosphere, falling freely through the sky.
+
+I don't remember exactly when I realized I was dreaming. I just suddenly knew.
+
+And once I did, I discovered that I could control my direction and speed.
+
+I could turn wherever I wanted. I could slow down. I could accelerate.
+
+The feeling of freedom was impossible to describe.
+
+Eventually, I decided to see what would happen if I flew straight toward the ground.
+
+I hit it without a parachute and somehow didn't turn into a pancake.
+
+When I woke up the next morning, I felt unusually rested and strangely happy. For the first time, all those stupid little rituals seemed worth it.
+
+Nothing happened for the next couple of days, which honestly disappointed me a little.
+
+Then, one night, I realized I was dreaming again.
+
+This time I could run faster than the speed of sound. I spent what felt like hours running around, imagining I was racing the Flash.
+
+Everything was perfect.
+
+Until I suddenly realized that I couldn't wake up.
+
+I tried once.
+
+Nothing.
+
+I tried again.
+
+Still nothing.
+
+So instead, I decided to look around.
+
+I was on an airplane.
+
+The passengers were some of the most random people from my life. People who had never met each other were sitting side by side, laughing and having conversations as if they'd known each other for years.
+
+I stopped beside a woman and asked her:
+
+**"Do you know this is a dream?"**
+
+She stopped talking.
+
+Not immediately. First, her smile disappeared.
+
+Then she slowly looked at me.
+
+Within a few seconds, the entire plane went silent.
+
+Every passenger was looking at me.
+
+The woman's expression changed completely. Her eyes widened, her smile stretched almost to her ears, and she stared at me with a glassy, unblinking gaze.
+
+I looked around.
+
+Every single passenger had the same expression.
+
+Nobody moved.
+
+They just watched me.
+
+I slowly backed toward the exit, trying not to make any sudden movements.
+
+Their heads followed me.
+
+Some of them turned their necks at angles that should have been impossible. One man's head was almost completely turned backward, yet his eyes never left mine.
+
+I reached the exit.
+
+And I fell out of the dream.
+
+I woke up breathing heavily, with this horrible feeling of dread sitting in my chest.
+
+It scared me badly enough that I immediately started looking online to see if anyone else had experienced something similar.
+
+Apparently, it's actually pretty common.
+
+People describe telling dream characters that they're not real, only for them to stop talking, become hostile, or start behaving in completely unnatural ways.
+
+Like your brain doesn't know what it's supposed to generate once you expose the fact that you're dreaming.
+
+Like a bug in a video game.
+
+After that, I completely lost interest in lucid dreaming.
+
+Unfortunately, the habits I'd developed didn't disappear.
+
+A few nights later, my brother wouldn't let me sleep.
+
+He was sitting at his computer, hammering away at the keyboard and randomly yelling things while playing some game.
+
+Eventually I gave up.
+
+I grabbed my pillow and a blanket and went to sleep on the hard couch in the kitchen.
+
+Surprisingly, it was more comfortable than listening to him scream.
+
+I woke up to strange sounds coming from my brother's room.
+
+I couldn't sleep anyway, so I went to check.
+
+God, I wish I hadn't.
+
+When I walked into the room, it wasn't my brother standing beside his bed.
+
+It was something else.
+
+Something black as oil, with twisted proportions and limbs that seemed slightly too long.
+
+It stood beside my brother's bed, twitching constantly.
+
+The sounds it was making were the same ones I'd heard earlier.
+
+Clicks.
+
+Cracks.
+
+Like someone slowly breaking their fingers.
+
+Then it turned toward me.
+
+And that's when I saw its face.
+
+It looked like a horrible mess of human facial features placed in the wrong positions, covered in streaks of some thick black substance.
+
+And among all of it, I recognized my brother's glasses.
+
+That was when I realized the creature actually had a lot of his features.
+
+Just... wrong.
+
+I stared at it for maybe a second too long.
+
+Because suddenly it started walking toward me.
+
+Its footsteps made wet, squelching sounds.
+
+Every step was accompanied by another crack.
+
+It moved in jerky, unnatural motions, as if its bones were breaking and its joints were twisting backward with every step.
+
+I ran.
+
+I slammed the kitchen door shut and pushed the table against it.
+
+Then I just sat there, not knowing what else to do.
+
+The footsteps got louder.
+
+Closer.
+
+Closer.
+
+And then I saw its silhouette through the glass in the door.
+
+It stopped.
+
+I stared at the shadow.
+
+And then everything changed.
+
+I was lying on the couch again.
+
+The kitchen was quiet.
+
+My cat was calmly drinking water from her bowl.
+
+For a moment, I felt relieved.
+
+I closed my eyes.
+
+And suddenly realized I couldn't move.
+
+At all.
+
+I tried to lift my hand.
+
+Nothing.
+
+I tried to move my fingers.
+
+Nothing.
+
+I was lying on my side, facing the wall, so I couldn't see the kitchen door behind me.
+
+But I could hear something coming down the hallway.
+
+Click.
+
+Crack.
+
+Click.
+
+Crack.
+
+I tried to move again.
+
+Nothing.
+
+That's when I realized it.
+
+I was dreaming again.
+
+But I couldn't wake up.
+
+I couldn't move a single muscle.
+
+I could only lie there and listen.
+
+The sounds got closer.
+
+A few seconds later, I could feel that something was standing beside the couch.
+
+I couldn't see it.
+
+I could only hear its breathing.
+
+Wet.
+
+Heavy.
+
+Right behind me.
+
+Then something cold touched my side.
+
+And the next second, an unbearable pain shot through me.
+
+It bit into my side.
+
+I felt my skin tear beneath its teeth before it violently pulled away, ripping flesh from my body.
+
+I tried to scream, but only a strangled noise came out.
+
+Then it reached my stomach.
+
+I felt every movement.
+
+Something tore through me from the inside.
+
+Then it started pulling.
+
+I felt my intestines being dragged out of my body, one loop after another, long and slippery, almost like someone pulling strands of spaghetti from a bowl.
+
+The creature greedily pulled them out with its teeth.
+
+I could hear it chewing.
+
+Crunching.
+
+Slurping.
+
+I could feel myself becoming hollow.
+
+And the worst part was that the pain never stopped.
+
+I knew exactly what was happening to me.
+
+I understood every second of it.
+
+But I couldn't close my eyes.
+
+I couldn't move.
+
+I couldn't even look away.
+
+It kept eating me until I finally woke up.
+
+I shot upright on the couch, gasping for air.
+
+For several seconds, I could still feel the pain in my side.
+
+I spent a long time trying to calm myself down.
+
+Eventually, I decided to write all of this down so that maybe someone else wouldn't make the same mistake I did.
+
+Regular nightmares are bad enough.
+
+I don't think I'll ever willingly enter a lucid dream again.
+
+Looking back, I think I might have brought all of this on myself.
+
+For weeks, I had been thinking about lucid dreaming constantly. Reading about it. Trying to make it happen. Imagining what I would do once I finally gained control.
+
+Maybe my brain simply started putting all of those thoughts together.
+
+Maybe that's all it was.
+
+But there's one thing I still can't explain.
+
+I don't know exactly when I really woke up.
+
+Because after that last dream, I was lying on the kitchen couch again.
+
+My cat was still drinking from her bowl.
+
+And strange noises were coming from my brother's room.
+
+Clicks.
+
+Cracks.
+
+At first, I thought I was imagining it.
+
+Then I heard it again.
+
+I've been staring at his bedroom door for several minutes now.
+
+I don't know if I should go in.
+
+Maybe I should just lie down and try to sleep.
+
+Although...
+
+The sounds haven't stopped.
+
+And then, from my brother's room, I heard a low, disgusting voice.
+
+**"Do you know this is a dream?"**
