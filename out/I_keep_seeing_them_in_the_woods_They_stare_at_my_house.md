@@ -1,0 +1,17 @@
+Hello, I'm Tony.
+
+I really didn't know whether I should have kept this for myself or write it on here, but sure enough I chose the second option.  
+I'm a teenager like many others, there's nothing special in my life, or at least nothing worth noting. I go to school, don't have many friends (don't have any, really... I'm a bit shy. Sometimes I talk with people in my class, but we never hang out or things like that).
+
+I don't like going to school, but not because I don't like studying or learning new things. I just don't like sitting on a chair in a room full of people who spend their time there talking, arguing or just being really annoying. Sure enough, when I get home I start studying and doing my homework, and as soon as I finish with it I start doing my personal research about what I really like: I love cryptids. I love studying them, watching videos about how they first appeared in popular culture, I really love the Bigfoot and the Wendigo, and the Rake definitely accompanied me throughout my childhood.
+
+Sorry, I'm digressing. I do that when I'm nervous... and lately, I've been very nervous.  
+I don't know how to say this without sounding fake or extremely ridiculous, though I'll try and put it as bluntly as possible: I think I have cryptids living in the woods around my house. And, alright, I know it does sound ridiculous. Even to me, I love cryptids, but I have always known they were all hoaxes... just, now I'm not so sure anymore. It all started some days ago. I was just riding my bike to go to school when I heard something right of me, in the woods. I couldn't really tell what produced it, but it was clearly the sound of something moving fast. Just while I was leaving again, I hard some tree branches breaking, though I couldn't stop again, since I was late for school.  
+Again, the same thing happened the morning afterwards, and the morning after that one.  
+I eventually reached the point where I couldn't sleep because those sounds kept popping up in my mind. And it was during one of those nights I finally saw it:
+
+I didn't get a good look at it, but, man, it was tall, almost absurdly tall. And it was thin, its skin felt... smooth, shining in the moonlight. I managed to see it from the window in my bedroom, but... I think it saw me, because the only thing I saw about what it was doing was it standing still, starting back at me, with that white, oval face and those thin, black vertical lines on it (I think they are its eyes, but I'm not exactly sure yet). I couldn't move, I was terrified.  
+We looked at each other for something like ten or fifteen seconds, and then it just moved away, sprinting among the trees. I think it had pretty long limbs, if it could move so fastly.
+
+It's been almost a week now, and I can't sleep. I can't bring myself to study or pay attention in class, I don't have anything to talk about with my parents... and every night I can feel that thing staring towards me, or towards wherever I'm at.  
+I don't know why I'm writing this... maybe I just want people to know, and I keep feeling the need to know more about what's happening. Maybe I'm just going mad.

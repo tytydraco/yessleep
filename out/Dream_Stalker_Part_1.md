@@ -1,26 +1,26 @@
-Ever since I can remember, sleep has been a constant struggle. It's not like I have trouble falling asleep, it's everything after. 
+Ever since I can remember, sleep has been a constant struggle. It's not like I have trouble falling asleep, it's everything after.
 
-Nightmares, sleepwalking, hallucinations, delusions, you name it. More times than not, I wake up wrong. I won't know where I am, or I'll be convinced I'm in an unfamiliar home, that I'm in a stranger’s bed and they're sleeping beside me, that I need to leave before they see me. Sometimes I see them. 
+Nightmares, sleepwalking, hallucinations, delusions, you name it. More times than not, I wake up wrong. I won't know where I am, or I'll be convinced I'm in an unfamiliar home, that I'm in a stranger’s bed and they're sleeping beside me, that I need to leave before they see me. Sometimes I see them.
 
-It only lasts momentarily, but that doesn't stop me from bolting out of bed every once in a while. When I was young, I'd awake outside my bedroom countless times, my trailing blankets betraying the direction of my panicked escape. 
+It only lasts momentarily, but that doesn't stop me from bolting out of bed every once in a while. When I was young, I'd awake outside my bedroom countless times, my trailing blankets betraying the direction of my panicked escape.
 
-But as I grew into my teens, I adopted a new behavior. I no longer only woke mid-flight, but instead knelt on the floor beside my bed; my primal fear replaced by something more akin to primal lust. An overwhelming yet frustratingly ephemeral desire, a fleeting compulsion that only remains in memory as a fingerprint, its existence hauntingly apparent but the greater purpose and meaning entirely absent. 
+But as I grew into my teens, I adopted a new behavior. I no longer only woke mid-flight, but instead knelt on the floor beside my bed; my primal fear replaced by something more akin to primal lust. An overwhelming yet frustratingly ephemeral desire, a fleeting compulsion that only remains in memory as a fingerprint, its existence hauntingly apparent but the greater purpose and meaning entirely absent.
 
-Although bizarre in nature, I assure you, these events are merely unconscious responses to stochastic physiology. By no means are my body and mind linked in this state, for my dreams are rarely of fantasy. Quite the opposite, they frequently involve unspeakable violence. 
+Although bizarre in nature, I assure you, these events are merely unconscious responses to stochastic physiology. By no means are my body and mind linked in this state, for my dreams are rarely of fantasy. Quite the opposite, they frequently involve unspeakable violence.
 
-Bodies ripped limb from limb, crushed and decapitated, melted and burned, flayed and cannibalized, imagery too horrible to imagine, but clearly, I can. In fact, it troubles me to admit that my mind not only conjures this grotesquery, but carries it out solely through my hands. 
+Bodies ripped limb from limb, crushed and decapitated, melted and burned, flayed and cannibalized, imagery too horrible to imagine, but clearly, I can. In fact, it troubles me to admit that my mind not only conjures this grotesquery, but carries it out solely through my hands.
 
 I do not wish to perform these appalling acts; no, it's always out of mercy. Out of love. You see, the bodies never die. No matter what I do to them, they continue to suffer in their ever-increasing mutilation and decay. What choice do I have besides trying harder? Their misery must end. I am their only savior.
 
 I agree that these dreams are distressing and I truly am as disturbed as you by them, but understanding where they come from will help you grow accustomed like I have. It's not my fault; it's Adrianna’s.
 
-Adrianna and I were both 12 when we met. We were attending an enrichment program for homeschooled kids; it's basically a way to help us learn how to socialize and prepare for “real school”. 
+Adrianna and I were both 12 when we met. We were attending an enrichment program for homeschooled kids; it's basically a way to help us learn how to socialize and prepare for “real school”.
 
-When I started there, I instantly concluded that everyone was terribly off-putting and socially stunted, but as the semester went by, I realized that I was the one irreparably maladjusted. 
+When I started there, I instantly concluded that everyone was terribly off-putting and socially stunted, but as the semester went by, I realized that I was the one irreparably maladjusted.
 
-They were all able to make friends, make stupid small-talk, make little lives together, but I couldn't. I couldn't bring myself to surpass the embarrassment of playing their games, or singing their worship songs, or talking about their boring PG TV shows. 
+They were all able to make friends, make stupid small-talk, make little lives together, but I couldn't. I couldn't bring myself to surpass the embarrassment of playing their games, or singing their worship songs, or talking about their boring PG TV shows.
 
-There was one morning where a car had crashed into a tree right next to the school. No one died or anything, none of us even saw it happen; they were just cleaning up the wreckage by the time we all arrived, but everyone was so horribly shaken up over it. 
+There was one morning where a car had crashed into a tree right next to the school. No one died or anything, none of us even saw it happen; they were just cleaning up the wreckage by the time we all arrived, but everyone was so horribly shaken up over it.
 
 Pretty pathetic, honestly. I proudly told them that this crash wasn't anything special and I've seen way worse wrecks on the internet. They looked at me with what I can only describe as contempt.
 
@@ -28,61 +28,59 @@ Pretty pathetic, honestly. I proudly told them that this crash wasn't anything s
 
 “Yeah Jack, that’s really messed up”
 
-I wasn't used to being on the receiving end of judgement for once. I didn't know they were capable of it. I had nothing to say. In that awkward pause, I knew the class finally perceived the distance between us that I saw. 
+I wasn't used to being on the receiving end of judgement for once. I didn't know they were capable of it. I had nothing to say. In that awkward pause, I knew the class finally perceived the distance between us that I saw.
 
-But Adrianna didn't share their disgust. We sat together for the first time next period. Biology. The class had been told to find lab partners for a group squid dissection, and apparently we both knew I would end up alone, so she stepped in. 
+But Adrianna didn't share their disgust. We sat together for the first time next period. Biology. The class had been told to find lab partners for a group squid dissection, and apparently we both knew I would end up alone, so she stepped in.
 
-We immediately hit it off. While our weak-stomached classmates gagged and struggled with their scalpels, we had a blast deconstructing its tentacles, scooping out its brain, playing with its glassy gray eyes. We even whispered “fuck” at the same time when the smell of the squid's putrid entrails first hit the air. 
+We immediately hit it off. While our weak-stomached classmates gagged and struggled with their scalpels, we had a blast deconstructing its tentacles, scooping out its brain, playing with its glassy gray eyes. We even whispered “fuck” at the same time when the smell of the squid's putrid entrails first hit the air.
 
 We were best friends after that. We were each other's only outlet, the only safe place to swear and talk about our morbid curiosities. But as time went on, Adrianna was clearly far more well-versed.
 
-She told me about the different gore sites that she would visit online and even offered to show me, but I was too nervous to do it on a school computer. The most glaring difference between us though, was her disposition towards animals. 
+She told me about the different gore sites that she would visit online and even offered to show me, but I was too nervous to do it on a school computer. The most glaring difference between us though, was her disposition towards animals.
 
-During another dissection, the eccentric teacher thought it apt to bring in live crayfish, captured from the nearby creek earlier that morning. We were instructed to submerge them in deathly freezing water so that we would have the opportunity to dissect freshly dead organisms, but unbeknownst to our teacher, Adrianna opted to keep ours fully alive. 
+During another dissection, the eccentric teacher thought it apt to bring in live crayfish, captured from the nearby creek earlier that morning. We were instructed to submerge them in deathly freezing water so that we would have the opportunity to dissect freshly dead organisms, but unbeknownst to our teacher, Adrianna opted to keep ours fully alive.
 
-I remember how she gleefully pulled out its eyes and sliced off its legs. I remember how it convulsed in pain and terror. I don't think aquatic creatures are physically capable of this, but I can even remember the poor thing screaming. 
+I remember how she gleefully pulled out its eyes and sliced off its legs. I remember how it convulsed in pain and terror. I don't think aquatic creatures are physically capable of this, but I can even remember the poor thing screaming.
 
-I know most people don't care about insects or fish, but I do. They're animals all the same. I can't believe I let her do that. At that point, the best I could do was put it out of its misery, so I grabbed a pair of scissors and jammed it into the crayfish’s head, but crustacean brains aren't shaped like ours. 
+I know most people don't care about insects or fish, but I do. They're animals all the same. I can't believe I let her do that. At that point, the best I could do was put it out of its misery, so I grabbed a pair of scissors and jammed it into the crayfish’s head, but crustacean brains aren't shaped like ours.
 
-If I had paid attention to the lecture, I would have known how to properly target its elusive central nervous system. My method was blind and inefficient. I twisted the scissors about, desperately stabbing and slicing, resorting to liquefying the entire contents of his head, but he wouldn't die. He continued to pitifully writhe and wriggle. 
+If I had paid attention to the lecture, I would have known how to properly target its elusive central nervous system. My method was blind and inefficient. I twisted the scissors about, desperately stabbing and slicing, resorting to liquefying the entire contents of his head, but he wouldn't die. He continued to pitifully writhe and wriggle.
 
 I wish I could have saved him faster, but his suffering never ended. He lives on in my dreams, infinitely reincarnated, now disguised in human shape, draped in immortal flesh that I must destroy out of kindness and compassion.
 
-Adrianna took a very different path. She felt none of my sorrow. She took my mercy-killing as a further act of eager torture, and I was too nonconfrontational to correct her. I was less and less excited to spend time together after that; until the day things finally ended. 
+Adrianna took a very different path. She felt none of my sorrow. She took my mercy-killing as a further act of eager torture, and I was too nonconfrontational to correct her. I was less and less excited to spend time together after that; until the day things finally ended.
 
-She told me she had run over a little dog with her bike. I thought she was joking since her retelling was so light-hearted, but she was bragging. She even showed me pictures. Her tire spokes were still flecked with tufts of fur and skin. Trophies. 
+She told me she had run over a little dog with her bike. I thought she was joking since her retelling was so light-hearted, but she was bragging. She even showed me pictures. Her tire spokes were still flecked with tufts of fur and skin. Trophies.
 
-She thought I would be impressed, that every sickening detail would inspire as much glee in me as there was in her. It fills me with great shame to think about our friendship now. That such a psychopath would've ever called me a companion. 
+She thought I would be impressed, that every sickening detail would inspire as much glee in me as there was in her. It fills me with great shame to think about our friendship now. That such a psychopath would've ever called me a companion.
 
-I wish I was strong enough to stand up to her, to expose her cruel behavior, but I wasn't. My chance at heroism came and went. She stopped coming to school after that. Sometimes I wonder where Adrianna is now. Is she in jail somewhere or is she walking free? How many other helpless animals have suffered by her hand? How many people? 
+I wish I was strong enough to stand up to her, to expose her cruel behavior, but I wasn't. My chance at heroism came and went. She stopped coming to school after that. Sometimes I wonder where Adrianna is now. Is she in jail somewhere or is she walking free? How many other helpless animals have suffered by her hand? How many people?
 
 Suffice it to say, I blame Adrianna for my particularly graphic nightmares, but I only mention her here to better analyze my own disquieted psyche. She’s not the source of my unique parasomniac profile, nor is she worthy of further attention. She was merely an exacerbation of a preexisting condition. A condition which I wish to better understand and control.
 
 I am now in my late twenties and have grown generally used to my parasomnias. At this point, I find them more intriguing than anything. In fact, I've begun writing a dream journal of sorts to better study them. The hope is to establish a sufficiently strong subconscious connection and rein it in.
 
-Whenever I experience a sleep disturbance or notable dream, I write it down. The first, most salient recurrence I recorded is that essentially every night, right before falling asleep, I hear voices. Sometimes they whisper, sometimes they scream; I'm in too much of a haze to care what they say. 
+Whenever I experience a sleep disturbance or notable dream, I write it down. The first, most salient recurrence I recorded is that essentially every night, right before falling asleep, I hear voices. Sometimes they whisper, sometimes they scream; I'm in too much of a haze to care what they say.
 
-I always knew they weren't real; they're just random neuron bursts immediately preceding the sleep transition, but upon further research, they're apparently fully developed thoughts that come from the subconscious, which the conscious brain simply doesn't recognize. Could my subconscious be trying to establish an audience with me? 
+I always knew they weren't real; they're just random neuron bursts immediately preceding the sleep transition, but upon further research, they're apparently fully developed thoughts that come from the subconscious, which the conscious brain simply doesn't recognize. Could my subconscious be trying to establish an audience with me?
 
-I know this notion leaps in logic and I wouldn't be taking it seriously if it weren't for another relevant recurrence. Outside of the nightmares, I've recognized that there is, for lack of a better word, a presence that appears in many of my regular dreams. It's not exactly invisible, it's just that my brain never gives them a body. 
+I know this notion leaps in logic and I wouldn't be taking it seriously if it weren't for another relevant recurrence. Outside of the nightmares, I've recognized that there is, for lack of a better word, a presence that appears in many of my regular dreams. It's not exactly invisible, it's just that my brain never gives them a body.
 
-I know it's meant to be a person and I can always tell when they're there. Sometimes they're an active character in the story, sometimes they're off in the distance. I'm not horribly unnerved by this, I prefer the Presence to the graphic violence, which rarely overlaps. 
+I know it's meant to be a person and I can always tell when they're there. Sometimes they're an active character in the story, sometimes they're off in the distance. I'm not horribly unnerved by this, I prefer the Presence to the graphic violence, which rarely overlaps.
 
 I'm a pretty lonely person so while it might sound pathetic, I find the company comforting. I know it's a mere projection spawned from myself, but it still feels different somehow. Like a guardian angel. And as of a few weeks ago, this angel has power.
 
-I recently accepted a second job to finally chip away at the mountain of student debt I've been ignoring, so my life has become far busier and irregularly scheduled. I was warned that I would likely be getting far less sleep, but given our tumultuous relationship, I had no qualms with this. 
+I recently accepted a second job to finally chip away at the mountain of student debt I've been ignoring, so my life has become far busier and irregularly scheduled. I was warned that I would likely be getting far less sleep, but given our tumultuous relationship, I had no qualms with this.
 
-As it turns out though, irregular sleep actually enhances the frequency of parasomnia. Thankfully nothing too debilitating; stranger dreams, more sleepwalking, but the most jarring development is that I've started feeling the Presence for a time after waking. 
+As it turns out though, irregular sleep actually enhances the frequency of parasomnia. Thankfully nothing too debilitating; stranger dreams, more sleepwalking, but the most jarring development is that I've started feeling the Presence for a time after waking.
 
-It doesn't interact with me directly, but puts thoughts in my head that I know aren't mine, so I originally thought it was following a similar mechanism as my hypnagogic hallucinations. However, these waking dreams don't feel random; they always have a purpose. They've woken me after I've slept past my alarms, they've told me where to locate certain possessions I had deemed permanently lost, they've even warned me about impending trouble at work. 
+It doesn't interact with me directly, but puts thoughts in my head that I know aren't mine, so I originally thought it was following a similar mechanism as my hypnagogic hallucinations. However, these waking dreams don't feel random; they always have a purpose. They've woken me after I've slept past my alarms, they've told me where to locate certain possessions I had deemed permanently lost, they've even warned me about impending trouble at work.
 
-Hell, a few days ago, the Presence reminded me of a second cousin I was close with in childhood, and he texted me just a few moments later to catch up. We hadn't spoken in at least a decade. Can the subconscious do that? Conjure premonitions? 
+Hell, a few days ago, the Presence reminded me of a second cousin I was close with in childhood, and he texted me just a few moments later to catch up. We hadn't spoken in at least a decade. Can the subconscious do that? Conjure premonitions?
 
-I'm starting to wonder if the Presence is something more. Like an extra sense. I think I might be psychic. I have no idea how to control it, but I know how to react. If I feel nudged in a certain direction, I follow, and more times than not, it leads to success. 
+I'm starting to wonder if the Presence is something more. Like an extra sense. I think I might be psychic. I have no idea how to control it, but I know how to react. If I feel nudged in a certain direction, I follow, and more times than not, it leads to success.
 
 This morning, I awoke to the name “Olivia”. There happens to be a girl at work named Olivia. A pretty girl. A girl I'd never dream of being able to interact with until today. I think I'm going to try.
-
-
 
 She sits at her desk, oblivious to my unblinking stare from across the hall. She is indeed exceedingly attractive. But in situations like this, beauty is nothing but an acid, corroding all the confidence and charisma I felt this morning. What was I thinking? Maybe my premonition was about a different Olivia.
 
@@ -162,15 +160,15 @@ She rolls her eyes
 
 She flips me off and strolls on her merry way. I sigh in a mix of relief and exasperation. The Presence had not warned me that sports would be involved. I guess I’ll do some research on what gear I should buy before tomorrow night; hopefully it's not too expensive. Whatever I get out of this better be good. It's clearly related to Olivia, so if my hopes are right, it'll all be worth it.
 
-Thanks to my nervous excitement, the day passes quickly and I'm finally back home in bed. She’s in my dreams immediately. We face each other on a brightly-lit empty field that stretches as far as the eye can see. She's still wearing her work clothes. I, conversely, am naked. 
+Thanks to my nervous excitement, the day passes quickly and I'm finally back home in bed. She’s in my dreams immediately. We face each other on a brightly-lit empty field that stretches as far as the eye can see. She's still wearing her work clothes. I, conversely, am naked.
 
 Mary watches silently from the sideline, but I know it's the Presence in disguise. I stand frozen, completely mortified, trying to bring as little attention to myself as possible. Olivia’s eyes are closed, but she points directly at me.
 
-I slowly phase through the ground until nothing but my head remains. I am thankful for the coverage, but concerned about my apparent lack of agency. There's no time to ruminate on this, Olivia is barreling towards me at a dead sprint. 
+I slowly phase through the ground until nothing but my head remains. I am thankful for the coverage, but concerned about my apparent lack of agency. There's no time to ruminate on this, Olivia is barreling towards me at a dead sprint.
 
-She takes my head clean off with a single kick. I feel no pain and my point of view disconnects from my eyes, floating above Olivia as she deftly maneuvers my mangled head across the field towards the goal. 
+She takes my head clean off with a single kick. I feel no pain and my point of view disconnects from my eyes, floating above Olivia as she deftly maneuvers my mangled head across the field towards the goal.
 
-In the final 20 feet, she pivots on a dime and spins into some kind of crouched hook kick, oscillating my head’s trajectory into an impossible curving “S” shape. I wake up before my head enters the goal, but with skills like that, her victory was clearly uncontested. 
+In the final 20 feet, she pivots on a dime and spins into some kind of crouched hook kick, oscillating my head’s trajectory into an impossible curving “S” shape. I wake up before my head enters the goal, but with skills like that, her victory was clearly uncontested.
 
 What the hell is the Presence trying to tell me? I’ll be sure to keep my head on a swivel and, well, intact, but I don’t think it was a straight up warning. Whatever it means, I’ll definitely have an update for my dream journal tonight.
 
@@ -260,23 +258,23 @@ She narrows her eyes, but smiles
 
 “I don't know what mind games you're playing, but they're not gonna work. Let's get this shit going, so I can beat your ass”
 
-Well alright, I guess that worked. Time to get my ass beat. As we set foot on the field, the sinking sun paints the sky a brilliant crimson. It's truly a beautiful sight that I’ve never really had the time or energy to pay attention to, but this awed tranquility soon washes over with visions of blood and my team’s limbs strewn across the grass. 
+Well alright, I guess that worked. Time to get my ass beat. As we set foot on the field, the sinking sun paints the sky a brilliant crimson. It's truly a beautiful sight that I’ve never really had the time or energy to pay attention to, but this awed tranquility soon washes over with visions of blood and my team’s limbs strewn across the grass.
 
-Will I see my new companions like this tonight? Will they amount only to more invincible fodder for me to torture and destroy? It's a side effect of meeting new people I'm far too familiar with. But no, last night I didn't dream this way. In fact, the only violence committed was against me; no one else was harmed. 
+Will I see my new companions like this tonight? Will they amount only to more invincible fodder for me to torture and destroy? It's a side effect of meeting new people I'm far too familiar with. But no, last night I didn't dream this way. In fact, the only violence committed was against me; no one else was harmed.
 
-If I continue along this path, channeling my energy and focus towards Olivia, maybe I'll find freedom from these grotesque phantasms altogether. All the more motivation to follow the Presence’s guidance. 
+If I continue along this path, channeling my energy and focus towards Olivia, maybe I'll find freedom from these grotesque phantasms altogether. All the more motivation to follow the Presence’s guidance.
 
 But for this to work, I must gain Olivia's respect; so I need to focus. I take up a defensive position near the goal, trying to mirror the stance and spacing of another player next to me; I think his name is Jeremy? According to Mary, he's the next best player besides Olivia, so copying him should be advantageous.
 
-As it turns out, it doesn't matter who's second best or how close I stand to them; Olivia is truly unbeatable. We'd get close at times, but no matter what, she'd score and we wouldn't. She covered the entire field in seconds, she didn't even need her team for the most part. 
+As it turns out, it doesn't matter who's second best or how close I stand to them; Olivia is truly unbeatable. We'd get close at times, but no matter what, she'd score and we wouldn't. She covered the entire field in seconds, she didn't even need her team for the most part.
 
-Of course, this was to be expected and I do not care; I’m biding my time. Clearly my mind games did inspire something in her. Either she's being extra careful to not lose or she's trying to show off; maybe to impress me. Hopefully it's the latter. 
+Of course, this was to be expected and I do not care; I’m biding my time. Clearly my mind games did inspire something in her. Either she's being extra careful to not lose or she's trying to show off; maybe to impress me. Hopefully it's the latter.
 
-No matter, my attention snaps back to her hurtling towards me; the moment I've been waiting for has arrived. Her positioning is exactly as it was last night. I can see her imminent future perfectly. She's going to stop, spin into a crouch, and hook the ball into that mesmerizing ‘S’ pattern that'll break the laws of physics along with everyone's brain. 
+No matter, my attention snaps back to her hurtling towards me; the moment I've been waiting for has arrived. Her positioning is exactly as it was last night. I can see her imminent future perfectly. She's going to stop, spin into a crouch, and hook the ball into that mesmerizing ‘S’ pattern that'll break the laws of physics along with everyone's brain.
 
-Holy shit, the move’s real. Jeremy stands petrified in awe, but I'm ready. As the ball snakes back and forth towards the goal, time slows to a crawl. I ignore its current position, and sprint to the next point I know it will intersect. My foot connects and sends the ball careening in the opposite direction, ending its sinusoidal reign of terror. 
+Holy shit, the move’s real. Jeremy stands petrified in awe, but I'm ready. As the ball snakes back and forth towards the goal, time slows to a crawl. I ignore its current position, and sprint to the next point I know it will intersect. My foot connects and sends the ball careening in the opposite direction, ending its sinusoidal reign of terror.
 
-Olivia is stunned. Everyone is. Not enough for us to win, we lost horribly, but we all knew the true victory was mine. I had done something no one else had achieved. In that moment, the squire slew the dragon. Drinks are in order. There's a bar just across the street. Jeremy even offers to cover my beer, which I humbly accept. 
+Olivia is stunned. Everyone is. Not enough for us to win, we lost horribly, but we all knew the true victory was mine. I had done something no one else had achieved. In that moment, the squire slew the dragon. Drinks are in order. There's a bar just across the street. Jeremy even offers to cover my beer, which I humbly accept.
 
 As we walk to our respective cars, Olivia stops me. I expect her to be embarrassed or upset, but she's actually super excited.
 
@@ -334,17 +332,15 @@ As we go our separate ways, I quickly spin back around
 
 She laughs and gives a thumbs up. Nice. My past self, even from a few hours ago, would never have thought a girl like Olivia would ever react to my stupid jokes like that. She's clearly into me. I can't wait to see what's in store for me tomorrow.
 
-But first, I must traverse the dreamscape until morning. I once again stand naked upon the midnight soccer field. My body is still paralyzed, my gaze fixed forward where Olivia was previously standing. She's no longer there. I am totally alone. Nothing's happening; why am I here? 
+But first, I must traverse the dreamscape until morning. I once again stand naked upon the midnight soccer field. My body is still paralyzed, my gaze fixed forward where Olivia was previously standing. She's no longer there. I am totally alone. Nothing's happening; why am I here?
 
-I need to find a way to move or, better yet, change to another dream. I've never had luck lucid dreaming, but I've never really tried. I rarely possess the equanimity to take control, but my mind is peculiarly empty tonight; unclouded enough to sense that someone has appeared behind me. 
+I need to find a way to move or, better yet, change to another dream. I've never had luck lucid dreaming, but I've never really tried. I rarely possess the equanimity to take control, but my mind is peculiarly empty tonight; unclouded enough to sense that someone has appeared behind me.
 
-As if on cue, slender fingers begin to gently glide across my shoulders and back. They silently stroke my face and encircle my chest, their skin cold and smooth. Her breath tickles my neck; her lips softly caress my ear. I can feel her burning passion for me, her ravenous desire. I need to find a way to turn around. I need to see her, to feel her. Turn around. Please turn around... 
+As if on cue, slender fingers begin to gently glide across my shoulders and back. They silently stroke my face and encircle my chest, their skin cold and smooth. Her breath tickles my neck; her lips softly caress my ear. I can feel her burning passion for me, her ravenous desire. I need to find a way to turn around. I need to see her, to feel her. Turn around. Please turn around...
 
-I awake on the floor beside my bed, manifesting our union upon my singular flesh. With awareness returning, I catch my breath in exasperation. I hate when this happens. One would think this particular parasomnia would be enjoyable, but no, waking in the midst of such things leaves you with a greater sense of violation than fulfillment. It's your body, so you reframe the compulsion as a rational choice, but it's not, and for that time, neither is your body. 
+I awake on the floor beside my bed, manifesting our union upon my singular flesh. With awareness returning, I catch my breath in exasperation. I hate when this happens. One would think this particular parasomnia would be enjoyable, but no, waking in the midst of such things leaves you with a greater sense of violation than fulfillment. It's your body, so you reframe the compulsion as a rational choice, but it's not, and for that time, neither is your body.
 
 At least these most recent commands involved Olivia. Albeit simulated, her intimacy was far preferable to others I've unconsciously experienced. Thankfully, the rest of my night is undisturbed and I awake relatively well-rested.
-
-
 
 As I set down my coffee, Mary swivels her chair around like a Bond villain
 
@@ -398,9 +394,7 @@ I return her smirk
 
 She lazily spins back to her computer and so do I. Lunch can't come soon enough.
 
-
-
-We take the elevator together. Mary can be a bit of a wild card, but I must admit I'm far less nervous with her next to me. As the doors open, Olivia's desk comes into full view. She's just as pretty as ever. Nevermind; my confidence is entirely gone again. 
+We take the elevator together. Mary can be a bit of a wild card, but I must admit I'm far less nervous with her next to me. As the doors open, Olivia's desk comes into full view. She's just as pretty as ever. Nevermind; my confidence is entirely gone again.
 
 I need to remind myself that we've had one or two decent interactions and we're already sort of friends. I don't need to feel like an outsider anymore. As we walk up to her desk, I try to stammer out a witty greeting, but Mary has already begun exchanging pleasantries. The resulting gauche cacophony prompts Mary to kick my shin. I shut up, wincing more out of psychological pain than physical.
 
@@ -488,32 +482,34 @@ They both laugh
 
 Laughing, we say our goodbyes and go to our respective meetings.
 
-Over the following months, all our destinies remain a mystery, even mine. My parasomnias are regularly irregular and my dream journal goes relatively untouched. Despite my obvious ineptitude and internal disdain for soccer, the group readily accepts me as their own, and I can't help but form a bond passable as friendship in return. 
+Over the following months, all our destinies remain a mystery, even mine. My parasomnias are regularly irregular and my dream journal goes relatively untouched. Despite my obvious ineptitude and internal disdain for soccer, the group readily accepts me as their own, and I can't help but form a bond passable as friendship in return.
 
-The newest development is that Jeremy and some of his friends have become a permanent fixture of our lunch crew. Although they're genuinely unobnoxious people, their diversion of Olivia's attention is exceedingly annoying. I solely maintain their company so that Olivia doesn't grow accustomed to my absence. It's all a social formality really. A game. 
+The newest development is that Jeremy and some of his friends have become a permanent fixture of our lunch crew. Although they're genuinely unobnoxious people, their diversion of Olivia's attention is exceedingly annoying. I solely maintain their company so that Olivia doesn't grow accustomed to my absence. It's all a social formality really. A game.
 
-She and I both know her demurity is an act and she's just measuring me up against the other guys. A competition that was set up to fail from the start. It doesn't matter what value anyone else brings to the table, I'm literally psychic. No one can beat that. 
+She and I both know her demurity is an act and she's just measuring me up against the other guys. A competition that was set up to fail from the start. It doesn't matter what value anyone else brings to the table, I'm literally psychic. No one can beat that.
 
-Any day now, she'll get tired of playing hard to get and everything will play out how it was meant to. I know it's getting closer, we ourselves have gotten so much closer. I've even quit my second job so that I can spend more time practicing with her and Jeremy. That's one good use of the guy’s exhausting extroversion I guess. 
+Any day now, she'll get tired of playing hard to get and everything will play out how it was meant to. I know it's getting closer, we ourselves have gotten so much closer. I've even quit my second job so that I can spend more time practicing with her and Jeremy. That's one good use of the guy’s exhausting extroversion I guess.
 
-Pretty early on, he offered to hang out one-on-one to help catch me up; a stomach-churning idea that I would've immediately turned down if Olivia hadn't jumped on the idea herself. Something about “winning all the time being boring”, and “teaching a successor to follow in her footsteps sounding more exciting”. 
+Pretty early on, he offered to hang out one-on-one to help catch me up; a stomach-churning idea that I would've immediately turned down if Olivia hadn't jumped on the idea herself. Something about “winning all the time being boring”, and “teaching a successor to follow in her footsteps sounding more exciting”.
 
 Thanks Jeremy, I appreciate the opportunity to spend more time with Olivia, but I'm not sure why you decided to stick around as her TA. It would have been so much easier if he wasn't in my way all the time. I can tell how much she looks forward to our sessions; how excited she is when we walk up each night. All I can do is stay the course and await further instruction from beyond. As I sink beneath the somnolent waves tonight, I can sense the Presence rising to meet me. It appears, the time has come.
 
 The grass is cold and wet under my bare feet. Am I back on the same field? It's hard to tell. If I am, all the lights are off and the grass is severely overgrown. At least I’m clothed this time. Far off to my left, someone is crying. Crying hard. The most ungodly sobs fill my ears as I investigate. It's Mary.
 
- She's lying in a fetal ball in the grass, her whole body wracked in misery. I call her name but her screams drown out my voice. I try shaking her, but she only convulses in further distress. I step back in dismay; the noise is unbearable. I cover my ears, but it's like an audio cable’s plugged directly into my brain. It's not even in sync with her mouth anymore. 
+She's lying in a fetal ball in the grass, her whole body wracked in misery. I call her name but her screams drown out my voice. I try shaking her, but she only convulses in further distress. I step back in dismay; the noise is unbearable. I cover my ears, but it's like an audio cable’s plugged directly into my brain. It's not even in sync with her mouth anymore.
 
-I have no choice. I crush her head under my foot. Shattered teeth and viscous brain matter squelch between my toes. A teary eye punctured by fragmented skull blinks back at me. Of course it's one of these dreams. I expect her disgusting gurgling to continue as I prepare to disembowel her, but no. The moans I now hear are coming from someone elsewhere. And whoever she is, she’s not crying. 
+I have no choice. I crush her head under my foot. Shattered teeth and viscous brain matter squelch between my toes. A teary eye punctured by fragmented skull blinks back at me. Of course it's one of these dreams. I expect her disgusting gurgling to continue as I prepare to disembowel her, but no. The moans I now hear are coming from someone elsewhere. And whoever she is, she’s not crying.
 
-It's a sound I'm very familiar with imagining. A passion I yearn to witness with Olivia. It's her. Sorry Mary, I'll kill you properly later. My feet lift off the blood-stained grass and I sweep across the field in heated search. Escaping the metallic miasma of Mary's carnage, I hit a wall of yonic musk. She has to be close, like directly beneath me. I peer into the matted grass, but there's nothing. Where is she? In the ground? 
+It's a sound I'm very familiar with imagining. A passion I yearn to witness with Olivia. It's her. Sorry Mary, I'll kill you properly later. My feet lift off the blood-stained grass and I sweep across the field in heated search. Escaping the metallic miasma of Mary's carnage, I hit a wall of yonic musk. She has to be close, like directly beneath me. I peer into the matted grass, but there's nothing. Where is she? In the ground?
 
-Her intoxicating aroma emanates from the dirt. I can sense her deep within the earth; sinking further and further, but her voice remains clear. As I tear at the grass in frustration, her gasping sighs form a hellspawn chorus with Mary's returning grief-stricken wails. In the distance, her mostly-headless corpse calmly walks towards us, screaming the whole way. 
+Her intoxicating aroma emanates from the dirt. I can sense her deep within the earth; sinking further and further, but her voice remains clear. As I tear at the grass in frustration, her gasping sighs form a hellspawn chorus with Mary's returning grief-stricken wails. In the distance, her mostly-headless corpse calmly walks towards us, screaming the whole way.
 
-I'm too late. Before I know it, I'm back in the waking world. I look about my surroundings, half-expecting to be debauched on the floor, but I’m still in bed. I sigh in relief and roll over, finding myself face to face with Olivia. I sit there frozen, gazing upon her without a thought in my mind. 
+I'm too late. Before I know it, I'm back in the waking world. I look about my surroundings, half-expecting to be debauched on the floor, but I’m still in bed. I sigh in relief and roll over, finding myself face to face with Olivia. I sit there frozen, gazing upon her without a thought in my mind.
 
-Her cheeks are faintly flushed, but her eyes are closed, her face placid, her breathing soft, her body still, blankets pulled up to her bare shoulders. An invisible hand gently grasps the blanket’s edge, awaiting my command. 
+Her cheeks are faintly flushed, but her eyes are closed, her face placid, her breathing soft, her body still, blankets pulled up to her bare shoulders. An invisible hand gently grasps the blanket’s edge, awaiting my command.
 
-I nod my head and her covering is slowly drawn back, revealing her naked body. An image rivaling those of the Renaissance, but tragically lacking their timelessness, blinking out of existence in a mere second, restoring mundane reality along with the rising sun. This was no ordinary fantasy. This was a vision. A promise. A literal gift laid before me to be unwrapped. 
+I nod my head and her covering is slowly drawn back, revealing her naked body. An image rivaling those of the Renaissance, but tragically lacking their timelessness, blinking out of existence in a mere second, restoring mundane reality along with the rising sun. This was no ordinary fantasy. This was a vision. A promise. A literal gift laid before me to be unwrapped.
 
 Despite my failure, the Presence, my most dutiful servant, pulled Olivia from the earth and delivered her to me beyond the dream. Our fates are clearly sealed, and tonight is the night; I'm certain of it. I lay back with a giddy smile, wondering if Olivia’s body will be as beautiful in the real world as it was just now. I'll know within the day.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/YN2G4Wd2Li)
