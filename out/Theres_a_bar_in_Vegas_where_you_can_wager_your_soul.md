@@ -4,7 +4,7 @@ Couldn’t ask my family for any more money; they were pretty sick of the handou
 
 So I took out one last line of credit, bought a one-way ticket out West, and told myself I was going to win my life back.
 
-The flight to Vegas was six hours of stale air and screaming babies. By the time I stepped out into Nevada’s dry desert air, it felt like I’d already lost my sanity.
+The flight to Vegas was six hours of stale air and screaming babies. By the time I stepped out into Nevada’s dry desert, it felt like I’d already lost my sanity.
 
 The address on my phone led me to a strip of decrepit buildings across the street from some generic local burger joints. No neon, nor the usual overpromising signs.
 
