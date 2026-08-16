@@ -132,7 +132,9 @@ She eyed me for a moment. A gentle smile appeared on her face.
 
 "Wouldn't say no to a slice of cherry pie, if you got." She said.
 
-I nodded as I turned, almost tripping over my-stupid-smitten-self. I could sense her giggling at me at a polite volume as I went to put a wedge of cherry pie into a Styrofoam box. I brought it back and rang it up for her. As she paid she glanced at me a bit, studying my face and squinting.
+I nodded as I turned, almost tripping over my-stupid-smitten-self. I could sense her giggling at me at a polite volume as I went to put a wedge of cherry pie into a Styrofoam box. I brought it back and rang it up for her. 
+
+As she paid she glanced at me a bit, studying my face and squinting.
 
 "Okay, I definitely know you from somewhere." She insisted.
 
