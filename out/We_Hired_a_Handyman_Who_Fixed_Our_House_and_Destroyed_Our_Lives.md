@@ -128,7 +128,7 @@ Mirthfully, I tossed the clothing at his feet. Jim looked down at it for a secon
 
 The bullet I fired into the being’s chest didn’t bounce off this time. Instead, blood gushed from the wound. Jim looked up at me, his trademark smile gone, and demonic rage flickered in his eyes for a second.
 
-Then he slowly turned, shambled to his pickup truck… and drove away. Just like that, the cursed being which had threatened to dismantle what remained of my life was gone.
+Then he slowly turned, shambled to his pickup truck…and drove away. Just like that, the cursed being which had threatened to dismantle what remained of my life was gone.
 
 It’s been years since that day and I still live in that home. Far from a starter home, I plan on living out the rest of my life in it. Daryl died for this house, after all. In all this time, Jim hasn’t returned to finish me. That hasn’t stopped me from waiting on the front porch swing for him every morning, shotgun in hand—just in case.
 
