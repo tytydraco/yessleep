@@ -1,6 +1,6 @@
 Link to Part 1 - [https://www.reddit.com/r/nosleep/s/X3Esguzx1W](https://www.reddit.com/r/nosleep/s/X3Esguzx1W)
 
-I was extremely on edge for the next few days. Every time I leave the house, I feel eyes on me. I don't dare walk by the Hartleys' property anymore. *She* might be waiting there. I told both my parents to keep an eye out after the other night, for what or who I still wasn't 100% certain, but they understood my concern and went along with it. When I mentioned how I ran across Mora the other day and that it was my hunch she was the one creeping around the house, they didn't seem all that shocked.
+I was extremely on edge for the next few days. Every time I left the house, I felt eyes on me. I refused to walk anywhere near the Hartleys' property anymore. *She* might be waiting there. I told both my parents to keep an eye out after the other night, for what or who I still wasn't 100% certain, but they understood my concern and went along with it. When I mentioned how I ran across Mora that other day and that it was my hunch she was the one creeping around the house, they didn't seem all that shocked.
 
 "Yeah," my Mom said, "she has a bit of a tendency to run at large sometimes. She's always been an odd one but, in the grand scheme of things, I think she's harmless. Just let us know if you catch her out there again and we'll talk to Glen or Annette about it."
 
@@ -8,7 +8,7 @@ I thought Maybe she was right. Maybe Mora was just a weird girl who drifted a li
 
 Either way, I didn't want much to do with her. Harmless or not, she still creeped me the fuck out.
 
-Later on in the week I went into a little 50s diner called Fatso's. I had only been in a few times in my years of living in Clearwater. It's for sure dated and hasn't had a lot of upkeep over the past few decades but the "Help Wanted" sign on the door lured me in. My other options for work at this point were pretty well depleted.
+Later on that week I went into a little 50s diner called Fatso's. I had only been into it a few times in my years of living in Clearwater. It's for sure dated and hasn't had a lot of upkeep over the past few decades but the "Help Wanted" sign on the door lured me in. My other options for work at this point were pretty well depleted.
 
 The place was practically vacant aside from the middle-aged woman at the counter and a lone old man eating in a booth at the far end of the restaurant.
 
@@ -42,9 +42,9 @@ She craned her neck around to get a look out the windows. She let a very casual 
 
 "Aw, damn him." She muttered. Without hardly another thought, she barged out from behind the counter and right out the door to confront him.
 
-I watched through the glass, the muffled sounds of her belligerent tone demanding the man to move on. His face was still twisted with the same vile leer he was giving to me only moments before. He didn't seem to be even looking at the angry waitress accosting him, but right past her. Right at me.
+I watched through the glass, overhearing the muffled sounds of her belligerent tone demanding the man to move on. His face was still twisted with the same vile leer he was giving to me only moments before. He didn't seem to be even looking at the angry waitress accosting him, but right past her. Right at me.
 
-I felt my stomach sink, like it was packed with cement. Behind his mocking, rotten grin, I could sense, was an animalistic urge to slaughter me with his own bare hands. Why, I wasn't sure. I had never seen this person before in my entire life. What did he have against me.
+I felt my stomach sink, like it was packed with cement. Behind his mocking, rotten grin, I could sense, was an animalistic urge to slaughter me with his own bare hands. Why, I wasn't sure. I had never seen this person before in my entire life. What did he have against me?
 
 Finally, he turned to look at the waitress. His smile dimmed just slightly. I could make out the words she was saying clearly this time: "Go on! Move it!"
 
@@ -78,7 +78,9 @@ I joined him in glancing up into the dense thicket of branches.
 
 He shook his head, "Only what little was left of them. Ain't much." He let the gun go slack in his arms, determining the threat had likely long since vanished.
 
-I went and took a look at the remnants, myself. It managed to be even worse than what I was picturing: there were two massive splotches of crimson soaking into the earth, still wet, and white feathers strewn around every which way indicating a fierce struggle. This didn't add up to me. If this were truly the work of a predator there wouldn't be nearly this much blood pooled up in two distinct spots. Sure, there would be some but when something like a bobcat, coyote, or especially a hawk gets ahold of a chicken it's quick to make a getaway with its lunch. Whatever did this waited and practically bled them both out before leaving. Why?
+I went and took a look at the remnants, myself. It managed to be even worse than what I was picturing: there were two massive splotches of crimson soaking into the earth, still wet, and white feathers strewn around every which way indicating a fierce struggle. 
+
+This didn't add up to me. If this were truly the work of a predator there wouldn't be nearly this much blood pooled up in two distinct spots. Sure, there would be some but when something like a bobcat, coyote, or especially a hawk gets ahold of a chicken it's quick to make a getaway with its lunch. Whatever did this waited and practically bled them both out before leaving. Why?
 
 After dinner that night, I decided not to join my parents outside. Instead I went straight to my room, shut the blinds, and put on a movie. Being out there just spooked me now. Whenever I looked out into the darkness I could sense eyes on me. Prowling. Waiting. Watching my every move.  I got a hint that my parents both thought I was being a bit paranoid but I didn't care. Maybe it was somewhat true that my survival instincts, or lizard brain, or whatever you'd want to call it had been altered a bit from living in LA for close to seven years. But I sure as hell would've hated to find out if the tingling hairs on the back of my neck were right.
 
@@ -90,7 +92,7 @@ I then looked around my blackened room; shadows covered every corner. If it were
 
 Goddamn, how I wished my parents were dog people. Wouldn't have been stuck hanging in this stomach wrenching suspense if they were.
 
-Finally, I collected whatever nerve I had left and eased myself out of bed. The floorboards gave a faint creek as my feet settled on top of them. I crossed the room at the anxious pace of someone passing through a lion's den. My heart pounded. Keeping my eye on every corner, I brought myself to the light switch. I felt around for it... then I found it. I tensed up and held my breath, dreading what I was about to see, and flipped the lights on.
+Finally, I collected whatever nerve I had left and eased myself out of bed. The floorboards gave a faint creak as my feet settled on top of them. I crossed the room at the anxious pace of someone passing through a lion's den. My heart pounded. Keeping my eye on every corner, I brought myself to the light switch. I pawed around at the wall for it... then I found it. I tensed up and held my breath, dreading what I was about to see, and flipped the lights on.
 
 There was nothing. The room was just as I left it when I shut my eyes. Even though there was no one else around to witness, I felt totally humiliated. My hypervigilant mind paired with my overactive imagination had reduced me to an oversized six-year-old. Afraid of the dark... that's what I was. My breathing and heartrate began to regulate.
 
