@@ -1,0 +1,31 @@
+I am usually not one to pry into things that aren't mine, but my grandma passed recently, and my family and I had to sift through all of the stuff that she owned. Let me tell you, that lovely woman was a hoarder at heart too. Her house was old and beautiful, and it had three stories; the attic was blocked off because of how much was shoved in there. It's been nice, though, because we have such a large family; I have been able to see some of the stuff that they owned. My grandma was the second of six kids, five of which were sisters. My Great Aunt, Serah, was the oldest. I never knew much about her, none of the siblings ever really talked about her. She died when she was 21 or 22. I am not really sure. It's been really emotional going through my grandma's things. There's so much history, and unfortunately, the hoarding gene did not stop with her. Not to mention the fact that this was the house in which I grew up. I remember playing in the attic until her siblings began to pass away, because ALL of the stuff that they had went up there. She was like a mother to me, so naturally this has been quite the difficult process.
+
+So the way this came about was that my family got to the house first because we wanted to make sure that important family heirlooms were saved. We didn't want our relatives to sell anything super important and stuff like that. My grandma is from deep in Appalachia, I think Tennessee, but maybe not, so she has some really old and amazing things from then. She has some old clothes, pictures, notes, and even dolls (which I am SO taking and keeping). I was tasked with going through her old papers. There were invites, recipes, sketchbooks, and journals. I flipped through each of them and put the really important ones into a pile so that they would not get thrown away, but as I was looking through them, I found one journal that was so full that it had almost every page filled.
+
+The handwriting was old, script-y and not to mention super faded so I almost missed it but one of the pages was dated for the 1940s and I stopped to look at it but then I saw who signed it.
+
+It was my Aunt Serah.
+
+I found some really cool things in it too, like I found a family tree tucked in the back.
+
+Heres a picture of the family tree that she drew out. It just has her parents and grandparents and it doesnt have my Great Uncle Jonah on it, because he wasn't born yet, but still.
+
+(When I figure out how to put photos in I will put it here any help is appreciated on this :,))
+
+I love having a litlle more of the small amount of history that I know from this side of the family. Their names are so biblical its strange.
+
+That wasnt the only strange thing either. I have recently done some more digging on what was actually in the journal and it got real weird *real* fast. Since I clearly do not know how to attach images I typed out some of what I was talking about below. Anything I could not read I am skipping but I'll tell you where. Also, any notes I have will be in perenthesees.
+
+*" 12 October 1939*
+
+*I had another dream today. I dreamt about the tunnel and* (Illegible)*. I had to wake Selah up and search our room. It felt like she was there, like she was here. I don't trust the corners anymore, they're too dark and I can't see whats in them. I could taste the stench of that place even just from my dream. Good lord in heaven I cant stand those dreams. This one was strange. It was flashes in my head. Lots of greens and pinks. It felt humid and smelled like rot, grossly sweet. Selah was mad that I woke her up for this. I tried to tell her what was wrong but she didnt want to hear it.*
+
+*I feel like I should go back. I think if i put some food scraps in my pockets I can coaxe Esther to come out with me. She makes me feel safe. Or maybe I could bring Se* (Selah, my grandma)*, she would do anything to get Shoshannah and Shiprah off her tail.*
+
+*I have to take her to the gardens after service today either way so I might as well try and see if its even still there.*
+
+*I probably just dreamt it in the first place."*
+
+I am definitely going to be sifting through these journals. The more I read the more updates I’ll give. I want to learn as much as I can about my aunt so I will try and update soon:)
+
+Any comments/advice/anything else is welcome :)
