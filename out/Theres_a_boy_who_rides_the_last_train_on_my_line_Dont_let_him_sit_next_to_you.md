@@ -6,7 +6,7 @@ I sat on the bench to take a breather, then ate the rest of the tuna baguette I'
 
 Then I heard a train coming.
 
-I looked up at the clock. It said 1:13. Didn't the last one leave at 1:07? At least, that's what the timetable said. I glanced at the train again as it came closer - it had the right destination on the front, so I decided not to overthink it and got on.
+I looked up at the clock, and it said 1:13. Didn't the last one leave at 1:07? At least, that's what the timetable said. I glanced at the train again as it came closer - it had the right destination on the front, so I decided not to overthink it and got on.
 
 The carriage looked normal with the usual scratched floor and an advert for a solicitor's firm that does injury claims. Seats were arranged in pairs either side of the aisle. There were only four or five other passengers, all on their own and sitting spread out. I sat in an empty seat in the middle and we pulled away.
 
@@ -44,7 +44,7 @@ Who was scrolling through his phone.
 
 Then, like something following a script, the man's expression changed. His eyes widened and the colour drained from his face as he stared at the teenager like he'd seen something that shouldn't exist. I watched him scramble to his feet and press himself against the doors in exactly the same way he did the last time I saw him, then he threw himself through them and stumbled onto the platform when they opened.
 
-I couldn't believe what I'd just seen. This exact thing, twelve years later.
+My blood ran cold, and my heart started pounding. I couldn't believe what I'd just seen. This exact thing, twelve years later.
 
 As the doors began to close, my curiosity snapped me into action. I jumped to my feet and ran for the doors, making it onto the platform just before they closed.
 
