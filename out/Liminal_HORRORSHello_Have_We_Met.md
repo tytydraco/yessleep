@@ -1,0 +1,37 @@
+(We’ve all had encounters with strangers, more times than others. It is a small world after all, but sometimes continuous encounters can often feel...sinister). 
+
+ 
+
+I have met many people in my life but the majority of the time I don’t ever see them again. That was until I met Gerald. I mean don’t get me wrong; Gerald was a nice guy....at first. But sometimes his appearances were often odd, and he had a weird obsession with skin. Gerald would somehow show up at my workplace or when I was in your local Walmart, and I mean you could not miss this guy in a crowd. Gerald was 6ft, about 145 pounds, white, had dark brown eyes, and messy long dark hair.  
+
+I remember when I just decided to give up keeping this guy at arm's length and let him into my life, I would have most likely run into him again. But that was one of the worst decisions I have ever made.  
+
+ 
+
+It was a late Friday night; I had just finished my night-prep duties at Michaels Pizza Emporium. The stars weren’t out and the moon was barely even shining. The wind wasn’t even chilly, but honestly, living in Florida you don’t get cold nights. Even if you do, they’re rare. 
+
+I was eating my shift meal under the pavilion; my boss had just left, and I was on my own. I sat there and took a few bites of my sandwich before gulping down some soda. I was beat. About 20 minutes passed when I heard rustling in some bushes not too far from where I was sitting. I turned to look and surprisingly nothing was there. I sat back down thinking it must have been a stray cat or raccoon. 10 minutes passed and I looked up and saw something reflecting off about maybe 15ft away, it was like plastic or glass, it was shiny and it stood about 6ft. I let my eyes adjust, and I could depict a hand holding what seemed to be binoculars. 
+
+The second I stood up the person or....thing ran off. “What the hell”, I thought. Am I being watched? Stalked? I was already disturbed; I sat back down in my seat and tried to understand what had just unfolded. I made it home, thank God, but I still was extremely shaken up. I took a shower and then crawled into bed.  
+
+The next morning, I woke up and found that my skin moisturizers were missing, yep, all 8 bottles. I mean not to brag, but I have a good-looking face, and those products keep it that way. I went downstairs and ate some toast and fruit, afterward I carried on with my morning routine. I was fine until out of the corner of my eye I saw a shadow move. I flew around facing the direction I saw the movement from, and I bolted too where I saw it move to. Nervously, I peered around the corner. There was nothing. I walked back to the kitchen keeping my back to the wall, clearly, I didn’t feel safe even in my own home. 
+
+The evening came around and I prepared to leave for my night prep, I grabbed my essentials and walked out of the house. I locked the door and made for my car, only my car had a flat tire. I looked at the tire, and it had been slashed. I thought to myself who was the asshole behind this vandalism. I shook my head and popped open the trunk knowing there would be a spare tire. But when the trunk opened enough to see inside, there was no spare tire. I took my phone out of my pocket and called my friend Jet; he picked up thankfully. I told him I had a flat and my spare had been stolen. Jet told me he would be there to give me a ride momentarily. He said I just needed to wait a few minutes. 
+
+I sat on my porch and looked up in the sky trying to find some stars. Luckily there were a couple, and the moon was glowing a bit. It seemed to put me at ease. Jet pulled around in his red pickup, and I got in, and he drove me to my workplace. 
+
+I had just finished cleaning up the place and shutting it all down when I heard someone knock on the glass, I pulled my head over the counter and looked at the door. Someone was standing there dressed in all black. I walked closer, but they bolted off. I quickly opened the door, and something lay at my feet. It was my 8 moisturizers. And with them a note. The note read, I tried to use them, but my face didn’t like it. Yours is so defined, so sharp, how do you have it like that? I want MINE to be like yours. 
+
+I dropped the note and panicked. The guy who stood outside with those bottles was inside my house! He stole them and now he gave them back with that weird note. It was a compliment but an ominous threat at best. I grabbed my phone and dialed 911. I called the police and told them what had been going on for the past few days. After that they came straight to my house, they had CSI and cops surrounding the place.  
+
+They went into my house and looked around, but then they called me inside, and they said they found something. Something I needed to see.... 
+
+There was another note left on my desk, I opened it and it read. I WANT YOUR SKIN. The words were written in bold all over the paper. I froze and my body went cold; some psycho wanted to steal my skin, MY SKIN. The very skin that’s on my body. I broke out into a cold sweat, I feared for my life. I gave the note to the CSI, and they bagged it up. The cops told me I shouldn’t worry, they told me they keep a guy in my area just to make sure I was safe before the case could close, but even then, I still felt terrified.  
+
+I couldn’t sleep that night, not after.... everything. But the following morning I woke up and continued my morning routines. I checked all my locks and for safety reasons I moved heavy furniture to keep the front door locked and the glass sliding door. I psycho proofed all of it. 
+
+The evening came around and I sat on my bed staring at the clock on my wall. I had my door locked and I wasn’t taking any chances. My house was under a cops watch for what seemed to be months, I called my boss and told him everything. Thankfully he excused my absences and told me I could come back when I wanted. 
+
+One day the police gave me a call, and what they said made my heart drop to my stomach. It wasn’t fear but relief. They told me they ran the fingerprints through and found the guys' identity that left it. To my surprise, it wasn’t anyone I knew or even met; his name was Tyler Rags. I was still confused until they told me the guy they caught had gone by an alias. Gerald Boren. I sat on the phone in horror as they told me that Tyler had been my stalker and was a very well-known serial killer the FBI has been trying to catch for years. The alias that Tyler chose was that of his last victim; Tyler was the Skin Freak of Richards Springs, Denver. I collapsed in my seat in shock that some mysterious stranger I met was a serial killer.  
+
+After they caught Gerald....or Tyler. They gave him the death penalty; he died of the electric chair. It was slow and painful, and he deserved every last bit of it. After he died and after the events with him I never casually made friends with someone I hardly knew anything about. Never did I befriend a stranger until I knew everything about them. 

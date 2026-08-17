@@ -208,13 +208,41 @@ The house felt right with her in it.
 
 Sophie started eating purées a little later. Apple and cinnamon was the first one she really loved.
 
-She'd see the spoon coming and open her mouth like a baby bird, then somehow get half of it on her cheeks anyway.
+The first time Dana opened one of the jars, I could smell the cinnamon from across the kitchen.
 
-Dana started calling her Cinnamon.
+"Guess that's why the rats never came back," I said.
+
+Dana looked over at me. "What?"
+
+"Cinnamon. I read somewhere rats hate the smell."
+
+"We haven't had rats in two years."
+
+"I know. Apparently their noses are so sensitive that when a smell is strong enough, it can drown everything else out."
+
+"Drown out what?"
+
+"Food. Other animals." I shrugged. "Things nearby they should probably notice."
+
+Dana stared at me for a second.
+
+"So Sophie is pest control now?"
+
+"Finally earning her keep."
+
+"You're horrible."
+
+She was smiling when she said it.
+
+Sophie saw the spoon coming and opened her mouth like a baby bird, then somehow got half of it on her cheeks anyway.
+
+Dana laughed and wiped her chin.
+
+After that she started calling her Cinnamon.
 
 At first it was my little Cinnamon girl. Then just Cinnamon. Sometimes Cinny when Dana was tired.
 
-"She's going to hate us when she's fifteen and we tell people about this," Dana said once, wiping mush from Sophie's chin.
+"She's going to hate us when she's fifteen and we tell people about this," Dana said once.
 
 "Then we won't tell anybody."
 
@@ -712,6 +740,10 @@ Dana hasn't noticed. She's barely gone into the garage since Cinna disappeared, 
 
 Still, I can't leave her there another day.
 
+I wish this were the kind of smell you could hide beneath something else. Something familiar. Something a person already expected to be there.
+
+Some smells are easier than others.
+
 Cinna is behind the plastic storage bins along the back wall, wrapped in one of our old moving blankets.
 
 She's so small that hiding her wasn't difficult.
@@ -795,3 +827,14 @@ I used to think Cinna was a terrible name. Too morbid, I told Dana. Too much his
 I suppose I owe my wife an apology.
 
 Both her girls always did love cinnamon.
+
+
+
+
+
+
+
+
+
+
+Edit: Fixed a few grammar mistakes. I also want to clarify something because I don't think I explained it very well: I love my wife. More than anything. I know some of you don't believe that, but you don't know her like I do. You don't know what she needs.

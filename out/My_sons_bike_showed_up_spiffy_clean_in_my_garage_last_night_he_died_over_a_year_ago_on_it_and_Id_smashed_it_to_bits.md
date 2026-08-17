@@ -27,7 +27,7 @@ For three nights we spoke after my quiet moments. The second night I broke down,
 
 Or at least quiet down.
 
-From the beginning I was insanely curious as to what subliminal powers this church janitor was hiding. After I spoke to the Priest on night four I just felt insane. 
+From the beginning I was insanely curious as to what subliminal powers this church janitor was hiding. After I spoke to the Priest on night four I just felt insane.
 
 Again.
 
