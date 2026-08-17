@@ -513,3 +513,5 @@ I nod my head and her covering is slowly drawn back, revealing her naked body. A
 Despite my failure, the Presence, my most dutiful servant, pulled Olivia from the earth and delivered her to me beyond the dream. Our fates are clearly sealed, and tonight is the night; I'm certain of it. I lay back with a giddy smile, wondering if Olivia’s body will be as beautiful in the real world as it was just now. I'll know within the day.
 
 [Part 2](https://www.reddit.com/r/nosleep/s/YN2G4Wd2Li)
+
+[Part 3](https://www.reddit.com/r/nosleep/s/JOwe9lU7Xv)

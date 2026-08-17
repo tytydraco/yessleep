@@ -450,5 +450,6 @@ I'm awake but not awake
 
 I'm awake but not awake
 
-  
 [Part 1](https://www.reddit.com/r/nosleep/s/JAoBJHtvXz)
+
+[Part 3](https://www.reddit.com/r/nosleep/s/JOwe9lU7Xv)

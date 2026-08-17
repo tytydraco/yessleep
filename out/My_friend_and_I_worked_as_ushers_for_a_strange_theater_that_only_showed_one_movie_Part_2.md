@@ -1,4 +1,4 @@
-[Part 1.](https://www.reddit.com/r/nosleep/s/VnwHSKcYwk)
+[Part 1.](https://www.reddit.com/r/nosleep/s/VnwHSKcYwk) [Part 3.](https://www.reddit.com/r/nosleep/s/ICJS2rlmGY)
 
 I remember having disturbing dreams when I finally did manage to fall asleep after the first day at the theater. I saw the smiling man we thought was dead again. He was moving in an odd way that almost looked like floating. His expression didn't change; his mouth never moved, but his forehead seemed to burn with a strange-looking symbol beneath his skin. Then his body was carried aloft and soared down the corridors of a dark and dismal castle-like tunnel. I followed it, unable to turn back or consider my actions in the dream logic.
 
@@ -83,8 +83,6 @@ After a while, everyone had shuffled into the theaters, and Jake and I were left
 “Nah man, she actually said she can't hang out while the movie is playing, something about monitoring thing and looking for any signs; it sounded weird. I don't know who is even allowed to come out when it's playing or what she could be watching for, but no, you’re stuck with me.”
 
 He laughed again and leaned back against the wall, throwing his walkie up and down, higher and higher, and trying to catch it. I looked at my watch and sighed again; this was going to take a while.
-
-
 
 I decided to stretch my legs and take a short walk around. Jake decided to come with me since he didn't want to just hang out by the entrance.
 

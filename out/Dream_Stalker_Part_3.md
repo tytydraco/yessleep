@@ -1,0 +1,311 @@
+I'm awake but not awake.
+
+I'm awake but not awake.
+
+I practice the mantra in my mind as I gaze lazily out the window. It's 4:30 in the afternoon; the sun’s far from setting, but I don't really have anything better to do besides rot in bed. Well, that's not true, I could be cleaning up around the house, but I'd rather enjoy the peace and quiet while it lasts.
+
+Mary will be back from visiting her sisters Monday night, so I have the whole weekend to myself to prepare for her arrival. She wants us to start transferring her stuff between places right away when she gets back, to ‘save on packing-time’.
+
+The plan is to move her bed into my parents’ master bedroom and this bedroom will become Annie's. That's the name we chose. Well, Mary already had it picked out, but I don't mind; it’s cute. I wonder if she'll keep it for the one we actually bring to term.
+
+How am I talking so casually about this? There's no way I could ever convince her to go through with ending something she yearned for across pretty much her entire life. But the Presence could. They've pulled more impressive stunts than that.
+
+What if I regret it later though? What if she can't get pregnant when we try again? What if this is our only chance? Maybe I'm more ready than I think. Maybe I could do it. Would it even be that bad?
+
+Imagine holding her. Imagine reading her bedtime stories. Imagine rocking her to sleep and caressing her silky hair. Imagine hearing her cry beneath the bed.
+
+What the fuck. That's not my imagination; those noises are real.
+
+Something's under my fucking bed.
+
+I lay frozen, my mind racing. I clearly drifted off and am having a waking dream; the kind that replicates your current real-world environment, tricking you into thinking you're awake. Shit, I didn't mean to actually take a nap. Nap dreams are so much weirder.
+
+It's still broad daylight, but regardless, that baby's snuffling sobs are really unnerving. I'm not waking up on my own, so my options are to either just lay here indefinitely in psychological torment or get up and face what's below me.
+
+Sounds like it's in the back corner, against the wall; I'll need a flashlight to see it. Thankfully the dream’s realism holds and my phone is in my pocket. I roll over and discreetly set my feet on the floor as far from the bed as I can possibly reach. Crouching on my knees with my flashlight at the ready, I freeze in stupefied incomprehension.
+
+I don't know what I was expecting, but there is not a baby down here. The entire subterranean space is taken up by bulging mottled skin. As my mind calibrates what I'm seeing, I make out a pair of feebly twisted legs, a grotesquely distended belly, an emaciated arm limply draped over withered breasts, and a lopsided neck leading up to a familiar mangled visage.
+
+Mary's phantom.
+
+“Jaaaack, my love, I'm finally home”
+
+What's left of her face doesn't move. Her voice bypasses my ears, saccharinely oozing over the folds of my brain. The baby's muffled blubbering continues. I can see its face bulging out from her writhing stomach. The bodies of countless siblings distort her skin's surface beyond recognition.
+
+She's no longer a body herself, just a mass of crawling flesh. She lifts her pitiful arm and reaches towards me; her hand doesn't make it past the bed’s shadow.
+
+“Come here babe, I'm so cold”
+
+“Mary, what the fuck”
+
+“I've missed you so much. Annie too. We've been right here waiting for you”
+
+“Mary… Annie's not happening. I can’t- I'm just too scared”
+
+“You're always scared, babe. But I'm here with you. I love you more than you could ever know”
+
+“...why did you lie to me? Why did you trick me into having a kid I never wanted?”
+
+“I didn't, Jack. I would never-”
+
+“Then where the hell did she come from?”
+
+“Your powers brought us Annie. You know it's true. You're a god, my love”
+
+I sigh in exasperation. As much as I like to bask in my own superiority, the only person who describes me as divine is myself. This isn't a vision. It's just my mindless ego stroking itself in the most psychotic way imaginable. The Presence has no part in this; I'm wasting my time.
+
+As if the dream agrees, the sun instantly sets. Mary and her repulsive brood blink out of existence without another word. I shakily stand and turn to find the light switch. When I flick it on, I find another figure facing me. She reflexively shields her eyes with one hand, wincing in surprise.
+
+“Oww Jack, turn the light off; it's too bright”
+
+I don't move from my position against the wall
+
+“Olivia? W-what's going on?”
+
+She squints at me in confusion
+
+“Uhh, what do you mean?”
+
+Why is she here? I've barely talked to her in weeks. I don't think my mind did this. Is the Presence finally doing something?
+
+She casually nods
+
+“Yeah, the Presence sent me here”
+
+“Holy shit, you can read my thoughts. Wait, what- you know about the Presence?”
+
+She shrugs like this is old news
+
+“Yeah, I'm like you… psychic or whatever you like to call it”
+
+I'm in absolute disbelief
+
+“There's no fucking way”
+
+“Come on Jack, I've seen you in my dreams before. We've even interacted. You know I'm not lying; I'm reading your thoughts right now”
+
+I'm still reeling from seeing Mary, now this? I'm losing my mind
+
+“Relax dude, you're not going crazy. And forget Mary. Last I remember, you were into me first”
+
+She slowly steps towards me, a playful smirk creeping along her lips
+
+“I know you don't love her. She scares you, doesn't she?”
+
+“What the fuck is going on? Why are you acting like this?”
+
+She places her hands on my chest
+
+“I only came because you wanted me to. I'm finally here, Jack. I'm yours”
+
+“I didn't call you. None of this makes sense; I thought you loved Jeremy?”
+
+“Jeremy’s not special. Not like you. I’m sorry it took so long for me to realize. I could always feel something reaching out to me, but I didn't know the Presence came from you. You're so fucking powerful, Jack. And I’m not just saying that to stroke your ego or whatever, I really mean it”
+
+“No, no, I don't know what the hell I'm doing. This is such a mess. My entire life is”
+
+My voice catches in my throat
+
+“Then let me help you. We can learn together”
+
+She raises one hand up to my face and caresses my cheek. The other hand stays planted to my chest, soft yet firmly affixing me to the wall. I take a shaky breath and cover her hands in mine
+
+“Olivia…I am with Mary”
+
+She slowly looks over her shoulder to her left, then her right
+
+“Weird, I don't see her”
+
+“She’s pregnant. You know this can't happen”
+
+“All I know is that deep down in your heart, you know you made the wrong choice. What's the point in loving second place when first is right in front of you? Come on babe, she'll never know. Even sleeping right next to you, she doesn't have access to right here”
+
+She taps my temple and leans in, mere centimeters from my lips
+
+“But I do, and I always will”
+
+She kisses me. And I don't resist. Her words echo through my brain, but I don't know if they're true or false; I'm too distracted to think straight. All the same, my arms wrap around her and we take off our clothes. Her beauty hasn't changed.
+
+All those nights, she haunted me, but now she's taken a completely new hold on my life. I don't know if this is the start of a new chapter and the end of an old one, or a mere moment of weakness. I love Mary, I really do, but this raw uncomplicated passion is something I've missed so badly.
+
+And it's not like we're full-blown cheating; she's not even really here. But it does feel like she's here. It feels more real than it ever has before. This isn't a joining of flesh, but of minds and souls. Something Mary and I can never have.
+
+But I can't think about this now, I'll take care of it later when I can properly think. I wish there never was a later. I want to stay in this moment forever. For the first night in my life, my mind is awash in pure peace and ecstasy.
+
+The waves of pleasure carry us away, swallowing us in their eternal depths, folding in on us, crushing us, scattering our essences, and reforming us over and over, merging into a perfect omniscient being, until time ends and light dies, and all knowledge seeps out into space, leaving a singular desiccated husk, unknowing and unthinking once more.
+
+ 
+
+I awake naked, knelt on the floor, my palms flat on the carpet before me. The comforter’s border lightly brushes my wrists as I withdraw my hands. The edge of the bed. The room is pitch black, but I can tell that I'm staring deep into the void beneath. The Presence stares back.
+
+A gelid chill erupts across my skin. Never in my life have I ever felt them so strongly. They don't feel like a hypnagogic hallucination; they don't even feel like my subconscious. They're really there, sprung from my skull, laying nearly close enough for me to touch. Or for them to touch me.
+
+But they don't; they just watch. I crouch there for what feels like hours, too terrified to move, like a frozen baby animal. They never leave. Only once the sun fully rises am I able to as well.
+
+I take a long cold shower and try to collect myself. As I reenter my bedroom, I fervently glance under from a distance. To my relief, there's nothing down there. It had to have been a long waking nightmare. It just had to.
+
+The Presence wouldn't do that, not without leaving me with a message. They were probably waiting for me to thank them for summoning Olivia or something. Shit, I forgot all about that. Did that really happen? Has she really been psychic this whole time? Does she finally love me? There's only one way to find out.
+
+ 
+
+I watch her from across the hall, trying to look busy fiddling with the printer. Mary's still gone; she won't be here to introduce me like in the beginning. Not like I want them near each other right now anyway, nor need introducing whatsoever, so why can't I rid myself of this inexorable unease?
+
+Maybe it's because she seems different today. Her hair is messier than I've ever seen and she's not warmly greeting anyone walking by like she normally does. Her whole demeanor seems distracted. I have an idea why; might as well confirm it.
+
+As I stroll towards her, she finally looks up and takes notice. Her eyes widen and she tightly grips her mouse, her knuckles turning white. She opens her mouth to speak, but her attention snaps instantly to Jeremy who has emerged from the office next door. I immediately abort my rendezvous, lugubriously returning to my lonely cubicle upstairs.
+
+Maybe I could catch her at lunch? We could find somewhere private; literally anywhere Jeremy isn’t. I boot up my computer and search up her work email.
+
+“Heyy Olivia, I was gonna say hi, but it seemed like you were busy. Wanna catch up over lunch? I know we technically haven't hung out in a while, but I feel like we have a lot to talk about”
+
+A single minute elapses before she responds
+
+“Hey Jack, yeah it's been a while I guess. I'm sorry, I don't know if I'll be around by lunch. My sleep was all over the place last night and I'm prolly gonna go home early”
+
+Why is she so nervous? She definitely knows what I'm talking about. I wanna figure things out before Mary gets back
+
+“Wanna talk now then? My sleep was crazy too. I'd like to compare notes, if you know what I mean. Let's meet at my car”
+
+Kinda forceful, but I'm sick of girls playing coy with me. I see the status that she read the message, but she doesn't reply for over an hour. Finally she answers
+
+“Ok”
+
+We sit in my car in silence. Neither of us know what to say
+
+“Crazy night huh?”
+
+She sighs and nods, avoiding my gaze
+
+“Yeah… that's one way to put it. You too, right?”
+
+“Oh yeah, wild for sure. How much do you remember?”
+
+She fiddles with her hair
+
+“Oh, some things. What about you?”
+
+“I remember everything. But I wanna hear yours first”
+
+She turns away
+
+“Jack, I can't”
+
+“What do you mean? I had a great night, didn't you?”
+
+She looks at me confused. Her hair no longer obscures her reddened eyes. She's been crying. Her lower lip trembles as if she's about to start again
+
+“No Jack, I- I didn't”
+
+My brow furrows in concern
+
+“What? Why not? What happened?”
+
+“I really don't wanna talk about it, I don't even know why I agreed to come here”
+
+“Please Olivia, tell me what's wrong. Is it something I did?”
+
+“What? No, no. But you were there. You were- I don't know. I don't want you to judge me”
+
+“I promise I won't judge you. Just tell me”
+
+She sighs and looks out the window again
+
+“Ok… but please don't think I'm a psycho. I know you have fucked up dreams, but not like this. So I barely remember anything, but I was in someone’s bedroom and then I saw you. And just… fuck. Something horrible was happening to you, ok? Someone else was there. They were… I-I can't. I can't fucking say it. I'm sorry Jack, I've never dreamed about stuff like that. I-I promise. I'm so so sorry”
+
+She looks back with rivers of tears streaming down her face. She leans over and hugs me, sobbing into my shoulder. I've never seen anyone so disturbed; she literally seems traumatized. I wordlessly rub her back in bewilderment. What the fuck is going on?
+
+Last night's freezing foreboding returns, sinking its fingers between each vertebra, chilling the very air around me. The Presence is calling to me. Olivia stiffens and silences mid-sob. She looks up at me with a shuddering whisper
+
+“Can you feel that too?”
+
+I wordlessly nod, shaking more than her. I can't tell if my mind is blank or spiraling at light speed. I don't know what to make of any of this. All I know is I'm scared and I need this to stop. But how? It's all too much to bear on my own, I need to tell someone. Olivia's right here, but she seems just as scared as I am.
+
+It's clear that my dream was some kind of… horrible bewitchment that I can't bring myself to think about, but the Presence didn't fully lie. Olivia does have some sort of psychic capability. When the Presence takes her form, it seems like she can enter my dreams and see the truth. Maybe we actually could figure something out together.
+
+I explain things to her as best as I can, skipping over the extraneous romantic details, and focusing on our shared abilities and experiences. It takes far less convincing than I expected. I guess she has no reason to doubt the supernatural at this point; maybe our mental link makes it easier to trust me.
+
+“So the Presence… it's like a demon that lives under your bed or something?”
+
+“I don't know what they are, really. I always thought they were my subconscious, like a sixth sense that talks to me while I'm asleep, but yeah, now I'm pretty sure they're not a part of me at all. I really should've put it together a while ago. I don't know what they want with me, and I don't think they choose to stay under there. I think they're trapped”
+
+“Why?”
+
+“I don't know, it just feels like they can't leave. I've only interacted with them while sleeping in that room”
+
+“But we can feel them right now, Jack”
+
+“Yeah, well, last night changed things; I nearly went underneath”
+
+“What do you think would happen if you like got rid of the bed or something?”
+
+“Not sure, my plan is to burn the whole house down”
+
+“Are you serious? Isn't Mary supposed to start moving in?”
+
+“Yeah, so I better get things going before she gets back”
+
+“But what about the neighbors? And like all your guys' stuff?”
+
+“I don't really care, Olivia, the house is haunted; it's gotta go. Right now”
+
+“Well… at least show me before you drench the place in gasoline or whatever. I wanna see it for myself”
+
+“I mean, it's invisible, but I guess you might sense them or something. Anyway, that’s cool with me. I'm honestly way too scared to go back on my own”
+
+“Alright, well, let's go before we change our minds”
+
+Without skipping a beat, I start the car and exit the parking lot, heading straight home. I scrounge up some old buckets Dad had stashed in the garage and a dusty box of matches from one of the kitchen drawers. All we'll need now is fuel. I don't know what kind of story I'll give the fire department, but even if I get convicted for arson, it's better than being tortured by the Presence for the rest of my life.
+
+It'll be just like destroying the coffin of a vampire. They'll have nothing tethering them to the physical plane and whatever curse they've left on me should be lifted. Maybe I won't even be psychic anymore. I'll finally be normal with regular interests and mundane responsibilities.
+
+Everything I've been avoiding, yet pretending to have. I’m sorry I've been so difficult, Mary. I know how excited you were to build a life here with me and Annie, but you'll have to find somewhere else. Maybe we can stay there together though.
+
+After this ordeal with Olivia is finished, I doubt either of us want to be around each other. If I can free myself from the Presence, I can be a father; I promise.
+
+“So where's your room?”
+
+I hesitate; dark apprehension creeping back into the periphery
+
+“You sure you wanna see it?”
+
+“It’s why I'm here, dude. I wanna be sure this thing is real before I let you set a perfectly good house on fire”
+
+“Well, either way, you're not stopping me. Just don't blame me if anything bad happens”
+
+I gesture to my bedroom door and usher her forth. We crowd the doorway nervously, neither of us wanting to appraise the bed up close, bristling in anticipation of an overwhelming sense of doom or spiritual disturbance, but nothing comes.
+
+Olivia pokes her head further in to scan the surroundings. Nothing out of the ordinary. The curtains are wide open and the sun's disinfecting rays leave zero refuge for shadow. Outside, a gentle breeze rustles the autumn leaves and birds sing in harmony. The atmosphere is entirely un-sinister. I'm starting to feel embarrassed.
+
+“Do you feel anything?”
+
+“Not yet…but they're there. I was staring directly at them all night”
+
+She takes a few steps closer and leans down to get a better look
+
+“Weird, I don't feel anything. Don't you think we'd sense them by now?”
+
+She fully crouches at the bed’s edge, running her palm along the carpet beneath. I move to stop her, sharply inhaling between clenched teeth, astounded at her recklessness, but still nothing happens. We're standing in an empty room.
+
+“Where did you see them exactly? Like in a corner back there or were they closer?”
+
+I sheepishly kneel down next to her to look for myself. I peer into the dim gloom, but the emptiness has never been emptier. My heart rate climbs from embarrassment rather than fear. I slap the floor in frustration
+
+“They were here for fucking hours! Right here! In fucking front of me; you think I'm lying? You felt it too! You-”
+
+I look over my shoulder, but she's not sitting next to me. She's standing in the middle of the room. Her face is blank and her eyes are closed. Before I know what's happening, she pivots and kicks me directly in the head, as hard as she can.
+
+I lay on the floor in a crumpled heap, blinking in and out of murky consciousness. My vision is clouded and my ears are ringing. I can feel my limbs, but have insufficient command to resist her. She calmly positions me next to the bed and without hesitation, slides me underneath.
+
+In the absence of my mental faculties, the veil lifts. The Presence's fire ignites all around me. I want to scream, to fight back, to claw myself out into the light, but my body doesn't respond. All I can do is wait for the Presence to engulf my soul and put me out of my misery.
+
+My eyes are locked forward, hopelessly gazing through the narrow window framed by sagging bed and worn carpet to my once beloved home, to the world I took for granted. I'd give anything for a chance to crawl back, but no, that freedom belongs to someone else.
+
+My view is obstructed by another figure shakily dragging itself towards the light. The Presence’s aura lifts from me and travels with it. It's a human body, interacting with physical matter; how did we both fit down here? They were so imperceptibly close, like they crawled right through me. They finally emerge from the void and catch their breath, glancing back at their broken prison in triumph.
+
+I understand why I can't move my body. I don't have one. The Presence does. My bruised face blankly stares back at me for only a moment, then rises from view. The Body and Olivia wordlessly leave the room and shut the door.
+
+I don't know what happened to her. I never saw her again.
+
+[Part 1](https://www.reddit.com/r/nosleep/s/aAQwbF4KDO)
+
+[Part 2](https://www.reddit.com/r/nosleep/s/oC5vN8dbHA)
