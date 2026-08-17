@@ -1,0 +1,163 @@
+My manager, Sally, sent me. I’ve recently been promoted to the head of department at my firm, and HR decided I needed "updated emergency response certifications." I didn't want to go. I hated the idea of spending a full workday away from emails, but it was made clear that missing it wasn't an option.
+
+
+The morning of the course, I got a weird text from an unknown number at 6:00 AM:
+
+
+**PLEASE NOTE. TODAY'S FIRST AID COURSE HAS CHANGED LOCATION. IT WILL NOW TAKE PLACE AT FALCON HOUSE, 144 INDUSTRIAL ESTATE.**
+
+
+I checked the address on Google Maps. The venue was on the complete opposite side of the city in the middle of a decaying, sun-bleached industrial park. A bad day had just gotten a lot worse.
+
+
+When I finally pulled up after sitting in two hours of traffic, the industrial park looked even worse than it had on my laptop. 
+
+
+The rusted tenant sign at the entrance was a fading graveyard of failed businesses. Peeling away at the very bottom like rotting skin was the name: **HUFFMAN HEALTH & SAFETY**.
+
+
+I parked next to a row of five seemingly abandoned cars. It was only later - after everything happened - that I realized every single one had its registration plates stripped off.
+
+
+I walked into the reception area. A tiny, lonely bell chimed overhead. It was quiet except for the violent, low hum of flickering fluorescent lights. 
+
+
+Hanging on the wall were framed photos of previous course attendees proudly holding completion certificates. Looking closely at their faces, I figured whoever took them was a terrible photographer: every single person in those photos had their eyes closed.
+
+
+"Hello?" I called out.
+
+
+"One second!" a gruff voice yelled from a back room.
+
+
+I heard a heavy, wet dragging sound. Thud. Drag. Thud.
+
+
+A heavy man with long sideburns stepped out and introduced himself as Fred Huffman. He was a meaty guy straining inside a tight nylon shirt, wiping something white and tacky off his hands with a grimy rag.
+
+
+He handed me his sign-in clipboard. There was only one name on the entire list: mine. I wouldn’t even be able to phone it in or hide in a crowd. It would just be Fred teaching me the ins and outs of first aid.
+
+
+He led me into a sterile training room with a single desk in the middle.
+
+
+"Today will be hands-on," Fred explained, pacing slowly. "We will be simulating blood loss, breakages, and trauma. A good first-aider cannot be afraid of the human body."
+
+
+He switched on an overhead projector, beaming an image of himself standing beside a standard CPR dummy onto the opposite wall. It looked like the one from the front of that Radiohead album.
+
+
+"Learning to save lives on a piece of cold latex like this one is useless," Fred intoned. "Luckily, you signed up for the only course in the world using a brand-new training model of my own design. One with the exact weight, fluids, temperature, and feel of a real human."
+
+
+Fred requested a drumroll. As I awkwardly tapped my desk, he retreated into the back room. The wet dragging sound returned.
+
+
+When he backed into the room, he hauled out a full-sized, shiny plastic figure and laid her down in front of me. He told me her name was "Rita."
+
+
+Rita was a deeply uncanny training mannequin. She was covered from the top of her bald head, right down to the ends of her toes in glistening white skin. Dead, glassy eyes stared at me over a mouth frozen wide open in a silent scream. Weirdly, Fred had even dressed her in a cheap summer dress.
+
+
+"Touch her," Fred instructed.
+
+
+I hesitated, then reached out to grip the plastic arm. I froze.
+
+
+She was warm. Too warm.
+
+
+"How?" I asked, pulling my hand back.
+
+
+Fred tapped his nose. "Secret of the trade. Now, let's practice CPR. Four compressions, two breaths."
+
+
+I knelt beside the plastic figure, placed my hands on her sternum, and leaned down. Reluctantly, I put my mouth over hers and delivered a tentative breath.
+
+
+As the air passed into her chest, a long, slow gasp rattled out of her throat - an agonizing, gurgling moan.
+
+
+I scrambled backward on my hands and knees, hyperventilating. "What the fuck was that?!"
+
+
+Fred burst into a wheezing laugh. "Agonal breathing! It's a natural reflex as air passes the vocal cords. I told you she was realistic."
+
+
+Before I could process it, Fred moved to the next module: wound care. He pulled out a heavy flick knife and, without warning, drove it straight into Rita’s plastic forearm.
+
+
+A jagged tear opened, spraying a dark, syrupy red liquid that hit my clothes and splashed directly into my mouth. It didn't taste like dye or syrup. It tasted thick and metallic - like copper pennies.
+
+
+Panic set in and I thought I was going to faint. I excused myself, stumbling into the grimy restroom to scrub the drying red crust off my face. My hands shook so violently I couldn't grip the paper towels. Pulling out my phone, I saw a voicemail from Sally:
+
+
+"Where the hell are you? The first aid organizer called asking why you missed the session. If Head Office finds out you skipped..."
+
+
+My stomach dropped into a void. If Head Office hadn’t sent the change of location, who had?
+
+
+I slowly cracked open the restroom door. Across the hall, Fred stood over Rita, gently stroking her synthetic cheek and adjusting her dress while whispering, "Very pretty."
+
+
+I stepped into the hallway, trying to act calm. "Fred... I just remembered I have an urgent meeting. Sorry, but I have to leave."
+
+
+Fred turned slowly, the light behind his eyes completely flat.
+
+
+"That's a shame. We haven't even gotten to my favorite part of the course. Breakages."
+
+
+Without looking away, Fred grabbed Rita’s plastic forearm in both hands and snapped it over his knee with a horrific crack.
+
+
+The synthetic skin ripped open and splintered; real human bone punched through the white plastic, dripping with fresh marrow and blood.
+
+
+I ran as fast as I could.
+
+
+I sprinted down the corridor toward the front exit and threw my weight against the glass doors. 
+
+
+Locked.
+
+
+It’s still a blur, but I think I grabbed a plastic reception chair and smashed it into the glass until the bottom pane shattered.
+
+
+Behind me, I heard Fred walking down the hall, his footsteps heavy and unhurried.
+
+
+I threw myself headfirst through the broken pane, crawling through as quickly as possible. By the time I scrambled back into the front seat of my car and threw it into gear, Fred was at the door watching me. He was laughing. Actually laughing.
+
+
+Naturally, HR didn’t believe me when I finally recounted what happened. They assumed I was offering over-the-top excuses for skipping a course they knew I didn’t want to attend. It took extensive convincing to finally get the police involved.
+
+
+A detective listened and agreed to drive by the industrial estate with me. But there was no sign for Huffman Health & Safety anymore. It looked as though it had never been there.
+
+
+We checked the building: no broken window pane, no sign of any business - just an empty unit.
+
+
+Knowing I wasn't crazy, I demanded that the site's security team unlock the building so we could look around. At that point, the detective was likely just humoring me, but he agreed.
+
+
+There was nothing inside. No reception desk, no projector, no Rita, no Fred.
+
+
+The only thing we found was a small puddle in the very back room - white, sticky, with a plastic sheen under the light. The edges were already drying. Those were the parts that felt like human skin.
+
+
+Word has gotten around at work. People side-eye me and laugh when I pass, finding it bizarre that I'm sticking to a story everyone else thinks is bullshit.
+
+
+I know one thing, though: if you are ever sent to an emergency first-aid course at an isolated industrial park, and the trainer asks you to perform CPR on a dummy that feels warm - please, get the hell out of there as fast as you can.

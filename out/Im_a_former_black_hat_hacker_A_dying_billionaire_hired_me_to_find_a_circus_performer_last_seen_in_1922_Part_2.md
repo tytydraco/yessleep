@@ -345,3 +345,5 @@ She kept walking down the aisle.
 I closed my eyes and tried to get a bit of sleep.
 
 The last time I'd slept on a plane, Chazaqiel had come to me in my dreams and told me he was waiting for me. I wondered what he'd say to me this time.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1vfrce7/im_a_former_black_hat_hacker_a_dying_billionaire/)

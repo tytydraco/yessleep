@@ -14,7 +14,7 @@ At the bottom, in bold:
 
 SHE IS OUR FAMILY.
 
-Dana stood at the counter feeding sheets through the paper cutter one at a time. She hadn't slept properly in three nights. Her hair was still twisted into yesterday's knot, and there were dark crescents beneath her eyes.
+Dana stood at the counter feeding sheets through the paper cutter one at a time. She hadn't slept properly in three nights. Her hair was still twisted into yesterday's knot, and there were dark circles beneath her eyes.
 
 "That's enough," I told her.
 
@@ -40,11 +40,7 @@ She slid another flyer beneath the blade. I reached across the table and put my 
 
 "Please. Take an hour."
 
-"What if somebody saw her?"
-
-"They can call."
-
-"What if they saw her and they don't have one of these?"
+"What if somebody saw her and they don't have one of these?"
 
 "You've put them on every telephone pole from here to Chapman."
 
@@ -78,17 +74,13 @@ More importantly, they didn't know what it had taken to get her back.
 
 When I met my wife, she had more energy than anyone I'd ever known and apparently no interest in wasting it.
 
-She worked in marketing for a medical-device company. By twenty-eight she'd been promoted twice; by thirty she was managing people older than both of us. She ran half-marathons, remembered everyone's birthday and kept a calendar that looked like it required air-traffic control.
-
-She could also remember a restaurant I'd mentioned once and make reservations there three months later.
+She worked in marketing for a medical-device company. By thirty she was managing people older than both of us. She ran half-marathons, remembered everyone's birthday and kept a calendar that looked like it required air-traffic control.
 
 She was exhausting.
 
 I loved her for it.
 
-Mostly.
-
-Work was the only thing we really fought about. Nothing dramatic. Just the kind of argument that wears smooth grooves into a marriage.
+Work was the only thing we really fought about.
 
 I'd make dinner and get a text at seven saying a meeting had run late. We'd make Saturday plans and she'd need to log in for twenty minutes, which had a strange tendency to become two hours.
 
@@ -98,33 +90,23 @@ Once, during an anniversary dinner, I realized we'd spent most of the appetizer 
 
 "Because I like it."
 
-"I know. But you don't have to."
+"I know. But sometimes I feel like you're killing yourself for a job."
 
-She looked genuinely confused. "Nobody has to do most things."
+She looked at me. "That's dramatic."
 
-"I make enough for both of us."
+"I miss you."
 
-That made her laugh.
+That stopped her.
 
-"You think I work because we're poor?"
-
-"That's not what I said."
-
-"Then what are you saying?"
-
-I told her I missed her.
-
-That was true.
-
-Sometimes it seemed like her office got the best version of my wife and I got whatever was left at eight-thirty at night. She told me her career mattered to her, that she was good at what she did and wasn't going to walk away simply because my paycheck covered the mortgage.
+Sometimes it seemed like her office got the best version of my wife and I got whatever was left at eight-thirty at night. She told me her career mattered to her, that she was good at what she did and wasn't going to apologize for caring about it.
 
 I said I understood.
 
 Usually I did.
 
-For a while we had rats getting into the garage, and that somehow became my responsibility.
+For a while we had rats getting into the detached garage behind the house, and that somehow became my responsibility.
 
-I'd promised to deal with them, then forgot. Promised again. Forgot again.
+I'd promised to deal with them, then forgot.
 
 One night Dana came home after nine and found droppings beside a bag of dog food we'd bought for her parents' Labrador.
 
@@ -148,33 +130,27 @@ It wasn't her best joke.
 
 We laughed about it later.
 
-The next morning I finally dealt with the problem. Traps, poison, cleaning out the back shelves. Dana disliked the poison immediately. She made me put it high in the cabinet above the workbench, even though we didn't have children then.
+The next morning I finally dealt with the problem. Traps, poison, cleaning out the back shelves.
 
-"What if somebody's dog gets in here?"
+Dana disliked the poison immediately.
 
-"Whose dog?"
+"I hate having that in here."
 
-"I don't know. A dog."
+"It's in the cabinet."
+
+"What if something gets into it?"
 
 "Then we'll keep the garage closed."
 
 She gave me the look she used when I'd missed the point.
 
-Later, after she got pregnant and we started childproofing the house, she asked if I'd thrown the poison away.
-
-I told her I had.
+Later, after she got pregnant and we started childproofing the house, she made me go through the garage again—loose screws, nails, old traps, anything dangerous I might have forgotten back when there were no children to worry about.
 
 Pregnancy was the first thing I'd ever seen make Dana slow down.
 
-Not much, but enough.
-
 She was frightened almost immediately.
 
-There were heart problems in her family—not the clogged-artery sort everybody eventually worries about, but something congenital. Hereditary. Doctors explained the terminology to me more than once over the years, but it never stuck.
-
-Dana didn't need terminology.
-
-She'd grown up with it.
+There were heart problems in her family. Not the clogged-artery sort everybody eventually worries about, but something congenital. Hereditary.
 
 Her younger sister died when Dana was four. She remembered almost nothing about the girl herself. A yellow dress. Sharing a bedroom. The fact that she hated peas.
 
@@ -200,13 +176,13 @@ Those were probably the happiest months of our marriage.
 
 I know how that sounds.
 
-I'd come home and they'd be there—Dana on the couch with Sophie asleep against her chest, or Sophie kicking in the little vibrating chair while Dana cooked. We started taking walks after dinner. We ate together. Weekends belonged to us.
+I'd come home and they'd be there—Dana on the couch with Sophie asleep against her chest, or Sophie kicking in the little vibrating chair while Dana cooked. We took walks after dinner. We ate together. Weekends belonged to us.
 
 Sometimes I'd stand in the kitchen listening to Dana talk nonsense to the baby in the next room and think that this was what all of it had been for.
 
 The house felt right with her in it.
 
-Sophie started eating purées a little later. Apple and cinnamon was the first one she really loved.
+A few months later Sophie started eating purées. Apple and cinnamon was the first one she really loved.
 
 The first time Dana opened one of the jars, I could smell the cinnamon from across the kitchen.
 
@@ -220,7 +196,7 @@ Dana looked over at me. "What?"
 
 "I know. Something about the smell being too strong." I shrugged. "Covers up whatever else they're trying to sniff out."
 
-Dana stared at me for a second.
+Dana stared at me.
 
 "So Sophie is pest control now?"
 
@@ -328,9 +304,7 @@ Dana found her.
 
 I don't like remembering what happened after that.
 
-The nursery was cold. Dana was making a sound I had never heard from another human being. Paramedics came. Police came. Her mother came. My brother came.
-
-Our house filled with people while Sophie was somewhere else.
+The nursery was cold. Dana was making a sound I had never heard from another human being. Paramedics came. Police came. Our house filled with people while Sophie was somewhere else.
 
 Someone went through the standard questions with us. Medications. Cleaning products. Anything unusual in the house. Anything she might have reached.
 
@@ -350,11 +324,7 @@ Dana heard something else.
 
 You gave this to her.
 
-She became convinced Sophie had died because of her.
-
-Not only genetically.
-
-Because she'd gone back to work.
+And because she'd gone back to work, she found another way to blame herself.
 
 "I should've been here."
 
@@ -363,10 +333,6 @@ Because she'd gone back to work.
 "I mean with her."
 
 "She was sleeping."
-
-"What if something happened earlier?"
-
-"Nothing happened earlier."
 
 "What if I missed something?"
 
@@ -410,15 +376,17 @@ I thought we'd simply exist together until we healed.
 
 That isn't what happened.
 
-The first year was unbearable. The second was quieter.
+The first year was unbearable.
 
-Dana stopped seeing friends because most of them had children. Then one got pregnant. Then another. Invitations stopped coming after enough polite refusals.
+The second was quieter.
+
+Dana stopped seeing friends because most of them had children. Invitations stopped coming after enough polite refusals.
 
 She didn't go back to work.
 
 She didn't go much of anywhere.
 
-I cooked and cleaned and handled bills. I made excuses for us. I sat with her when she couldn't sleep.
+I cooked and cleaned and handled bills. I sat with her when she couldn't sleep.
 
 I learned there are only so many ways to answer the question, Do you think she knew I loved her?
 
@@ -432,7 +400,7 @@ I loved my wife through all of it, but after a few years I began to resent the d
 
 That's uglier than saying I was tired, but it's closer to the truth.
 
-I resented Mother's Day. Sophie's birthday. The anniversary of the day she died. I resented strangers' children for having the wrong laugh in grocery stores and the television for showing babies when Dana was having a good night.
+I resented Mother's Day. Sophie's birthday. The anniversary of the day she died. I resented strangers' children for having the wrong laugh in grocery stores.
 
 Once, on what would have been Sophie's third birthday, Dana wanted to spend the evening looking through photographs.
 
@@ -520,10 +488,6 @@ Her smile faltered. "What?"
 
 "I know what it's after."
 
-"Then why did you ask?"
-
-"I didn't."
-
 Dana tucked the puppy against her chest. "I like it."
 
 I remember looking at the two of them and thinking that naming a dog after our dead daughter was one grief-therapy exercise too far.
@@ -540,19 +504,13 @@ She gave Dana reasons to leave the house.
 
 At first it was walks because Cinna refused to use the backyard. Once around the block became twice, then the park.
 
-Dana started getting dressed earlier because Cinna woke at seven. She showered every day again. She spoke to neighbors, then friends.
+Dana started getting dressed earlier because Cinna woke at seven. She spoke to neighbors, then friends.
 
 Pictures appeared on her phone that weren't old photographs of Sophie.
 
 Dana and Cinna at the beach.
 
-Dana and Cinna in matching Halloween bandanas.
-
 Cinna sitting upright in the passenger seat of Dana's car like a tiny disapproving grandmother.
-
-I joked that she'd replaced me.
-
-Secretly, I loved it.
 
 Dana started cooking again. She played music in the kitchen. She made fun of me.
 
@@ -578,17 +536,11 @@ She leaned over and kissed me.
 
 For the first time in years, I thought maybe we'd made it.
 
-Then the walks got longer.
-
-Not much at first. Twenty minutes. Forty.
-
-Dana learned the names of people in the neighborhood I'd never met. She started having coffee with a woman two streets over who owned some kind of terrier. Once she and Cinna were gone almost three hours because they'd driven to a park across town.
+After that, the walks got longer. She started having coffee with a woman two streets over who owned some kind of terrier. Once she and Cinna were gone almost three hours because they'd driven to a park across town.
 
 I teased her about having a social life.
 
 I was glad she did.
-
-I was.
 
 A few months later, I came home and found Dana at the kitchen table with her old laptop open.
 
@@ -602,9 +554,9 @@ She tilted the screen away from me in a way that was meant to be playful.
 
 "I'm updating my résumé."
 
-I must have paused, because her smile changed.
+I looked at the screen.
 
-"Just updating it."
+"Just updating it," she said.
 
 "I didn't say anything."
 
@@ -618,7 +570,7 @@ I must have paused, because her smile changed.
 
 "You absolutely have a thing."
 
-She smiled again and turned the laptop back around.
+She smiled and turned the laptop back around.
 
 "I've been thinking maybe part-time. Or consulting. Something small."
 
@@ -652,9 +604,7 @@ No Cinna.
 
 We searched until after midnight.
 
-The next morning we called every shelter within thirty miles. Dana posted in neighborhood groups, on Nextdoor, Facebook, lost-pet websites I'd never heard of.
-
-We drove slowly through streets with the windows down calling Cinna's name.
+The next morning we called every shelter within thirty miles. Dana posted everywhere she could think of. We drove slowly through streets with the windows down calling Cinna's name.
 
 I kept telling her Yorkies got picked up. Someone probably had her.
 
@@ -681,10 +631,6 @@ The same frantic eyes. The same bargaining. The same certainty that if she did o
 "Then somebody will find her."
 
 "What if nobody does?"
-
-"We'll keep looking."
-
-"What if—"
 
 "We'll keep looking."
 
@@ -722,29 +668,27 @@ She's exhausted, and the heat worries me.
 
 The heat has been worrying me for another reason too.
 
-The garage gets hotter than the rest of the house.
-
-There's almost no insulation in there, and the little vent above the side door doesn't do much once the sun has been on the roof all afternoon.
+The garage sits at the back of the yard, separate from the house. There's almost no insulation in there, and the little vent above the side door doesn't do much once the sun has been on the roof all afternoon.
 
 I thought I had longer.
 
 Apparently I didn't.
 
-The smell isn't strong yet. Not unless you know it's there.
+The smell is bad now.
 
-Dana hasn't noticed. She's barely gone into the garage since Cinna disappeared, and when she does she's moving too quickly to pay attention to anything except leashes and flashlights and whatever else she thinks might help.
+You can't smell it from the house. You can't even smell it standing a few feet outside the garage.
+
+But open the door and it's there.
+
+Dana hasn't been inside since the first day, when we were still grabbing leashes and flashlights and anything else we thought might help us find Cinna.
+
+She hasn't noticed.
 
 Still, I can't leave her there another day.
-
-I wish this were the kind of smell you could hide beneath something else. Something familiar. Something a person already expected to be there.
-
-Some smells are easier than others.
 
 Cinna is behind the plastic storage bins along the back wall, wrapped in one of our old moving blankets.
 
 She's so small that hiding her wasn't difficult.
-
-That part was easier than I expected.
 
 The hard part has been listening to Dana call for her.
 
@@ -768,19 +712,15 @@ I'll leave her near there before morning.
 
 Nothing elaborate.
 
-It doesn't need to be.
+Dana doesn't need an investigation.
 
-Dana doesn't need an investigation. She needs an answer.
-
-She'll see the road. She'll see Cinna.
+She needs an answer.
 
 The gate was open.
 
 Cinna got out.
 
 She wandered too far.
-
-Maybe Dana will decide she was trying to find her way home.
 
 Not knowing is worse.
 
@@ -802,7 +742,7 @@ Eventually we'll be okay again.
 
 We always are.
 
-Before I move Cinna, I should probably clean up the garage.
+Before I move Cinna, I should clean up the garage.
 
 Dana hasn't noticed the cabinet over the workbench is unlocked.
 
@@ -810,7 +750,9 @@ Years ago, when we childproofed the house, she made me promise there was nothing
 
 I told her there wasn't.
 
-Most of what I'd bought for the rats is gone now. The traps rusted. The cleaning supplies got used. There are only a few things shoved behind old paint cans and extension cords, including one battered cardboard box I should have thrown away a long time ago.
+Most of what I'd bought for the rats is gone now. The traps rusted. The cleaning supplies got used.
+
+There are only a few things shoved behind old paint cans and extension cords, including one battered cardboard box I should have thrown away a long time ago.
 
 I'll get rid of that too.
 
@@ -823,6 +765,8 @@ I used to think Cinna was a terrible name. Too morbid, I told Dana. Too much his
 I suppose I owe my wife an apology.
 
 Both her girls always did love cinnamon.
+
+
 
 
 
