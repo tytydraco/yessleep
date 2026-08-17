@@ -210,19 +210,15 @@ Sophie started eating purées a little later. Apple and cinnamon was the first o
 
 The first time Dana opened one of the jars, I could smell the cinnamon from across the kitchen.
 
-"Guess that's why the rats never came back," I said.
+"Maybe that's why the rats never came back," I said.
 
 Dana looked over at me. "What?"
 
-"Cinnamon. I read somewhere rats hate the smell."
+"Cinnamon. I read somewhere they hate it."
 
 "We haven't had rats in two years."
 
-"I know. Apparently their noses are so sensitive that when a smell is strong enough, it can drown everything else out."
-
-"Drown out what?"
-
-"Food. Other animals." I shrugged. "Things nearby they should probably notice."
+"I know. Something about the smell being too strong." I shrugged. "Covers up whatever else they're trying to sniff out."
 
 Dana stared at me for a second.
 

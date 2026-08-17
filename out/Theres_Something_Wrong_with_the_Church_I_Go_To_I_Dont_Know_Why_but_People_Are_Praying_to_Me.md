@@ -1,0 +1,227 @@
+Hey one of the lurkers. I’m scratching my head currently over this situation. Anyone else faced anything similar? There’s a place I go to, a little town church. It’s fairly normal, Presbyterian, I think. I don’t really understand much about churches, but there’s something wrong with the one I go to…
+
+The church I go to, the people there… They worship me.
+
+Like they pray to me. Every time. Yes, it’s exactly as it sounds.
+
+Every week, I go there and they pray to me.
+
+Or maybe I should say “at” me? I don’t think this is an experience most people can even verbalize.
+
+And no, I’m not fucking crazy, but they might be.
+
+It doesn’t really matter at this point. What I know is that they’re fairly ordinary people from what I can tell. (You get to know people after spending every Sunday with them).
+
+But when it comes to me, they just… I don’t know, they think I’m some kind of God.
+
+It’s getting extreme… And it all started a few weeks ago.
+
+The first time I went there, everything seemed normal. Go in, listen to some Latin (?), say amen, the whole shebang.
+
+There was a quiet part where we were all supposed to silently pray to ourselves. You pray to ask for more personal stuff, I assume. Bring me prosperity, fix my relative’s health, bless my grandchildren, that kind of stuff. Everything was normal, until I noticed a little girl in the pew in front of me. That’s when it started.
+
+She was praying towards me. Looking at me.
+
+She would close her eyes intermittently. Like she was almost scared to look at me directly.
+
+I was left scratching my head, but I generally dismissed it. It’s just a kid. She’s either joking or she doesn’t understand how she’s supposed to pray.
+
+The week after, things escalated.
+
+As I entered church that Sunday, everyone was looking at me. It was fucking creepy.
+
+They would bow their heads, mutter some words under their breath or even try to grab my hand.
+
+I’m fairly new there, so I thought maybe it was some initiation thing. Maybe other people went through that already?
+
+As I sat down, the pastor began the morning sermon. Weirdest monologue I’ve ever heard.
+
+“Bless ye be the fruits of the Lord. The one who brings the sun and the light. The head of the carrier, bursts forth the savior. In Him we believe, the saving grace, a God made manifest. From flesh and bone.”
+
+I was left scratching my head at that.
+
+“Amen.”
+
+“Amen”, they said. And I saw more looks in my direction. Like they were aiming their prayers at me.
+
+The little girl was one thing. But now, I saw about five people do the same thing. It didn’t feel like a joke anymore.
+
+Needless to say, I left church that day a bit earlier than usual. A bit faster too.
+
+The week goes on as normal. I meet some of the congregants down by the grocery store, the mall, the sidewalk. They’re always nice, respectful, warm. They have this way of making me feel like I’m someone…important. Likeable.
+
+The following Sunday, all pretenses of normality were abandoned.
+
+As I walk in, I felt like some bride at a wedding. Everyone was sitting down and they got up as soon as they saw me. I strolled down the corridor through the pews and was greeted by everyone.
+
+They bowed to me, paid their respects, kissed my hand, begged for good fortune in their lives. Everything and anything they can think of.
+
+Then the pastor had me sit on a chair facing everyone. And they all prayed to me.
+
+God, that was awkward.
+
+It was pretty bad, but it doesn’t compare to what happened over the last few weeks.
+
+Now, I know what you might be wondering. “Are you stupid? Why did you keep going there?”
+
+Well, my grandma, basically. I didn’t have much going on in my life to be honest. I don’t have much going on now. The only family I’ve ever had was my grandma.
+
+She was, as you can probably guess, very religious. And probably the only person on Earth that truly cared about me.
+
+She died last year.
+
+She didn’t leave me much. We didn’t have much to leave. She just made me promise her one thing.
+
+“Start going to the church”, she pleaded.
+
+That was her last request before she died. Just go to church. I was scratching my head when she said that. I thought I’d humor her. I mean, what else can I do? Maybe I’d find some meaning in religion. I wasn’t expecting religious people to find meaning in me.
+
+It’s like I’m their God. Or a Messiah figure of some sort. I don’t understand, really.
+
+I ask the pastor what’s up. What’s the deal with this? Is this some sort of prank? Is it some church lesson about humility?
+
+“Humility?” he said.
+
+“Yeah?”
+
+“The head of Divinity does not need to be humble.” He simply replied.
+
+Divinity. Is that what they think of me? In normal Christianity, the head is God, the savior…me. That’s what he thinks I am. Some kind of God. I asked the reverend one more thing.
+
+“This isn’t some weird ritual thing, right? You’re not going to sacrifice me?” I asked.
+
+“What!? No! Of course not! We would never harm you!”
+
+Okay… Well, I had to ask. I’m not a complete idiot. I know what cults lead into. It doesn’t stop me from sometimes carrying a gun to church.
+
+If any of them try anything, I’ll give them some “divine retribution”.
+
+So yeah, the last few weeks. Things have been getting, well, weirder. I was honestly hitting a breaking point.
+
+One Sunday, the sermon was going as usual. I’m sitting in my chair being the target of everyone’s prayers, whilst the reverend is talking about how “only the eyes of the faithful can truly see my divinity”, something along those lines.
+
+I start to leave and then one of the women sitting on the bench throws herself at me.
+
+I was genuinely caught off-guard and I fell while she proceeded to rapidly remove my shoes.
+
+She… she starts kissing my feet, profusely. It was revolting, honestly.
+
+I feel bad for her, she’s middle-aged, but this was WAY too much. I think I might have reflexively kicked her. She was kissing and yelling at the same time.
+
+“I CAN SEE IT! I SEE IT! IT IS SO BLESSED!”, she yelled.
+
+The rest of the people there helped her off me. Dragging her away.
+
+But her eyes…My God. Her fixation on me. It was insane.
+
+“I LOVE YOU! I LOVE YOU! I LOVE YOU! I LOVE YOU!”, I heard her yell as she was being dragged off.
+
+Jesus, what a lunatic. Well, relatively speaking.
+
+She got kicked from the church and she’s banned from entering.
+
+After that, over the last couple of weeks, it’s been pretty average to be honest. Sure, I’ve normalized it. People get on their knees. They bow to me. I kiss their children, and they bathe me, then use the water to bless others.
+
+But they’re happy. And I’m… I’m okay with this. I think at least.
+
+It’s a coin toss whether I was going to leave or not honestly. I’m not sure why I stayed. Was it my grandma, morbid curiosity or something else?
+
+But I have nowhere to go. Nothing else in my life has meaning.
+
+I still scratch my head at some of the practices.
+
+The church has now begun to be adorned by random animal parts. Mainly heads.
+
+I’d say most of them are pig’s heads.
+
+I’m the head of Divinity and they are the head of rot or something. From mine comes light and truth and from theirs comes flesh and bones.
+
+So, before everyone gets too judgmental. Hear me out. I want… I want people here to join.
+
+Sure, I’m not painting the prettiest picture, but we’re good people. And you might think I’m going to get sacrificed or something, but I’m here, aren’t I?
+
+I’m not dead. They won’t harm me… They can’t.
+
+They love me.
+
+I’ll grace you with one more story. It might seem counterproductive. But this last story is one of redemption and punishment.
+
+Last Sunday, the woman who was expelled returned.
+
+She was begging, pleading to let her in. She pushed through people and went straight for me.
+
+I’ve never seen such despair in a person. She kept begging for forgiveness, asking to be let back in. She grabbed me, shook me, almost took parts of my clothes off.
+
+I…I understand this woman is not mentally well. She doesn’t even look me in the eyes, she always seems to look past me. She clearly needs help.
+
+The other parishioners didn’t share that opinion though.
+
+They grabbed her, pulled her off me and then proceeded to stomp her into the ground.
+
+She was almost killed.
+
+They stomped her with their boots and shoes as hard as they could. They clearly wanted to protect me. She survived, but needed to be taken to the hospital.
+
+I told them to stop. This… this violence is disgusting. It disgusts me. There will be no violence in this church.
+
+They conceded, they relented.
+
+They repent.
+
+They’re not bad people. They’re just… overprotective of me. Some ripped clothes aren’t justification for such callous violence. Not here.
+
+The poor woman made a full recovery and she’s allowed back in. Her name is Mary. Seems fitting.
+
+I wanted to tell you this story to inspire you all to see a better light to people. I also judge these people but now, now I understand.
+
+They’re as lost as I was. My grandma was right. I was probably going to leave at the start, and if not, leave after a few weeks.
+
+But then I started thinking, why not?
+
+Why not be a God?
+
+If that’s what these people believe, if that’s what they want. Why shouldn’t I give it to them?
+
+It’s only fair that I grace them with, well, Me.
+
+I don’t have a family, I don’t have friends, but I have them. I have my flock. And I am their savior.
+
+I understand that now.
+
+When I walk down the street now, I greet everyone. The old and the young, the sick and the healthy. I try to give back what they gave me.
+
+It was during one of these walks that I found the little girl that first started praying to me all those weeks ago.
+
+That conversation still irks me to this day. Something she said that left me scratching my head.
+
+I went up to her to greet her. I don’t get along with children well, but she is a member of my flock, so I have to try.
+
+I simply said, “Hi”, to her and asked when the next worship day is.
+
+“Worship day?” she replies.
+
+I explained to her that I was thinking we should meet up every two days, maybe three, or maybe we should make it five hours.
+
+I think I’ll call those days, “Chrisdays”.
+
+“Why would we call it that?” she asks.
+
+“Well, because you worship me. That’s my name, Chris.” I reply.
+
+“What do you mean?” she replies.
+
+I started to think she’s a bit confused. Maybe this is too complicated for a child’s mind. But then she told me something that I’ve been thinking about over the last few days.
+
+“We don’t pray to you.” she said.
+
+She’s probably just another lost lamb like I was. Poor child doesn’t even understand the religion properly.
+
+I mean, what child does? I just… I don’t understand how she doesn’t get it. How does she not get that I’m Divine? Isn’t it obvious!? God. Why is my head so itchy lately?
+
+But then she said something else.
+
+“We pray to what’s behind you. Behind your head.”
+
+What? I don’t really understand what’s she’s talking about. Is she still making fun of me?
+
+I scratch the back of my head.
