@@ -1,0 +1,183 @@
+I can't tell you guys where I found this, or who assisted me in getting these logs, but I have them. Do you guys remember those missions to space? The one's named after the Loch Ness Monster? They abruptly stopped out of no where a few years back. Well I think this might explain at least something. These are a collection of logs from an unnamed astronaut. It seems like the logs are collected through writing, audio, visuals and we suspect even possibly brain waves, but that seems too far fetched. For some reason the companies do not want these logs getting out. Just read for yourselves and I'll try to help with any questions you have.
+
+  
+   
+**LOGS BEGIN:**
+
+I have lost count of how many months I have been awake for. Or has it been years? Our ship, The Nessie 14, was stocked up with at least five years worth of food, that was how I kept track of the passing time. This proved useful until we hit an asteroid field, its disembodied, rocky finger tips unintentionally unlatching two of the four food silos, and one of the three escape pods in the process. The Nessie still bears the accident's cracks and scars, like a wounded soldier.  
+   
+My stretcher is stained a mustard yellow. My body's sweat and oil has seeped into the sheets. Cleaning it is no use, and it is too sticky to sleep on now, causing my back to break out into eczema and rashes. I have resorted to moving one of the medically designated metal tables and turning it into a makeshift bunk. Underneath is a thinner tray where Marcus would be able to sleep, but I haven't seen him get any rest for weeks.  
+   
+When I first met Marcus, he was a cocky, fit party boy. He is somewhere in his forties, but with grey hair peppered in more than the usual man his age. He seemed like an unstoppable force of socialization with anybody he came in contact with, especially the number of men in the office who he had small, mutual, and charming infatuations with. I was plentiful shyer than Marcus, but I really did look up to him. I never told him. When we were back on Earth, I could never really get a word in edgewise anyway.  
+   
+Nadia is our other crewmate. She's in her early 30's, somewhat young for this kind of mission, but makes up for it with how brilliantly smart she is. A little too smart if you ask me. I can't say much though, I am as thick as pig shit.  
+   
+Once we made it into space, we went into what the movies call Cryosleep. Professionally the scientists at the office called it a Medically-Induced Hypo-Thermatic Coma. Before we left, the procedure was altered, improved. This allowed the coma, our "Cryosleep" to be elongated, far beyond the previous crews before us. There are rumors Walt Disney is hidden somewhere, sleeping through the same procedure. I call bull shit. If he felt anything like how I felt, especially in such an early attempt, he must have the mind and body of a puss ridden blob fish by now.  
+   
+Our ship was called the Nessie 14 because, well, this is the 14th attempt. Twice the ships exploded before reaching orbit. Eight other times, we never heard from or saw the ships and crews again. And three times, the crews turned around, returning to Earth. That didn't matter though, they were ridiculed for abandoning the mission, an expensive mission at that. It had cost the companies hundreds of billions accumulated over decades of past attempts. The astronauts didn't care though. They had been in space for long enough that they now only ramble nonsense, forever changed from how the confinement of time twisted and hollowed their brains.  
+   
+Our mission isn't one of necessity, but to everybody, especially at the companies, it is a need. The Gilling Telescope, the most advanced of its kind, picked up something from the farthest reaches we have ever found. It didn't just pick up something, it picked up nothing. No stars, no moons, no planets. Nothing. Human kind, after millions of years, has found what we believe to be the edge of space.  
+   
+  
+   
+I woke up from my coma the first out of the crew. There were clocks on the ship, but no form of calendar. Command didn't want us to know how many years we had truly been asleep for. Even though they kept this from us, I knew, everyone I cared for or loved had most likely been dead for generations.  
+   
+We were instructed not to wake our other crewmates up, as it would interrupt the rhythm of the procedure and could cause harm to the individual. I was isolated for a period that was unknown to me, my only company being the ship's terminal, which spurted out random notifications and warnings, as well as the amalgamation of strange galaxy clusters in view from the multilayered, thick windows. As I watched the clusters, they had the sway and movement akin to fish and whales, as if they were living beings.  
+That time isolated on my own were the loneliest 105 days of my life.  
+   
+Marcus woke up to the overwhelming smell of body odour and old crushed food packs. His eyes, blurred with a clay thick glaze from the coma, scanned the room. As his eyes wet and adjusted to the light, I could be seen, curled in the dark corner. The vague hum and buzz of my discman could be heard through my cheap plastic headphones. A TOOL CD whirred around inside the small machine. I was ritualistically picking at the barcode sticker still adhered to the back of it. I didn't notice Marcus sleepily approach me. He dropped to a squat, laid an ice cold hand on my shoulder and cockily sputtered "You look a little worse for wear, bud". A relieved and friendly smile pushed up my cheeks. I slowly breathed out. "What took you so long".  
+   
+It took another two weeks for Nadia to wake up. In those weeks, Marcus and I got to know each other better. We had an unmarked console onboard we could read, and write our personal logs on, though we mostly just used it for video games and karaoke. Due to the failure of previous missions, many brands no longer wanted to be seen in conjunction with the mission, so many of the useful items around the ship came in pastel and white unmarked casings. We had unbranded beers aboard, which originally seemed like a waste of space, something that could have been replaced with more useful cargo. We were exceptionally grateful for it in the end. They were all empty vessels of glass by the time Nadia came to.  
+   
+I learnt multitudes about Marcus' life back on Earth. His personal life seems pretty much what it looked like from an outside perspective. Parties every weekend. Flatmates by choice so there were always others around to socialize with. The closer I looked at him, the more I noticed the scarred holes in his earlobes, and the flimsy and eroded septum from what looks like years of cocaine use.  
+   
+We were alerted to Nadia's waking by hearing a guttural groan, and a thick, soupy liquid splatting against the floor. It was like the elevator scene from The Shining, but with much cloudier and beiger vomit instead. We spent most of that day cleaning sick from out of the needle thin panels in the floor, and adjusting Nadia to her surroundings. Seemed like her lengthier sleep as well as her smaller frame caused more side effects post coma.  
+   
+  
+   
+The next three months were what we expected. Wake up. Eat breakfast. Check the scanners. Wait. Eat Lunch. Check the scanners. Do repairs. Eat Dinner. Check the scanners. Sleep. Repeat. It took Nadia longer to warm up to us. She was very dedicated to the job. Trying to prove her work ethic, only maintaining recreational small talk with us when either Marcus or I tried to include her in our bored antics. Eventually she started allowing breathing room in her busy brain to conjure up jokes. "What issue did the asteroid have with its bum... a hemorrh-oid". It was unexpected from her but extremely welcome. I don't know how the others feel, but I think we became pretty good friends.  
+   
+One night we sat around having dinner together, and Nadia breached the topic of loved ones.  
+"Do you guys miss your family, I mean sorry for the sudden deep conversation, but I mean... I do". She twirled a curl into her wiry, dark hair. Marcus was the first to respond.  
+"I was on my own, so not really, didn't have friends and family, I'm a bit old for all that". I noticed a solemn glint in Marcus' eye. It was a noticeable juxtaposition to his strong willed demeanor. I always saw Marcus converse and playfully interact with people all the time back in the office. To think he never considered himself close to them tugged at me.  
+"Hey you aren't too old for that, you have me- you have us". I responded, my mouth talking faster than my thoughts. His expression shifted to smug and he chuckled.  
+"Haha ok big man, what about you, miss your family?". The sudden return to the question sunk me into deep consideration.  
+"I used to look after my father, he lived with me. He used to be quite demanding, even when he couldn't properly speak". I had a certain harsh tone on the word 'demanding'. Marcus' face indicated he picked up that I hid more in that word than what it seemed.  
+"Then he passed away and I lost my way a little, didn't really do or have anything else. So with what training I had before looking after Dad, it got me into this mission... and that's that". My voice trailed off and we all paused and breathed for a beat.  
+"Well thanks Nadia for that chipper topic!" Marcus' chuckle being so contagious the saddening tension all diffused and we continued onto lighter conversations. Those nights, with Marcus chuckling and Nadia's deep thoughts, were really special to me.  
+   
+   
+After three months, the accident happened. It was 11:45 pm. Nadia was asleep. Marcus was in the storage room, to which he sometimes disables the anti-gravity measures and floats around listening to music. I was reading a book called The Holy Innocents. It made me a little sick, but I had already read the majority of the books in the console over the previous months so I endured. The starboard side solar panels had been down for a week. Nadia and Marcus had been spending 12 hours a day, taking turns going for space walks with repair tools, attempting to fix the issue. I would keep myself occupied by the systems, communicating with them, and endlessly testing whether their endless attempts at patching finally succeeded. I heard the anti-gravity measures reactivate and Marcus, already cloaked in one of the three thick, bulky space suits, tiredly walked up to me.  
+"Ready to try this again?".  
+I sighed.  
+"Yessir".  
+   
+I waved Marcus out through the abnormally thick glass pane in the airlock door. I watched as the pressure of space caused the interior panels to cling to the walls of the ship for their lives. Marcus, steadily hooked to the Nessie by a dense cable, routinely shimmied himself around the corner, out of my view.  
+I began walking to the heavy set, surgically designed terminal chair. I didn't make it though.  
+The entire ship jolted, rotating with great pace on a north-west axis. My body was launched, like a baby bird's premature first flight, directly into a hardened corner of the terminal chair. My head collided first. What I heard before going unconscious was a bone crushing crack.  
+   
+  
+   
+I woke up. The pain, I wanted to scream. Scream so loud my stomach would slither up my throat, metallic blood fill my mouth, until it dribbled off my flaky lips. As much as I tried, all that came out was the muffled sounds of a dying mammal. My jaw was shattered, sharp shards of bone poked through my face muscles like gravel or stones in a bloody wound. It was locked shut, and started dripping dark, red fluid. I held it with my right palm, and helped myself onto both legs with the left. The ship had stopped rotating. Loose objects and panels were scattered across the floor. Few sparks fountained from worn cables.  
+   
+I heard a groan. Nadia. Her silent, wet huffs crept from the bed bays. I hobbled towards her noises, the sounds of skin and nails clipping against the metal floors slowly coming into earshot.  
+   
+Nadia laid in a pool of blood, thickening around the perimeter of her body. Her skin was pale, and eyes unfocused, the figure of a dying snow angel. A long handle had been snapped off during the accident, and as Nadia fell from her bed, the handle pierced the side of her waist, smoothly crawling through the meat of her body until it spurted out the other side. I slumped down to my knees, my lack of balance making it feel more like a fall. I sloppily trace my hands around her wound, trying to find the correct spot to apply pressure. I kept one hand held on her, and the other hand reaching for her bed shirt's sleeve. It was an old stained Freddy Krueger shirt, the soaking, red blood stains unintentionally fitting the faded design. I pulled hard with the one hand, slowly ripping off her sleeve. With each rip and tug, her torso would jolt, compressing her raw wound into the edges of the handle. She would gasp a hideous, wispy gurgle each time, guilt striking my heart like a crowbar.  
+   
+Her harsh, pained exhales reminded me of the deer my father used to hunt. When I was in my early teens he would take me to a small island, about an hour boat ride from the beach near our house. I hated it, but for my father, it was a necessity. He was raised in a cabin in the forest with his father.  
+I never met my grandfather, he passed away in prison when I was a child a few months before he was to be released. I had only heard the few stories my father would grunt, with malice on his tongue. The way my father hunted was inhumane. He would find a deer, a large one, and lock his brain onto it, the rest of the world, a smoky fog. He would spend hours ritualistically sneaking through the trees, rifle in hand, a predator in a wooden city. I was just there to watch, a dedicated spectator for his sport. Once he had enough of his unnoticed taunting. He would fire the rifle. Hit somewhere that wouldn't kill the animal, just hurt it enough it would squirm and writhe on the ground. He would drop on one knee, always the right one, and stab from the belly to the neck, slowly, the deer vomiting its last breathes in perpetual terror. Nadia's eyes, her sputtering heartbeat, her slowing, sickening gasps... I couldn't let it happen again.  
+   
+I wrapped the sleeve where I could around the wound, the jutting handle an obstacle for this act. She needed better medical attention. The only way this could happen is if I could get her to the medical bay. I looked down, guilt building even more.  
+"I'm sorry" I muttered to her, but the inability for any jaw motion caused it to be a wet, incomprehensible mess. As I did this flecks of my still dripping blood decorated her face.  
+I guided my hands under her back and under her knees, I then pulled up. I used all the strength I was able to muster in my state to pick Nadia up off of the ground. She screamed, no longer a raspy groan, but a needly, sharp scream of pure agony. The sound had no other emotion, her body, her mind, was only pain.  
+   
+I am not exceptionally fit, but I had enough strength, especially in that situation, even in that state, to trip and stumble myself into the medical bay and drop Nadia's progressively more limp body onto the long metal table. A fountain of darker blood crawled out of her mouth as her body heaved onto the surface.  
+This is when her glassy eyed gaze started to come into focus. I was relieved, thinking she was at least cognoscente enough to leave her paralyzed state. Her eyes weren't focused on me though, they were focused on the other side of the room. I traced her gaze with my own, and realized I should have never felt any relief, I should have just felt pure fear.  
+   
+Marcus' motionless body lay pressed against the large window that adorns the wall of the medical bay. Heavy debris from the loose food silos, which had now been fully torn from the ship, covered him, forcing his body to be compressed into the glass. I could not see his face. His helmet was just a doorway into a confined space of only blood. A tear rolled down my cheek.  
+"Get... him..."  
+I looked down at Nadia. Her face was determined, but weak. She slinked her hands to her waist, putting pressure on her wound. I grumbled a saddened noise, and slowly traced backwards, keeping my eyes on Nadia until I turned the corner. Her determined look fading as I left.  
+   
+I had never been in space. I was trained for it, but I was on the mission to monitor the scanners, sort out the technology and analyse from the inside. I was in my suit, head peaking out from the thick valve that I twisted my helmet into. I couldn't focus, the scraping of the helmet mechanically screwing into its latches picked its soundwaves at parts of my brain. I was stood in the airlock. I had to lock myself in there, and then venture out of the room all by myself. This was a procedure that needed two people, but there was only me. I flinched every time I felt the cold, damp fabric lining of my helmet, soaking in the blood from my jaw. I took a step. I had to do it. I had to save Marcus. I took another step. The entire ship shifted and I fell to the floor.  
+A smaller asteroid had collided with the ship. I thought it was over. Why couldn't it have been over. I couldn't do it. I couldn't go out there.  
+   
+  
+   
+My bare toes felt the chill of the metal floors. My heel tapping repeatedly, at a continuous rate, like a machine in an oil rig. I sat back against the medical bay doors. A small red light spread its glare onto the top of my head, curling into oblivion off the split ends and the tip of my hairs. The medical bay doors were locked. I couldn't face what was in there. My brain was filing thoughts through a fog, an endless fractal that was sporadically being combed through. I sat there for an hour. Paralyzed albeit for my heel. Another hour passed. A tiny metal clang from behind the doors pulled me back to reality.  
+   
+With swiftness I slam my fist against the door, spidering my fingers with haste until I found the lock, and disengaged it. The doors slid open, and an uncomfortable darkness thickened the air. My pupils darted in threes, until they could finally focus on Nadia's stationary body lying on the table. Arm strung off one side, caressed by a thin line and a needle which laid coldly on the floor. The line connected to her wound. She had stitched herself up.  
+At that time I hadn't even processed that the only sign Marcus had been crushed against the window, were the deep scratches of metal against glass looking out to empty space.  
+   
+I rushed over to Nadia's side. I held my hand near her chapped lips. There was barely any breath pushing against my palm. I shuffled as fast as I could possibly go over to a nearby counter. I stumbled and crushed my organs against the hard edge, silently pleading for air as I winded myself. I spiraled my arms out like an octopus, pulling cabinets open, throwing piles over, trying to find an oxygen mask. My stress unfolded at such a rate I did not notice the slow, heavy footsteps behind me. I returned back to reality again at the sounds of metal squeaking against metal, and a pressurized puff of air. I turned around.  
+   
+Marcus stood, still in his suit, hand clasped against an oxygen mask pressed onto Nadia's face. His helmet was missing, exposing his completely blood soaked face, a thick, deep, red wound across his temple. Chunks of blood coagulated inside his nostrils.  
+"What were you doing?" He tiredly demanded.  
+"I was trying... to help her" I unintelligibly spat out.  
+"I don't even know what you're saying, you know where this mask is kept! We all do!"  
+"I'm sorry" I said so quiet and full of guilt it was almost a hum.  
+Marcus, displaying a cowl of anger limped out of the room, pieces of fabric from the bulky suit fluttering to the floor.  
+   
+  
+   
+The next three weeks rivaled the loneliness of my first 105 days awake on the Nessie. Although we have built back our comradery now, there was an undeniable and dark tension swimming through the air between us after the accident. Marcus wouldn't talk to me, unless it had to do with our mission, or making small repairs to the wounded ship. I sat in the corner again, listened to my discman, as Marcus tended to Nadia. It took her five days to wake up. Five days of silence again, not that I could talk anyway with my jaw.  
+   
+One night, two weeks after the accident, Marcus left the med bay and made his way to the dust glazed corner I resided in.  
+"Can you talk now?"  
+I crack open my jaw, the bone hinge popping and cracking in place.  
+"Yes" I sounded different now, a sultry mix between a new accent and a speech impediment. The way my jaw was healing, I'd never talk the same.  
+He stood, looming over me. We no longer seemed like equals, people that were friends days ago. Now we were just a strong man, and the broken jawed monster in the dark. If Marcus heard me say this now, he would scoff. Nowadays it seems like he always knows what is going on in my pale head, and says just the right thing I want to hear to make me feel like I'm not a failure.  
+   
+"You did nothing, you left her. Why?" He asked, his anger not quite masking his genuine questioning.  
+"To save you" I croaked.  
+"You didn't save me" His tone became demanding.  
+"I went to save you! I did".  
+"I could see very little through that window, but I could see you leave, leave Nadia, and then nothing. For the two hours I was stuck at that window, trying to pull myself in, watching her die".  
+My breath picked up in a defensive panic.  
+"She told me to leave, she told me to".  
+   
+A voice shot through the room. A bullet of words pierced my heart. Nadia paced out of the medical bay.  
+"Take some god damn accountability you little... you little rat!" Her breath was heavy, this was the first time she had stood since the accident. She was in a fresh shirt now, allowing a new stain of blood to take another victim.  
+Marcus twisted around, worriedly shifting his feet in concern.  
+"No Nadia, you need to rest".  
+"I can't just let him shout excuses and excuses and EXCUSES!" She dropped to the floor, blood sneaking through her gritted teeth. She gasped. The same guttural gasp she made when I held her bloodied wound. Meat machinery clicked in my head. My eyes lost focus and I stared into the room as if it were space itself.  
+"He made me cut the deer..."  
+"What?" Marcus mutters in utter confusion.  
+"He made me...". I wasn't a spectator. Another excuse.  
+"I wish your jaw was still broken you horrible fucking man" Nadia continued. She mustered enough strength to determinedly guide her arm towards a nearby table. Her hand lied upon a metal cup, and without a beat, lunged it towards me. It hit my jaw. I cried out the loudest my throat could expel, like a wounded animal. I am not a wounded animal. My eyebrows furled and the oily skin on my forehead tightened.  
+   
+  
+   
+Those three weeks of turbulence are finally over. The yelling, the arguments, the disappointments we were able to put them behind us. They were a temporary asteroid field that we repaired together and now have moved on. I slip off of the table and the soles of my feet spread across the metal floor. A hard dried substance clinging to the floor panels dig into my skin, but I pay no mind. I cheerfully careen my way through the ship. I need to shower, but it is not an urgent necessity as my body odour isn't a dominant smell these days anyway.  
+"Marcus I'm up!" My voice bounces and twirls through the empty hallways, which are thick with static and silence. In return I hear him talking from near the main terminal.  
+   
+I make my way up to the terminal. The hallways seeming more mazelike, and even natural. That was possibly just the mold and stains which relocated itself to bare surfaces, growing everyday like an infinite puzzle. I glide past the medical bay, the red locked light flickering in glitched, pulsating bursts. Without decelerating I glide my hand across the face of the doors. I can feel multiple dents from smaller fists that were punched through from the opposite side. I pressed in slightly, the doors staying idle as the lock refrains them from jostling in their place.  
+"You eaten yet Marcus?"  
+His monotone voice responds, as I can hear it passing through the hallway much easier as I draw nearer. I step into the doorway, facing the terminal, and see Marcus in his usual spot upon the terminal chair.  
+"Already at work I see" I chuckle to us both.  
+"Scanning... Scanning" Marcus responds, his robotic voice wheezing through the speakers. I pull up a chair, shrieking metal noise spouting out, as I scrape it in front of Marcus.  
+   
+Marcus' corpse lay upright, strung up a distance from the terminal chair with cables and strings.  
+"How's the work going?" I ask, making tired morning small talk.  
+"Scanning... Scanning" Marcus responds again.  
+"Haha yeah I get you, work's work". I go to affirmatively pat him on the shoulder in jest. My mind contorts and clocks what I am doing. Do not touch him. Do not feel him. Keep the immersion.  
+   
+Marcus' body is skinny and brittle. His stiff, sloppily positioned posture, strung about like clothes on a washing line, resembled that of a sapling, thin roots with even thinner branches. His eyes were a dark grey, both looking like they had receded into his skull, and like they were on the verge of toppling onto the floor. His handsome, grey, peppered hair was stringy and loose, no longer giving the aesthetic of a young spirited, charming man.  
+After a fluttering beat, my thoughts travel back to normalcy.  
+"I am going to go have a little break before I get into working ok"  
+"Scanning... Scanning"  
+"Ok yeah see you soon" I make my way to another room, and deactivate the antigravity measures.  
+   
+"Scanning... Scanning... Warning"  
+   
+  
+   
+I let my limbs go limp, gracefully contorting in antigravity. I'm listening to my discman, floating in complete silence, letting all thoughts pour out of my skull, emptying my mind. I see out the window something unusual, well, it's what I don't see. I don't see anything. I see nothing. My eyes widen in complete satisfaction and amazement. Then, my skin tightens.  
+   
+A sequence of crumbling and metal shrieks start echoing through the ship. A layer of the thick glass windows that line the ship start snaking thin almost unnoticeable cracks through their exterior. The ship starts vibrating at only the consistency of a small bumblebee, but noticeably increases within seconds. Pressure within my joints start popping like internal bubble wrap.  
+   
+I grasp onto the wall and propel myself towards the exit. The red light disengages as my fingers, pivoting with an uncomfortable tightness, unlocks the door. I re-enter gravity as my body slinks heavily to the floor. I wind myself as my ribs collide with the stained panels. In a tornado of limbs I clumsily push myself forwards towards the terminal  
+"Warning... Warning".  
+"Marcus what is going on?" I shout towards his corpse.  
+"Warning... Warning"  
+"Piece of shit" I mumble under my breath, entertaining the idea that he could even hear me. I brush the cables that prop him upright aside, and type into the terminal. His face, frozen in shriveled, moldy, infinite sleep, watches over a short distance from my head. I type a string of messages, simplified to the question "What is happening". As the ship's metal groans the terminal spells out shrill audio from its speakers.  
+"Limited distance remaining, undocumented pressure damaging hull, repair or 98% human fatality hypothesised".  
+   
+Sweat spirals off of my forehead as I fling my view back towards the window. The void of space started to gradient to a different colour, as we get closer a wall of murky light absorbs what was once darkness. Slowly, from a short distance, a lone piece of debris drifts from beyond the glass. I try focusing my eyes. There are thick letters dashed across the debris, almost unintelligible with how creased and compact it had become. My eyes expand with fear and awe as my brain pieces the words together.  
+"Nessie 7"  
+A sharp, unsatisfying crack pounds into my head as I watch an intricate web of thick white lines develop across the window in the storage room. Muffled whistles start pushing into the glass and I have only seconds to act. My toes press with force against the panels and I launch myself towards the lock. Shrieking sounds of glass and air becoming more overwhelming. Another push, propelling myself again. the web of glass expanding to the full size of the large window. My skin keeps getting tighter, shrink wrapping my bones and muscles in a fleshy package. With all my strained strength I launch myself one last time, a finger length away from the lock. Then with the cry of one thousand tiny glass shards, and the wind of a planet wide blizzard the window breaks. My hand reaches the lock as my legs and hips are sucked towards the murky abyss. Tears are vacuumed from my eyes as, with all the hope I have left, I activate the lock. The doors barrel towards each other and shut with a large crack and thud in the centre. I release a heart stopping scream and pull away.  
+   
+Droplets dance along the floor beside me and I pull my gaze down. The bottom of the door's crease is painted red, and my left foot is missing three and a half toes. Red pulp and toothy bone protrude where the toes used to be attached. The Nessie moans and roars, twisting inwards on itself. The pressure, the pulling, the compressing, its overbearing. At the speed we are travelling towards the cloudy edge of space, we won't make it before we collapse inwards and transform into a crumpled piece of paper. I need more speed. I need to finish the mission.  
+   
+There are two remaining escape pods that sit within a well at the bottom of the Nessie. Developed to protect us during an emergency, they launch outwards at a speed exceptionally faster than that which we are travelling now. That is my only way out. I hobble through the corridors, one wrong movement away from slipping on my own slinking trail of blood. One fall, one stop in momentum, and I could miss my window to escape, and become stuck, melded and bursting inside an imploded metal prison. I press on, past the red light of the medical bay doors, past our dingy, damp sleeping quarters, and to the few steps that remain to make my leave. With each hobble down these steps, I writhe in pain, gaining my breath before each drop as even the smallest bump shoots agony through my foot.  
+   
+I now stand at the escape pods. Two undamaged circular orifices with a view to a compact metal char and a baron console. This is it, this will bring me past the edge of space. The ship roars and sparks, glass shattering and panels crumpling. I have no time to breathe and with my one healthy foot I push myself into the pod. The door speeds to a robotic close and decompresses with an industrial exhale. I don't even think about sitting in the chair, I set the velocity to max, ignoring the warning. Disengage the launch countdown and... The roar of the engine pulsates as I shoot out into space. I don't look out the front window. I look back. The walls of the ship are an obstacle to my view, but I know I'm in the eyeline of Marcus. Guilt wells up as tears thicken against my tight eyelids. My crew once trusted me. Considered me their friend, and what did I do to them. String Marcus' corpse up. Lock Nadia in a room to starve. I made that choice for them. I am the one leaving their bodies behind as I get to run away and see the outcome of our shared work.  
+The Nessie crumbles inwards slowly as I look away, my brain slowly focusing on the quick collapse of the escape pod. Alarms whirr and bounce their sounds through the deteriorating structure. I just need more time. One of my lungs tighten as the other one expands full of liquid. My face tightens on one side and sags on the other. The pressure is too much for my body. My ears trickle blood profusely, until it slips across my lips and into my mouth. The alarms are almost silent as my ears are blocked and muffled. The murky wall becomes brighter as I propel closer. I am almost there. The mystery uncovered and the mission almost complete. What is beyond the edge of space? Galaxy clusters shoot past and swirl around me, becoming strands and trails of light at the speed I am travelling. My knees swell, filled with fluid and my eyelids puff up until my vision is as though I am looking through two straws. I shut what remains of my vision, my body contorting and the escape pod ripping into strings of material and metal as I break through the barrier.  
+   
+Space breaks into an exploding splash. Voids of stars and darkness spray and clump like a blast of water from a whales blowhole. I open my eyes, glazed over with blood and crust. I see a bright void, a sky above the space below. Static clusters of galaxies and stars resemble vast islands, and the dark pit that we know as space, just an ocean. I am but the size of an ant, in whatever this world is. It's beautiful, it's horrifying, it can't truly exist, can it? A large collection of space and galaxy reaches out with an elongated form, a limb, and swats me and the debris downwards. My head crumbles from the impact, my body just a collection of mush and bones gracefully twisting through a plateau of inconceivable life. My vision goes dark.  
+   
+I lay on humongous interstellar grains. A beach of stars. What resembles the remains of my body decays purple, and frost claws and grasps at the edges of my skin. I do not remain anymore, just the mind and body of a puss ridden blob fish. The black, bleeding orbs that contain the last resemblance of my eyes drift upwards, and everything fades to black.
+
+  
+**My Notes**: So this is where the log ends. I assume the astronaut's escape pod had just enough power to submit the final log. I have no clue what to make of this. What companies are behind this and why did they want to hide it. If anyone has any ideas please, I need to know more.
+
+**Signing off.**
