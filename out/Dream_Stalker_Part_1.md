@@ -218,9 +218,9 @@ The other guys scoff in indignation
 
 “Are you kidding? Wait till you see her moves dude; she kills us every time”
 
-“Oh just wait, I've been working on a new move and I can't wait to test it on you guys. It's called the Crazy S”
+“Oh just wait, I've been working on a new move and I can't wait to test it on you guys. It's called the Impossible S”
 
-Everyone groans. Crazy S, huh. Got it. I can see my path falling into place. Without hesitation, I open my mouth
+Everyone groans. Impossible S, huh. Got it. I can see my path falling into place. Without hesitation, I open my mouth
 
 “Well since there's nine of us, let's have me on the bigger team and Olivia on the smaller team. Should balance things out”
 
