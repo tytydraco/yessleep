@@ -1,0 +1,245 @@
+It started like any other night. I was greeted by rows of identical washers and dryers sitting under buzzing fluorescent lights. The entire place was monotone with remnants of neon signage.
+
+
+
+I spend most of my time in the dark, cramped back office scrolling on my phone, doing whatever. No hard rules, as long as I glance at the security monitor on the tiny metal desk every now and again and keep the place clean.
+
+
+
+The weird shit started around 2:00 AM when one of the regulars, I’ll call her Barb, came in. I was sitting in the office, watching her on the screen, when she beelined it to the change machine. I watched her feed a bill in, and it spat it right out. 
+
+
+
+She lost it immediately. Literally went berserk, hitting the machine. She even kicked it a couple of times. I was listening intently, waiting for the inevitable profanities to come through the paper-thin drywall, but they didn’t.
+
+
+
+I actually didn’t hear anything. No metallic thud when her foot met the machine. No clanging of the change inside when she rocked it. Just the hum of the CRT screen.
+
+
+
+So, I went out to the lobby to tell her to knock it off, that I’d fix it. I scanned the space. Nothing but the low drone of the fluorescent lights and thrum of a dryer somewhere.
+
+
+
+I headed to the change machine, and when I rounded the corner, Barb wasn’t there.
+
+
+
+The rows of machines looked unnaturally long. Like they were stretching into an abyss where the lights seemed dimmer the farther I looked. 
+
+
+
+"Very funny, Barb, you can come out now." I was convinced she was messing with me, which, if you knew Barb, was very much in the realm of possibilities. 
+
+
+
+No answer. I shook my head. Rubbed my eyes. I walked over to the restroom. "Barb?" I squeaked. I knocked on the door, and it creaked open -- nothing but a flickering bulb over the stained sink.
+
+
+
+I turned around, and just then, Barb walked through the front door. She beelined it to the change machine and began hitting it. She even kicked it. She matched every single thing I just saw on the monitor minutes before.
+
+
+
+I felt the room spin. Barb just looked at me. Asked if I was going to keep standing there like an idiot or help her. I don’t know what I replied, probably just gibberish.
+
+
+
+I went back to the office. Took a big swig of water. Splashed some on my face. My heart was pounding out of my chest.
+
+
+
+A bit later, another customer, I'll call him John, came in through the front door on my monitor.
+
+
+
+I watched his lips move, but there was no sound. I scrambled to my feet and bolted into the lobby faster than a bat out of hell.
+
+
+
+And it was empty. Nothing but the thrum of a dryer that was getting louder, and the lights somehow more offensive.
+
+
+
+I ran to the front windows, which seemed to take longer than usual. Outside, the parking lot lights flickered and were more distant than before.
+
+
+
+I busied myself with the change machine, and then, like clockwork, John actually came in. He was whistling a happy tune. 
+
+
+
+After a brief hello, I ran back to the office and pulled out my phone: 2:10 AM. Then I looked at the timestamp flickering in the bottom corner of the security monitor: 2:20 AM.
+
+
+
+Was I in some weird time space continuum? Only one way to find out. 
+
+
+
+My eyes were glued to the screen when I saw a pool of soapy water spontaneously leak from under a washer. I grabbed a mop, raced into the lobby, and lo and behold, the floor was dry. So I posted up and waited.
+
+
+
+John walked by. Gave me an extremely puzzled look as I proudly stood there with a mop and no water in sight. And then, it happened. The washer made a choking sound, and soapy water sputtered out from underneath.
+
+
+
+I cheesed so hard. I felt like God and did a few more "tests."
+
+
+
+Fast forward to a little after 3:00 AM. I was back in the office, eyes bloodshot by this point, when I saw movement on the monitor.
+
+
+
+A figure standing at the far end of the lobby, their back turned to the camera. 
+
+
+
+Same messy bun as me. Same hoodie as me.
+
+
+
+**It was me.**
+
+
+
+I leaned so close to the monitor that I could feel the static on my forehead. On the screen, Future Me whipped her head around and skittishly scurried out of the frame.
+
+
+
+I bolted out into the lobby. It was empty. But the rhythmic thrum of the dryer was growing louder, echoing through the never-ending rows of machines.
+
+
+
+I deadbolted the entrance and turned off the "Open" sign.
+
+
+
+When I got back to the office, Future Me was running past the washers on the monitor, constantly looking over her shoulder at something, and sprinting directly toward the front door.
+
+
+
+About ten minutes later, I was running toward the front door, constantly looking over my shoulder. And I was painfully aware that "*I"* had just done this. But I couldn’t stop.
+
+
+
+I got to the door. Still locked. I turned around, and now one of the dryer doors was hanging wide open.
+
+
+
+Back in the office, I checked my phone: 3:10 AM. The monitor: 3:15 AM.
+
+
+
+The gap was closing.
+
+
+
+I watched Future Me race back onto the monitor. She climbed on top of that open dryer. She just sat there, her legs dangling like a little kid, staring directly at the security camera. 
+
+
+
+Staring directly at me.
+
+
+
+That’s when I screamed at the screen, "What are you looking at!?"
+
+
+
+Future Me jumped down, slammed the dryer door shut, huffed her breath onto the glass, and frantically dragged her finger over the condensation before sprinting away.
+
+
+
+Minutes later, I found myself racing to that aisle. The fluorescent lights hummed louder. The thrum of a dryer was now more like a thud, pulsing, slower, more deliberate.
+
+
+
+The dryer door was wide open. I climbed up, sat on the dryer, and stared directly at the camera. 
+
+
+
+But nothing happened.
+
+
+
+I hopped off and lost my footing, and my shoulder slammed the dryer door shut. I instinctively huffed on the glass and dragged my finger over the condensation.
+
+
+
+I wrote the word: *RUN*
+
+
+
+And boy did I. I ran so fucking fast into the office and slammed the door. I stared at the monitor. I pulled out my phone. My hands were shaking so bad, I could barely see the screen as I started typing.
+
+
+
+On the monitor, Future Me was now standing right outside of the door, looking directly into the camera. She just stood there like a statue. But then she pulled out her phone and started typing. 
+
+
+
+Just like me.
+
+
+
+Then the monitor showed Future Me’s gaze shoot past the camera. Her face contorted -- absolute terror.
+
+
+
+I watched something slip into frame behind her. I couldn't make anything out, but whatever it was, it completely blocked the lobby’s fluorescent lights.
+
+
+
+It extended itself toward her shoulder.
+
+
+
+I looked at my phone: 3:24 AM. The monitor timestamp: 3:25 AM.
+
+
+
+The feed and my reality had caught up with each other.
+
+
+
+Then everything went completely silent.
+
+
+
+I braced myself for whatever was going to happen next -- squeezed my eyes shut. Shit, I probably even said a prayer.
+
+
+
+And then I found myself on the other side of the door. Right where Future Me just was.
+
+
+
+Our timelines finally collided.
+
+
+
+But the laundromat was empty. No Barb. No John. Just the monotonous thrum of a dryer and the soft drone of the overhead fluorescents.
+
+
+
+I looked around. Called out. Nothing.
+
+
+
+So I bolted to the front door and unlocked it as fast as my fingers would let me.
+
+
+
+Which brings me to now.
+
+
+
+In the parking lot. In my shitty little sedan. With what looks like a burn mark on my shoulder. Still shaking from whatever the fuck just happened. 
+
+
+
+Definitely calling in tomorrow at the very least.

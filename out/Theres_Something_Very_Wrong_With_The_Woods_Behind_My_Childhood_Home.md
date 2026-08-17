@@ -26,10 +26,6 @@ I ultimately chalked it up to her state of mind. The doctors had informed me tha
 
 She didn't wake up again.
 
-
-
-
-
 She left me the old house.
 
 I drove out that same day to check up on the place. Just to look over what was left, and to bask in old memories for a while. A handful of new houses had gone up nearby in the years since I'd left. The field behind the house that I used to cut through on my bike was now half cut down to make room for new development, which had evidently stallled. The house's lawn had gone wild. But the house itself looked almost exactly as it had when I was a boy.
@@ -40,7 +36,7 @@ I went to her room and turned on the light. The bulb flickered before it lit, fi
 
 I went through them in order, starting with the most recent. Photos from our visits over the years, mostly. Then my wedding. My college graduation. Birthdays, school trips, the handful of events she'd thought to bring a camera to over the years. And finally, the summer I got my bike. A photo of me standing beside it at my birthday party, which a grand total of two classmates had attended. I was grinning wide while holding up a bike with a glossy red frame and a bow still tied around the handlebars. The best gift I ever got.
 
-I flipped through the rest of that envelope. It was mostly photos from my party. A few of me playing outside that she'd taken candidly. Me riding my bike in the driveway, still looking a bit wobbly. 
+I flipped through the rest of that envelope. It was mostly photos from my party. A few of me playing outside that she'd taken candidly. Me riding my bike in the driveway, still looking a bit wobbly.
 
 And then a photo of me, standing next to a girl I didn't know.
 
@@ -52,14 +48,11 @@ I examined it closer. The photo had been taken in our front yard near the drivew
 
 I had wanted a friend that whole summer. Apparently I'd had one. And somehow, I had no memory of her at all.
 
-
-
-
 I went back to my old room and dug out my yearbooks, going through them page by page. Elementary, then middle school, then high school, checking every photo and name. Then I skimmed through them a second time, this time remembering to check the signature pages. Most of them were sparse, filled with the same handful of names I already remembered.
 
 Then I found something I didn't remember. Sixth grade. A single signature at the very back of the book, separate from the handful of others.
 
-A short note in careful, looping handwriting: I know we didn't go to school together, but I'm still glad I get to sign your yearbook. It's my first time signing one. I've had a lot of fun this summer. I'm glad we met! 
+A short note in careful, looping handwriting: I know we didn't go to school together, but I'm still glad I get to sign your yearbook. It's my first time signing one. I've had a lot of fun this summer. I'm glad we met!
 
 Signed, "Emma." A small smiley face was drawn beside her name.
 
@@ -73,7 +66,7 @@ The only other thing I could remember her mentioning was the fort.
 
 She'd associated it with the girl. With Emma. I hadn't been back there since I was a kid. I wasn't even sure it would still be standing. It had already looked like it could fall apart at any moment decades ago. But it was the only real clue I had.
 
-I didn't bother waiting for morning. I found an old flashlight in the garage, the kind with the fat square battery that you had to slap every now and then to keep on. I told myself that I wanted to get it over with so I didn't have to spend tomorrow dealing with it. That was true, in a sense, but it wasn't the real reason. The real reason was that I didn't think I could sleep with the idea of some phantom memory nagging at me. 
+I didn't bother waiting for morning. I found an old flashlight in the garage, the kind with the fat square battery that you had to slap every now and then to keep on. I told myself that I wanted to get it over with so I didn't have to spend tomorrow dealing with it. That was true, in a sense, but it wasn't the real reason. The real reason was that I didn't think I could sleep with the idea of some phantom memory nagging at me.
 
 The field was smaller now, cut down on one side and replaced with a muddy mess, wooden stakes and half hung string marking out zones for building. But past it, the tree line was the same. Tall pines, standing black against the sky. I walked the half-mile through the field and found myself thinking far more about the snakes, mice, and ticks than I ever did as a kid. I stood at the edge of the woods for a long moment. The creek that used to mark its entrance was now dry. Then I willed myself forward into the darkness of the trees.
 
@@ -91,39 +84,39 @@ Inside were a handful of Polaroids, stuck together at the edges from years of hu
 
 For some reason that I could not quite express, my heart was now pounding even harder than before. I went for the notes first, and unfolded the first.
 
-*James -
+*James -*
 
-That was really mean. You didn't talk to me today. I stood right in front of you outside the fort and you didn't look at me at all. You just walked right past me. You didn't even answer me. I pretended I was fine, but I was really sad. Did I do something wrong?
+*That was really mean. You didn't talk to me today. I stood right in front of you outside the fort and you didn't look at me at all. You just walked right past me. You didn't even answer me. I pretended I was fine, but I was really sad. Did I do something wrong?*
 
-- Emma*
+*Emma*
 
 What startled me more was the response, written directly below on the same sheet of paper.
 
-*To Emma -
+*To Emma -*
 
-What are you talking about? When I came to the fort you weren't here. Are you just messing with me? Are you sure you saw me? I thought you had something to do maybe. I'll be here tomorrow at noon. I'll bring lunch!
+*What are you talking about? When I came to the fort you weren't here. Are you just messing with me? Are you sure you saw me? I thought you had something to do maybe. I'll be here tomorrow at noon. I'll bring lunch!*
 
-- James*
+*James*
 
 It was my own, childish handwriting scrawled on the paper, but I couldn't recall ever writing it. I couldn't remember any of it. In all of my memories of the fort, I was alone, so how was it that I was now finding impossible evidence of a friend I didn't even remember having? I was almost shaking now, but I unfolded the second note.
 
-*James -
+*James -*
 
-I thought you were playing a mean joke on me when you said you didn't see me, but today I went home and my own mom ignored me. I yelled out to her over and over, but she wouldn't turn around. I'm getting really scared. Please meet me here after lunch, okay?
+*I thought you were playing a mean joke on me when you said you didn't see me, but today I went home and my own mom ignored me. I yelled out to her over and over, but she wouldn't turn around. I'm getting really scared. Please meet me here after lunch, okay?*
 
-- Emma*
+*Emma*
 
 Below it, my response read:
 
-*I think you're the one messing with me! How could your own mom forget you? Is this part of one of your stories? Well, even if she does forget you, I won't. I promise.
+*I think you're the one messing with me! How could your own mom forget you? Is this part of one of your stories? Well, even if she does forget you, I won't. I promise.*
 
-- James*
+*James*
 
 My hand shook as I pried open the third note.
 
-*You promised you wouldn't forget me. I know you didn't mean to break that promise. I don't think it's your fault. I think something is happening to me and I don't know why. But it's getting worse. Nobody reacts to me now. I'm going to try something tomorrow. I hope it works. If you're reading this and you don't remember writing anything back, or you don't remember me at all, then I guess it didn't. I'm sorry. I hope you have a good life. I'm really glad we were friends, even if it turns out I'm the only one who remembers.
+*You promised you wouldn't forget me. I know you didn't mean to break that promise. I don't think it's your fault. I think something is happening to me and I don't know why. But it's getting worse. Nobody reacts to me now. I'm going to try something tomorrow. I hope it works. If you're reading this and you don't remember writing anything back, or you don't remember me at all, then I guess it didn't. I'm sorry. I hope you have a good life. I'm really glad we were friends, even if it turns out I'm the only one who remembers.*
 
-— Emma*
+*— Emma*
 
 There was no date, but they must have been from that summer. I sat down on the old carpet and read over each note several more times, and each time I got to I guess it didn't work, something in my heart sank a little bit deeper.
 
@@ -145,9 +138,7 @@ I remembered the lights, too. Small and indistinct, hovering at the edge of my v
 
 I went to find it again.
 
-
-
-It took me several attempts. I followed the thinning creek, then got turned around, then tried once more from where the water split east. On the third try, I found it, tucked into a small hollow in the trees exactly as the old photo showed it. Except no photograph or half-memory had prepared me for actually standing in front of it again. 
+It took me several attempts. I followed the thinning creek, then got turned around, then tried once more from where the water split east. On the third try, I found it, tucked into a small hollow in the trees exactly as the old photo showed it. Except no photograph or half-memory had prepared me for actually standing in front of it again.
 
 It didn't look like a rock, really. Whatever this was, it didn't rest in the ground like an inanimate object placed there by nature and happenstance. It sat in the earth as though erected, angled at a slight lean like my​ old fort. Its dark black blinked with a strange, glassy blue where my flashlight caught it, its surfaces flat in places and strangely warped in others. It was like something built rather than naturally formed, then half-buried by someone in a hurry. The strange symbols cut into its face didn't seem to sit still under the light. It wasn't that they moved, exactly. Rather, my eyes couldn't seem to hold onto them. Every time I thought I had the shape of one memorized, I'd blink and lose it, and have to start over from another symbol.
 
@@ -159,7 +150,7 @@ But as I stood looking at it, I noticed the lights again. In the corners of my e
 
 They weren't lights. Or they weren't just lights. They had a form to them. The suggestion of shoulders, of arms, of something like a head, swaying back and forth. Flickering in and out like an old television, there and then not there then there again, never quite solid enough to call solid, but not quite vague enough to call a ghost. One of them lifted what might have been a hand. It reached out toward me slowly, then stopped, like I was just out of its grasp. There was nothing threatening in the motion. In fact, it looked less like a threat and more like a plea.
 
-As the ringing in my head spread and then consumed me, I remembered all at once exactly why I never used to look at them directly. It wasn't fear of them alone. It was something closer to the feeling of standing on the shore and watching someone out past the buoys as they drowned. A specific, gnawing helplessness of being looked at pleadlingly by something that is desperate for help, and knowing that swimming out to their aid would only drown the both of you. 
+As the ringing in my head spread and then consumed me, I remembered all at once exactly why I never used to look at them directly. It wasn't fear of them alone. It was something closer to the feeling of standing on the shore and watching someone out past the buoys as they drowned. A specific, gnawing helplessness of being looked at pleadlingly by something that is desperate for help, and knowing that swimming out to their aid would only drown the both of you.
 
 I made myself stay where I was as the ringing washed over me. Not taking a step forward or back. I just stood at that invisible line, close enough to feel the pressure thickening in my chest, close enough to watch the shapes flicker at the edge of the stone. And I let the memories come.
 
@@ -175,9 +166,7 @@ I didn't wait to see if the shape's hand would ever close the distance between u
 
 I did not look back at it again. I walked out of that clearing as fast as I could, and I did not stop until I could see the streetlights of the new development through the trees.
 
-
-
-The next morning, I sat on the front porch waiting for my ride back to the airport. I had decided to leave early. I needed to return to some sense of normalcy. I could make the arrangements for my mother's funeral over the phone, and return with my wife when I was more mentally stable. A part of me believed the events of last night to be some cruel hallucination, spurred on by grief and exhaustion. 
+The next morning, I sat on the front porch waiting for my ride back to the airport. I had decided to leave early. I needed to return to some sense of normalcy. I could make the arrangements for my mother's funeral over the phone, and return with my wife when I was more mentally stable. A part of me believed the events of last night to be some cruel hallucination, spurred on by grief and exhaustion.
 
 I retrieved my phone from my pocket. I needed to hear my wife's voice. To tell her I'd be heading home soon, back later that day if there were no delays. I wanted to hear her reassurance. To distract me from the sadness I still felt, and the confusion of memories I'd forgotten. I wanted to hear the kids over the phone before they were off to school.
 
@@ -187,11 +176,10 @@ She picked up on the third ring.
 
 "Hi, honey," I said.
 
-There was a pause on the line, after that. 
+There was a pause on the line, after that.
 
-"Honey?" I asked once more, unsure if we'd disconnected. 
+"Honey?" I asked once more, unsure if we'd disconnected.
 
 Then I heard her voice.
 
 "...Who is this?"
-
