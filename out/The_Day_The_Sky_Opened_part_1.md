@@ -33,7 +33,7 @@ He asked what brought me out and I explained what I was working on. Being my fir
 
 I asked him if he had seen anything suspicious lately.
 
-\*“Suspicious? No. I did had to tow a fella who broke down maybe 25 miles north of Gold Hill. That’s honestly about it.”\*
+\*“Suspicious? No. I did have to tow a fella who broke down maybe 25 miles north of Gold Hill. That’s honestly about it.”\*
 
 When I asked him about Gold Hill he explained that it was an old ghost town out between Wendover and the Goshute Reservation. He said the town had gone away and popped back up on and off since the 1850s. The gold rush, the arsenic boom, tungsten mining, reason after reason of the town to open and close. He also said that since the mining in the 1940s ended, there hasn’t been a reason for anyone to go back out there and in his own words:
 

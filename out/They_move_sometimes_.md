@@ -1,0 +1,138 @@
+
+For a while, I worked as a contractor for an insurance company. I’d do one day cyberssecurity assessments of their vendors. Most of the time, this required me to fly somewhere then fly back the next day, sometimes twice a week.   
+  
+It was alienating and surreal. My days were the same, but the details changed. TPA, silver Hyundai. Holiday Inn. SFO, white Ford, Extended Stay. I had checklists, reports, schedules and timesheets that constantly reminded me that I wasn’t really in control of my days. I was in a fog.    
+  
+I complained to my boss and he got me a few assessments that I could drive to. On nice days, I’d ride my motorcycle. One of these was in Scranton, PA on a Thursday. I didn’t have another gig until Tuesday, so I decided to add a day or two of a road trip. I’d ride around rural Pennsylvania on my own schedule. I finished the assessment right after lunch and started West on [Route 6](https://paroute6.com/).  
+  
+It started out as a great ride. Once out of the Scranton suburbs, it was just rolling hills, undulating pavement and little slices of Americana. Little Pennsylvania towns with varying levels of wear and tourist-friendlieness  used Rt 6 as their backbone.   
+  
+I stopped when I wanted to. I stopped for water, or to read or just walk around and look at stuff. I soon realized that I wasn’t exuding cool, I was exuding sweat. The weather was hotter than I expected and I had chosen my outfit poorly. I had brought a thick leather jacket instead of a mesh riding jacket. I also had kept my (now soaked) dress shirt and tie on.   
+  
+By the early evening, I decided to stop at a scenic overlook and figure out where I was going to find a hotel. I wanted rustic, local and close to food & drink. I find an appropriate place about three towns over. It’s a 50’s motel, but pretty. It’s walking distance to three restaurants and two bars. Sold. 
+  
+I put my phone away and look at the hills and the setting sun. I’m looking at the blinking lights on the row of windmills to the south. They’ve been installed on the tops of forested hills. It’s quiet enough to hear breeze and the ticking sound a motorcycle engine makes when it’s cooling. Watching all the lights blink in unison makes me wonder about how they’re networked, since it’s clear they’re all synching time. I consider what else they’re sending back to the control center. 
+  
+“They move, sometimes”  
+  
+I’m startled out of my reverie. There’s a thin, older man right standing next to me, looking in the direction of the hills. He and his clothes are well worn. Initially, the dark jacket and pants with a light colored shirt with a banded collar make me think he’s Amish, but he doesn’t have a beard. He’s wearing a cross with a circle on top, made out bone or ivory, hanging from a crude rope or twine.   
+  
+
+  
+He’s not really talking to me, just in my presence. He doesn’t acknowledge me and he’s not making much sense. The word salad seems rehearsed. I back away from him and get on my bike. I break eye contact with him when I’m putting on my helmet. I look up and he’s right in front of me, wide-eyed.  
+  
+“BEWARE WHEN THEY MOVE AND THE EARTH TREMBLES”  
+  
+I start my bike and get out of there. I don’t see the guy in my rear view. After a few hundred feet back to the main road, I stop and look back. I still don’t see him, but I decide to put more distance between us.   
+  
+Ten minutes later, I’m in a small town in McKean County. A quick circuit shows a four block downtown. One in three storefronts are vacant. The motel is as shown. Six units behind a three story house. I find a door labeled “Hotel” and walk into a room with a tiny counter, a rack of brochures and a grandfather clock. Somewhere beyond that counter, a novice is playing scales on a piano. I find and press a doorbell button taped to the counter.  
+  
+Two minutes later, an older woman is handing me a well worn pair of keys on a ring with a green plastic disc. She points to a door in the house.   
+  
+“Go up the stairs and your room is on the right”  
+  
+“I’d prefer one of the motel rooms out back.”  
+  
+“They’re all booked. This is a better room, anyway”  
+  
+I smile, go out into the empty parking lot, unpack my bike and carry my things upstairs.  
+  
+The room’s fine as it was in 1953.  A noisy fluorescent lightbulb reveals yellow and black tile and no bathtowels. I do a rest-stop wash and change into a t-shirt and jeans, grab my road book and go downstairs. The music practice has stopped and there’s no response to my doorbell button pushing.   
+   
+Fine. I hope to find cold beer and something to eat. A few minutes later, I’m in a bar. Wood paneling, mounted hunting, bowling and hockey trophies on the walls. A beer is in front of me, but the kitchen is closed today.  By the bottom of my second drink, I’m in a conversation with two other patrons. We’ve talked weather, road conditions and moved to tasteless jokes. They’re greatly amused by my “what’s the difference between a dumpster full of bowling balls and a dumpster full of dead babies?” joke.   
+  
+Answer: You can’t use a pitchfork to unload the bowling balls.   
+  
+Another round and all six occupants of the bar, bartender included, are laughing and having a good time.  
+  
+I address the entire bar:  
+  
+“I had a strange thing happen to me on my way here today. I pulled off the road and this crazy preacher type guy yelled some things, then ran off. I wonder what that was all about”  
+  
+It’s an 80’s movie trope, where there’s a record scratch sound followed by silence and hard stares. The jukebox was a CD model so it wouldn’t make that sound, but the air changed in that moment. The patrons found more remote seats and the bartender kept his eyes on me. I picked up my book, put more than enough cash on the bar and walked out.   
+  
+A quick Google search told me of a new brew pub a few blocks away. I made my way there. It was fairly busy, so I sat at the bar and ordered a more filling meal, the rural Pennsylvanian answer to the Southern meat-and-three sides. Here it was meat (sausage) and three starches (pierogi, mashed potatoes and fries). Sadly, they were trying to be too fancy with the brewery side. IPA does not need bergamot and a Pilsner is not improved with apricot. I read my book, sip my beer and  I guess they’re trying to be trendy here. I realize I’m one of the last remaining customers as the bartender asks if I need anything else as she’s cleaning the bar. I ask to settle up. As I pay, I ask her if the cross with circle is a local symbol. She asks for clarification and I draw it on the back of the credit card receipt. She smiles.  
+  
+“That’s crazy. I’ve never seen that”  
+  
+I thank her and make my way out of the place. I’m about two blocks from the motel, but it takes me a moment to get directions from my phone. I glance inside the brew pub and see the bartender showing the receipt to an older man.   
+  
+I start walking down empty streets. I stop at the town movie theater. Looks like 1930’s design but run down. A placard in the box office reads something about a plan to restore it to its former glory. The bottom of the placard has the town name and a slogan:  
+  
+ 
+A town on the move!  
+  
+I’m back at the motel. Looks like the motel guests have arrived. The parking lot has a bunch of touring motorcycles and people are hanging out in the rooms. Many of them are wearing vests, but in the dark, I can’t tell if they’re 1% bikers or just cosplaying. I enter the dark building. Nobody’s at the front desk, but there is a basket full of cut up old towels with a sign that reads “Please don’t use bath towels to clean your motorcycle. Use these instead”  
+  
+I grab a stack of the cut up towels to shower and climb the stairs to my room.  
+  
+Someone’s been here. They opened up my saddlebags, pulled out my work laptop and clothing.  Nothing seems to be gone. Sadly, they didn’t bring any towels, so I’m going to have to shower with old motorcycle rags. I push a heavy chair in front of the door and take my shower.   
+  
+I’m at least clean. I’m decently dry with the ripped up towels. One of my saddlebags has a hidden compartment with spare cash and a dagger. They didn’t find it. I put it under the pillow, then pack up everything in case I need to quickly leave.   
+  
+I contemplate leaving, but I’ve been drinking, I’m tired and I’d rather get some sleep before having to get out of here. I push the bed to keep the chair in place. If someone comes in, they’ll have to come through the window.   
+  
+I try to read for a bit, but I drift off to sleep.   
+  
+I wake up to an annoying buzzing sound and a flickering light. It takes me a second to see that it’s the bulb in the bathroom. I get up and go into the bathroom and find the switch. Despite the position of the switch, the light keeps flickering.   
+  
+Two minutes later, I find and remove the lamp’s starter. No noise, but no light. That’s not a problem yet.   
+  
+It’s still dark, but I see red light above in the skylight. It’s frosted glass, so I can’t see the source clearly. I find my glasses and poke my head out of the bedroom window. There’s a bright, pulsing red light outside, brighter towards the south.  
+  
+That’s not the only thing outside. There are about five people standing on the sidewalk on the other side of the street.   
+  
+I quickly get dressed and shove the rest into my saddlebags. I put my jacket, helmet and gloves on, then crawl out the window. I can walk on the roof to the back of the house, then I’ll figure a way down.  
+  
+The light is brighter now, like it’s dawn, but in a “Canada’s on fire again” red. I’m at the back of the house. I can climb down onto a shed like structure, then it’s six feet to the ground.  
+  
+Before I clamber down to the shed, I look out. I see a few of the guests in the motel part stirring. I also see the source of the light. I see about eight or ten pulsing lights, bright enough to lighten the sky.   
+  
+Somehow the windmills got a lot brighter.   
+  
+I stand on the shed, then drop to the ground with a grunt. I’ll be sore later. I jog over to my bike and start strapping the saddlebags on.  
+  
+One of the motel guests waddles over to me.   
+   
+“Hey, buddy, get off that bike”  
+  
+I’m fumbling with the padlock on the front brake disc while an older man in underwear is standing too close to me and grabbing at my shoulder.  
+  
+I toss the padlock aside and put the key in the ignition. I’m struggling to get the kickstand up so I can start it. Motel guy has decided to punch me to get me to stop.  
+  
+Kickstand up, clutch in, hit the starter.    
+  
+ke-ke-ke   
+  
+Vrooom!  
+  
+I release the clutch and rev the throttle. I’m kicking parking lot gravel and get halfway across the parking lot.   
+  
+Motel guy is stunned, but I see people running towards me. I consider warning someone, but I don’t know who is friendly, so I take the coward’s way out and cut across the lawn onto the street. I look back and see people running towards me in the red light.   
+  
+I rip down Main Street, then find my way back to the road back to Rt 6.  
+  
+Towards the red light. I can’t tell if it’s my riding or something else, but the lights are swaying.   
+  
+Behind me, I hear and feel a rumble. I’ve felt an earthquake and a barge full of jet fuel explode. This feels familiar. I feel heat on my back and everything in my rear view mirrors is bright red.   
+  
+I make it back to Rt.6 and I don’t know if I’m riding west or east. Maybe fifteen miles pass and I see a municipal park. I hide my bike behind a shed, take off my gear and roll up my jacket as a pillow. I doze for a little bit. In my exhausted state, I think I hear sirens and more flashing lights.  
+  
+I’m woken up by a woman wearing an uniform shining a flashlight in my face.  A quick negotiation happens and I agree to never sleep in the town park again in exchange for no vagrancy charge. I get back on the bike and find a cafe.   
+  
+Two cups of coffee, two eggs and a slab of scrapple cooked on the grill, rather than deep fried and I’m almost human. I can pay a bit of attention to my surroundings.   
+  
+The TV news and other cafe patrons are talking about a natural gas pipeline rupture nearby. The pictures on the TV show the small town I was in last night.   
+  
+I pay my bill and leave without a comment. Outside the cafe, I plot a ride back home that gets me on the highway as quickly as possible.  
+  
+I got home and sort of forgot my trip. I filed my reports and took on more work that required airplanes and chain hotels.  
+  
+About two weeks later, I unpacked my saddlebags.  
+  
+In the secret pocket of one of them, I found an expired registration & insurance document and a hand carved cross with a round ball on top. A rough rope made out what could be hair could make it a necklace.  
+  
+Right now, it’s hanging from the same hook all my conference badges hang from. I can’t do anything with it, but I can’t throw it out, either.  
+  
+I haven’t gone north of Allentown or west of Lancaster since that trip. Maybe I shouldn’t explore the rest of Pennsylvania. 
+  
