@@ -1,0 +1,326 @@
+If you’re reading this, it’s too late now. I’m sorry. I held out as long
+as I could, but I’m tired, and exhausted, and I don’t see a way out. I
+hope you are able to do what I was unable to do, and that you are able
+to use the information that I’ve gathered. You should read the rest of
+these documents to give yourself the best chance of survival. 
+
+I want you to understand that the release of these documents were done
+through a conscious, though extremely selfish decision, and was only
+done to save my own life. It could have ended with me, but I recognize
+that I am a coward by involving you. I had hoped that if others were put
+in the same position, they would be able to branch out and gather more
+information on what this entity is, and how to keep it at bay.
+Understand that interacting with this document has made it aware of you
+now, and that by doing so, I have bought myself time. 
+
+You don’t have to believe me. It won’t change anything, but for those
+that take this seriously, I need to share my background, and the events
+leading up to this. 
+
+I am a biochemical engineer, originally based out of Munich, Germany. I
+should say that I was, for a lack of better words. I was recruited in
+2021 because I was heavily involved in biorobotics, specifically
+applications of robotics targeting individual neurons and specific
+neural pathways. Our robots were the first generation of its kind,
+capable of both targeted electrical signals, and generating chemical
+signals to promote neural growth. It’s work that would have
+revolutionized our understanding of the brain. The original work that I
+did was mostly in the public sector, though this recruitment was my step
+into the private sector. Due to the allure of money, and the growing
+uncertainty of there being enough funding for the next research cycle, I
+made the move.
+
+I was recruited to lead Project Tandem in early 2021, through word of a
+colleague that had jumped ship, and had recommended me. The company was
+Intersect Corp, a shell company that many of us didn’t know much about.
+They were offering double to triple our salaries, guaranteed funding for
+the next 10 years, and rights to publish our research after the NDA
+period of an additional 5 years. 
+
+For the project, there were about 40 of us, a good mix of folks from
+backgrounds in biology, robotics, applied software engineers, etc. All
+of us were industry experts, and from companies stationed all around the
+world. I’m going to keep further information on the company and my
+location vague, as at this point in time, I’m not sure who to trust, and
+where to go. I don’t need any more variables thrown into this mix. A
+good portion of our later work was not moral, and though I regret now,
+the choices made cannot be changed. 
+
+Project Tandem was aimed at understanding consciousness, mapping out
+what causes it, and figuring out if it’s possible to replicate it. This
+was a philosophical question asked in all ages of time, and we wanted to
+take a stab at it. Studying consciousness directly was difficult, a
+conscious person would have an active brain, and active brains were too
+busy and too guarded to get effective information. For that reason, we
+had to target the unconscious brain, specifically alpha wave generation
+going from the third stage of sleep into the fourth REM stage. It was a
+lofty goal at the start, but the scope was lowered down to a single
+question. Would it be possible to map a dream in real time, and interact
+with that dream? 
+
+Dreams happen unconsciously, and are mostly associated with theta waves.
+By inducing alpha waves and other waking signals, but keeping a subject
+in deep sleep, we were able to safely get into a controlled sleep
+paralysis state. This state could only be kept open for a period of
+time, but with the help of imaging software, word associated neural
+maps, we could essentially communicate with someone dreaming, though we
+were limited to one word yes and no questions. Think of someone dreaming
+of a grassy field, we would ask the brain “green,” and the yes portion
+of the brain would light very briefly. Through multiple runs, we’d be
+able to associate a certain pathway with that green. 
+
+The country we were located in had lax rules on human experimentation,
+and our work, though a bit invasive, was theoretically safe. We did run
+everything through animal testing first, as we iterated on the designs,
+but the brain structures were so significantly different that any real
+progress would need to be made through human trials. My work had been
+tested extensively in the past, though this was the first time it was
+applied directly to a subject that could communicate back.
+
+Over time, the data that we gathered allowed us to create specialized
+LLM models that could take that real time neural pathways, and output a
+crude real time drawing. We were limited to about 1 frame a second on
+the second real prototype, though version 3 improved it to about 20. The
+word association got extremely specific, where most words were
+attributed to specific pathways. We had essentially sight into dreams. 
+
+I want to stress that the work that we did to this point was
+extraordinary, and everything after this was unknown territory. We were
+scientists, men of logic and reasonings, and we were pioneering the
+mind. 
+
+The 4ish years of peering into dreams had given me plenty of time to
+improve on an original creation, a photoelectric hybrid nanobot lattice
+that could live inside a brain long term. This was the holy grail,
+something that would be able to hijack neural pathways by acting as an
+extension of the brain, and transmit through a data port. The prototypes
+were still in early stages, but the buzz, the excitement, and the years
+of moving quickly had led us to push for human trials. It was here where
+I wish one of us had voiced concerns about potential ramifications, and
+we could have slowed down. 
+
+The first trial was to see if we could change the dream. If we used the
+lattice to hit the pathways for “blue” and “water,” would the subject
+dream of the ocean? Would the dream change if we did it halfway through
+the dream? 
+
+Yes and yes. 
+
+The power we held was remarkable. 
+
+It was this indescribable feeling of being on top of the world that led
+us to ignore the warning signs. Looking back at the data now, we should
+have noticed that certain neural pathway combinations that we had never
+seen before started lighting up. Some pathways to negatively connoted
+feelings, such as “uncomfortable” or “stressed” or “scared” started
+appearing more often than previously measured. 
+
+It was year 5 now, earlier this year, 2026. The progress we had made was
+incredible, but we were still no closer to understanding where
+consciousness specifically came from. Before we were blind, but now we
+had glasses, so we had hope. The impossible question was no longer
+looming ahead of us, we could take strides towards it. 
+
+Our next step was to understand if dreams could be shared. We had the
+data, we had the pathways, we had a real time device that was able to
+grab information, and duplicate it. I could see a dream through a
+screen, but could I experience it?
+
+We tested on mice first, then pigs, and things seemed to check out.
+Everything within our parameters, and so we moved to humans. Our first
+trial, two volunteers. Subject A was induced to sleep, and induced to
+dream of a landscape, a grassy field with a single tree, blue skies.
+Subject B was induced about an hour later, and as the brain started to
+dream, we used the lattice to cut off the signals. We then ported from
+subject A the dream data, and replicated into subject B. 
+
+We expected the dream to be the same. Two monitors, sharing the same
+picture. Subject B would wake up and tell us that they saw Subject A’s
+dream. 
+
+Subject A’s brain waves shuddered for a moment. It’s the best word that
+I could use to explain it, the waves oscillated all at the same time,
+and the neural pathways lit up in a way we hadn’t ever seen before. It
+was only for the briefest second, as Subject B entered the dream, as if
+Subject A was somehow aware that the dream was being shared. That wasn’t
+possible, there was no data linkage back to Subject A. 
+
+And yet, Subject A reacted. The image on subject A’s screen was
+different from subject B. Subject A was looking at the tree directly, it
+was in the middle of the screen. Subject B was looking at the tree from
+another angle, the tree was on the left side of the screen. 
+
+I remember one of my colleagues gasping, and then more, as we all
+quickly realized. Subject B could see Subject A. Subject A was standing
+off on the right side. The body wasn’t there, it was a dreamlike blob. A
+figure, barely made out, the shape changing every few seconds, hands,
+feet, everything there, just shifting. Subject A then turned to face B.
+And B was more or less the same changing shape. 
+
+A dream was shared. Not the signals, but the space in which the dream
+took place was shared.
+
+Consciousness took place outside the physical space, and this was
+undeniable proof. B had intruded into A’s space. 
+
+Perhaps the shock of everything, confirming it was what stunned us to
+inaction, but we stood there. We stood there and watched A and B look at
+each other. 
+
+The timer beep broke us out of our trance. 2 minutes was what we allowed
+for that trial. 2 minutes had passed so quickly. The connection was
+severed. The subjects were awakened. They went through the checkups, and
+psych evaluations. Everything checked out. Everything was silent, as we
+went through the checks and the routines. And as every check came back
+positive, we exploded. We had done it. 
+
+We had confirmed a core aspect of metaphysics, and we had barely
+scratched the surface. 
+
+The trials continued quickly, and we repeated them over and over,
+testing different parameters, different scenarios. We were so excited,
+ecstatic. 
+
+We tested the ability to interact with each other, what the least
+information needed to connect dreams, how the host space would be
+created, if two host spaces could be merged, or if one could take over
+the other. We had all these questions, and it felt like we didn’t have
+enough time in the day. The lab was working 12 hour days, 6 days a week,
+and still we were excited. Days off felt like a burden, but we rushed
+back to start the next trial, week after week. 
+
+By May, we had gotten a good understanding of creating a host dream,
+having a visitor join. We tried to get a third to join but the space
+fell apart, so the assumption is that two is the limit. We had the two
+subjects have full control in the dream, and interact with each other,
+though the interactions were clumsy. 
+
+A few colleagues volunteered to undergo the trials themselves, and had
+done so successfully. Their insights were more detailed than our other
+subjects, and the ability to interact was more intricate. My guess is
+that being aware of the process made them subconsciously better at it. 
+
+I mention May because it was when the side effects started to show.
+About T+3 months. 
+
+Subject A and B were the first. 
+
+There was a specific pathway that always lit up when the host would
+enter, and we dubbed it N-R3, as part of our standard naming. Section N,
+right side, 3rd mapped path. We identified this path as being a marker
+for when a host and a visitor were sharing the same space. 
+
+On May 11th, our analytics team identified that the path was lighting up
+a few milliseconds before the connection was opened. We attributed that
+to the brain adapting to the trial time, since we did start the
+connection every time an hour after the host started dreaming, and
+adjusted the time to see what would happen. We pushed it back to an hour
+30, and noticed that the path did light up, and stayed lit up. 
+
+We brushed it off as a byproduct of the trials, and noted to give more
+rest to subject A. 
+
+On May 12th at 3:14 AM, when monitoring Subject A during regular sleep,
+marker N-R3 lit up once again. This was the first recorded incident of
+marker N-R3 being active outside of regular trials. 
+
+We decided to hook up a camera module to monitor Subject A on the night
+of May 13th. 
+
+On May 13th at 2:47AM, marker N-R3 lit up again on Subject A. This
+marker did not turn off until Subject A woke up. 
+
+On May 13th at 8:17AM, an all hands on deck meeting was called to review
+troubling footage from Subject A.
+
+The footage stamped at 2:47AM showed a dark smudge appear on the right
+side of Subject A’s dream. At first, we assumed that this was part of
+the dream, but none of the markers that would be associated with a
+smudge, like “dark” or “black.” From the moment it appeared, to 3:22AM,
+the smudge remained where it was, relative to subject A. Afterwards, it
+began to follow subject A. At 4:52AM the smudge grew, and it copied
+subject A’s shape. At 6AM subject A was awakened, and N-R3 dimmed. 
+
+The entity was officially named EAX, entity, subject A, code X for
+unknown, entity x for shorthand. This was by all means, an intelligent
+creature able to access a space we had barely entered. 
+
+We immediately stopped all trials, and focused all resources onto
+monitoring Subject A, reviewing and analyzing neural pathways that had
+previously been tripped. It was here we first started noticing the
+uptick in pathways associated with escape, such as “run” or “hide,” or
+general negative pathways such as “stressed” or “fear.” Subject A was
+exhibiting a primal urge to get to safety, and was exhibiting this when
+coming across X. At this point in time, it was unknown if entity X was
+hostile, or was attempting to make contact. We were leaning towards the
+first, given the responses by the brain in Subject A. 
+
+When comparing other markers with other subjects, we noticed similar
+patterns, with marker N-R3 being active a few milliseconds before the
+connection was being made. At this point, we were on high alert, and all
+trials were suspended indefinitely until we understood more about where
+we had trespassed. 
+
+Over the next few days, entity X started following subject A more. The
+closer that entity X got to Subject A, the more Subject A started
+shivering, and spasms occurred, showing physical signs of distress. This
+was also the first time where the physical body responded to what was
+happening in the dream. 
+
+Subject A was placed on stimulants to deter the N-R3 marker from
+lighting up again. Keeping the subject awake was the only thing that
+seemed to prevent entity X from getting closer. 
+
+Unfortunately, there is a physical limit to how many days a human can go
+without sleep. 
+
+On May 18th, entity X was directly in front of subject A. Regions of
+subject A’s brain started to dim. A few fingers twitched, and subject
+A’s had moved. The regions that controlled movement showed no activity. 
+
+Entity X was attempting to take over subject A, and was succeeding. A
+creature was trying to break into the physical world. We had no protocol
+for this. 
+
+Subject A was locked into solitary on May 18th, and was monitored around
+the clock. All trials were fully stopped, and all subjects that had
+undergone the trial were now being monitored to see if the N-R3 marker
+showed up with them as well. 
+
+On May 19th, all brain activity for Subject A ceased to exist. Subject A
+was still awake, looking. Physical vitals were still active, heart was
+beating, body temperature remained stable, breathing was steady.  
+
+It is an eerie feeling, looking into the eyes of another human being,
+and not seeing any signs of life. I still remember the day vividly, the
+hairs on my body slowly rising as I looked at this thing in front of me.
+My colleagues were no better. Some already had a blank look for days
+now, going through the motions. One had turned to God, vigorously
+praying. A few were trying to stay calm, but breaking down crying
+throughout the day. I can only imagine what the others were going
+through, the ones that had volunteered for the trial themselves, knowing
+in their minds that this thing now existed. 
+
+We took a vote, and decided to enact a lockdown protocol. I was given
+the sole key for breaking the protocol. Our compound could sustain us
+for two years with rationed goods. 
+
+On May 20th at 1:13AM, subject A, or entity X turned its head about 150
+degrees, twisting its neck in an unnatural, inhumane way. The neck bones
+cracked, yet the muscles kept it pointing straight into the wall. This
+position was held for about 30 seconds, before the neck was violently
+twisted another 90 degrees in the same direction. It wasn’t until later
+that a colleague put together that entity X was looking at Subject B. 
+
+On May 20th at 1:14AM, subject B’s N-R3 marker lit up. By 1:18AM, entity
+X was now present in Subject B’s dreams. Entity X did not start as a
+smudge this time. 
+
+I am reaching the limit for this document. Further parts will be posted
+as I gather the rest of my notes and type it up. I know that I’ve made
+you an unwitting part of this, but if you start seeing a creature
+watching you in your dreams, let me know. I’ve left out some details
+that I’ll use to verify real incidents, though I expect the number of
+affected individuals to go up.
+
+After all, it’s aware of you now. 
