@@ -1,0 +1,112 @@
+For obvious reasons, including job security, I can’t tell you my real name or what state park I work at, but what I can tell you is that the land we’re on has seen some shit. The site itself has native history dating all the way back to the early 13th century, a Spanish mission by the 16th, a fort that mysteriously burned down in the 18th century, and a milling industry that came to a screeching halt in the 1920s after several men from the site started disappearing. The area it’s settled in is a no-name town on the Eastern coast of the US, and its roots go back to the 1730s. 
+
+The point is, its old and it’s seen a lot. From massacres to burnings, wars to local murders, blood has been spilled here more than a few times and continues to be. There are things here in this town that don’t make sense, and most of them seem to concentrate around my place of work.
+
+I’d like to go ahead and say that despite that description, I love my job. I love history and I love teaching people about it. I used to be a teacher, and when I was younger I had hoped that profession would fulfill that itch. Safe to say, it didn’t. I quit after three years.  Middle schoolers suck and their parents are even worse. I was getting angry emails every other week about teaching topics that “weren’t appropriate” for their little Billy. I mean, God forbid I follow the state standards and teach a 13 year old about the horrors of slavery in the US. Meanwhile, little Billy is vaping in the bathroom during lunch and calling the special needs kids slurs. 
+
+Compared to all of that, working outdoors in the heat and changing air filters is a vacation enough. I get to have conversations with people here who are actually interested in history and I even reenact out here for special events. It’s honestly a dream come true in that regard, but the occasional bumps in the night sometimes leave me questioning whether or not I have the nerve to work in this town. 
+
+There have been small things here and there. Shapes in the corner of my vision, noises that could be owls but have the slightest uncanny element to them, that kind of stuff.  However, every once in a while, something dangerous or really messed up happens, and we’re all left scratching our heads. 
+
+A recent tragedy in the township resulted in the loss of a good friend of mine and has left me with a desire to record it all. He always told me to “write a book or something”, and I guess this is the “something,” I can muster. 
+
+This is for you, Lenny. I hope you’re better off, wherever you are, and safer than any of us in this quiet little town. I miss you.
+
+It’s a big site with a lot of ground to cover and even more events, so I’ll start off small and try and work my way up from there.  
+Here’s one:
+
+When I first started, I was cleaning the blacksmith display and went around the corner of the structure to get something. I distinctly remember hearing the sound of a hammer striking the anvil several times. I came back, ready to tell off the jackass teens who were more than likely screwing around, but found no one. There wasn’t time or room to hide before my arrival, but everything was empty nonetheless. The only thing I found was a piece of iron, struck flat on one end, and a small hammer resting on the anvil’s face. A hammer that I had put away in a locked tool box moments before. A box that, by all inspection, was still locked. I had the only key. I ended up blaming it on my heat-addled mind, and went about my day. I double checked with my co-worker at  the front desk of the welcome center and she firmly assured me that no one had come into the park yet, and that none of the other rangers were scheduled on site that day. 
+
+Things got much weirder after that. 
+
+My first full year in, we got a series of complaints, all stating that a “half-naked lunatic” was running around on the hiking trails, shouting and chasing travelers who were out alone. It happened on three separate occasions, and each time, we called the cops. It’s not the largest property in the world, but it’s large enough that it’s a pain in the ass to search. Every time the cops did a sweep, nothing turned up. The last time it happened, they took a boat up the river the site sat on, blaring sirens and using that stupid microphone speaker to try and spook something out of hiding along the river brush. Once again, they’d found nothing and finally lost their patience with us. 
+
+“Look,’ the sheriff told us, “clearly you got some pranksters out here trying to make some spooky video or something for the ‘youtubes’.” (I swear to God that’s how he said it.) “Unless someone ends up bleeding or- God forbid- if you see something yourself, please refrain from calling us.”
+
+My boss gave them a curt response and let them head out, but he pulled me aside not long after they left. 
+
+“Have we had any reenactors out recently?” he asked. 
+
+“Not that I’m aware,” I said. “Why?” 
+
+My boss went quiet and replied with something I didn’t expect. “Read up on your local history and start doing some regular walks down the nature trails. Make sure your radio is on. Understood?” I nodded but I didn’t understand a word. If he sensed my confusion, I couldn’t tell. He only bit his lip and sighed. “Close off the paths to visitors, for the week. Still patrol, but make sure no one else goes out there.” He tucked his black hair into his ball cap. “I gotta call the Nation.” 
+
+I don’t know if I was supposed to hear that part, but regardless, I knew it was some serious shit. The “Nation” he was referring to was the center for native affairs and tribal government. The indigenous people of the site were the ancestors of the modern Muscogee tribe, though they long predated them. My boss, Henry, was a member of the tribe, though contact and collaboration was difficult. Due to that son of a bitch Andrew Jackson, they and several other tribes had long since marched the trail of tears and resettled in Oklahoma. We get ambassadors and native historians from time to time who work with the site to promote and preserve the indigenous culture of the site, but I had no idea why on earth Henry would contact them about this. Henry wouldn’t elaborate either, but I really didn’t want to pry.
+
+Then came the dead gator. 
+
+A few days after that last incident with the man in the woods, a guest ran up to me screaming that something was wrong and I had to come quickly. I tried to calm them down, but they were near hysterical, saying:
+
+“Sweet God they killed it! They killed a gator near the pond! They killed it!”
+
+No matter what park you’re in- at least on the state level- this is a serious offense. A federal one, in fact, and one that could land you behind bars for a hot minute. All animals are protected from hunting and violence by law, so any intentional harming of a critter on state property is prosecuted. Sometimes we get cruel teenagers trying  to stomp a snake to death or we deal with some dumbass campers shooting at birds overhead. Satisfyingly, eight out of ten of those cases end up with a ride in a squad car. This case, however, ended up being much different. 
+
+The gator was lying belly up on the side of the hill overlooking the pond, red blood oozing from the several cuts and slashes on its belly. What I could only assume was a sharpened stick was speared right down the poor things open mouth, shish-kebobing it. Its guts were spilling out of it and there were so many cuts, I couldn’t even attempt a definite count of the wounds. I radioed in for Henry and he called the police, but while I waited, I noticed something in the cuts. 
+
+For some reason, little pieces of glittering stone were littered around the tissue in various places. They were very small, and thin, almost like slivers of glass. I tried to examine it more, but Henry pulled me away. We needed to wait for the cops and a DNR rep to respond before we could do anything about the body. He told me to close off the nearby walkway and redirect any nosy visitors. 
+
+As I was walking away, though, I could’ve sworn I heard him say something to himself. 
+
+“Just like they did it…” he muttered.
+
+I didn’t get much out of him after the fact. To this day its still one of the most gruesome things I’ve ever seen happen to an animal. But, like all things, the grind of work makes even serious issues distant memories over time. 
+
+At the end of that month, we’d thankfully gone a week and a half without any further incident, and programming proceeded as normal. One of my favorite parts of the job is reenacting and living history, and thankfully, to take my mind off all the craziness, we had a small event planned. We set up an encampment and portrayed the Spanish and French explorers who traveled and settled through the region. I was dressed up like a renaissance explorer and got to demonstrate how matchlock guns fired. It was honestly a great program besides what happened after. 
+
+We were shutting down around four that day and I was walking my gear to my car when I saw a flash of movement in the treeline near a forking nature path. At first I thought my eyes were messing with me, but sure enough I was looking at the shape of a lean tall man running off into brush. I didn’t get a good look at him, but I radioed in that someone was still in the park and that I was investigating. Henry told me to wait, but curiosity had already taken hold of me. So off I went, carrying a 16th century replica gun, dressed like Shakespeare, and chasing down this elusive figure. 
+
+I ran for what must have been only a few minutes, but when I finally stopped, dusk was settling in overhead. It finally dawned on me that in my excitement, I’d not only dropped my radio, but had forgotten a decent flashlight as well. I was alone in the growing darkness, chasing something that was most likely an owl flying low to the ground. All of it could be explained by tricks of the light and an overactive imagination, yet I followed it, and now stood in a thick patch of woods with no way to contact help. I did have my phone, so I thankfully wasn’t completely blind, but I had no signal. 
+
+I used my tiny phone light to help me find the nearest path and I breathed a sigh of relief. I knew the paths all wound in a big circle, so regardless of direction, I was going to make it back to home base eventually, but it took only a few steps along the trail before my fear came back to me.
+
+You learn a lot of things being out in nature, and one of them is only apparent when you lack it.
+
+Nature is rarely completely silent. Even in the darkness, and even when no one’s around. Maybe it’s different in other places, but by then I knew my woods, and I knew the sounds of my park. Crickets, owls, rustling leaves, twigs snapping, cicadas droning… I heard none of them. 
+
+It was like the woods were filled with something else, as if it were holding its breath, waiting patiently to exhale. It felt like something new was with me, and I couldn’t see it. Something felt like it was supposed to happen, but I had no idea what. Then, without prompting, my brain started to count as my whole body trembled.
+
+*One-one thousand…. Two-one thousand…. Three-one thousand….*
+
+Then it came.
+
+Like a crack of thunder so loud it rings your ears, I was engulfed by the sound of high pitched whooping and screaming. Several voices, hundreds of them, echoed all around me and shook my whole body numb. I don’t think I’ve ever felt panic like that before, and I haven’t since. It was, without argument, the scaredest I’ve ever been.
+
+All of the voices rose and rose like a million shrieking furies, undulating, angry, and vengeful. I hadn’t made it but two steps forward before a strong sharp pain struck my shoulder and sent me tumbling to the ground. My back hit the packed dirt of the trail and forced out any remaining air in my body. I was helpless. I pissed myself from the fear and pain, but realized the other wet feeling surrounding my body was blood. I still had my phone light and could barely raise it to my shoulder, but I saw clearly enough. A large deep gash cut through my clothes and flesh, gushing blood as easy as a water fountain. I closed my eyes and tried to pray but my mouth couldn’t stop chattering. All I could do was close my eyes as the noises grew louder. In the blurring vision of the ever growing night, I swear I saw someone standing before me, fuzzy and almost one with the darkness, but they too left me. I blacked out, terrified those cries would follow me into my dreams.
+
+I woke up in the hospital with Henry sitting next to my bed. He was dressed in plain clothes and stood up as soon as my eyes opened. I asked him what happened. 
+
+“We found you out on one of the trails, along with your walkie. Don’t worry we grabbed your phone too. It’s  dead, but I’ve got it on a charger-” 
+
+I told him that wasn’t what I meant, and his demeanor changed. He gave me a look like a disappointed dad who just caught his son sneaking home late, but it quickly changed to guilt and pity. “When we found you, after I told you *not* to go into the fucking woods, you were in bad shape. You were bleeding from some wound in your shoulder but we couldn’t tell at the time what was causing it. That is until we got you here and the doc pulled this out of you…”
+
+He took a plastic bag from his pocket  and dangled it in front of me. In it was a stone arrowhead, but not one of those traditional flint ones. This one gleamed like frosted glass and had a chip where the point should be. 
+
+“Don’t worry,” Henry told me, “they got the other piece out, but I need that for something…” He shook his head. “Nevermind. The point is, this is yours now.”
+
+“What?” I thought he was joking but he explained to me that the hospital was concerned it was some native artifact and didn’t want any hot press about destroying one, even in a surgery. People in the area were kind of nutty about that, but I still couldn’t believe it.
+
+“It’s quartz,” he told me. “There’s not a ton of flint around here, so the early natives used quartz, though it’s a tad too soft to be as useful.” He tossed the bag on my lap and shoved his hands in his jacket pocket. “Oddly, there wasn’t a shaft attached to it. Doc said you must’ve fallen pretty hard for it to get lodged so deep. You’re lucky it was only a fleshwound.” He gave me a stern look and  emphasized. “Are you feeling any better since the *fall*?” 
+
+He said that word with such a punch that I understood his meaning clearly. I nodded my head and he gave a small smile. He told me he’d see me at work when I was feeling better, and that I wouldn’t be doing any heavy lifting for a while. He was about to leave when I blurted out:
+
+“Did… did you hear them too? When you… you found me?
+
+His eyes went grave, as if I’d resurrected a forgotten terror, but he blinked it away. 
+
+“No, I didn’t,” he said, pointing at me, “and neither did you.” 
+
+He left and I was discharged from the hospital the next day. Besides managing the shock and stitching up the giant cut in my shoulder, there wasn’t much else to do for me. I told my shrink about the incident and he told me to up the dose for a bit on my anxiety meds. I was out for a full week from work before returning, and I used most of that time to relax and focus on hobbies. I sewed, played video games, and even found the energy to mow my lawn, but on the Sunday before I went back, I was cleaning the house and found a book I’d misplaced. It was the guidebook they’d given me when I started work. It laid out the full history of the site and, although I was supposed to read it back when I first started, I figured that a year later was better than never. 
+
+I thought I knew most everything I needed to know about the site, but the book surprised me. It had several facts and dates I didn’t know, and it held my attention better than I expected. I was on my couch with it for an hour or two when I read a timeline entry that made me stop cold. 
+
+The date I’d injured myself was in it. No exaggeration, the same day and month over four hundred years ago was in the book. I almost wrote it off as some crazy coincidence, but then my eyes fell on the description.
+
+*1597- Native uprising against the Spanish.*
+
+I stopped reading after that. 
+
+I came back to work to discover Henry and a friend of his from the Muscogee Nation had gone on a hike down the same trail I was found on, and that no other incidents of the man or butchered reptiles had occurred. It’s stayed that way, but they aren’t the only weird thing out here. 
+
+This town has a deep history, covered in blood. Assuming nobody from management discovers I’m typing this, I’ll update with more stories from the site, both my own and my colleagues. 
+
+Wish me luck out here, and remember to stay safe in the woods. I wear that arrowhead as a necklace now, just as a reminder.
