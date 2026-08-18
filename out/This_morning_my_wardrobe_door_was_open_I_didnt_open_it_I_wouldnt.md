@@ -1,0 +1,264 @@
+
+
+ I always close every door at night. Always. Especially my wardrobe door. Then I remembered. Something happened over the course of a week when I was a teenager. I’d forgotten all about it so I’m going to write it down in case I forget it again. Has anyone else had a similar experience? I just spoke with my housemate and he went very quiet then left the room saying something about calling home. The look in his eyes— maybe something like this happening to him too. Let’s find out how many other people have forgotten, and more importantly, why… 
+
+ 
+
+# Once Forgotten
+
+There they are. Watching. 
+
+They have yet to move. Blank faces stare at me. Fear has mostly given way to wonder. Two dark scratches stand at the end of my bed.
+
+My eyes adjust. After three nights I still don’t understand what I’m seeing. Shadows within shadows. My heart no longer races, yet my limbs still refuse to co-operate. I lie paralysed, hands numb from the force my fingers exert on the sheet clutched under my chin. The first night that sheet didn’t even uncover my head.
+
+*What do they want?* I ask myself for the hundredth time.
+
+I have eliminated the probability that this is a dream — I am fully lucid. Dread has seen to that. The sheet prickles over every goosebump on my body; a tear escapes towards my already drenched pillow. Pulse thuds in my ears. Saliva pools in the back of my throat.
+
+Swallowing is difficult because it sounds so achingly loud and I am trying to make no sound. Even my breathing is deafening.
+
+I watch the silhouettes for signs of mirage. Shadows behind them move as moonlight, breeze and trees mottle the walls, but my visitors remain immobile — semi-solid blots against a backdrop of disorder. Just visible through them is the shape of the wardrobe. I didn’t notice on the previous evenings but the door is ajar.			
+
+They are there, silent, while the house settles around us in creaks and pops and taps.
+
+Eventually I drift into a dreamless sleep.
+
+\*
+
+There they are again. Still watching. Waiting.
+
+I don’t know what it is that wakes me. Perhaps I feel their presence. Perhaps it is the chill in the air. *Autumn is coming,* I tell myself. The leaves on the trees are thinning; moonlight brightens the room. The visitors are taking shape.
+
+One of them moves.
+
+An arm. It lifts — a recognisably human movement — then drifts back to their side. My insides churn. Acid in my throat burns. My breathing is rapid and ragged.
+
+The other moves. 
+
+The same motion. A gesture. A hand reaching towards me then drifting back down as if through water.
+
+I move. And as I shift, the vertical cleft of the wardrobe door seems to creep open a little wider. A barely audible patter, like rain on glass, ripples in the darkness. 
+
+The sheet is back over my head. Sleep somehow finds me through exhaustion.
+
+\*
+
+They are there again. Still watching. Still waiting. Moving.
+
+The same slow salute on a loop. A synchronised gesture in my direction. 
+
+No. 
+
+Something has changed. It’s hard to tell but one of them has turned away. 
+
+They are not moving. 
+
+Their arm is outstretched. 
+
+Pointing to the wardrobe… 
+
+THE DOOR IS OPEN. 
+
+I can’t see clothes, just absolute darkness.
+
+I am immobile. Trapped. Unless this is all in my head. A night-terror; a waking dream from which the only escape is sleep. I plead with my mind to take my consciousness. I am denied this kindness.
+
+Autumn has invaded the room, the sheet useless as protection. I would reach for a blanket but my body lies lame under whatever force cripples it.
+
+That gentle tap, tap, tap…from outside… or inside the room?
+
+I allow myself to be lulled into an eventual slumber by the gentle waves from shadowy limb.
+
+\*
+
+I know they are there before I even open my eyes. I can feel them watching, waiting. I wonder if they will be moving…
+
+The tapping persists. More frantic. Stops and starts.
+
+The blanket soothes me; I feel safer, warmer. My body feels like I have some control over it as I shift from my side onto my back and slide the cocoon down from my face.
+
+A gasp escapes my mouth.
+
+I had barricaded the wardrobe door with my chair piled with clothes. The chair is toppled, clothes strewn across the floor. The wardrobe is wide open behind my visitors.
+
+My heart skips a beat then pounds in my throat.
+
+The watchers’ actions are more fluid, more frequent, with added agitation. The gesture itself is more precise — they are beckoning me. Both reaching for me. Their arms raise in tandem and their fingers curl back towards them. I look in bewilderment at my own arm outstretched, reaching…
+
+The warmth of the blanket becomes ice. Every inch of my flesh prickles as every hair stands on end. But it is not the shock of my unconscious extension which fills me with fear, it is the presence behind me.
+
+In that moment I know it is this that wakes me, this that has been watching, this that has been waiting… A smudge in the darkness just behind me to my right. It is darker than shadow.
+
+It takes all my effort to crane my neck towards it. The blemish moves. Burrows. Lurks behind the pillow. In the walls. 
+
+It was there on the first night, I know this now. 
+
+A reek of menace and rot infects the room.
+
+Panic entombs me. Every muscle in my body is on fire. I want to scream but my ribs won’t allow it. I can barely breathe. Tears stream into my ears. Sweat turns cold on my skin. I sob silently, convulsions racking my body until my mind shuts down.
+
+\*
+
+It 
+
+is 
+
+there.
+
+At the end of my bed. 
+
+So tall it touches the ceiling. 
+
+Cloaked in a darkness. 
+
+It has come for me.
+
+My two guardians stand either side, unmoving, their featureless heads hanging low.
+
+Were they trying to save me? Was I too afraid to let them?  
+
+As if to answer that final question the looming figure rears its otherworldly head. It is suddenly upon me — no mouth no eyes, just utter dark despair. It doesn’t touch me. It goes through me. It… knows me.
+
+\*
+
+Bright Autumn sunlight stirs me from sleep. 
+
+Sleep. I feel rested. I feel awake. I feel alive. The terrors of the nights gone by fade into forgetting. My silent friends did not fail — I did not fail. The darkness did not take me. I would not let it. But I know it is there. It is always there. Hiding... Watching... 
+
+Waiting…
+
+
+
+
+
+
+
+
+
+
+
+
+
+WHAT THE FUCK WHAT THE ACTUAL FUCK!? 
+
+My housemate… is gone. 
+
+Something took him! 
+
+That’s the only way I can describe it. I heard him scream. I ran to see… it was as though his body was being pushed—pulled—both?? through a hole in mid-air. 
+
+Bones… oh fuck the bones! 
+
+Snapping, crunching—
+
+Then… just… gone.
+
+I ran back to my room and hid in the first place I could.
+
+I made a mistake. 
+
+I should never have written this I should never have remembered.  They were gone. Forgotten. *IT* was gone. But it didnt. Forget me. Its here. Now. I must be quiet. it knows Im here. if you’re reading this please don’t do what I did .there’s a reason we forget. These… things, these… beings entities, whatever you ca.l them they can only get in if you remember . 
+
+DONT REMEMBER! 
+
+Fuck this keyboard is so loud but I need you alL to know . Ill keep typing as long as I can. 
+
+I can hear it coming, hunting me. It was silent before but now I hear it.  Angry. Cruel. Laughing. An awful sound, not a laugh, stones scraping together, no, bones scraping… sharp, broken, sickening. I’d only just finished writing the story - remembering… I need to send this out so people know. 
+
+Im so afraidI’m afraid to look. Im afraid if I look ill be paralysed like before but I need to see because.. because its not alone. Have my guardians returned to protect me? I hear my name whispered feel the pull of beckoning arms see fingers curling in the dark please help me. please—
+
+
+
+*THEY ARE MINE*
+
+
+
+Guttural. wet. A stink of rot. Inches away. 
+
+I can still move and type. I can run. I will run.
+
+If youre reading this, it may be too late.
+
+PLEASE DONT REMEMBERR! 
+
+REMEMBERING IS THE DOORWAY—
+
+FORGETTING IS THE LOCK!!
+
+FORGET!!
+
+ITS HERE INTHE ROOM 
+
+OUTSIDE THE WARDROBE 
+
+LAUGHING 
+
+ANOTHER ONE IS LAUGHING A THROATFUL OF  BROKEN GLASS 
+
+AND ANOTHERAND  ANOTHER 
+
+TEYRE ALL LAUGHING 
+
+INHUUMAN 
+
+THEYFOUND ME  
+
+LAUGHTR…
+
+INSIIDE 
+
+THE WARDROBE— 
+
+ ITS… EVERYWHERE!
+
+SAVE YOURSLEF 
+
+GO! NOW! GO!
+
+DONTLOOK
+
+DONT REMEMBER
+
+DONT REMEMBER
+
+SHIT. SHITSHITSHIT! I CANT POST THIS. PEOPLE WILL REMEMBER
+
+does anyone remember?
+
+I DIDNT WRITE THAT!
+
+SOEMTHING HAS MY ARM—
+
+are you remembering?
+
+THAT ISNT ME!
+
+MY HAND—
+
+IT WONT     LET     GO
+
+*remember*
+
+MY FINGERS! OHGOD IT RIPPED MY FINGERS O—
+
+*open the door*
+
+IM SORRY IM SOFUCKING SORRY
+
+*let*
+
+*us*
+
+*in*
+
+I HAVE TO RUN
+
+I CANT STOP IT 
+
+ITS HITTING SEND
+
+
+
+
+
