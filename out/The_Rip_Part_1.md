@@ -1,0 +1,773 @@
+I don’t know what you are going to take away from all of this. But if you see the Grey Area, run. Take every person and everything that you love and cherish and run. Don’t question it. It is a confusing and flabbergasting thing to see at first. You may want to sit and stare in awe. It is good at drawing attention. But I beg you, please, don’t give it a single ounce. It may frighten you. It frightened me, too, once I found out how it…what it…By the time you even see this it could already be too late. I don’t want fear to be the last emotion you are stuck with. This could just be a cry to the sky. I don’t even know if anyone will even care about this, take me seriously…unless you’ve seen this…thing for yourself. I’m finding it so hard to keep on going, to not just stop in my tracks and let whatever will eventually happen to me happen.  I’m on the move, constantly trying to figure this “thing” out, but it is getting harder and harder everyday. Half of me wants to just get the hard part over with. But the other half wants to keep going, to not give up. I can’t give up…I can’t. 
+
+
+
+It appeared in my hometown around six months ago. A beautiful May morning, one that was almost too beautiful. It was still and sunny, perfect temperature. What people around my area would call “Jeep weather”. The grass as green as it possibly could be, dew glowing on every stalk. The sky was as perfect as a painting, the artist having the most precise craftsmanship. The scattered clouds swirling sparsely like light brush strokes. The sun overhead adding perfect shading to the masterpiece. It glistened into my blinds as my 6:45 am alarm rang, illuminating every gangly strand of hair upon my face. The last day of finals would catapult me into Junior year. If I passed them at least.
+
+
+
+The floorboards creaked under my feet as I stepped into the kitchen, the clanking of plates and silverware ringing softly throughout. The aroma of bacon nearly lifted me off of my feet to float effortlessly towards my chair at the table. The usual breakfast my mother prepared for my little sister and I every morning never failed to make the grueling, early morning seem like it never existed, but it did nevertheless. I could hear my little sister smacking away at her red stained scrambled eggs as she always would.  The television in the living room played the early morning news, forecasting no change in the picturesque day ahead.
+
+
+
+“Good morning! Last day of finals!” My mother exclaimed, too loud and excited for my barely conscious brain.
+
+
+
+“Good morning, stupid head.” My sister said, her nine year old voice piercing through my ears.
+
+
+
+“Good morning.” I gargled out, thudding down into my seat at the table.
+
+
+
+“Now, Sarah, what have dad and I said about calling people stupid?”
+
+
+
+“Sorry mom.”
+
+
+
+“Don’t apologize to me, apologize to Dean.” My mother said, motioning her head towards me.
+
+
+
+She looked at me and said, “Sorry,” and mouthed the word stupid shortly after. No amount of brain power could conjure up a comeback in the moment, so to save an argument, I playfully stuck my tongue out at her and turned towards my plate.
+
+
+
+I had a great family, regardless of how much it seemed like my sister and I didn’t get along. My parents both had high paying jobs, Dad working in the local coal mine and Mom working at the town's tax office as a broker. Dad always worked five to five and Mom nine to five respectfully, so everyone was always home for dinner. The whole family seemed to be a cohesive unit when we were all together. No empty fights that led to nothing, voices were hardly ever raised…well except for that one time I…that’s not important. My sister and I never had to worry about anything. Everyone was always happy. I was always happy. I miss being happy. 
+
+
+
+After I scarfed down my breakfast, I escorted Sarah to my car. Mom always prioritized getting us fed in the morning before anything, so she would get ready for work after we left. At 7:30 every morning it was my responsibility to get Sarah to school before 7:50 and lug my old Honda Civic across town to be at my school before 8:09. It’s an odd time I know but everything worked out. Seven enslaving, fifty-one minute periods, with the fourth period being an hour. My high school was the smallest high school in the county, about four hundred-fifty students. Of those, my sophomore class was the smallest, having seventy-two kids. It made it easier to make and keep friends growing up. Friends that I felt like I should have appreciated more.
+
+
+
+“Dean!” I heard a familiar voice ring out across the parking lot as it had every morning.
+
+
+
+“Rich!” A smile grew across my face as I spotted my best friend across the parking lot. 
+
+
+
+Richard and I met in Kindergarten. His family and mine used to live right beside each other before he moved closer to the remote high school. He was an only child, but living so close to each other growing up made him feel like he had a brother in me. We would play outside in his jungle gym everyday after school and his mother would always make us sandwiches for lunch during the summer. She was a stay at home mom for a while, his dad not being around much for “work related reasons”. It almost pained me as much as it did him when he found out he had run away with someone else and left him and his mother behind. It broke his confidence for a long time. Being able to be his confidence had given me the confidence to be the man I have had to be today.
+
+
+
+He was a skinny kid, about 5’9” with dark, wavy hair and glasses as thick as concrete. We always used to joke that he had echolocation, but wouldn’t show us.
+
+
+
+“Did you click your tongue off of the cars to find me?” I said, snickering.
+
+
+
+“Ha ha, very funny Dean.” He said with a slight smirk, “Did you study for the chem final last night?”
+
+
+
+“Dude, you know I don’t ever study for anything.”
+
+
+
+“C’mon Dean, are you at least going to try this time?”
+
+
+
+“I try every time.” I said with a puzzled look.
+
+
+
+“Oh…um…yeah, you could say that. I guess if you need help you can just glance at my laptop. But be careful! Mrs. Jenkins is a hawk!”
+
+
+
+“Oh trust me I know, but I’m not worried. You’ll be able to sense her walking up right?”
+
+
+
+Richard punched me in the arm as we stepped into the two story, brick building that would keep us captive for the next two years. Since it was the last day we had our last three period’s finals, having the previous four the day before. Chemistry was my last period. The slog of the first two periods almost drove me to insanity, computer science and my study hall. Computer science was way too easy, just having to build a small program on python of a working stoplight intersection. My study hall period would at least give me time to look over some of my old chemistry homework that mysteriously didn’t get done. This period slogged especially, my stomach growling intensely waiting for the lunch bell to ring. 
+
+
+
+It was a normal school lunchroom, or what I would assume every lunchroom would be like. Every tight knit group sitting beside one another, seniors fighting with freshmen for spots in the lunch line, and the embarrassing oohs and awes when the clinging of someone dropping their lunch tray consumed the space. If our paths ever cross, don’t ask me how I know about that last part. Rich and I would sit side by side at the same table every day, accompanied by our friends Jackson and his girlfriend, Brittany. Jackson was the stereotypical jock, as corny as it sounds. He was a popular, very sociable kid, almost a parents’ ideal child, and a highly touted wide receiver prospect in our section of the state, although he never let this get to his head and kept the people that truly loved him close. His 6’5”, 180 lb. stature towered over the dainty frame of Brittany. She was, for lack of better words, kind of a bitch. She was one of those types that had too much bark for her bite. I can’t say if it was because she was dating one of the “popular kids” but, as far as I can recollect, she had always been that way.
+
+
+
+And last, the beautiful girl, my beautiful girl, that sat across from me everyday, April. She was about 5’6”, not as awkward looking against my 5’10” build. She had the most beautiful, dirty blonde, wavy hair, the most gorgeous brown eyes, and a smile and attitude that could instantly make my heart flutter like a thousand butterflies ripping themselves from their cocoons. A smile that can still make me feel warm in this drab, dreadful time. 
+
+
+
+“What’s up, Dick?” Jackson yelled across the table towards Richard. Jackson and Richard had a love hate relationship.
+
+
+
+“Jackson, why must you always insist on ruining my lunch?”
+
+
+
+“Well it’s your name isn’t it?”
+
+
+
+“How many times do I have to tell you no for you to stop?”
+
+
+
+“Can’t stop, won’t stop. Anyways, Dean, what’s up with you today?”
+
+
+
+“I’ll just say that I’m glad it’s lunch.” I said, even though the thought of sitting in Ms. Jenkins’ room one more time gave me a sense of dread. Knowing it would be the last time was what kept me going.
+
+
+
+“C’mon man, you can’t be all mopey. Get excited. Last day of school. Last day of having that crooked, old crone. Be careful with her though, her spider senses have been tingling extra hard. She practically stood behind me the entire time yesterday. Me of all people.”
+
+
+
+“Well, maybe she’s afraid that the big, bruiting jock is getting way too smart. Good job using such a distinct word!” Rich said smugly. 
+
+
+
+Jackson threw his arm across the table in an attempt to punch Rich in the arm.
+
+
+
+“Babe, you know what I said about hitting!” Brittany said, not removing her beating eyes from her phone screen.
+
+
+
+“Sorry.” Jackson whimpered, almost submissively.
+
+
+
+“I don’t get why we have to sit with these clowns. Why can’t we ever just sit by ourselves?”
+
+
+
+“We love you too, Brittany.” I said sarcastically. She responded with a hard eye roll.
+
+
+
+“They aren’t clowns, Brittany. Plus April sits over without a problem, right April?”
+
+
+
+“My only problem is…well…I don’t have a problem.” April said, trying not to add fuel to Brittany’s fire.
+
+
+
+“You’re too much of an optimist.” Brittany scoffed. April mockingly smiled back at her.
+
+
+
+“Can we all just keep today peaceful, please? We have all summer to argue with each other.” I said, trying to bring the mood back up.
+
+
+
+“So Dean, since it’s such a beautiful day today, I was thinking you and I can go to the lake when we get out of here, say around 4?” April said, “My dad is home for the night so Sammy won’t need me.” April and I hadn’t really had a true one on one date in a while. Things were pretty rough in her home life. Like Richard, she also had a single parent. But in her case it had always been that way. She never had a real childhood, always having to take care of her little brother while her father worked. Her having any inkling of free time made me internally jump. 
+
+
+
+“The lake? Count me in!” Rich said, overhearing a conversation only meant for her and I.
+
+
+
+“Babe, do you want to go to the lake?” Jackson asked Brittany.
+
+
+
+“Guys.”
+
+
+
+“Maybe with just you.” She replied.
+
+
+
+“Guys?”
+
+
+
+“Oh c’mon Brittany, don’t be such a lame ass.” Rich said with a smirk.
+
+
+
+“Guys!”
+
+
+
+Everything went quiet, “I would love to just have a day with April, can you please respect that?”
+
+
+
+“See, at least he gets it.” Brittany said antagonistically towards Jackson.
+
+
+
+After another staggeringly long second of quietness and stares I said, “Thank you.”
+
+
+
+The rest of lunch kept that quietness. The couples whispering among themselves and Rich doodling on his notes he took for our chemistry final. The bell would eventually ring and I now had to be in the witch’s den. On our way to the classroom, though, a darkness peaked in through the windows. Not a normal, cloudy kind of dark. An unforecasted, unwelcomed darkness. Almost like every ounce of a blank night was balled up and sat into one spot. The light from the sun was almost completely consumed by this faux night sky. The roar of lightning strikes rattled the thin sheets of glass and shook the floor beneath our feet. All I could think at this point was, “Welp, there goes my date with April.” This shouldn’t have been my main concern though.
+
+
+
+We all scuffled into our classrooms at a faster than normal pace. A knot welled up in my stomach as Rich and I sat down at our desks, awaiting the torturous test ahead of us.
+
+
+
+“Good afternoon class. Hopefully this will be the last time I see you sitting at these desks. Especially some of you.” Ms. Jenkins said, her gaze thrusted upon me, “This final will be mostly multiple choice with some short answer questions at the end. I have given each of you a piece of paper to show your work on. You will write your name, date, and class period at the top and submit them to me when you are finished. Now everyone go to your google classroom and begin. Good luck.”
+
+
+
+As soon as everyone bent down towards their bags to grab their laptops, a synchronous alert shouted from our phones. A severe thunderstorm warning was in effect.
+
+
+
+“Alright everyone, into the safe room. Single file, please!” Ms. Jenkins yelled over the roar of us.
+
+
+
+Things began to pick up quickly. Every lightning strike grew closer, stronger, and faster. The windows were almost warping in on themselves. It was all I could see before the power went out. We all huddled on the floor of the safe room. It grew really dark at this point. Dark enough to not see your own hand placed in front of your face, as if you could only imagine it being there. A loud whirl of wind was followed by the crashing sound of glass shattering throughout the building. Like a plane dropped thousands of sheets out of it and they hit the ground synchronously, an almost ear piercing, sharp sound. A bright flash then lit up around the seal of the door. A vibrant display of yellow and orange…and then white and grey. I knew this was odd at the time, not the normal light blues and whites from a power flash, but I didn’t question it. The sounds of whimpers consumed the room, and everyone buzzed as the nervous shaking of everyone was felt as we sat shoulder to shoulder.
+
+
+
+“Holy shit, dude, I think it’s a tornado!” Richard yelled to me from across the small, packed room.
+
+
+
+“Did your clicks bounce off of it?” I yelled back hysterically.
+
+
+
+“Mr. Dawson, Mr. Buckley, put your heads down and be quiet!” Ms. Jenkins retaliated back. I couldn’t help but laugh in the admittedly scary situation.  
+But just when it had seemed like it started, it ended. The sun peaked back through into the classroom, although with a noticeable line in its shadow. We all got up after the power jolted back on.
+
+
+
+“Attention students and staff, we apologize for the unexpected delay. But it is now safe to exit your safe rooms.” A voice whaled from the intercoms.
+
+
+
+To everyone’s dismay, we exited the cramped room to find everything how it had been left. No glass shattered on the floor, no papers and pencils blown off of desks. The outside world had returned to its previous state, well almost. The class resumed as if nothing had even happened and, after glancing at Rich’s screen a time or two, we finished our last final, unknowingly, ever.
+
+
+
+The hallways were anarchy. People hollering and celebrating the end of the year. School supplies being thrown through the air like paper airplanes. Teachers scrambled trying to keep things orderly and under control. The kind of chaos young teens thrived off of. Rich and I, sifting through the sea of body odor and joy, eventually made it out to the parking lot. 
+
+
+
+“So, how do you think you did?” Rich asked.
+
+
+
+“Well, I better have done good. I used your answers.” I said laughing.
+
+
+
+“Dean!”
+
+
+
+“What, you said I could.”
+
+
+
+“Do you think she noticed?”
+
+
+
+“I’m not sure, but if she did I wanted to get out of there without her being able to say something about it.”
+
+
+
+“Well, mission successful.”
+
+
+
+“Plus I think there was something else on everyone’s minds.” I said, moving my head up towards the sky. But as I looked up I noticed something looming in the air. A black line, almost flat in look, sitting flush above the school. It was long but very thin. Like if a small child came up to the artist’s painting and marked it with a pencil. Remnants of clouds from the “storm” almost seemed to collect and dissipate around it. Only I seemed to notice it, but Rich could see something was wrong with me.
+
+
+
+“Don’t worry dude, I was kind of scared too. I won’t lie.”
+
+
+
+“Can you come to the lake later, actually? I need to talk to you about something.”
+
+
+
+“S-sure man, if you want me to.”
+
+
+
+“Oh, and tell Jackson they can come too.”
+
+
+
+“Are you sure you’re okay, man?”
+
+
+
+“Yes, fine.” I said, reluctantly, “Just come, please. I’ve got to drop Sarah off at   
+home and then I’m heading straight there. I’d say around 4-ish.”
+
+
+
+“Okay, man.”
+
+
+
+We both got in our cars, only one of us suspicious about what would lay ahead.  
+My tires screeched as I sped out of the school parking lot, knowing I definitely turned some heads, but that didn’t matter to me. I needed to get to my sister and get her home safe. I was going at arrestable speeds, which seems really bad to admit but it’s not like it would matter to me anymore, turning a thirteen minute drive into seven. I arrived at her school to a sea of cars in the pick up lane. I cut up through the metallic waves, cutting off mostly everyone in the line, and plopped my car up front by the doors. The bell would eventually ring after what seemed like ages, and my sister walked out with her little click of friends, covered in sweat and dirt and holding a little sack full of candy and other little things a nine year old would find mesmerizing. To be that age again.
+
+
+
+“C’mon Sarah, hurry up, we have to get home.”
+
+
+
+The car door slammed as her filth sat in the back seat.
+
+
+
+“Why are you bugging out?” She asked through the gap of her teeth.
+
+
+
+“I can’t say, we…we just need to get home.”
+
+
+
+“Okay?”
+
+
+
+A couple minutes of silence ensued as she pouted with her arms crossed, not   
+getting to tell her friends goodbye like she normally did.
+
+
+
+“So…did you have fun at your field day?”
+
+
+
+“Oh yes! We played gaga ball and had a humongous inflatable slide and red rover and snow cones! We had to go inside because of the storm though. It was scary. But we got to watch movies.*”*
+
+
+
+“Sounds like so much fun, I’m glad you had a good day. Just do everyone a favor and don’t eat all of that candy tonight. We don’t need you bouncing off of the walls.” I said with a chuckle.
+
+
+
+“Don’t tell me what to do.” She replied, her mood swinging self sinking back into the pouting pile she had been in. I didn’t mind though because all I could concentrate on was the black scratch in the sky, ever so slightly seeming to grow longer and thicker.
+
+
+
+We came to a jolting stop in my driveway, the sound of gravel making mounds in front of my wheels echoing off of the garage door. I opened Sarah’s car door and escorted her inside, my hand firmly shoving her from behind.
+
+
+
+“Let me walk, Dean.”
+
+
+
+“You’ve got to get inside, now.”
+
+
+
+“Why?”
+
+
+
+“I will try to figure that out later, just go in!”
+
+
+
+“Wait, so you don’t know why you have to have me home right now?”
+
+
+
+“No…I don’t. I have to go, though, I’ve got to go somewhere.” Mom and dad didn’t want Sarah knowing about the lake in fear that she would go there and drown.
+
+
+
+“You can’t just leave me here, Dean. Do you remember how mad Mom and Dad were when you did that?”
+
+
+
+“That’s not important, I can take it. Just go in, please. Oh, and remember what we talked about last time.”
+
+
+
+“Ugh, fine.” She said, slamming the front door in my face, the click of the lock turning followed.
+
+
+
+“Don’t play with the stove again, I mean it!” I yelled into nothing.
+
+
+
+As fast as I had entered the driveway, I exited it. Gravel from the grooves of my tires flung into the air as I sped down the street and hit the back roads that led to the remote lake. The cove was, practically, in the middle of nowhere. The lake used to be a treasure trove for the town, the holding spot of a childhood camp for most of the adults in town. They would even hold annual fireworks for the 4th of July there. But when someone drowned there back in the nineties, the camp closed. It was a rotting shell of cabins and long lost memories. It was now a common place for my demographic to go and drink beer stolen from a parents garage fridge, smoke pot in the woods, or just to bathe in the sun and try to get tan lines to impress in the halls. Sometimes the sparse homeless population would make their way there before train hopping to the next town over. Some would stay though.
+
+
+
+I pulled into the empty, weed ridden parking lot to the sight of April sitting on the hood of her paint-chipped, blue sedan. A faint whimper grew louder as I inched closer to the car, sending pins and needles throughout my spine. April was as tough as concrete, so when she was crying it was never a good thing. Every step grew louder and louder in my head as I tried approaching with caution.
+
+
+
+“H-honey, are you okay?”
+
+
+
+“Oh, Dean, you’re here. She said, wiping a mix of tears and snot from her face, “Sit.”
+
+
+
+“O-okay?”
+
+
+
+I slid up next to her, holding her hand and looking out at the algae filled lake. The sun reflected green and orange into my eyes.
+
+
+
+“Dean, listen. I’ve been meaning to talk to you about something. You always say I can talk to you about anything, right?”
+
+
+
+“Of course, Hun. Even if it upsets me or makes me angry. I’d rather you say whatever it may be and not bottle it up.”
+
+
+
+“Okay, good. I haven’t really been the most honest with you recently.”
+
+
+
+“What do you mean?” I sat attentive, trembling and not even thinking about the scratch.
+
+
+
+“Well, it’s just that I haven’t been feeling-”
+
+
+
+Before she could say anything else, Jackson’s pick up truck grumbled into the picture. April’s sadness turned into annoyance in the matter of seconds.
+
+
+
+“What are they doing here?”
+
+
+
+“I asked them to come. I’ve got something to talk about..with everyone.”
+
+
+
+“We can’t have just one day to ourselves, can we?”
+
+
+
+“Tell me about it” Brittany said sassily, her short frame plopping out of the truck. April smiled towards her sarcastically and turned her attention, straight faced, right back to me.
+
+
+
+“Good job rounding them up!” I said sarcastically.
+
+
+
+“And look what else I rounded up!” Rich said, going on to pull out a fifth of Jack Daniels.
+
+
+
+“The only reason we came.” Jackson spouted out, seeming inconvenienced that he was there in the first place.
+
+
+
+“I don’t want any of that shit.” I said.
+
+
+
+“I do.” April roared over me.
+
+
+
+“At least someone’s not a bummer.” Rich said mockingly towards me.  
+I corralled everyone around as the bottle began to be passed around, April taking a big swig as it got to her.
+
+
+
+“Alright, so listen. We all know it stormed earlier.”
+
+
+
+“You really got us out here to talk about a damn storm? Unbelievable.” Brittany scoffed.
+
+
+
+“No Brittany.” I scoffed back, “Anyways, I want to talk about what came from it.”
+
+
+
+“What do you mean?” April questioned, everyone else tilting their heads in interest. 
+
+
+
+“That.” I said, motioning my head towards the scratch. It looked as if it was sprouting small cracks from its edges.
+
+
+
+“It looks…different.” Rich said.
+
+
+
+“So you noticed it too?” I said in shock.
+
+
+
+“We all noticed it. We just aren’t acting like a schizo like you.” Jackson said, chuckling.
+
+
+
+“I'm serious, guys. Did you see how dark it got? And the sound…tell me you heard the sound?”
+
+
+
+“It sounded like a bunch of glass broke, it was probably the windows.” April said.
+
+
+
+“Did you see a single broken window?”
+
+
+
+Everyone looked at each other to confirm my suspicion.
+
+
+
+“Didn’t think so.”
+
+  
+  
+“Okay, well, you sound…how do I say this, crazy. It's probably just a contrail dude.”
+
+
+
+“Why is it black then, Jackson?” I asked, getting in his face a tad.
+
+
+
+“Maybe the jet was having a bad day. I don’t know, Dean. What I do know is that we are leaving. Rich, April, you guys coming?”
+
+
+
+“I am, just meet me at my house later, Dean.” April said, still annoyed.
+
+
+
+“Rich”, Jackson asked, snapping at Rich trying to grab his attention from me, “are you coming?”
+
+
+
+“N-no, I’ll just have Dean take me home.”
+
+
+
+“Be careful, you might get dragged to the ward with him.”
+
+
+
+As Jackson finished his sentence, a rustling came from the trees. An old man, dingy and tattered and holding an empty bottle, one resembling ours, crept out.
+
+
+
+“The black devil’s come!” He yelled, slurring every syllable, “The black devil’s come to take our souls! It's come to-” He wouldn’t get another word out before face planting in the gravel in front of us.
+
+
+
+“Maybe we all should go.” I said, trying to laugh off the bullets of words that had shot out of the man's barrel.
+
+
+
+Everyone nodded and stared towards him in agreement. Our engines started up and roared out of the parking lot. As I looked at my rear view mirror, I could see the man scuffle towards the half full bottle that Rich had left on the ground. 
+
+
+
+“Do you think we should call the police?” I said, turning toward Rich, definitely feeling warm, in the passenger seat.
+
+
+
+“Nah, he’ll be fine. He’s doing less damage out there than he would be in town.”
+
+
+
+“That’s fair, just try to sober up before we get to your house.”
+
+
+
+Rich held a thumb up and leaned over to stare out the window, hand on his cheek.
+
+
+
+“So are you actually worried about that thing?” He said, his hand making his speech sound similar to the mans.
+
+
+
+“I mean, yeah, a little. I don’t know.”
+
+
+
+“Well I say we shouldn’t worry about it until we know it’s actually a problem.”
+
+
+
+“You’re right, I’m getting myself worked up for nothing.” 
+
+
+
+“And you know, we can always go look at it in the morning before I go to work if that would make you feel better.”
+
+
+
+“Oh, it definitely would.”
+
+
+
+“I’ll pick you up at noon then.”
+
+
+
+“Bet.”
+
+
+
+I dropped him off and headed home speedily trying to get home before my parents did. Thankfully this was the case. I opened the front door to find Sarah passed out on the couch, her bag of treats in hand, watching tv through her eyelids. A sigh of relief waved through me as I came home to a clean house. Then, one after another, my parents walked in through the garage door. 
+
+
+
+“What are you making for dinner, Jan?” My dad said as the growl of his stomach roared throughout the house.
+
+
+
+“Well, I was thinking that since the kids just had their last day of school we could go out?”
+
+
+
+“That’d be fine with me.”
+
+
+
+The stomp of my dad’s boots overtook his growl as his soot covered body came up to me at the recliner.
+
+
+
+“Hey son, how were finals?”
+
+
+
+“Good, good, just glad to have them over with.” I said awkwardly.
+
+
+
+“Why are you so sweaty?”
+
+
+
+“Am I?”
+
+
+
+“Yeah you are?” he said, concerned, "Please don’t tell me you left her here alone again.”
+
+
+
+“He did!” Sarah yelled, springing to life from her slumber.
+
+
+
+“You know not to leave her here by herself!” my mom yelled from the doorway of   
+the kitchen.
+
+
+
+“I-I wasn’t gone for that long.”
+
+
+
+“It doesn’t matter how long you were gone. You know what she did last time!” My dad chimed back in.
+
+
+
+“I know, I know.”
+
+
+
+“No more, or you won’t be allowed to go anywhere for the summer.”
+
+
+
+“Fine.”
+
+
+
+“We do so much for you already, just please listen.”
+
+
+
+“Okay, I get it.” I said, slightly annoyed.
+
+
+
+“Okay, now, who’s hungry?” My mom said.
+
+
+
+“Me!” Sarah screamed near my ear.
+
+
+
+“I’ll go shower.” Dad’s smile cracked through the black dust on his face.
+
+
+
+My parents would always take us to our favorite restaurant, the Acre and Iron. It was the most soul warming comfort food that anyone could ever ask for. A comfort that I would feel for the very last time that night. We would be seated and I would order my usual chicken fried steak with gravy and a side of hash brown casserole. The thought of it distracted me for the moment, only making me think of the knot of hunger slowly tying in my stomach.
+
+
+
+“So, how were your days?” My mom asked.
+
+
+
+“Good, aside from the storm. I was hoping to get out of doing that chemistry final.” I said chuckling, the laughter from my parents following.
+
+
+
+“Good, you had to do it though. Sarah?”
+
+
+
+“It was so fun! We had candy and games and we watched movies!”
+
+
+
+“What did you watch?” My dad asked.
+
+
+
+“Some movie with a fish.” She replied with a smirk. 
+
+
+
+“I remember showing that movie to your brother. He used to love it when he was younger.” My mom replied.
+
+
+
+Our food came and silence and smacking filled our table. We left that night happy and full, but I still had a sense of unease as I looked up into the night sky. The scratch was still visible, being darker than any of the sky that spanned around it.   
+I will give an update soon, but for now I have to move. It draws closer and the cries are starting to become louder.
+
