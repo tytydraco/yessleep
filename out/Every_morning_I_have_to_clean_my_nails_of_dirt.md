@@ -1,0 +1,25 @@
+When I got the news, I wasn't particularly surprised. The death of my father was to be expected - an alcoholic that drank liquor for water couldn't last very long. I did however feel excluded from the mourning - either it didn't settle yet, or it didn't even arrive. He didn't have a funeral, hence from what I was told, his remains weren't found.
+
+I watched the calendar after the incident. A day, two, a week. Time went by the same, I concluded, with little care. My main problem was another one - hygiene has become my priority lately - and my nails have refused to cooperate.
+
+When I open my eyes each morning, and I scratch softly at the ends to leave my slumber, I find a brown substance hidden underneath my fingernails. I soon found it to be dirt, I thought, by the texture and smell, though I haven't told my mother that. She'd think I lost my mind, so I fabricated a scenario of the body doing its thing - she's not particularly intelligent, so she believed me. 
+
+What really bothered me, though, were the dreams that suddenly came back. Hammers, screwdrivers, and razor sharp blades filled my vision when I fell asleep. His face was plastered among them, devastated and half-expired. I'd wake up in a cold sweat on the first few nights, until it became a routine. 
+
+Though, the more dreams I got, the more dirt I kept finding. 
+
+One night, I even tried stuffing my nails with cotton - to keep it from forming, from appearing - but the next morning, it was gone. This went on for several weeks until I decided to set up a camera. Surely, if it's a biological thing and not me digging through the chocolate in the fridge, then I don't even have a reason to film it in the first place. 
+
+When I woke up - with dirt under as always - I stopped recording and watched myself in the video. 
+
+At around midnight, my breath leveled out with a few embarrassing snores. They quickly quietened down when I started to sit up in my bed. My eyes were shut, awfully tight even, as I reached for my phone before standing up. My mother didn't hear a thing. 
+
+I could see myself getting on a pair of zip-up boots before leaving the house. Hell, I knew I sometimes sleepwalked, but it's getting ridiculous. My keys were clinking softly, thankfully, at least I didn't wake up the neighbors too. 
+
+I believe it was a three kilometer walk. My feet carried me pretty fast, so I arrived at my destination quickly. The feed was getting darker, less illuminated by the nearby streetlamps, though I could still see a little bit. It looked like a field, an open one, with a small patch of abundant bushes and several trees surrounding them. 
+
+Then I started to dig. 
+
+The specific location was odd at first - it could've been anywhere else - but considering that I'm not exactly awake right now, it doesn't really matter. The dirt comes off easily, I see, the thing didn't get stuck to anything beneath. Sometimes I'm so hungry that I feel malnourished, but I live for the taste of meat. 
+
+I'm sorry that I have to cut my explanations short. It's past midnight, and I have to make sure my boots are silent. 
