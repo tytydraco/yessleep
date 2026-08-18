@@ -1,0 +1,49 @@
+Due to special circumstances related to this case, I cannot give locations or real names, as that could serve as a clue for my whereabouts, and they could use it to find me.
+
+I am still not sure what caused the events that lead to the disappearance of my friend, as I have no idea if I can even call myself a reliable witness, given the nature of my memories regarding his disappearance. Even with the risk of being called a liar or lunatic, though, I feel like the best I can do for him is to tell what I remember, and maybe you can help me understand why it took him, but decided to leave me alone.
+
+Jake and I have been friends since we were little children. Maybe it was due to the fact that we did not have brothers growing up, but we became inseparable from the moment he and his family moved to our neighborhood. I still remember how much I loved to go into their parents house, as they had a somehow better economical condition than most people in the street, and Jake would invite me to play the latest videogames, or to birthday, where he would sometimes give away old toys that were replaced by his latest gifts, and as his best friend, I usually got the best ones. His family were not snobbish in any capacity, but I would be lying if they did not trigger feelings of envy on the people living around us.
+
+Jake’s grandmother was a very superstitious woman, and in one of those birthdays, she gave him a pendant with a matiasma as an ornament. Jake’s grandmother was Greek, and would walk around with plenty of lucky charms with the matiasma symbol carved into it in order to repel curses. He thanked his grandmother for the gift, and after a while, he became inseparable from that pendant, using it everywhere.
+
+Jake’s life was not perfect, but I could bet it was the happiest time of his life. That time came to an end once we became teenagers: Jake’s parents had to take him outside of town for medical evaluation in the big city, as he was having terrible episodes of headaches, nausea and weakness. He got to the doctors, but they could not figure out what was causing those symptoms.
+
+They came back to town frustrated, but due to heavy traffic, Jake’s father was forced to take an alternative path: he drove towards the Boulevard. 
+
+Our city boulevard is an abandoned road on the settlement’s outskirts: it has been abandoned since the Civil War, and almost nobody likes to travel through it, as the only things giving the lonely driver some company on the Boulevard are the Bare Trees that almost bend over the road, and the 19th century mansions left behind by old landowners who never came back.
+
+Jake’s father, different from his grandmother, was not superstitious at all, and did not believe the ghost stories told about the Boulevard. If he was a little bit more hesitant whilst dealing with things that he does not understand, maybe he would still be around us today.
+
+Jake’s family suffered an accident on the Boulevard that day: the cops suggested that the dark of the night made Jake’s father lose sight of the road, but I doubt that, as Jake’s father was a very good driver, and never involved himself in any accidents. His parents were thrown out of the car, and their bodies ended up impaled on the tree’s upper-branches. Jake was found walking for hours on the road, unharmed. He was crying, and holding his pendant between the fingers of his right hand. 
+
+After the town united in a heartbreaking funeral for Jake’s parents, we left town together, as I wanted to study abroad, and Jake wanted to leave behind any memory of what happened that night. He said goodbye to his grandmother, and we planned to not come back for a long time.
+
+Years passed, and Jake never told me the details of what happened on that day, but I decided to not ask, as I could bet it was traumatic, and did not want to reopen the wounds. He was given no choice, though, as he received a phone call from our town, it was his aunt saying that his grandmother was found deceased that day. Jake was left speechless, but given how close he was with his grandmother as a child, he held himself better than I would expect.
+
+After he recomposed himself, we decided to pay a visit, as his grandmother’s funeral would probably take place soon, and we could not miss it after everything that she did for us.
+
+Before we started preparing for the trip, Jake started looking for his matiasma pendant everywhere, but could not find it. He became agitated, thinking that someone might have stolen it (I had no idea what made him believe that, as we had never had problems with theft in our city), but after it became clear the pendant would not be found, he decided to give up his search.
+
+Once we got back to the town, we stayed in Jake’s aunt's house before the funeral could start. It was clear she was affected by her mother’s passing, but Jake and I realized that no one in town would disclose the cause of death to us, which made us feel uneasy. Jake’s aunt decided to only share it with me, and once she told the details, I realized why.
+
+Jake’s grandmother did not die of natural causes: she was found just like Jake’s parents, impaled by the bare trees in the abandoned Boulevard. I felt sick to my stomach hearing it, and I felt like I had to leave that place with Jake as soon as possible. I wish I had done it, but I decided to keep appearances so Jake could have some closure, even if I had to lie about what happened to his grandmother.
+
+The funeral was less crowded than Jake’s parents' funeral was. Plenty of people had left town since we decided to move away, and it was becoming more ghost-like everyday. Part of me imagined the trees in the Boulevard slowly taking away the city as the people moved, growing the cursed street into a full haunted ghost town. I shivered, but then brushed my own thoughts away, embarrassed for letting old superstition and urban legend get in my head.
+
+We left the cemetery, and decided to stay in Jake’s Aunt for the night. Jake was having trouble sleeping, as he was being affected by a strange illness, similar to the one he had many years ago, right before the accident. I asked what I could do in order to help him, but Jake looked at me as if he was dead already, and said nothing could help him now that he stepped on the hunter’s trap for a second time. Jake’s seriousness took me out of guard, but I decided his gloomy behaviour was a product of grief, even if it manifested in such an eerie way.
+
+It was before dawn when I heard the first sounds coming from outside. Jake was awake, looking at something through the living room’s window where we were sleeping. Jake looked at me with an almost contorted expression of horror. He let out a desperate screech, begging me to find a matiasma anywhere, as the evil eye had got to him.
+
+I was confused with his behaviour, thinking that he might be sleepwalking or losing his mind, but then the window was shattered by the branches of a leafless tree, spreading glass throughout the living room. The branches surrounded Jake, and snatched him out of the living room through the window. I could only hear his screams of desperation getting further and further, and I immediately ran to the door.
+
+Looking outside, I could see the entire neighborhood outside, looking at our broken window. I asked for help at first, but the neighbors simply looked at me with gleaning eyes, women, men, children… All looking at me as if I was simply an actor in a comedic stageplay, smiling as my friend was taken away from me.
+
+right in front of me, I could see a bare tree identical to the ones found in the Boulevard. The people clapped and cheered as the tree held Jake, half impaled by the branches, and crushed as if he was smashed by metal. I tried to scream, but my voice failed, and I could only fall to the ground as despair took me whole.
+
+Jake tried to reach in my direction, but he could barely move his mangled arm towards me. With no ceremony, the tree retrieved underground, whilst Jake’s body left out a sickening squish sound as the branches hugged him tighter, smashing him.
+
+The grass in the front porch grew in an instant, and the earth returned to the hole as if nothing had come from the ground in the first place. I passed away, only to be woken up by one of the neighbors when morning came.
+
+The neighbor tried to be friendly, asking me why I was sleeping on the front porch, but I ran away from him like an animal, and drove my car out of town without a second thought.
+
+I have heard news on Jake’s disappearance, and I know people will suspect me, since I left the settlement right after it, but I do not fear persecution: I know it is only a question of time before they find Jake in the Boulevard, killed by the tree that took his parents so many years ago, and them I will be found innocent of this terrible crime.
