@@ -40,7 +40,7 @@ I’d thanked for her then pushed my cart towards the man that was at the custom
 
 “I was just curious, has she been seeming okay to you?”
 
-“What do you mean? She’s gotten maybe a little more paranoid.” His face wrinkled in confusion. “Why is there something wrong with her? I just saw her last week and she seemed fine.” His barrage of questions was sweet and I reached out and patted his arm.
+“What do you mean? She’s gotten maybe a little more paranoid.” His face wrinkled in confusion. “Why is there something wrong with her? I just saw her last week and she seemed fine.” His barrage of questions was sweet. I reached out and patted his arm.
 
 “Mom’s doing just fine, I just see her more often and I wanted to make sure she’s keeps up with her health. She’s getting older and I want to make sure she comfortable.”
 
