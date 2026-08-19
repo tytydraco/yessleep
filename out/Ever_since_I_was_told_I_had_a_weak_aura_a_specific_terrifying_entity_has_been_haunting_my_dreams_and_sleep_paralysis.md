@@ -1,0 +1,17 @@
+Back in 2018, people around me started saying that I had a "weak spirit" (a light aura) and was easily targeted by spirits. I didn't believe in that stuff back then, so I just brushed it off. But about 2 to 3 weeks later, I dreamed of a ghost that consisted only of a head and dangling internal organs. I thought it was just another weird nightmare because I get grotesque dreams pretty often. But nope, this damn thing showed up in my dreams for three consecutive nights.
+
+I remember it felt like a lucid dream. The entity was a grotesque combination of hair and a stomach rising from under my bed, swaying right in front of my face. Every time I woke up, I felt like my energy had been completely drained. 
+
+It didn't stop there. After that phase, I realized I was getting sleep paralysis constantly—and I mean frequently. My family told me to put a knife under my pillow to ward it off, but it didn't help at all.
+
+For instance, during my mandatory college military training camp in Hanoi (won't name the school)... I was sleeping on the bottom bunk, and it was winter. On the very first night in that room, I suffered a brutal episode of sleep paralysis that I will never forget for as long as I live. 
+
+I was paralyzed, but I could look around the room with my eyes and was screaming at the top of my lungs inside my head. My body was completely stiff, and I could barely breathe. Then, right on cue, that nightmare creature started growing right in the middle of our dorm room floor. It slithered straight toward my bed. 
+
+When I finally snapped out of it, my roommates were all standing around me, asking why I was drenched in sweat and babbling nonsense. That was when I noticed my mattress was completely soaked, and my roommates looked terrified. When I asked what I was saying, they said I kept muttering, "Get away! Go away!" So I ended up telling them what I had just seen. After I finished the story, nobody dared to go back to sleep—we stayed awake from 3:35 AM until morning.
+
+Oh, and there was another time when I moved into a new rental room. For the first two months, everything was normal—I still had sleep paralysis, but nothing too severe. Until one night, I had another episode. By this point, I had experienced it so often that I was too tired to even fight it anymore. But during that paralysis, I saw my room door slowly open on its own, even though I always locked it securely before bed. Then, that entity's head peeked through the crack of the door, grinning wildly at me. It charged straight at me, and I jolted awake. I swear I moved out the very next day, forfeiting my deposit without a second thought.
+
+To this day, I still get sleep paralysis frequently, but that specific head entity hasn't returned. Instead, it's usually a pitch-black face lunging directly at me before I wake up. No matter how loud I scream in those moments, nobody outside hears a thing—because I'm not actually screaming in real life.
+
+The end.
