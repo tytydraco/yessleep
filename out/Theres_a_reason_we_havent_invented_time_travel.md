@@ -1,4 +1,6 @@
-We built the machine from scratch. Something that worked. A large rig which ran on time dilation, utilizing the controlled orbit of a miniaturized black hole. The only catch was that you could only go forward, never back. 
+We built the machine from scratch.   
+  
+It was a large rig which ran on time dilation, utilizing the controlled orbit of a miniaturized black hole. The only catch was that you could only go forward, never back. 
 
 When it came time for human testing, most of my colleagues turned their backs on the prospect. My family had estranged me years before. Whatever life I had led, it wouldn’t have meant anything if this machine didn’t work. So, I ended up being the first one to raise my hand. There was nothing left for me here.
 
