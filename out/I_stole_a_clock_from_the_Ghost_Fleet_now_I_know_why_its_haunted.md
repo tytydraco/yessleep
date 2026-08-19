@@ -1,4 +1,4 @@
-They call it the Ghost Fleet. 
+They call it the Ghost Fleet.
 
 A collection of downtrodden, rusted, barnacled commercial ships that are anchored and left to rot just where the mouth of the Chesapeake Bay kisses the Atlantic Ocean.
 
@@ -26,7 +26,7 @@ I wish I could tell you it was a struggle, but I puttered up to that derelict co
 
 When I opened the door, there she was. Cobwebbed and rusted from the muggy air, but there was the tidal clock. “Junk” to Johnny-Come-Lately, but to the collector, a prized piece.  I scooped her up and headed right back out the way I came.  Police boats do patrol the area, so I won’t gonna linger.
 
-I hopped in my skiff and like I told Fortuna, headed to my duck blind to escape the night.  I built it in a marsh just off the Crook Narrows. Perfect for a spot of fishing and duck hunting, but also for privacy and to wait out the night. 
+I hopped in my skiff and like I told Fortuna, headed to my duck blind to escape the night.  I built it in a marsh just off the Crook Narrows. Perfect for a spot of fishing and duck hunting, but also for privacy and to wait out the night.
 
 As I pulled up, a storm began to holler.
 
@@ -54,7 +54,7 @@ The figure stopped. They turned and waded through the waste high water toward me
 
 A woman, cloaked in brown and a wooden crab bucket floating next to her, a rope tethered from it to her.
 
-I was taken aback, as she smiled. She was beautiful. 
+I was taken aback, as she smiled. She was beautiful.
 
 “Please come find some warmth, ma’am.  I appreciate crabbin’ when you have the time, but this is treacherous.
 
@@ -66,7 +66,7 @@ She didn’t respond. She just sat on the floor and looked up at me curiously.
 
 “You sang awful pretty.  Without that I’d probably-a-found some fright seeing you out in this marsh at this time of night.”
 
-She shook her head. 
+She shook her head.
 
 “What?”, I said confusedly. She shook her head again.
 
@@ -84,7 +84,7 @@ Suddenly her eyes WENT WIDE, as she caught sight of the tidal clock. She began t
 
 “THEY USED IT TO FIND US…”
 
-That same voice from earlier spoke from just outside the duck blind. The woman in front of me just stared at the tidal clock in its black sac, tears starting to run down her face, mixing with the blood from her mouth.
+That same voice from earlier spoke from just outside the duck blind. The woman in front of me just stared at the tidal clock in its black sack, tears starting to run down her face, mixing with the blood from her mouth.
 
 “There are more of ya…who’s out there!?”, I pleaded.
 
@@ -110,9 +110,9 @@ There was silence…BUT THEN.
 
 The most blood curdling, ear piercing scream from outside as the tongueless woman smiled. I covered my ears as she lurched toward me and kissed me.
 
-If you had doubts about me before now, would you believe that at that moment I jerked awake. It was morning. The storm had passed. I was still in the duck-blind and the clock was still there in its sac. I took a deep breath and chuckled to myself.
+If you had doubts about me before now, would you believe that at that moment I jerked awake. It was morning. The storm had passed. I was still in the duck-blind and the clock was still there in its sack. I took a deep breath and chuckled to myself.
 
-I whistled to myself and let the salty air flow over my grin as I made my way home to Fortuna.
+I whistled and let the salty air flow over my grin as I made my way home to Fortuna.
 
 Just then…
 
@@ -120,7 +120,7 @@ A KICK…then another…and another.
 
 Something knocked about…in my **stomach**.
 
-I lifted my shirt and pure horror fell across my face. I went straight to the sac with the tidal clock…
+I lifted my shirt and pure horror fell across my face. I went straight to the sack with the tidal clock…
 
 The most pristine, modern, electronic tidal clock.
 
