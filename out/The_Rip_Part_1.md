@@ -2,7 +2,7 @@ I don’t know what you are going to take away from all of this. But if you see 
 
 
 
-It appeared in my hometown around six months ago. A beautiful May morning, one that was almost too beautiful. It was still and sunny, perfect temperature. What people around my area would call “Jeep weather”. The grass as green as it possibly could be, dew glowing on every stalk. The sky was as perfect as a painting, the artist having the most precise craftsmanship. The scattered clouds swirling sparsely like light brush strokes. The sun overhead adding perfect shading to the masterpiece. It glistened into my blinds as my 6:45 am alarm rang, illuminating every gangly strand of hair upon my face. The last day of finals would catapult me into Junior year. If I passed them at least.
+It appeared in my hometown around three months ago. A beautiful May morning, one that was almost too beautiful. It was still and sunny, perfect temperature. What people around my area would call “Jeep weather”. The grass as green as it possibly could be, dew glowing on every stalk. The sky was as perfect as a painting, the artist having the most precise craftsmanship. The scattered clouds swirling sparsely like light brush strokes. The sun overhead adding perfect shading to the masterpiece. It glistened into my blinds as my 6:45 am alarm rang, illuminating every gangly strand of hair upon my face. The last day of finals would catapult me into Junior year. If I passed them at least.
 
 
 
