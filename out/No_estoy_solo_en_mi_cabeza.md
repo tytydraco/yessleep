@@ -1,0 +1,663 @@
+NO ESTOY SOLO EN MI CABEZA
+
+Relato de terror psicológico
+
+No recuerdo exactamente cuándo empezó.
+
+Durante mucho tiempo pensé que era estrés.
+
+Eso fue lo primero que me dijeron.
+
+Estrés.
+
+La palabra parecía suficiente para explicar cualquier cosa que no supiera explicar.
+
+Dormir poco. Pensar demasiado. Escuchar cosas. Tener la sensación de que alguien me observaba cuando estaba solo.
+
+Yo también quería creerlo.
+
+Porque la otra posibilidad era mucho peor.
+
+\---
+
+La primera vez que escuché la voz tenía veintidós años.
+
+Estaba acostado, mirando el techo, intentando dormirme.
+
+Eran las 2:43 de la madrugada.
+
+No había televisión encendida. No tenía música. El departamento estaba completamente silencioso.
+
+Entonces pensé:
+
+Tengo que levantarme temprano.
+
+Y una voz respondió:
+
+—No.
+
+Abrí los ojos.
+
+Me quedé inmóvil.
+
+La voz no había sonado en la habitación.
+
+Había sonado dentro de mi cabeza.
+
+Pero no era exactamente como pensar.
+
+Mis pensamientos tenían mi voz.
+
+Aquello no.
+
+Era una voz masculina, tranquila, casi apagada.
+
+Me senté en la cama.
+
+—¿Qué?
+
+No esperaba respuesta.
+
+La tuve.
+
+—No te levantes.
+
+Me quedé mirando la oscuridad.
+
+Esperé unos segundos.
+
+Nada.
+
+Me reí solo.
+
+—Estoy loco.
+
+La voz contestó inmediatamente:
+
+—Todavía no.
+
+Esa noche no dormí.
+
+\---
+
+Al día siguiente no se lo conté a nadie.
+
+Me parecía ridículo.
+
+Además, la voz no volvió.
+
+Pasaron cuatro días.
+
+Después una semana.
+
+Empecé a olvidarlo.
+
+Hasta que una tarde estaba trabajando frente a la computadora y pensé:
+
+Qué hambre tengo.
+
+La voz apareció.
+
+—No comas.
+
+Me quedé quieto.
+
+Miré alrededor.
+
+No había nadie.
+
+—¿Quién sos?
+
+Silencio.
+
+—¿Quién sos? —repetí mentalmente.
+
+Esta vez respondió.
+
+—Eso es lo que deberías preguntarte.
+
+Apagué la computadora.
+
+Esa noche busqué síntomas en internet.
+
+Ansiedad.
+
+Estrés.
+
+Falta de sueño.
+
+Alucinaciones auditivas.
+
+Leí durante horas.
+
+Cada explicación parecía encajar.
+
+Eso me tranquilizó.
+
+Hasta que encontré una frase que me hizo cerrar el teléfono.
+
+Las personas que experimentan determinados trastornos pueden escuchar voces que sienten como ajenas.
+
+Me quedé mirando la pantalla.
+
+Entonces pensé:
+
+No puede saber lo que estoy leyendo.
+
+La voz respondió:
+
+—Claro que puedo.
+
+\---
+
+Ahí empezó el miedo de verdad.
+
+Intenté ignorarla.
+
+Funcionó durante algunos días.
+
+Después comenzó a aparecer con más frecuencia.
+
+Nunca gritaba.
+
+Nunca me amenazaba.
+
+Eso era lo peor.
+
+Hablaba como alguien que me conocía.
+
+A veces me advertía cosas.
+
+—No contestes.
+
+—No vayas hoy.
+
+—No abras eso.
+
+Algunas veces tenía razón.
+
+Una noche me llegó un mensaje de un número desconocido.
+
+La voz dijo:
+
+—No lo leas.
+
+Lo abrí.
+
+Era un mensaje vacío.
+
+Nada más.
+
+Me quedé mirando la pantalla.
+
+—¿Cómo sabías?
+
+La voz tardó unos segundos.
+
+—Porque yo también lo vi.
+
+Sentí un frío en el estómago.
+
+No respondí.
+
+\---
+
+Con el tiempo descubrí algo peor.
+
+La voz sabía cosas que yo no recordaba.
+
+Una noche mencionó una casa.
+
+Una casa pequeña, con una puerta verde.
+
+Me dijo:
+
+—Ahí llorabas.
+
+No entendí.
+
+—¿Cuándo?
+
+—Cuando tenías siete años.
+
+Me quedé pensando.
+
+No recordaba ninguna casa con una puerta verde.
+
+Pero al día siguiente llamé a mi madre.
+
+Le pregunté por la casa donde había vivido cuando tenía siete años.
+
+Hubo silencio.
+
+Después me dijo:
+
+—¿Por qué preguntás?
+
+Le describí la puerta.
+
+Otra pausa.
+
+—Era verde.
+
+Sentí que se me cerraba la garganta.
+
+—¿Cómo sabías que era verde? —preguntó.
+
+No respondí.
+
+Ella tampoco volvió a preguntar.
+
+\---
+
+Empecé a escribir todo.
+
+Cada vez que la voz hablaba, anotaba exactamente lo que decía.
+
+Día.
+
+Hora.
+
+Lugar.
+
+Frase.
+
+Durante casi un mes hice una lista.
+
+La mayoría eran cosas inútiles.
+
+Pero algunas me inquietaban.
+
+03:11 — “Mañana vas a recibir una llamada.”
+
+Al día siguiente me llamó mi hermano.
+
+18:42 — “No abras el cajón.”
+
+No lo abrí.
+
+Al día siguiente encontré dentro una fotografía que no recordaba haber guardado.
+
+Era una foto de mi infancia.
+
+Yo estaba sentado frente a la casa de la puerta verde.
+
+A mi lado había otro chico.
+
+Un chico aproximadamente de mi edad.
+
+Le pregunté a mi madre quién era.
+
+Ella miró la fotografía.
+
+Se puso pálida.
+
+—No sé.
+
+—Mamá.
+
+—No sé quién es.
+
+—¿Nunca lo viste?
+
+Ella negó con la cabeza.
+
+Después tomó la fotografía y la guardó.
+
+—No vuelvas a hablar de esto.
+
+Esa misma noche la voz dijo:
+
+—Ahora entendés.
+
+\---
+
+Empecé a pensar que había reprimido algún recuerdo.
+
+Quizás había ocurrido algo de niño.
+
+Quizás había inventado a alguien para soportarlo.
+
+Quizás la voz era una parte de mí.
+
+Eso era lo que quería creer.
+
+Fui a un psicólogo.
+
+Le conté todo.
+
+No me juzgó.
+
+Me hizo preguntas.
+
+Cuándo aparecía la voz.
+
+Qué decía.
+
+Si podía controlarla.
+
+Si me ordenaba hacer cosas.
+
+Le dije que no.
+
+—¿Y cómo te sentís cuando aparece?
+
+Pensé unos segundos.
+
+—Como si alguien estuviera sentado detrás de mí.
+
+El psicólogo escribió algo.
+
+—¿Aunque estés solo?
+
+—Sí.
+
+—¿Y qué creés que quiere?
+
+No supe responder.
+
+La voz apareció.
+
+—Que te acuerdes.
+
+Me quedé mirando al psicólogo.
+
+Él levantó la cabeza.
+
+—¿Qué pasó?
+
+—Nada.
+
+Pero había dejado de escuchar su voz.
+
+Ahora escuchaba otra cosa.
+
+Un murmullo.
+
+Muy cerca.
+
+Detrás de mi oído.
+
+—No le digas.
+
+\---
+
+Dejé de ir.
+
+Durante las siguientes semanas mi vida se deterioró.
+
+Dormía con la luz encendida.
+
+Revisaba los armarios.
+
+Miraba debajo de la cama.
+
+Tapaba los espejos.
+
+No porque creyera que hubiera alguien.
+
+Sino porque ya no estaba seguro de que mis pensamientos fueran míos.
+
+Entonces ocurrió algo que cambió todo.
+
+Encontré el cuaderno.
+
+Estaba debajo de mi cama.
+
+No recordaba haberlo comprado.
+
+Era negro.
+
+Viejo.
+
+Lo abrí.
+
+Las primeras páginas estaban vacías.
+
+Después encontré una frase.
+
+Reconocí la letra.
+
+Era mi letra.
+
+Decía:
+
+“Si estás leyendo esto, todavía no recuperaste el control.”
+
+Pasé la página.
+
+Había otra.
+
+“No confíes en la voz.”
+
+Otra.
+
+“No confíes en tus recuerdos.”
+
+Y una última.
+
+Escrita con tanta fuerza que el papel estaba marcado:
+
+“No sos el primero.”
+
+Me quedé sentado en el suelo.
+
+Entonces escuché la voz.
+
+Pero esta vez no apareció dentro de mi cabeza.
+
+La escuché desde el pasillo.
+
+—Por fin.
+
+Me levanté lentamente.
+
+No había nadie.
+
+La voz volvió.
+
+—Pensé que nunca ibas a acordarte.
+
+—¿Quién sos?
+
+Silencio.
+
+Después:
+
+—Soy vos.
+
+Sentí que me faltaba el aire.
+
+—No.
+
+—Sí.
+
+—No sos yo.
+
+La voz soltó una pequeña risa.
+
+—Eso mismo dijiste la primera vez.
+
+Me quedé congelado.
+
+—¿Primera vez?
+
+—Cuando despertaste.
+
+—¿Cuándo?
+
+La respuesta tardó unos segundos.
+
+—Hace seis años.
+
+Sentí un vacío en el pecho.
+
+Yo tenía veintidós.
+
+La voz continuó:
+
+—Vos creés que tu vida empezó hace seis años.
+
+Miré el cuaderno.
+
+Había una fecha escrita en la primera página.
+
+Seis años atrás.
+
+Y debajo:
+
+“Hoy despertó él.”
+
+\---
+
+No sé cuánto tiempo estuve sentado.
+
+Quizás minutos.
+
+Quizás horas.
+
+Busqué fotografías.
+
+Documentos.
+
+Mensajes antiguos.
+
+Todo.
+
+Y encontré algo extraño.
+
+Había un período de casi un año del que no tenía recuerdos.
+
+No existían fotos.
+
+No había mensajes.
+
+No había publicaciones.
+
+Nada.
+
+Como si durante ese tiempo yo no hubiera existido.
+
+Entonces encontré un video.
+
+Una grabación vieja.
+
+Yo aparecía frente a la cámara.
+
+Parecía más joven.
+
+Estaba sentado en mi habitación.
+
+Miraba directamente al objetivo.
+
+Y hablaba.
+
+—Si algún día ves esto, significa que él está empezando a volver.
+
+Me quedé sin respirar.
+
+El video continuó.
+
+—No intentes convencerlo de que sos vos.
+
+Mi versión del video miró hacia un costado.
+
+Como si hubiera escuchado algo.
+
+Después volvió a mirar la cámara.
+
+—Porque vos no sos el original.
+
+La grabación terminó.
+
+Me quedé mirando la pantalla negra.
+
+Entonces la voz apareció.
+
+Esta vez sonaba diferente.
+
+Más cerca.
+
+Más clara.
+
+—Ahora ya lo sabés.
+
+Cerré los ojos.
+
+—¿Qué querés?
+
+La respuesta fue tranquila.
+
+—Mi vida.
+
+Abrí los ojos.
+
+Frente a mí estaba el espejo.
+
+Por primera vez en semanas me animé a mirarlo.
+
+Mi reflejo estaba ahí.
+
+Pero había algo extraño.
+
+Yo estaba respirando rápido.
+
+Él no.
+
+Mi reflejo levantó lentamente la mano.
+
+Yo no lo hice.
+
+Y escribió sobre el vidrio empañado:
+
+NO SOY EL QUE ESTÁ EN TU CABEZA.
+
+Me quedé inmóvil.
+
+Entonces comprendí algo.
+
+La voz nunca había estado intentando entrar en mi cabeza.
+
+Nunca había sido una segunda personalidad.
+
+Nunca había querido controlarme.
+
+Había estado intentando avisarme.
+
+Porque durante seis años yo había vivido convencido de ser una sola persona.
+
+Pero había alguien más.
+
+Alguien que había estado conmigo desde el principio.
+
+Alguien que conocía cada recuerdo.
+
+Cada miedo.
+
+Cada pensamiento.
+
+Cada secreto.
+
+Y ahora entendía por qué la voz nunca me había pedido que hiciera nada.
+
+Solo esperaba.
+
+Esperaba que yo recordara.
+
+Esperaba que yo entendiera.
+
+Esperaba que yo me diera cuenta de algo que todavía no quería aceptar:
+
+No estaba solo dentro de mi cabeza.
+
+Y mientras miraba mi reflejo, escuché una última frase.
+
+Pero esta vez no vino de la voz.
+
+Vino de mí.
+
+—Ahora sí me acordaste.
+
+Mi reflejo sonrió.
+
+Yo no.
