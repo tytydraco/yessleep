@@ -1,0 +1,149 @@
+I forgot that I had agreed to go to the Sunday service with Pierce, one of my closest friends, when he texted me that he was outside and waiting for me. 
+
+“Crap…” I rolled out of bed. I texted him I’d be out in five minutes. I looked at the clock: 11:AM. I threw on wrinkly, but clean clothes, hastily brushed my teeth, and ran down four flights of stairs out of my apartment. There he was in his massive truck, warmly smiling as I approached. 
+
+“Sorry about that, I hope we’re not too late,” I said as I got inside and closed the truck door. 
+
+“Nah, you’re fine,” he began to drive. “You excited?”
+
+I didn’t want to be another lost soul seeking salvation from depression, but I was running out of options. Almost nothing appealed to me anymore. Therapy only worked for so long until the dark thoughts of my insignificance clutched wires around my brain. Doctors wouldn’t up the dosage on my medication.  My friends, my true friends anyway, were patient with me. 
+
+“I…” I drifted. “I don’t know what to expect. I mean, do they want someone like me there? I don’t really believe in–”
+
+“Trust me, it’ll give you a new perspective,” Pierce said, giving me a side hug, other hand on the wheel.
+
+I forced a smile that naturally stuck. It felt good to be comforted.
+
+About twenty minutes later we arrived at Benevolent Springs Church. It was far out of the way for Pierce, so he must’ve really liked coming here. The outside of the church had seen far better days, but the congregation funneling into the massive church seemed to be in the highest spirits. Radiant smiles, hugs, handshakes, everything here screamed welcoming. 
+
+I almost bought it right then and there.
+
+We parked fairly close to the church in its deceptively large lot. As we got out, a couple in their late thirties approached  the truck. 
+
+“Oh hey, it’s the Deckers.” Pierce said. “They’re real cool.”
+
+Polly and Pedro Decker hugged Pierce before they even said a word. I got out of the truck and they turned their attention to me.
+
+“You must be the good friend Pierce promised he’d bring along,” Pedro said, outstretching his hand. “Pedro.”
+
+“Michael.” I shook his hand. “It’s nice to meet you.”
+
+I did the same for Polly. The Deckers had the grace of my doting grandparents. Pedro and Pierce talked about their plumbing experiences as we walked into the sanctuary. We settled into pews on the right side of the sanctuary, and I took in my surroundings. 
+
+The room was a perfect, cool temperature compared to the summer heat. The stage up front was lined with what looked like golden railings. Stained glass towered just behind the stage, but I couldn’t make out what the image was supposed to be. It wasn’t anything like a church I was expecting. 
+
+Pastor Zane stepped onto the stage, and the crowd, initially chattering and murmuring, began to whoop and cheer. He raised his hands like an orchestra conductor, and everyone rose from their seats. Pierce gently swatted my arm as he rose, so I followed suit. 
+
+The worship team began playing their songs. I was half-bracing, expecting a self-righteous message through song, but no. No, the music was actually uplifting. The voices around me and the fluttering in my chest made me feel like I was about to levitate. I’d be lying if I said I remembered the full details of the sermon, but I remember the message being directed at me. About how sometimes those who stand tall welcome someone to lean on them. 
+
+After the service was done, I made the rounds talking to strangers. I actually *wanted* to; Pierce hardly had to encourage me to do so. Pierce drove me home, telling me his phone was being flooded with texts from the congregation saying how happy they were to meet me. They remembered my fucking name. I slept well that night, probably the best I had in months.
+
+Next Sunday came quickly, and I texted Pierce before he could even invite me. 
+
+ A month had passed, and I hadn’t missed a service. I was even tempted to start volunteering, just like Pierce did every other service. My therapist took notes of my improvement as well, and while I still took my meds, I didn’t bother trying to up the dosage. I almost felt saved. If I was to be another cliché, then so be it. Still never made out what the stained glass was supposed to depict, besides an almost humanoid shape towering above small, dark objects.
+
+I made the rounds of handshakes and hugs last service. I was still on the younger side, and didn't quite jive with anyone my age there, because there were very few to do so with. Pierce had to step away early before we prayed at the end. I never uttered the prayer aloud, and when we were told to close our eyes, I never questioned it, for the feeling was fantastic. 
+
+At the end of each service, Pastor Zane would request we close our eyes and raise our hands to become closer with God. It was never my thing, despite the improvements it had made to my life. There was no arguing with the feeling. The fluttering in my chest made me feel like the ground itself gently released me, even for a moment. Whatever was happening at Benevolent Springs, it was great.
+
+Except this last Sunday when I opened one eye.
+
+My body seized. What I thought was sensation was quite literal; my feet were pointed down, a couple of inches off the carpet. I wasn’t imagining it, nor was I the only one. Up and down the pews, dozens of us hung in the air with me. The old woman in front of me was nearly a whole foot off the ground, hanging still like a lantern.
+
+My first thought was that this must’ve been true divinity; I mean, why else would faith be so popular and consistent throughout history? I forced my eyes shut, until the final chord was struck. When I looked around afterward, everyone was seated pleasantly. Nobody was disoriented; it was all business as usual. 
+
+Nobody else seemed to notice, and that was arguably worse. By the time Pastor Zane returned to the stage, I questioned whether or not I had hallucinated the ordeal.
+
+“And now…!” Pastor Zane boomed. “Another wonderful Sunday we gather here to praise Gols– God!” 
+
+He corrected his slip-up so smoothly I barely noticed. But I did. *Gols*? What the hell was a Gols? Or rather, *who*? I scanned the pews. Nobody around me even reacted to the fact he was about to get us to praise something else by name. From the spotlight, I noticed an extra bead of sweat or two run down the pastor’s face.
+
+Things seemed to be too good to be real. I had two reasons to believe as such.
+
+I waited for Pierce outside the volunteer office, as I had a few times already. The door was locked with a keycard, but I could hear him yapping about nothing of significance with the others. His meetings ran long, I had somewhat gotten used to that.
+
+The office was in the basement and I paced around the hallways to kill time. That’s when I spotted the nearby door and noticed it was cracked open. I felt a cool breeze waft in from behind the door. Basements shouldn’t have a breeze, right?
+
+ I peeked my head inside. 
+
+“What the?”
+
+The room itself was massive, at least the size of the sanctuary if not larger. It was very unkept, paint peeled off the walls and it smelled a little moldy. All this space right below the sanctuary was filled with absolutely nothing.  I didn’t want to raise suspicion by turning on the lights, so the illumination from the cracked door would have to do.
+
+I should’ve stayed put, but no. I had to keep exploring. At the very least, I waited for at least half an hour for him to finish his talks with the others in the office. At least I had others to keep myself busy upstairs. Not this time.
+
+Nothing was in the room, and it felt a bit cooler and damper the further I went in. Yet, the air was coming from something much deeper in. Carried ever so subtly from the breeze I could hear it: chatter. 
+
+Voices.
+
+One of them spoke in the same speech pattern as Pierce. I was certain of that much. A part of me guessed maybe the volunteering office connected through here. For all I knew, Pierce could’ve wrapped up his meeting and was waiting for me. But I had to press on.
+
+There was a door that looked like it was built a century ago at the end. It, too, was cracked open with a doorstop. The chatter echoed beyond it.  
+
+It lead to a stone spiral staircase. I went down cautiously. The stairs stretched deeper than any basement should go. I ended up losing count of the steps. I just wanted to find Pierce and be done with this. The stairwell opened to a dark tunnel, with light at the end. 
+
+I carefully crept along the tunnel wall. I could hear the voices getting louder. 
+
+“Thank you for another glorious day, Golsys.” I heard a voice clearly say. Golsys. Not God.
+
+The praise was followed by what sounded like something wet slapping against the ground over and over. It was followed by more praise. Multiple voices of worship began to overlap.
+
+“Is this not enough for you, Golsys?” I heard a familiar voice ask– Pastor Zane. To both relief and horror, none of the voices were Pierce’s.
+
+There were pale lanterns lining the room ahead. I could see the silhouette of Pastor Zane, as well as some of the church elders I had never spoken to for more than a few minutes. They were circling something massive, pale, and what looked like it was coming from a hole even deeper into the earth.
+
+My eyes widened. I recognized its shape. The entity in the stained glass far above ground. It hummed and clicked, and made noises I couldn’t even comprehend. How could it have made those noises? It had no mouth to make them with. I saw what looked like a flaccid human arm, far smaller than its main two, slapping rapidly against the ground right beside one of the elders.
+
+“What do you mean we’re not enough?” Pastor Zane almost sounded angry. “We are the only ones–!”
+
+He spun around, and through the glint of the pale lanterns I could see he locked eyes with me.
+
+“Oh my…” he slowly approached, with an outstretched hand. “This is the one you want, right?” 
+
+More clicks and hums from this Golsys being. 
+
+“Michael, right?” he continued, stepping closer. “It’s okay, I don’t believe you’re in danger but…”
+
+“What the hell is that thing?” I spat out. “Is that a God?”
+
+“Yes,” he said with soothing warmth in his voice. “*Our* God. You can step closer.”
+
+I took one step back. Pastor Zane matched me, and I began to back up. Golsys clicked rapidly. The pastor took a deep sigh and muttered something under his breath. Suddenly he sprinted right at me. 
+
+He took maybe five steps. 
+
+The thing grabbed Pastor Zane with a hand with too many fingers, and I could hear his bones crunch like a fist full of kindling. It happened inches from my face, I could feel his last, dying breath hit my face and I knew I’d be next. 
+
+Somehow I wasn’t. I was still alive.
+
+The enormous hand held its fresh corpse. The hand strained forwards towards me, but it couldn’t. I could hear it thrash, and it bellowed as it attempted to get closer to me. The lanterns sputtered, and stone dust dropped from the ceiling above. 
+
+It stopped. It halted completely like its leash had fully extended. It couldn’t reach me. Whatever this Golsys was, however deep it went, it was stopped at an invisible line in the tunnel. Pastor Zane was not as fortunate.
+
+It dropped Pastor Zane’s crushed body, its fingers unfurling almost gracefully. The elders hadn’t run; they simply dropped to their knees and started praying. 
+
+And I got the fuck out of there. 
+
+I wasn’t in the best shape, but I hurried up the stairs with reckless abandon. Where the hell was Pierce? I wasn’t sure what I even would say to him.
+
+I dashed through the empty, moldy room and nearly crashed into the wall outside of the volunteering office. Pierce stepped out, bagel in hand. His warm smile faded when he saw my sweaty, pale face.
+
+“You good man? You look like you nearly died”
+
+I froze, replaying what had happened minutes ago. His assessment was damn near perfect, and yet he had no idea. Pierce loved this place. The truth would only drive him away. 
+
+“Yeah, leftovers must’ve gone bad,” I squeezed out the lie. “I was feeling better after the bathroom, but shit, I guess I still look like hell.”
+
+He put a hand on my guilty shoulder. “Let’s get you home.”
+
+I was grateful to see the church shrink in the rear-view mirror. Pierce turned down his music and let out a big, grateful sigh.
+
+“Crazy message today,” he said. “Honestly, I swear these sermons are made for me. Do you feel the same way?”
+
+I barely nodded.
+
+“Thought so,” he reached for the volume knob. “Wonder what’s coming next?”
+
+ Days have passed, and Pierce has already texted me once again about going to the next service. I was going to reply three times, but I’ve deleted each attempt. The part that I doubt my therapist would understand is that my thoughts of my insignificance have returned. 
+
+The only time they’ve fully gone away is when I’m standing in church, right above the thing that made them [disappear.](https://www.reddit.com/user/ThrowAwaytheCJ/) 
