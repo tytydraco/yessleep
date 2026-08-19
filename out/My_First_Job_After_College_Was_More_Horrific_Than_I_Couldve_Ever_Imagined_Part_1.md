@@ -207,3 +207,5 @@ I studied the picture for a moment. Then, I finished my meal and went upstairs t
 My eyes drifted to the window and I recalled the day of my graduation. I wasn’t happy, far from it, more so anxious and dejected about the future. But my mom was right, I don’t think I saw dad with that much joy in his eyes. A strange flash caught my attention from outside the window. I got up and peered through the blinds. All that was there was a black van driving down the street. 
 
 I paced the room. Maybe I could apply to grad school, maybe I could find other work. Where though? I had to admit, too, it was a bit nice keeping busy, and the money didn’t hurt. I could even climb the promotion ladder, my degree could be useful too. I could get off the street and into a cushy office job. No more risking my life, complete safety. With that, I resolved to keep the job. If things got worse, no biggy, I could step back and reevaluate. My days of being a loser were finally coming to a close. That comfort lulled me into an exhausted, dead slumber. 
+
+[Part 2](https://www.reddit.com/r/nosleep/s/2hBOX4Vkzt) 
