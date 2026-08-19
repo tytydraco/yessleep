@@ -1,0 +1,186 @@
+I've been having a rough go of it lately. My wife gave birth to an amazing little boy this year, born 8.8 pounds, and is a ball of laughs and tears and screaming and poop.
+
+But the toll of working as much as I do, as well as raising our son, and a handful of other factors in my life, has taken its toll on me. I wake up at 4:30 every day to take our son and our dog out on a long walk before the sun comes up and it's too hot to walk the dog. I want my wife to get lots of sleep, so we stay out until 7, then I come home, and take our son out again in the car to a park or something until 8. I work from 9-6, or 9-7, then I come home, and by the time I finish walking our dog at night, it's 10 or 11 PM when I'm in bed. I'm tired. I'm really, really, really tired, and I can't talk about any of it to my wife. She's also tired. She has her own issues, and it's my job to help her get through it.
+
+The demons of depression I beat back with everything I had earlier in my life, have reared their ugly heads and have begun banging their drums. In the car, I imagine ramming it at full speed into a tree, or taking a nose dive off of a tall bridge along the coast somewhere. A depressed and useless mess like me is not fit to raise a child and a family. I believe my wife will find a better man than me on a moment's notice, and my son won't need to suffer being raised by a person who can't even keep himself in check.
+
+Not only am I at wit's end, I'm in emotional overdraft. This has to stop, and I decided a few days ago, that I would go off to work in the morning, and not come home.
+
+You see, I live in Japan. If you've ever visited, you may have heard about train disruptions due to "human injury" which is a very thinly veiled way of saying "another one bit the dust by taking an olympic dive off the end of the train platform." Was this the way I'd do it? Not sure, but I knew that I wouldn't be coming home on that day.
+
+I woke up, strangely late. Usually when I leave the house with my dog and the baby, it's still dark out, but the sun was high in the sky, and yet for some reason, it wasn't as hot as it should be. The weather was gorgeous, which is just beautifully poetic. Why not ruin everyone's gorgeous day by causing a huge train delay?
+
+My son, wife, and our golden retriever were gone. Probably out because I slept in, like the depressed fuck that I am. I decided to get ahead of the problem and make my way down to the office before they got home. I can't bear to face them knowing that I'm going to do what I plan on doing.
+
+I grit my teeth through my morning routine, grab my stuff, and get on down to the train station. 
+
+It's the Obon season in Japan. A series of holidays in August that people use to go back to their hometowns and visit their families, which explains why the whole way to the train station I didn't see a single living soul, anywhere. Not even a car. I live in the suburbs of a small town in Japan, so not Tokyo by any means, but still... there should have been someone. Whatever. The sky is a beautiful azure blue, with the full autumn sun resting at 12 o'clock, and yet, the air is suspiciously dry and crisp, with a cool breeze that makes it not only bearable, but enjoyable. 
+
+I walk through the turnstiles at the station, walk down the stairs to the platform, and sit down on one of the four benches flanking both sides of the two vending machines, and I wait.
+
+Some times goes by, some more time goes by... and nothing. Not a train, on either side of the platform, not another passenger anywhere, not an announcement. Nothing. My ADHD brain believes time passes by a lot more quickly than it actually does, so I chalked it up to that. It might feel like twenty minutes have passed, but in reality, it's only been about four, and in my town outside of rush hour, trains come every fifteen minutes.
+
+After some confusing and immeasurable period of time, I looked over to the stairs that lead down to the end of the platform from the turnstiles, and a little old woman, donning the Japanese equivalent of her Sunday best - has just come off the last step and was making her way down the platform towards me, past the first row of benches, past the vending machine, and gently said "excuse me" as she sat down beside me and rested her bag on her lap, with her hands on top. 
+
+*Three open benches, and you had to sit beside me.*
+
+I'm generally not a sociable person, and given what I plan on doing today, I was in no mood for conversation, so I had to muster a whole hell of a lot of willpower to suppress the sigh that tried to force its way out of my throat when she asked me "where are you going?"
+
+"To work, and you?"
+
+"To work? It's Obon! Why are you working?"
+
+I was really in for it. This was gonna be a long chat. 
+
+"My clients are in another country, so I work on their schedule."
+
+Her smile regressed a little bit and she let out the sort of "aww" that a mother uses to console a young child who has just scraped their hand  after falling off their bicycle.
+
+"So you don't get any holidays off?"
+
+"Not Japanese ones."
+
+"Oh my, you work so hard." 
+
+This is typical Japanese stuff. She probably doesn't care or think that at all. She's just making small talk.
+
+I let it go by, mostly because I didn't have anything to say in response, but she decided to continue.
+
+"Do you find time to spend with your wife and child?
+
+*What? Oh, I guess she saw the ring.* 
+
+"Of course. I take time off, and I spend a lot of time with them before and after work, and especially on the weekends. I don't see my friends anymore, no work events, nothing. They've everything to me."
+
+"You know, they appreciate that more than they could ever tell you. Even your son, as small as he is, you and his mom are everything to him." 
+
+I didn't know what to say. I hadn't mentioned having a child, let alone him being only a few months old, and being a boy. 
+
+Her smile was not one that radiates, like the sun, but rather one that brings an overwhelming sense of warmth and comfort. Her eyes narrowed when she smiled, which is very Japanese, and when I looked up at her to ask her how she knew any of that, it stopped me dead in my pessimistic tracks. 
+
+Have you ever held a warm cup of hot chocolate through wool sleeves with both hands on a cold and dark winter's day? It was like that, but warm enough that it could breathe life even into the cold, dead lump of coal that once beat in my chest.
+
+I could feel myself wanting to cry, but no tears came.
+
+"I don't know. I don't feel like I'm good enough for either of them. I don't deserve them."
+
+*Why did I say any of that? I don't even know her.*
+
+"You can't go."
+
+"Why not?"
+
+Her smile regressed a little bit. She was being nice, but I could tell, she had a point to make, and I felt like I needed to listen very carefully to whatever she had to say.
+
+"They need you."
+
+How long had it been by this point?
+
+The sun hadn't moved, but I hadn't heard a single announcement. Not a train, nor a car, nor another person. Just us two, on this platform, sitting, and talking, for what felt like a veritable eternity. I was sure something was wrong. 
+
+Have you ever been called down to the principal's office at school? You remember when they announced your name and all your classmates went "Ooooh you're in truuuhble" and you had that lump in your throat?
+
+What did I do this time? How bad is it? Am I really in trouble? That feeling of dread and urgency started to work its way up my spine. 
+
+"They don't need me. They can do a lot better than me." 
+
+"You can't go."
+
+"I have to go."
+
+"You can't go."
+
+She wasn't upset. She was smiling, but she wasn't comforting me anymore. She was stating facts. Not like "you *can* go but you *shouldn't* go" but rather something more akin to physical laws of reality. She was telling me something more axiomatic. I couldn't argue.
+
+"They'll find someone better."
+
+"You can't go."
+
+*What am I supposed to say? And where is this fucking train?*
+
+The dread became unbearable. I was in trouble. Someone needed me somewhere, and it wasn't here. The train wasn't coming.
+
+She told me again.
+
+"You can't go. The train isn't coming for you."
+
+"Why not?"
+
+"You've done nothing wrong. It's not for you. It's not coming for you. The next one is coming for me."
+
+"What did you do?"
+
+"Nothing! I'm just old!" She laughed gently.
+
+I laughed with her. I knew what she meant. It was her time.
+
+"So what do I do?"
+
+"Go home."
+
+"Am I good enough?"
+
+"You're better than you could ever imagine yourself to be."
+
+I could hear the bells in the distance.
+
+The train was coming.
+
+"Can I go with you?"
+
+"You can't go."
+
+She stood up and walked to the yellow line on the edge of the platform, and my phone rang.
+
+It was my wife, calling me on LINE.
+
+In Japan, you can't talk on your phone when you're on the train. I prioritized, and decided to answer it.
+
+"Hey! Sorry I missed you! You were exhausted, we decided to do the walk today." My wife's voice felt like sunshine and sounded like home.
+
+ I could hear my son in the background laughing while he stuck a toy in his mouth. I knew that voice.
+
+"No worries, I appreciate it. You were right, I am exhausted."
+
+The train grew louder as it approached.
+
+"Is that the train? Are you going to work?"
+
+I hesitated. It was slowing to a crawl, and eventually stopped. 
+
+I stared as the doors opened, and as the lady slowly waddled her way onto the train, holding on to the pole beside the door as she proceeded to the priority seating for old folks.
+
+Before she sat down, she stopped. She turned around and gave me another look.
+
+"You can't go" she mouthed, from behind the glass.
+
+The announcer blared.
+
+"Please be careful of the doors as they close."
+
+The doors hissed, unnaturally long. A long moment went by while they stayed open.
+
+"Hello? Are you there?"
+
+I was starting to tear up.
+
+"Hello? Are you on the train?"
+
+The doors closed, slowly. As if they were giving me endless chances to board.
+
+I watched it disappear into the distance, after which I wiped my nose with the sleeve of my shirt and let out a small laugh.
+
+"No no, I was gonna get on but... I think I'm just gonna call in sick today."
+
+She let out a very signature "*yatta!!!!!"* and I could hear her turn around and tell our son "dad's coming home!" in a distance voice. Her phone was probably down by her lap at this point.
+
+His giggle in the distance felt like hot chocolate.
+
+I had to go home. It's where I am now.
+
+Maybe I am enough.
+
+
+
+
+
