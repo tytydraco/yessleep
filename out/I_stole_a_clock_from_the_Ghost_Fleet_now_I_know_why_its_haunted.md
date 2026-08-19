@@ -1,0 +1,127 @@
+They call it the Ghost Fleet. 
+
+A collection of downtrodden, rusted, barnacled commercial ships that are anchored and left to rot just where the mouth of the Chesapeake Bay kisses the Atlantic Ocean.
+
+I’d always heard the tales of them being haunted.  Men with slippery fingers sneaking onto the boats, trying to steal old relics of maritime past are met with the woe and weary spirits from that ship’s hellish history.
+
+I have always fancied myself a burglar and scoffed at notions of damned souls lingering for a laugh, so when I became privy to the spoils left over on some of these old ships and tankers, I gassed up my skiff.
+
+“Fortuna, hold my eggs in the mornin’, girl”, I yelled to my missus.
+
+“Where you gonna be?”, she sang from her boudoir in that southern twang that won me over so many years ago.
+
+“Going to the duck blind. Staying the night.”
+
+“It ain’t duck huntin’ season.”
+
+She had me. Astute like no other.
+
+“Will you leave me be!? I’ll see you tomorrow.”
+
+She just shook her head at me with a grin as I walked out the door.  I’ve always regretted not making an honest woman out of her. My swimmers sink like an anchor so I’ve never been able to give her the family she wanted…
+
+…but she’s stayed with me.  “If I’m able to find this sailor’s tidal clock”, I thought, “I’m gonna sell it and take her to a resort that the high and bow-tied frequent…amongst other spoils.
+
+I wish I could tell you it was a struggle, but I puttered up to that derelict collection of ships in the night like a darn professional.  I climbed up a ladder 40 years gone, and walked right into the barracks and snooped around, before heading to the Captain’s quarters. Was there anything scary? Certainly not.
+
+When I opened the door, there she was. Cobwebbed and rusted from the muggy air, but there was the tidal clock. “Junk” to Johnny-Come-Lately, but to the collector, a prized piece.  I scooped her up and headed right back out the way I came.  Police boats do patrol the area, so I won’t gonna linger.
+
+I hopped in my skiff and like I told Fortuna, headed to my duck blind to escape the night.  I built it in a marsh just off the Crook Narrows. Perfect for a spot of fishing and duck hunting, but also for privacy and to wait out the night. 
+
+As I pulled up, a storm began to holler.
+
+I climbed into the small blind (a tiny wooden house-like structure on pylons sticking out of the marsh, if you’re not familiar), grabbed my lantern from the small box of supplies I keep there and lit it just as the thunder rang and the skies began to pour.
+
+I took out the tidal clock from the black sack I had put it and marveled at the craftsmanship. Some old sap like myself used this to guide themselves through God-what-have-you decades ago.  I wondered if they had themselves a woman like Fortuna…
+
+WHEN…
+
+I heard HER singing.
+
+At first it was light.  I barely could make it out through the rain, but it grew.
+
+“Tickle they tender, beholden me; fire, it rages, under her sea; Blow the man down, cry for his crowns; His lovey held under, she shines, she drowns…”
+
+I quickly put the clock back in its sack and peered out of the duck blind’s door.
+
+THERE…
+
+A silhouette moved through the water just in front of me.
+
+“Good evenin’ to ya! Do you need a reprieve from the storm!?”
+
+The figure stopped. They turned and waded through the waste high water toward me. Eventually, they found the light of my lantern…
+
+A woman, cloaked in brown and a wooden crab bucket floating next to her, a rope tethered from it to her.
+
+I was taken aback, as she smiled. She was beautiful. 
+
+“Please come find some warmth, ma’am.  I appreciate crabbin’ when you have the time, but this is treacherous.
+
+She didn’t speak, she just smiled again and made her way up the ladder. She came inside and sat down.
+
+“I’m sorry, I don’t have any provisions. Not even a towel to dry you.”
+
+She didn’t respond. She just sat on the floor and looked up at me curiously.
+
+“You sang awful pretty.  Without that I’d probably-a-found some fright seeing you out in this marsh at this time of night.”
+
+She shook her head. 
+
+“What?”, I said confusedly. She shook her head again.
+
+JUST THEN…
+
+Blood began to trickle out of her mouth.
+
+“Ma’am, you bleed…” — I lost my breath when she opened her mouth wide, revealing a freshly cut out tongue.
+
+I ripped my coat off and tried to hold it up to her mouth.
+
+Suddenly her eyes WENT WIDE, as she caught sight of the tidal clock. She began to flail and I panicked along with her, before she finally threw me up against the wall. I toppled to the ground in some mixture of shock, confusion and horror…
+
+“Ma’am, I’m a friend, please, I…”
+
+“THEY USED IT TO FIND US…”
+
+That same voice from earlier spoke from just outside the duck blind. The woman in front of me just stared at the tidal clock in its black sac, tears starting to run down her face, mixing with the blood from her mouth.
+
+“There are more of ya…who’s out there!?”, I pleaded.
+
+“They used it to know when our waters would be low. When they could take us so.”
+
+“Who!?”, I yelped.
+
+“A thief in the night can set us free. Give us the clock, and a wish you’ll see.”
+
+“A wish?!”
+
+“Whatever it may be.”, the voice said. It felt witch-like, it felt evil, as the tongueless woman now stared at me.  I had found my fright. I was petrified.
+
+“Take it, TAKE IT, I don’t have a bother ‘bout it!”
+
+“And your wish, thief?”
+
+I was so scared, I only could play along. Even though amidst the demonic hullabaloo my mind searched for reason.
+
+“My wife and I to have a child.”
+
+There was silence…BUT THEN.
+
+The most blood curdling, ear piercing scream from outside as the tongueless woman smiled. I covered my ears as she lurched toward me and kissed me.
+
+If you had doubts about me before now, would you believe that at that moment I jerked awake. It was morning. The storm had passed. I was still in the duck-blind and the clock was still there in its sac. I took a deep breath and chuckled to myself.
+
+I whistled to myself and let the salty air flow over my grin as I made my way home to Fortuna.
+
+Just then…
+
+A KICK…then another…and another.
+
+Something knocked about…in my **stomach**.
+
+I lifted my shirt and pure horror fell across my face. I went straight to the sac with the tidal clock…
+
+The most pristine, modern, electronic tidal clock.
+
+What happened after that is between myself and Fortuna.
