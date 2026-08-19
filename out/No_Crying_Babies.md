@@ -1,0 +1,40 @@
+No Crying Babies
+
+I woke with my heart already going, certain I’d heard it — that thin, rising cry, right in the room with me.  
+The telly. Just the telly. Some actor bouncing a fake crying baby on screen.
+
+“Shut it off,” I laughed to myself, rolling my eyes at my own alarm, playfully nudging Ian with my foot. “No crying babies. You know that’s a rule. Makes me think Teddy needs something.”
+
+He muted it. “Sorry, love.” Asleep in minutes.
+
+The next night I jolted awake again before I even placed the sound — an advert, a jingle with kids laughing, one shriek buried in it. My heart was already up around my throat by the time I understood.   
+“No crying babies,” I said, and it came out flatter this time. He muted it before I’d finished saying it. 
+
+“Sorry, love.”
+
+A few nights later I sat bolt upright before I’d placed it — the neighbour’s cat, yowling out by the fence.
+
+Then it was the pipes, a few nights after that — a thin, keening whine somewhere in the walls as the heating kicked in, and for one horrible stretched-out second I was already halfway to the door before my brain caught up and told me what it was.   
+I stood there in the dark feeling stupid, feeling my pulse in my ears, and went back to bed telling myself that one didn’t count.
+
+Then a few nights on, the dishwasher, hitting some pitch mid-cycle that wasn’t a cry at all, I knew that — and still I was on the landing before I’d decided to move.
+
+Teddy was asleep in his cot when I got there. Silent as a photograph.
+
+Back in bed, Ian hadn’t stirred. He never did. I used to wonder how — now I’ve stopped asking, because some part of me suspects I already know: someone has to be listening, so it’s me.
+
+I stopped mentioning it after that.   
+What would I even say — I heard nothing, and it answered back?
+
+Somewhere in there, I stopped needing a sound to start with at all. 
+
+Some nights it was just the quiet — the fan, my own pulse — and underneath it, faint, rising, unmistakable: that pitch that means pick me up. I’d lie there telling myself I was imagining it, and some nights I even believed that, for a minute or two.
+
+Then one night I didn’t wait to find out which it was.   
+I was already up, already standing at the cot rail before I’d properly woken, and the room was quiet the way it’s meant to be — the fan, the streetlight through the curtains, nothing else. Teddy lay exactly as still as sleeping children do.
+
+I stood there a long moment before it hit me: I couldn’t remember the last time I’d actually heard him cry. Or even seen his chest rise and fall. Only that I’d been listening, night after night, for a sound that would prove he still could make one.
+
+The house held its breath with me.
+
+Somewhere, patient, the nothing waited to answer.
