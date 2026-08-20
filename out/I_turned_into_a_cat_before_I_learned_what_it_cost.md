@@ -1,0 +1,171 @@
+Speaking of human flesh, let me tell you something: it tastes nothing like bacon, nor does it taste like pork.
+
+When you are human, the way you taste meat revolves around seasoning, temperature, and the cut. But when your tongue is lined with thousands of coarse barbs, human flesh tastes mostly of salt, iron, and stale sweat. Its fat is thick, greasy, and yellow, coating the roof of your mouth with an oily film that no amount of licking can ever clean away.
+
+Back when I was human, I used to clench my hands together in prayer until my knuckles turned white, begging for the cold, indifferent rules that govern the universe to set me free.
+
+If you spent any time on Reddit a few years ago, you might have seen my old posts. I won't name the subreddits, but you know the ones. They were forums meant for people who felt so utterly exhausted by existence that waking up every morning felt like having been beaten to a pulp.
+
+I was twenty-six years old, earning just enough money to rent a studio apartment that carried a faint scent of mildew, barely managing to keep myself from starving. My back always ached, and my eyes were failing from staring at computer screens for long hours every day, so I wore thick glasses that left permanent indentations on the bridge of my nose.
+
+Every morning, I would look out the window and watch the stray cats basking in the sun atop the brick wall across the alley.
+
+That was the only leisure time in my day. I cast a bitter, envious gaze upon them. They didn’t need to pay taxes, didn’t need to worry about rent, hair loss, or a slow descent toward hopeless despair. They were sleek, elegant, perfectly adapted killing machines that humans willingly fed and worshipped.
+
+So I began to pray.
+
+I wasn't devout. I didn't pray to God, Jesus, or Buddha. I simply prayed into the dark corners of my room at three in the morning. I prayed to the shadows, to the dust floating under the pale streetlights, to any deity that might be listening to a young man sobbing into his pillow.
+
+Turn me into a cat, I begged.
+
+I prayed to lose my language, my credit score, my guilt, my memories, and my thumbs.
+
+Then, one early morning, the universe finally showed me some mercy.
+
+There was no magical explosion, no blinding flash of light. I simply woke up, and the world had grown terrifyingly vast.
+
+I tried to reach out an arm to rub my eyes, but extending into my line of sight was a slender, delicate paw covered in a thick layer of dark gray fur. I had pointed ears that twitched toward the distant rumble of traffic. I had a long, graceful spine that stretched and flexed like warm maltose. I possessed a dense, soft coat of fur that carried a faint aroma of dust and rain.
+
+I didn't panic at all. In fact, on that morning, I had never felt my body so light; a surging rush of joy swept through me. I felt immensely relieved, as if all my past anxieties had evaporated in an instant.
+
+I didn't care how it happened. Magic, radiation, or whether my prayers had actually worked—none of it mattered. The reason behind the miracle was meaningless. Now, I was simply a stray cat in a damp alleyway.
+
+At first, I felt as though I were floating in a dream. I could leap effortlessly onto white walls and curl up on warm bricks for a nap. As I watched humans clutching paper coffee cups, pale-faced and hurrying past the alley entrance, I felt a wicked, intoxicating surge of pity. They were still trapped in the gears of a pathetic human society, while I had escaped.
+
+However, by the third day, everything changed. I began to feel weak all over, groggy and somnolent all day, and my stomach turned into a ball of fire. Only then did I realize that I hadn't eaten a thing in three days.
+
+When you are human, food is acquired with currency. Cats have to do it themselves. But I didn't know how to hunt. I tried stalking a pigeon, but when I pounced, my timing was laughably off. The pigeon flapped its wings and flew off in the blink of an eye, splashing dirty water all over my face and leaving me shivering in place, thoroughly humiliated. I tried rummaging for something edible in garbage cans, but those were already the territory of raccoons.
+
+Just as I was shivering from a light drizzle, I met another cat.
+
+He looked shrewd and strong—a strange way to describe a cat, but that was my first impression. He jerked his head toward the alley entrance, then turned away. I followed him.
+
+The orange cat led me through a maze of narrow passages, avoiding reflections in wet puddles and bypassing bright, bustling avenues. He knew the city's side streets inside out. He brought me to the back door of a small restaurant, hopped onto a plastic bin, and dragged out a damp bag of animal offal.
+
+If I were still human, facing food pulled from a trash bin would have made me throw up stomach acid. But as a cat, it was a rare feast. Sharp molars shredded tissue, grease smeared my whiskers, and I no longer cared about my table manners.
+
+The orange cat sat on a cardboard box a few paces away, not touching a single bite of the food.
+
+After filling my belly, I gazed at him, a soft warmth swelling in my heart. I wanted to say something to express friendliness, so I told him, "I used to be human."
+
+I was a person, just a few days ago. I don't know how this happened, but I never want to go back.
+
+The orange cat showed no reaction, but his chest began to heave violently. A rattling sound echoed from his chest cavity. His flanks caved in sharply and his spine curved until his belly almost touched the wet concrete. It looked almost like a seizure.
+
+With a sickening splat, a dark, dense mass hit the ground between us. It was a hairball, soaked in yellow bile and matted with orange fur.
+
+The orange cat slowly wiped his mouth with a paw, acting as if the wet, filthy lump on the ground didn't even exist, then raised his head to look at me again.
+
+"Oh, I was the one who turned you into a cat."
+
+I froze. My ears flattened instinctively against my skull.
+
+"Why?"
+
+I shouldn't have asked that, I thought. Now that I was a cat, what could possibly be stranger than this?
+
+"Forget about that. What matters is, you're about to die."
+
+The orange cat leaned forward and leaped noiselessly off the cardboard box, stepping closer until I could smell the faint fishy scent radiating from his fur.
+
+"A human soul is too heavy for a cat's body. In another week, your mind will break. Your body will reject its own organs. You'll die in the middle of the road, shivering in your own waste, paralyzed by a stroke while your cat brain is still trying to process human thoughts."
+
+"And then a speeding car will flatten you—oops, another miserable creature gone."
+
+The scene the orange cat described was horrifying, yet my heart remained utterly unbothered. The food I had just swallowed was slowly digesting in my stomach, and the sense of fullness relaxed my mind once more.
+
+"So, do you have a way to fix it?"
+
+"You need to eat meat."
+
+"Meat? Isn't what we just ate meat?"
+
+"No. You need to eat human flesh."
+
+The words hung in the damp air like a dark cloud, and an innate sense of nausea washed over me. The human instincts that still lingered in my mind screamed in terror. No, that's cannibalism. I can't do that.
+
+"Hey, don't worry."
+
+He took another step closer and rubbed his head against my shoulder, an action so affectionate it felt sickening.
+
+"It's not cannibalism. Are you human? Look at your paws, look at your tail. You're a predator now. Humans are no longer your kind—they are meat. Eat that meat, digest the human inside you, and you'll be completely free. Total freedom."
+
+As if knowing what I was thinking, the orange cat let out a soothing purr.
+
+"You're my friend,buddy... I brought you into this world, and I won't watch you rot. I know where to find meat."
+
+When you no longer possess a human tongue, your human morality erodes at an astonishing speed. I wanted to live, and no matter what, I wanted to keep being a cat. So I nodded and followed him back into the alleyways.
+
+We walked for nearly an hour. The orange cat navigated with almost terrifying precision, never hesitating at intersections, moving like a machine following a preset program. We climbed over a collapsed brick wall, scampered along a narrow iron drainpipe, and finally leaped onto a second-floor balcony.
+
+The balcony door was left ajar, letting in the cool night air. The moment my whiskers crossed the threshold into the apartment, a foul stench hit me.
+
+"Inside."
+
+The orange cat whispered in my ear. We trod over a pile of dusty, damp newspapers on the living room floor and entered the bedroom. The apartment was extremely narrow; the first thing I saw was the blue glow of a computer monitor, followed by a black gaming chair, and a person sitting in it. Or rather, a corpse.
+
+"Sudden deaths happen in this city every single day, far more than you could ever imagine," the orange cat said softly, nonchalantly licking his fur. "This guy died about a couple of days ago. The weather isn't too hot right now, so he's rotting slowly. If we came two days later, you'd be stuck eating spoiled meat."
+
+A fat green bottle fly buzzed in the silence, landing on the corner of the corpse's open mouth, testing the moisture on his blue lips. He looked young, under thirty, with a few bruises on the bridge of his nose.
+
+I hesitated for a moment, then took a step forward. My paws felt heavy, like lead. I leaped onto the desk; the body remained motionless.
+
+I couldn't tell if a cat's teeth were just that sharp or if the corpse's skin was simply too swollen. I easily bit through the skin, chewing into the meat and fat inside. Thick blood smeared across almost my entire face, making me feel a bit like throwing up, but the orange cat urged me from the side to hurry and swallow.
+
+I swallowed, then prepared to take a second bite.  
+The orange cat began to retch again. I turned my head, expecting to see him violently throw up another hairball onto the dead man's carpet. His body twitched, his flanks caved in, and his spine bent into that strange arc.
+
+But no hairball came out.
+
+The sound of his retching turned into a sharp, wheezing whistle, rising in pitch and vibrating within his furry ribcage.
+
+It took me a moment to realize that he was laughing.
+
+"You are so so stupid... Someone actually believed that garbage and willingly ate a corpse of their own kind?"
+
+His whiskers pulled back as he cackled endlessly.
+
+I wanted to say that I was a cat now, so it didn't count as cannibalism; I also wanted to ask if I was still going to die. But I couldn't utter a word, my mouth still holding unchewed flesh and the taste of blood.
+
+The orange cat didn't wait for my answer; he turned and left. I never saw that cat again after that.
+
+But it turned out he was right about one thing: once you lay down the burden of human dignity, surviving in this city is shockingly easy.
+
+I didn't starve to death. Nor did I die of a stroke. I adapted.
+
+As long as you know how to play the game, you never need to hunt pigeons or scavenge for trash behind restaurant kitchens. I found a beautiful tree-lined street next to a high school. I learned how to tilt my head just right, how to squint my large green eyes, and how to make a soft, trembling meow that sounded like a crying baby.
+
+The high school girls absolutely adored it. They bought me expensive little cans of salmon. They stroked my soft, gray fur and called me "Grey."
+
+They discussed how I was getting rounder and cuter by the day. I let them scratch behind my ears, purring until my whole chest vibrated.
+
+I grew very fat. My coat became thick and glossy.  
+As the years passed, memories of my old life began to fade, just as I had prayed for. I forgot my landlord's name. I forgot my mother's face. I forgot the smell of the office where I used to work, forgot how it felt to hold a pen, and forgot the endless pain and dullness I once experienced.
+
+I was happy. I was just a cat. A big, soft, spoiled street cat living off the kindness of strangers.
+
+Until one day, during a sudden rainstorm, as I curled up under the canvas awning of a small bakery grooming my damp fur, I saw her.
+
+Another cat. A skinny little thing with fur matted with black grease, her ribs clearly visible. She was shivering violently, huddled in the narrow alley beside the bakery.
+
+I led her toward the back door of a small seafood restaurant I knew, then used my paw to hook open a discarded plastic box, dragging out the skeleton of a cod with plenty of meat still clinging to it.
+
+She pounced almost immediately, tearing at the fish and swallowing so fast she nearly choked.
+
+When she finished, she looked up at me, her small blue eyes suddenly filled with a strange emotion.
+
+"Thank you."
+
+Her voice was tiny and weak, still trembling with the rhythm of human fear.
+
+"I... I don't know what happened. Yesterday I was an accountant, sitting at my desk, praying... I was praying so hard to escape... and then I woke up like this."
+
+My chest began to heave, my spine curved, my ribs caved in, and a violent spasm seized me. A wet hairball landed with a splat on the concrete between us.
+
+"I was the one who turned you into a cat," I said.
+
+Her ears flattened against her skull. She stared straight at me with human eyes—pitiable, foolish eyes.
+
+I let out a comforting purr and nuzzled my nose against her cold, wet cheek.
+
+"How it happened doesn't matter. Probably something about souls and bodies. Forget about all that nonsense, my little friend. Let's go find a human corpse and eat it."
