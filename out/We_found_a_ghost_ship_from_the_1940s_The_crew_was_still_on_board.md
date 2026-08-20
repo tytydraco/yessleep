@@ -38,8 +38,6 @@ Jacobs’s face was pale in the moonlight. “But… but Captain, I-”
 
 Jacobs stared at me for a moment. Then, without another word, he fulfilled his duty. 
 
-
-
 \*\*\*
 
 Minutes later, Jacobs and I were standing at the bow. We were facing the opposing ship at an angle. So close that I could jump aboard if I so pleased. 
@@ -84,8 +82,6 @@ Jacobs sighed. “I was afraid you’d say that. Fine,” he replied, wind whist
 
 I nodded. “A quick look around, then we leave.” 
 
-
-
 \*\*\*
 
 Jacobs and I soon found ourselves standing before the hatch that led to the lower decks. We shared a glance. Then, we both grabbed hold of the rusted handles. 
@@ -108,7 +104,7 @@ Jacobs pursed his lips, looked at the cavernous pit, then looked back at me. He 
 
 “Where are we?” Jacobs asked. 
 
-“The birthing deck,” I said, shining my light around the corridor. 
+“The berthing deck,” I said, shining my light around the corridor. 
 
 Jacobs looked at me like I’d grown a second head. “The deck where the soldiers sleep. Is that better?” 
 
@@ -279,4 +275,3 @@ If any of my crew have told this tale, I haven’t heard a peep. As far as I kno
 There have been no reported sightings of the ghost ship we encountered. Not since the night it vanished in 1941. 
 
 For all I know, it could be out there to this day roaming the high seas, searching for new sailors to join [its ranks.](https://www.reddit.com/r/HorrorJunkie123/)
-
