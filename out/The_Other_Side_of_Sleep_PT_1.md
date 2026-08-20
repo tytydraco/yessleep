@@ -1,8 +1,8 @@
-It’s not Schizophora.
+It’s not Schizophrenia.
 
 I know what it was. I was there. I saw it. I felt it. I lived it.
 
-I was diagnosed with Schizophora when I was seventeen, which I was told was strange for my age. I was too young, they said.
+I was diagnosed with Schizophrenia when I was seventeen, which I was told was strange for my age. I was too young, they said.
 
 But I promise you—I am not crazy.
 
@@ -553,8 +553,6 @@ I shake my head. It was a dream. It had to be. I was a child. I was grieving. My
 I stare at the newspaper for another few seconds before finally folding it back up. I don't want to think about it anymore. I put the photograph back in the box, along with everything else, and close the lid. Out of sight. Out of mind.
 
 I carry the box back to the closet and shove it onto the top shelf. Then I crawl into bed. The room is dark except for the faint glow of the streetlight coming through my curtains. I pull the blankets up to my chin. Tomorrow, I'll figure it out. Or maybe I won't. Maybe I'll wake up and realize this was all just another stupid memory that doesn't make sense. My eyes grow heavy. The sound of snow tapping against my window slowly fades. And then I'm somewhere else.
-
-
 
 I'm standing outside. It's cold. I can feel snow beneath my boots, but I don't remember putting them on. I look around. I know this street. My street. But something is different. The houses look older. The trees are taller. I turn toward the house across the street. Mrs. Bell's house. Her porch light is on. It's almost midnight. I don't know how I know that.
 
