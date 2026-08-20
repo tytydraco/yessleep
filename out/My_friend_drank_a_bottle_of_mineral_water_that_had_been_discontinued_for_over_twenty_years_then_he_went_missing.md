@@ -4,8 +4,7 @@ When Avery first introduced me to his passion, we had known each other for less 
 
 I remember it was summer. The dormitory air conditioning was broken, so on my way back, I bought two bottles of chilled mineral water from the convenience store downstairs. I originally intended to press them against my skin to cool down—after all, our dorm had a filtered water dispenser, so there was usually no need to buy bottled water. But when I handed one to Avery, he looked surprised. It was the first time since the school year started that he actually looked me in the eye.
 
-"You like this brand too? Great taste. A wise choice."
-
+"You like this brand too? Great taste. A wise choice."  
 I froze for a moment.
 
 "What?"
@@ -20,7 +19,7 @@ After we got closer, I discovered that Avery was actually a minor celebrity in n
 
 Regardless, his quirk didn't affect me. It was just drinking water—far better than the heavy drinkers in the next dorm over. On the surface, it seemed like a perfectly healthy hobby, and we got along very well through our four years of college.
 
-Besides, I have to admit this guy was brilliant. He was the only chemical engineering major in our year to graduate with a perfect GPA, and right after graduation, he was hired as a chemical analyst at a major firm with a remarkably generous salary.
+Besides, I have to admit the guy was brilliant. He was the only chemical engineering major in our year to graduate with a perfect GPA, and right after graduation, he was hired as a chemical analyst at a major firm with a remarkably generous salary.
 
 By then, we still maintained a comfortable, somewhat distant friendship, though perhaps mostly because I was his only friend. I was just glad Avery hadn't turned into some hermit living in a basement. We still met up occasionally. Every time, Avery would talk endlessly about the waters he had recently sampled, while I nodded along and enjoyed expensive top-shelf whiskies I could never normally afford—courtesy of Avery, of course.
 
@@ -105,8 +104,7 @@ To be honest, I felt nothing special. It was just water—slightly below room te
 
 I weighed my words, trying to make his money feel well-spent.
 
-"Maybe a little sweet aftertaste? I suppose the calcium, zinc, and magnesium levels are decent..."
-
+"Maybe a little sweet aftertaste? I suppose the calcium, zinc, and magnesium levels are decent..."  
 Avery watched me wrack my brain for an answer, then suddenly burst out laughing.
 
 "Don't be so nervous. It's just water."
@@ -161,7 +159,7 @@ Avery didn't seem to notice my stare. He lowered his head and slowly sucked off 
 
 "Ave?"
 
-"Yeah?"
+"Yes?"
 
 Avery looked up at me, and I realized he was staring at my lips.
 
@@ -183,11 +181,11 @@ After hesitating for a long time, I finally decided to write the whole thing out
 
 I have always deeply regretted not talking to Avery more that day.
 
-－
+−
 
 After he vanished, I rarely drank plain water anymore, turning instead to a heavy addiction to soft drinks—until my annual checkup doctor warned me to stop drinking so much Coca-Cola unless I wanted diabetes by thirty. So I switched to Diet Coke. Just kidding—now I only drink green tea. It's less bland than plain water.
 
-Two months ago, my company organized a team-building wilderness retreat near the edge of the Appalachian Mountains, deep within an undeveloped section of a national forest in Oregon. It was a treacherous zone where karst topography merged with virgin forest, perpetually shrouded in cold, damp mist. Everyone in the company complained bitterly about the arrangement, but the big boss insisted on going there, claiming we needed to reconnect with nature for our health.
+Two months ago, my company organized a team-building wilderness retreat, deep within an undeveloped section of a national forest in Oregon. It was a treacherous zone where karst topography merged with virgin forest, perpetually shrouded in cold, damp mist. Everyone in the company complained bitterly about the arrangement, but the big boss insisted on going there, claiming we needed to reconnect with nature for our health.
 
 The weather turned terrible that afternoon. The planned hiking route became a muddy disaster following a sudden torrential downpour, and I got separated from the main group. While trying to locate trail markers, I stepped on a rotting tree root, and my footing gave out instantly.
 
@@ -207,7 +205,8 @@ My clothes were shredded, the palms of my hands torn raw, leaving a gruesome tra
 
 I finally crawled into the cave.
 
-The interior was wider than I had imagined. There was no pungent sulfur or musty smell typical of limestone caves; instead, a strange, unnatural silence hung in the air. The sound of water originated from a spring at the center of the cavern.  
+The interior was wider than I had imagined. There was no pungent sulfur or musty smell typical of limestone caves; instead, a strange, unnatural silence hung in the air. The sound of water originated from a spring at the center of the cavern.
+
 It was a naturally formed pool of water, impossibly clear. It was so transparent that even in the dim light, the surface was virtually invisible—like an absent, transparent medium.
 
 I struggled to the edge and reached out a trembling hand toward the water. The moment my fingertips touched the stream, a soothing wave of icy coldness rushed straight to my brain. I plunged my entire face into the water, gulping it down like a dog.
