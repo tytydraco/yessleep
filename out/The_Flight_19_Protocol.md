@@ -1,0 +1,137 @@
+&#x200B;
+
+As of 2026, there are roughly 200 commercial aircraft that have vanished without a trace since the dawn of aviation. That number seems small compared to the thousands of private planes lost in remote wilderness or over open ocean.
+
+The aircraft with the longest known period of being "missing" before recovery was 43 years. A salvage team found it in the Andes, remarkably intact.
+
+At least, intact is what they reported.
+
+The plane my team found shouldn't have been there. It should have been scattered across the ocean floor. A debris field picked clean by currents and time.
+
+But it wasn't. It was sitting on the runway of a decommissioned airbase in the South Pacific. A base that had been closed since 1942.
+
+I won't tell you its designation. Just seeing the numbers in official reports makes my hands tremble.
+
+When my co-pilot first pointed it out through the cockpit window, I thought we were experiencing some kind of shared hallucination. I'd heard whispers about this aircraft during my training. Old-timers told stories about it, always lowering their voices when they did.
+
+I had to confirm it myself. I circled the island twice, descending through the thick cloud cover. True to his word, there it sat—a silver bird, its propellers still, its fuselage covered in corrosion and salt.
+
+But the markings were unmistakable. The faded insignia. The tail numbers.
+
+It was the plane of legend. The one that disappeared in 1945 with 14 men aboard. The one that became the subject of endless speculation, conspiracy theories, and a hundred documentaries.
+
+My navigator's face appeared in the cockpit doorway. "Captain," he whispered, "that's impossible."
+
+"I know," I replied, banking for another pass.
+
+What I did next was the single stupidest decision of my life.
+
+"Radio base," I told my co-pilot. "Tell them we're experiencing mechanical issues. We're setting down for emergency repairs."
+
+"But Captain, there's nothing wrong—"
+
+"That's an order."
+
+He stared at me for a long moment. Then, without another word, he keyed the radio and relayed the lie.
+
+\---
+
+Twenty minutes later, I was standing on the tarmac, my co-pilot Rodriguez beside me. The heat was oppressive, the air thick with the smell of rust and rotting vegetation.
+
+"I don't like this, Captain," Rodriguez said, sweating through his uniform. "This base was bombed out in '43. Nothing should be operational here."
+
+"Except that plane," I replied, nodding toward the aircraft that loomed before us. It was a B-24 Liberator, its four engines dead, its landing gear still extended as if it had just taxied to a stop.
+
+"How long has it been sitting here?" Rodriguez asked, his voice barely above a whisper.
+
+"Eighty-one years," I said. "It vanished over the Pacific. Never found."
+
+Rodriguez grabbed my arm. "Then we shouldn't be here. We should get back in the plane and leave. Now."
+
+I shook him off. "Don't be a coward. We're going to take a look inside."
+
+Rodriguez looked like he wanted to protest further, but something in my expression must have stopped him. He fell into step beside me as we approached the aircraft.
+
+\---
+
+The cargo door was slightly ajar. Rusted hinges squealed as I pulled it open, revealing darkness within.
+
+The smell hit us first. Not decay, not rot—something else. Metallic and sharp, like copper and ozone.
+
+I flicked on my flashlight, illuminating the cavernous interior. Jump seats lined the walls. Parachutes still hung from hooks. Personal effects lay scattered across the floor—a boot, a canteen, a photograph of a woman with a child.
+
+"Captain," Rodriguez said, his voice shaking. "There are no bodies."
+
+I swept my light across the compartment. He was right. The plane appeared abandoned, but not in the way an eighty-year-old wreck should look. There was no corrosion inside. No mold. No water damage.
+
+Everything looked... preserved.
+
+"Let's check the cockpit," I said, moving toward the front of the aircraft.
+
+The cockpit door was jammed. I threw my shoulder against it twice before it gave way, slamming open.
+
+And then I saw them.
+
+Four men sat in the cockpit. The pilot, co-pilot, engineer, and navigator. Their bodies were intact. Not skeletons. Not mummified remains. Intact.
+
+The pilot stared through the windshield with glassy eyes. A bloodstained gash ran across his forehead. The co-pilot's neck was bent at an unnatural angle. The engineer's hands were still wrapped around his seat restraints, his body slumped forward. The navigator sat perfectly upright, a dark stain spreading across his chest.
+
+"Captain," Rodriguez breathed. "What... what happened to them?"
+
+I couldn't answer. My mind raced with impossibility. These men should have been decomposed to nothing. But here they were, perfectly preserved, frozen in the moment of their deaths.
+
+And then I noticed something else.
+
+The pilot's eyes moved.
+
+I stumbled backward, hitting the cockpit doorframe. "Rodriguez. We need to leave. Now."
+
+But Rodriguez was frozen, staring at the navigator. The man was turning his head slowly, his neck cracking audibly with each degree of rotation. Those eyes—empty, dead, but somehow aware—locked onto us.
+
+"He's..." Rodriguez stammered. "He's breathing."
+
+The pilot began to move next. His hands gripped the controls. His head swiveled toward us. The gash across his forehead split wider, blood trickling down his nose, but he showed no sign of pain.
+
+"RUN!" I screamed, grabbing Rodriguez's arm and yanking him backward.
+
+We sprinted through the cargo hold. I could hear movement behind us—the heavy, shambling steps of bodies that shouldn't be mobile. The sounds of joints popping, bones grinding, flesh tearing.
+
+We burst through the cargo door, tumbling onto the tarmac. I scrambled to my feet and pulled Rodriguez up. We ran for our plane, our footsteps echoing against the abandoned runway.
+
+Behind us, the B-24's engines roared to life. Not the smooth purr of well-maintained machinery, but a grinding, coughing, wrong sound—like metal screaming against metal.
+
+I risked a glance back. Figures were emerging from the cargo door. Twelve of them. Fourteen? The navigator. The co-pilot. Engineers, gunners, radiomen. All moving with that same jerky, disjointed gait.
+
+All bearing mortal wounds.
+
+And all of them were staring at us with those empty, dead eyes.
+
+\---
+
+We made it to our plane. Rodriguez practically threw himself into the cockpit while I slammed the cabin door and secured the lock. I could hear them outside—scratching, pounding, clawing at the fuselage.
+
+"Go!" I shouted. "Get us airborne! NOW!"
+
+Rodriguez didn't need to be told twice. The engines screamed to life. We taxied down the runway, the plane shuddering with the force of whatever was trying to get in. I could hear them beating against the hull, their bony fingers scraping along the metal.
+
+Rodriguez pulled back on the yoke. We lifted off, the island shrinking beneath us. I looked out the window.
+
+They were standing on the runway. All of them. Watching us disappear into the clouds.
+
+But their eyes never left us. Even as we climbed higher and higher, I could feel those dead, soulless gazes fixed on our aircraft.
+
+\---
+
+I made Rodriguez swear to never speak of what we saw. He agreed, his face still pale with terror. We reported a minor mechanical issue, spent three days in a hotel in Fiji, and never mentioned the island or its contents to anyone.
+
+Rodriguez resigned his position the day we returned stateside. He moved to a small town in Montana and I never heard from him again.
+
+To my knowledge, no one else has found that island. No salvage operation has been launched. No investigation into the missing B-24 has ever been reopened.
+
+But sometimes, when I'm flying over the Pacific, I see something on my radar. A blip that shouldn't be there. An aircraft registered to no airline, no military branch, no government.
+
+And I know.
+
+That plane is still out there. Still flying. Still searching.
+
+Waiting to add new souls to its ranks.
