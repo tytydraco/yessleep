@@ -1,0 +1,209 @@
+Before I start, I want to preface this with something important. As you read this, you might be inclined to ask yourself why you haven’t heard about it. Why wasn’t this on the news? This should’ve been covered nationally, you might think. But there’s a reason it wasn’t, and by the end of the story, that reason will be more apparent. I’m telling this story - my story - from *my* perspective.
+
+I probably have one of the most boring jobs in the Midwest. I go to the same building every day, I check in with security using my picture ID, I put a code in at the console, and I sit in my office. I’m sort of a data archivist. I work with an esteemed stock brokerage firm that’s been around for decades, and they legally need to keep their paperwork in order in case of a review. One day, absolutely nothing happens. The next day, you get a call for obscure files that were handwritten in the 80’s. When you do, you better have your ducks in a row. When you have a boss that doesn’t understand why they need you, you better make sure you do things right when they do.
+
+It was 2024. I was doing alright, it wasn’t my first job, and it wouldn’t be my last. I’d worked there for two years digitizing archived information. Analytics, agreements, predictions, board meeting protocols… all of it. Scan, file, backup, repeat. I’m not exaggerating when I say a literal ape could do that job.
+
+I was struggling to make ends meet. I’d been living with a roommate, but I had to move out on short notice. His girlfriend got pregnant, and the two of them were moving in together. The apartment was in his name, so I had to pack and leave. I got a two-room apartment in a nice neighborhood, and two months later the rent shot up. We’re talking a 35% increase overnight. Didn’t even know they could do that.
+
+I was working as many hours as they let me. Sometimes I’d sleep in the office so I wouldn’t have to take the 30-minute drive back home. It saves on gas. I only drank coffee from the break room, and I was hand-washing my shirts in the sink. It was better than being homeless, but I was losing a lot of sleep. It’s hard to close your eyes when your mind is screaming at you to *do something*.
+
+ 
+
+It was Monday morning in mid-June. I was 20 minutes early, overestimating traffic. The electronic doors swung open, and I greeted Lois at the reception. We didn’t get a lot of visitors, but the boss insisted on us having a friendly smile greet whoever stepped in. Lois had a very friendly smile – I think she used to be a kindergarten teacher. She waved me in. I held up my pictured ID to security guard Cole as I passed him by the stairs, taking the long route down.  It was so hot that the metal railing in the staircase burned my hands if I held on too long.
+
+While I worked in the data archive on the basement level, there were three more floors with people slaving away for the firm. 125 employees in total. Three security guards on rotation. Plenty of fire exits that’d never been used, and locked doors that’d never been opened. This place was a sleeping fortress that’d never been challenged.
+
+I got to my office, a small room adjacent to the server bank. Plain walls, apart from a poster with a kitten chewing on a blue sunflower, with the caption ‘this fish smells weird’. You could hear the servers humming through the wall, but the noise-cancelling headphones helped. Damn thing was flaking though, leaving me with little black spots in my hair that made people think I had fleas. Not great when you’re coming up to chit-chat during lunch.
+
+There’d been six requests over the weekend. Not bad, I was expecting at least a dozen. Only one of them was time-sensitive, so I’d have to get that done by lunch. The others could wait until Wednesday, at the earliest. I might do them earlier if I got bored. All in all, nothing unusual.
+
+ 
+
+According to official reports, the first disturbance was recorded at 10:15am. There was a short power outage that caused the building to go dark for a couple of seconds. Some of my colleagues would later tell me they noticed a couple of things ahead of that, but that didn’t make the report. One guy on the second floor told me that his paperclips had started spinning. Just like that, spinning. The janitor told me his battery-powered radio started screeching like a 90’s internet modem.
+
+I was in the second-floor breakroom when it happened. I was talking to Michelle in HR about getting some new headphones, but she was having a completely separate conversation with Mark about a homemade mustard recipe. I was about to walk away with a fresh cup of coffee when the lights flickered. I heard the fridge power down. It’s amazing how quiet things can get when all the little machines stop running. And why do we seemingly hold our breaths while waiting for it to come back?
+
+There was this loud boom on the third floor. A couple of plates fell off the counter, tumbling to the floor. Someone thought it was an earthquake and dropped to the floor, and others followed. I didn’t know what was happening, but I got under the break room table just in case. There were screams, but I couldn’t tell which direction they were coming from. They were seemingly everywhere.
+
+I joined a group of others heading for the staircase. There was this one guy who was supposed to be a supervisor, yelling that the elevators were off limits during an earthquake. Someone was yelling back that it was an active shooter. People were calling emergency services and hiding under their desks. I saw the door to the staircase at the end of the hallway, about 40 feet ahead of us.
+
+Then the door swung open with a bang. Smoke billowed out, and there was this loud crack. I saw something roll out of the smoke. Something small, like a football. At first, I thought it was a broken melon. It was this weird mix of white and red, but it had something attached to it. I think it was Mark who started yelling first.
+
+“It’s a head! It’s a *goddamn head!*”
+
+ 
+
+If you’ve never experienced an “every man for themselves” moment, let me tell you what it’s like. You are no longer a person. Whoever you are becomes an impediment for a herd of people flocking to get away. They won’t stop to check on you. They will push, and shove, and scream, and kick. Even Michelle from HR. I was thrown off balance and pushed up against the wall. As I realized I was at the end of a long line of people running away, I decided to dip the other way – you don’t want to be the last in line when chased. There was a storage closet just across the hall, so I ran straight ahead and threw myself in there, slamming the door shut behind me.
+
+I propped myself up against the door, keeping it closed. The storage closet didn’t have a lock, and there was a slight hole where the mechanism was supposed to be, giving me an impromptu peephole. I could hear this meaty squish noise as something moved down the hallway, and for a split second, I saw something massive. At least 8 ½, maybe 9 feet tall. It was wearing something dark and was covered in what looked like blotches of wet skin. I saw hands, a metal sheen, and spikes. It passed a couple of feet from the door.
+
+I heard it entering the main floor. The screaming got louder. There was a loud ‘thunk’ noise and another yell joined the choir. Someone fired a handgun, then suddenly stopped. I held my head down and fumbled with my cellphone, trying to get a call through. I couldn’t believe how sweaty I was; my fingers left streak marks on the touchscreen. I decided it was better not to make any noise. Not even a whisper. Someone else had probably called for help anyway, so I turned the sound off and stuck the phone back in my pocket.
+
+According to official reports, the suspect entered the main cubicle area at 10:21am. He fired a rudimentary metal projectile at an unarmed office worker, pinning him to the wall with a shattered scapula. A security guard opened fire but was unable to halt the offense. 18 people barricaded themselves in the meeting room, while 31 managed to get out through the fire escape.
+
+ 
+
+I remember sitting there on the floor, trying to make myself as small as possible. I had my head against my knees, trying to block out the sounds. I knew I’d be hearing them in my nightmares. I’d heard people screaming before, but this didn’t even sound like people anymore. We’d been reduced to frightened animals, screeching this recurring danger noise back to our flock, hoping to hide in greater numbers.
+
+Then I heard the footsteps. Metal rattled with every step as this massive thing came my way. There was a click as a mechanism was put in place. There were already sirens outside. A couple of minutes passed as the screams grew more distant, before there was a knock on the door. I didn’t say or do anything, I just held my breath and stayed down. There was another knock, then a push. Remember – there was no lock. The door opened inward, making my weight the only thing standing between whoever was out there, and me.
+
+Then the door flung open. I was thrown face-first into a shelf, knocking down cleaning supplies and toilet paper. I could immediately tell I was going to get a bruise. The door was open, but no light was coming in. Whoever was standing there was big enough to completely block the view.
+
+I remember seeing a head hanging from a chain. I didn’t want to look at it, but I couldn’t help it. It had these dead, tired, eyes. They don’t roll back and turn white like in the movies. It had this big metal screw pressed into the cranium, with a chain connecting it to a belt. That’s the first detail I saw.
+
+“Don’t do this,” I whispered. “Don’t do this.”
+
+A hand reached in, grabbed my collar, and pulled me out. I was thrown to the floor like a wet towel.
+
+ 
+
+He was taller than anyone I’d ever met and dressed in makeshift metal armor. It looked like old cookware, this black, thick, roughly hewn and oiled metal. There were spikes with little lights coming out of his back, and he had this helmet resembling a kabuki mask with big, puffy cheeks. He was wielding what can be best described as a harpoon, but without a retraction mechanism.
+
+There was blood everywhere. It was dripping from him. I counted at least three severed heads. There were limbs strewn across the hallway. He had fresh strips of skin hanging from his shoulders, slapping against his armor with every step he took.
+
+And now he was looking right at *me*.
+
+I wanted to say eight things at once. I wanted to say I was a nobody, and that I just worked there. I wanted to say he could do whatever, and I’d look the other way. There was nothing I wasn’t prepared to do to be able to close my eyes and disappear into myself – far away from the monster staring me down. The words got stuck in my mouth, and I ended up stammering and whimpering.
+
+He raised his harpoon back up and checked a little black cube he’d taken from his belt. Seemingly satisfied, he dropped something on the floor in front of me, gesturing to it with his weapon. I picked it up.
+
+It was a small, laminated card. It was all scrunched up and yellow with age. It only had two words.
+
+“ARCHIVE NOW”
+
+I looked up, blinking at him. I read it again, nodding.
+
+“Yeah,” I said. “Yeah, sure, I’ll get you there. It’s in the basement. There’s a door code, and-“
+
+He stomped his foot, making the gore on his armor rattle. He held a hand out for me to return the card. I did, and he slid it back into a pouch on his belt. Pushing me in front of him with the harpoon raised, he forced me towards the staircase. He checked his black cube one more time, making sure all was in order.
+
+ 
+
+He’d done a number on the place. There were streaks of black along the walls, like a bomb had gone off. Fresh blood on the floor, making the staircase stink of iron. I almost slipped in a puddle as I hurried down. As I did, I noticed him removing the severed head from his belt and dropping it behind him, like he was leaving a trail. When we got to the first floor, we had to go out and across the hall to another staircase. We would have to pass through the reception.
+
+He took out three capsules. Two gray ones and a red. He kicked the door down and threw it all out in a bundle; chaos erupted immediately. There was a cloud of dust and smoke that bloomed out, and I heard gunfire. Blood splattered on the wall, and it sounded like someone screaming for their life. We walked out into the hallway as people were running past us through the smoke, desperately trying to make it to the front doors.
+
+The attacker grabbed the first person he could, dragging them along with us. As it happens, it was the receptionist, Lois. She flailed and screamed. He had this hold on her where his hand could fit over her entire head like a basketball, and when he squeezed a little, she went quiet. There was blood trickling down her face, but I’m not sure it was hers.
+
+I had to take point, leading him to the basement stairs. There were no people down there, so at the very least no one else would have to die. Official reports recorded the assailant moving through the building, entering the basement staircase at 10:29am. First officers on-site were busy setting up a perimeter around the front of the building, while another patrol was set up along the fire escapes. About 70 people in total had evacuated.
+
+Witnesses speak of having seen the man handling strange technological devices on the third floor, prompting officers to treat the initial contact as an active shooter and potential bomb threat.
+
+ 
+
+Walking down the basement stairs, the sounds of approaching sirens faded. The man dropped another head at the door, leaving a blood-smeared handprint on the wall. Pushing Lois in front of me, the two of us took point. She looked at me, and I looked back. Neither of us dared to say a word as I felt the poke of the harpoon.
+
+Coming down to the archive level, I put in my code and opened the door. The man struggled to get inside, having some of the spikes on his back snag on the corners of the doorframe. As we made it inside, he held up his note again – pointing with a big finger on the word ‘ARCHIVE’.
+
+“This is it,” I said. “This is the archive.”
+
+He pointed at me and Lois, then at chairs over by the corner. We sat down and kept our hands visible. He removed a bag from his shoulder and connected a couple of cables from his helmet to an antenna. He checked the black cube again and put it down on a table. It was making little bleeping noises, like it was scanning for something. Lois whispered under her breath.
+
+“He’s going to kill us.”
+
+“Calm down. We’re still here. We’re okay.”
+
+“He’s going to *kill* *us*.”
+
+“We don’t know that. Maybe he’ll take this and leave.”
+
+“Take what? What’s there to take? He’s *crazy!*”
+
+I didn’t have a good answer. 50 years of financial records and transactional data. Why’d anyone need that?
+
+ 
+
+He started doing this strange thing where he removed spikes from his back, and I could see they had a white strip of light going up the side. He took one of the spikes and rammed it right into a server bank. The white light turned red, then began to rise. As it reached the middle of the spike, the light turned yellow. It was charging or loading something.
+
+He went all around the room, pushing down spikes into our servers one by one. Once one of them finished he retrieved the spike and put them in a pile in front of us. He left this roll of metal threading on the floor and pointed to Lois. She started bundling the spikes together, which seemed to please him. He returned to check the cube once every couple of minutes, impatiently walking back and forth. I saw him looking into my office at one point, noticing my cat poster. He looked back at it a couple of times.
+
+I don’t know how long we sat there, but I could tell things were happening upstairs. Official reports state that, at 10:40am, most civilians had been evacuated from the building, but that there were about a dozen still unaccounted for. They were treating it as a bomb threat and hostage situation, with presumed casualties and several wounded. They couldn’t go in guns blazing – they had to wait for a specialist team to arrive. Meanwhile, there were police surrounding the building, demanding the offender to come out with his hands visible. A hostage negotiator was on route.
+
+Once he had a bundle of twenty fully charged spikes, the armored man picked the black cube back up. He stopped to listen, turning his head upward. He could tell there was trouble brewing outside. Getting a pep in his step, he loaded the bundle up like a backpack and grabbed Lois by the arm, forcing her to take point as we went back up the stairs.
+
+ 
+
+As we returned to the reception and into the light of day, I could see the front doors. I could see shotguns and handguns pointing our way. Sirens blaring, lights flashing, officers taking cover behind their doors. Lois was pushed ahead, and when she looked back, the man shooed her with his weapon. He was telling her to *run*. She didn’t stop to think about it and rushed for the front doors. While the officers were busy dealing with her, he kept going across the hallway and into the staircase leading back to the upper floors. He wasn’t letting me go yet. There was something left to do.
+
+It was tricky getting back up the stairs. I’d never seen so much blood in my life. I could see it dripping down the main shaft; these long drops falling from two floors above. He kept going up the stairs, checking his black cube as he went. We made it all the way up to the third floor, where he had seemingly entered. I can’t imagine how he’d done that, but that’s where all this had started. The door to the staircase was blown out.
+
+As we entered the floor and moved past a window, someone outside fired a shot. It dinged off the side of his helmet, making him step back. He grabbed another red capsule from his belt and threw it on the floor ahead of us. It exploded with the sound of a gunshot. Blood spurted out in all directions, and there was this noise coming from it like someone was dying on the floor. It was a small device, like a speaker, but it sounded like a real person.
+
+Official reports speak of a successful shot that wounded the assailant at 11:01am. Witnesses describe it as seeing the shot connect, blood spurt out, and hearing a painful wailing. Seeing as the assailant was wounded, the threat was less immediate, giving the special weapons team more time to prepare a response.
+
+ 
+
+We were moving from room to room as he checked the black cube over and over. As we got to the third-floor meeting room, something went wrong. He seemed frustrated, like something wasn’t going according to plan. He stepped down on one of the office chairs, crushing it. Holding the cube up like a compass, he turned his face downward, as if looking at the floor below us. We were in the wrong spot. Grabbing me by the arm, he pulled me back to the staircase; making sure to stay clear of the windows.
+
+I didn’t know it at the time, but the police were preparing a squad to enter the building from the third-floor fire escape. They were still waiting for clearance and determining the rules of engagement, but we were talking about a matter of minutes. Meanwhile, we were making our way back down to the second floor.
+
+He was in a hurry. He threw furniture to the side like it was nothing, moving like a wrecking ball. We had to go through the break room to stay away from the windows. He bowled over the water cooler and coffee maker. At one point he accidentally bumped into one of the door frames; they’re not really built for people his size. His tools rattled a little, and he dropped his black cube. I don’t think he noticed.
+
+I don’t know why I picked it up. It was just there, and he was looking the other way. I snatched it off the floor. It was this four-inch cube, but it seemed really important to him. The corners were so sharp you could accidentally cut yourself if you weren’t careful.
+
+ 
+
+As we made it back to the main cubicle area, I saw the result of his assault. One of the office workers was still nailed to the wall with a long metal rod. It had pierced his shoulder. He was still breathing, but he couldn’t move. I knew the guy, he worked in targeted advertising. At least he wasn’t dead, but the more he struggled the more he hurt himself. I gave him an apologetic look as we hurried past him.
+
+I rounded the corner to the main workspace with the armored man right behind me. The room was a mess. It was covered in blood stains, and I could hear these weak screams coming from under the desks. I could see those red capsule casings littering the floor, like the ones he’d used when he got shot. There was something off about this. All of this. I got the feeling that I didn’t see the entire story.
+
+As he stepped into the middle of the room, he stomped his foot down and looked up. Using something akin to a laser pointer, he drew a circle in the floor. Waving at me with his harpoon, he was silently shooing me away. I was free to go, just like Lois. I didn’t think twice about it; I turned and headed for the staircase.
+
+Official reports speak of a tactical breach at 11:09am. Flashbangs were deployed by the fire escape on the third floor, where they thought the attacker had been shot. Another team entered through the bottom floor. There was still a suspected bomb threat, but an active shooter took precedence. All attempts at communication had failed, so they had to move faster than usual and take some risks.
+
+ 
+
+I heard this frustrated growl as I realized I was still holding onto the armored man’s black cube. I don’t think he ever noticed dropping it. I could hear people coming down the stairs, yelling out instructions. I wasn’t really watching where I was putting down my feet as I almost tripped on a severed head. It was the same one that’d been thrown in when I first saw him – the one I’d mistaken for a broken melon. I could hear a tactical team in the staircase, and thundering footsteps coming from behind me. But I didn’t look either way – I turned to the severed head.
+
+The eyes were painted on.
+
+It all clicked. The blood smelled wrong. The skin flaps on his armor were a bit too stretchy. And now, looking down on the floor, I realized this was a fake. Theatrics. Shock and awe.
+
+But when I turned around, the threat was anything but exaggerated. The armored man was standing further down the corridor, harpoon raised and hand outstretched. He wanted the cube, no doubt about it. I could hear officers coming down the stairs, taking care not to slip on the blood. I remember hearing words like “fan out” and “cover left”.
+
+Looking down at the cube, and back up at this metal-covered giant, I didn’t know what to think. The cube had this slick surface, like a perfect ice cube. It was cool to the touch, but not freezing. I shook my head, trying to make sense of it. He lowered his harpoon, as if to show good faith. Maybe a negotiation.
+
+“What is this?” I asked. “Is it a weapon? A bomb?”
+
+He grunted at me and raised his left hand, pointing at something on the wall.
+
+An exit sign. He pointed back at the cube, then at the exit sign.
+
+“An exit?”
+
+He tapped the sign again.
+
+ 
+
+I threw the cube back to him. I don’t know why, but if he stayed a little longer, there’d be a firefight. Not only would I get stuck in the crossfire, but there’d be other casualties. Giving him the cube back seemed like a good idea at the time; maybe it didn’t have to get any worse. He caught it and held it up, checking one of the sides. He glanced back at me as the voices approached, giving me a nod. He dug out something from his belt and threw it at me as he disappeared around the corner.
+
+The first thing to hit me was a gray capsule. It exploded in this glittery gray dust, stinging me with tiny slivers of glass. The second thing that hit me was a little plastic case. I couldn’t see what it was, so I just clutched it in my arms and fell to the floor.
+
+According to official reports, I was encountered by officers at 11:11am. I was dragged outside as the team swept through the rest of the building. There was a small localized explosion in the middle of the second floor at 11:12am. In hindsight, it’s been argued that this smaller explosion was most likely the result of a larger charge failing to detonate. There is no way to be completely sure. The assailant was never recovered.
+
+As the last people were shepherded out of the building, me included, the scene looked like something out of a war movie. People covered in blood and wrapped in blankets as their loved ones offered their condolences. But if you looked a little closer, you noticed something strange. There were plenty of ambulances in the parking lot, and none of them were occupied. No body bags.
+
+Only two people got shot by the harpoon. The security guard, Cole, took a shot to the meat of his thigh. The guy from advertising got stuck to the wall. No one else was shot. The blood turned out to be a mixture of corn syrup, cocoa powder, cornstarch and food coloring. The severed heads and limbs were all theatrics. Not a single one was real.
+
+ 
+
+While the attack was reported, it wasn’t a big headline. The police didn’t want it to make national news – they’d endangered the lives of civilians for what turned out to be smoke bombs and corn syrup. Yes, there’d been two injuries, but they were relatively superficial. And, all things considered, they were lucky. They made it out, and this was all framed as a “failed terrorist attack”. The material damage, however, was quite severe.
+
+Now, there was one more thing. The case. The thing he threw at me before he left.
+
+The case contained a CD. It took some time to get it to work, it had some kind of quirky 90’s encryption, but I got it to run on an older machine. The CD contained financial data similar to what we’d had in the archives, but from another firm. But here’s the kicker – the data covered transactions and market movement that were **two years into the future**. Things that hadn’t even *happened* yet.
+
+Using what I read in those documents, I put my savings into some very targeted stocks at a very specific time. In March of this year, that paid off.
+
+I am no longer in need of employment.
+
+ 
+
+I don’t know what to make of it. I don’t think the armored man spared lives out of the goodness of his heart. Looking at the effects of the assault, I think it was a matter of earning time. Nailing someone to the wall makes sure there are innocents around. Police can’t go in guns blazing when someone needs medical attention. Letting Lois run out the front door showed that he might have hostages, and that he was ready to let them go in time. It was a calculated attack, but it was clear that the end goal wasn’t terror and death – he wanted what was in that archive, and that was that.
+
+I have no way to know where he went. I think the answer was in that little black cube; his exit. Some say that he blew himself up, but that’s not what I think.
+
+There was never a bomb.
+
+ 

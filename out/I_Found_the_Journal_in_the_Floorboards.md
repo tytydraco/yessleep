@@ -1,0 +1,107 @@
+I was passing through a small town in the middle of nowhere a few weeks ago and rented an old cabin for the night. There wasn't much around it besides trees, mountains, and a few scattered houses. While looking through the cabin before leaving, I found an old journal tucked away beneath a loose floorboard. I don't know who wrote it, or how long it had been there, but after reading it, I felt like I needed to share it somewhere. I've transcribed it below exactly as I found it, as best as I could.
+
+\--------------------------------------------------------------------------------------------------------------
+
+My tethers have been shed. The roof is made of stacked aspen, damp and letting in rainwater. We lived here for months, a perfect family of 2 parents and a child, in a shelter made between 3 trees and held together with whatever my father could scrounge up. In the early days he would light fires, bigger fires than we needed because we had an abundance, but that slowly waned, as did his spirit. That doesn't matter now; with mother gone, I’m no longer beholden to this moss bed and its pricks. My mother was just a husk from the beginning of this lucid nightmare. She never stepped into my dad's path, never told him no; he was like God to her. He was one to me. Food had run out, and it was about time I left and found others. The Rockies this far up were sparsely inhabited, so I was told. My mother's last words before her disappearance were, “You are strong enough to hunt on your own now,” though she didn't look worried, but more afraid.
+
+
+
+This night will be my last in this shelter. There’s a creek nearby I’ll follow. Food has been very sparse since we ate the last of the hunt my father brought back. That was a month ago. I woke up and felt something wrapping my chest tightly. It was just my dirt-laden shirt; I’ve always heard a child my size is bound for a growth spurt. My guess was a few inches taller, should serve me well for the journey. I followed the creek downstream, and for miles I saw nothing but bushes and trees along the beach. I tried my best to stay dry, but eventually I slipped along the rocks and fell into the water. I came to the shoreline and dragged my legs out of the water. The creek turned into a river and took a bend where I woke up. The trees rustled close by, and I felt a deep hunger come out of me. Walking wasn't an easy feat; my legs felt… off. Like it had too many clicking joints. But I needed food and forced myself to relearn how my legs worked and hobbled back into the wilderness. My fingers were stiff as I grabbed from tree to tree, figuring out how to run with my injuries. My nails were long and slightly spiraling, but hardened and sharp enough to accidentally cut myself. I finally saw it. A squirrel hopping up and down across trees. Instinct alone drove my body; my bony, ribcage-ridden chest was grumbling in hunger. I had to steady myself and stalk the squirrel until it took a small respite for a nut. A shot of adrenaline took over as I saw it sit on a branch, lurched, and dug my fingernail into its neck. A spurt of blood came from inches above my face. It was surely dead.
+
+
+
+Moving back towards the river, I held dry sticks in one hand and the squirrel in the other. Tried and promptly failed to light a fire, I had to eat, and eat I did. Tearing into the pelt, I ate what I could, which was almost everything inside. The eye popped and fell out as the rageful feast on its innards continued. And even that was shoveled up and eaten once the insides were finished. It wasn't a pretty sight, but a sight that was necessary. Feast lasting only mere minutes and leaving me as unsatiated as I started, with the same deep ache in my stomach. At least it’ll hold me over.
+
+
+
+With my stomach grumbling, I looked at my father gazing upon the sky in a small clearing within the forest, one of his massive fires burning underneath. The smoke covered the sky more than the fires he lit usually. There was a hopeless slouch in his eyebrows, water in his eyes, and he pursed his lips like when he was angry at me. He quickly glanced down and looked around, hiding his face while ushering me back to our shelter. That was the last time we lit more wood than we needed to boil water. That was the last time I felt real warmth, just a few days after we arrived at this hellhole. The warmth reminded me of the time before this. But that was another lifetime. One that doesn't matter anymore.
+
+
+
+Father left a few months after this. He left on a hunting trip and never came back, although he brought us good luck.
+
+
+
+I slept the night away and started moving downstream again. After a few more miles, heading into the frigid noon hours of the days, I saw salvation. Family of deer drinking from the river. An adult and its fawns. Too hungry to count or care how many, I started towards them and scared them away. Realizing I had to stalk and wait for my opportunity, so I slowly trailed the deer. After what felt like an hour, I finally found the juvenile deer. I shifted my gait, resting my hands on the cold dirt to steady my long arms and still-clicking legs. As it started laying down next to its parent, I seized my opportunity and jumped on top. Wrestling its small stature and holding down its neck. Then, with practiced efficiency, I did exactly the same as the squirrel. Once it finally stopped moving, I started gathering sticks, giving up halfway through. I opened the fawn’s skin and started at its guts. I ate what it ate. Quickly made my way upwards. Ravenously shoving more into my mouth than I should. Picked up the small pieces that fell out of my mouth and on the ground, trying to find that taste again. The taste from all those days ago.
+
+
+
+We were fine at first. At least until I could still see the sun. Food was never plentiful, but enough. Father went to hunt anything he could, squirrel, deer mostly. Mother would either sit by the creek and fish or tend to the fire. Then the sun went away and left frigid waste in its absence. There were no more deer to be eaten. We long stopped moving downstream. I overheard my parents talking in the distance, playing with sticks. “Our food has already migrated, the little we have we can only ration for a couple of days, the stream’s frozen over, and no one's coming to hel—” my father hushed as he saw me walk in on them.
+
+
+
+Two days later, a terrible accident happened. Mom and Dad left on a hunt, which wasn't uncommon now that they “needed to cover as much ground as possible.” I heard a slight scream in the far distance. The anticipation felt like hours. Mother finally walked into the clearing that our shelter was next to. She was holding a bundle of meat with a completely blank look on her face. Her eyes were glazed over, never meeting mine. Stared off into the distance with something I couldn't decipher. A few minutes later, father staggered in. Right above his elbow was his belt wrapped tightly on his bicep. His elbow was wrapped in blood-soaked aspen bark and rags. Mother told me they found a deer stuck in a heavy steel barb trap left behind by poachers, but a rogue cougar was already feeding on it. Father apparently fought the beast off with his knife to save the deer for us, but the creature tore his lower arm to shreds before he drove it away. He had to let go of the rest to stop the bleeding and patch himself up.
+
+
+
+Father didn't say a word. He slouched onto his side and put his arm in some snow. Mother filleted the meat. “Come and take a cut, your father fought hard to make sure you don't starve,” she said in a hoarse voice, never meeting mine or my father's eyes. The fire had gone out days ago; we could only pray to God for no sickness.
+
+
+
+Mother tended to the shelter as my father and I ate. She flinched every time my teeth cut into the dark, sweet meat. It tasted richer than anything else I had tasted. I thanked my father for fighting off the cougar and getting us food while offering some to Mother. She refused the offer and said we have to ration.
+
+
+
+The fawn's blood was warm, but the meat was ash in my mouth. Coarse, metallic, and gamey. I chewed furiously, swallowing huge chunks, but the deep, hollow pit in my ribs didn't fill. It wasn't right. It wasn't the sweet, dark richness Father brought back. The realization twisted my stomach into knots. I slaughtered deer, and I was just as starving as I started.
+
+
+
+Enraged, I dredged a path to the river's edge to wash the bitter taste from my throat. Dropping to my chest, I looked into the black running water. My reflection was hollow, gaunt face with sunken, deep, dark sockets, long jagged teeth pulling tight against my lips. Just frostbite. Just a long winter. I couldn't take the horror anymore and plunged my face into the freezing current, drinking until the taste was gone. The exhaustion, however, dragged me under, and my strength gave out. The river pulled my heavy, snapping frame into the dark.
+
+
+
+He could barely stand now. It had been a month since we had food. Single arm trembling as he reached out and pressed a hand into my cheek. His hand was freezing; I could feel the bones in the heel of his palm. “I’m going out to hunt, son,” his eyes sunken so deep I could barely see the blue in them. “I’m going to bring us back some food; you stay with your mother.”
+
+
+
+“I’ll go with you.”
+
+“No,” mustering the last ounce of strength to yell at me. 
+
+
+
+His word was law. He was like God. 
+
+
+
+Mother didn't look at him. She was curled in a corner of the shelter, shivering from the bone-rattling cold, and malnourishment had fully started setting in. She dug her fingernails into her palms until she bled, making no sound at all.
+
+
+
+Father never came back. But three days later, the shelter smelled of meat again. A dark, heavy pile laid out on the aspen bark. Mother sat outside in the snow, arms wrapped around herself as she sat staring at the sky, unblinking. “Your father found luck,” voice completely broken. “Eat it before it spoils… It's a blessing.”
+
+
+
+I woke up coughing violently, dragged onto a gravel bank miles downstream from where I passed out. The icy water washed out the deer blood, but not the hollow ache in my chest.
+
+
+
+Through the thin tree line just beyond the bank, a thick fog had set in, but I could still see warm yellow lights flickering. A mountain road. A small, sleeping town nestled in the valley.
+
+
+
+The scent washed over me. Not game, not pine, slow-moving warmth. Figures moving under the streetlamps. My ribs flared into an agonizing, roaring fire. I surrendered to hunger. Dropped back onto all fours, my long, spiraling nails digging into the mud, I stalked towards the lights.
+
+
+
+The mud gave way to gravel, then to a rutted dirt road running along the treeline. I kept to the trees, my joints no longer clicking, folding low the way I'd learned to move through brush without snapping it. The fog thinned in patches, revealing a scatter of houses at the valley's edge. Small, wood-shingled, spaced far apart enough to see the dark gaps of forest between them. I moved through the woods, never stepping into a clearing. Waiting to find my prey. Kept watch on groups, waiting for them to split off; they never did. A dreadfully long time passed when I found it. One of the last houses before the woods took over town again, a pen of some kind sat outside, wire fencing, a low wooden structure. The reek of the animal was almost thick enough to mask the other scent underneath. Something in the coop shifting and clucking, like it already sensed me in the dark past the fence.
+
+
+
+And there, at the pen’s edge. Upright. Moving slowly with a flashlight beam bobbing low against the ground, muttering something low and irritated. A coat too big for the animal frame inside it. Boots crunching gravel. It crouched by the fence, running the light along the wire and checking inside the pen. The scent hit me, rich, sweet, and wrapped in something my nose didn't have a word for. The ache roared up in physical pain again. My mouth filled. My hands sank into the cold dirt without my direction. I didn't think of it as anything. Just a warmth I had only remembered in memories. It was nothing but an opportunity like the fawn resting beside its mother. I watched it check the pens one more time, its side turned to me only a few feet away.
+
+
+
+It straightened and turned to head back to the shelter. I closed the distance before it ever took another step.
+
+
+
+The first hand was in its neck, the second taking its tongue. Then both took the gurgling animal into the wilderness.
+
+
+
+I finally tasted it again. Just as I’d imagined. It filled me with warmth. As soon as it was over, I felt the ache rear back inside, worse than before.
+
+\--------------------------------------------------------------------------------------------------------------
+
+I haven't been able to stop thinking about what I read. The journal didn't have a name on it, and when I asked the person who rented me the cabin about it, they claimed they had never seen it before. Maybe there's a perfectly reasonable explanation for everything in these pages. I don't know. I'm posting the journal here because I figured someone might recognize the place, the people, or whatever the hell the writer became. If anyone knows what this is, I'd really like to hear from you.
