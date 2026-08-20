@@ -1,0 +1,205 @@
+I realize that sounds stupid. Obviously, she sleeps. Has to. If she didn't, she wouldn’t be functioning.   
+Google says anything 72 hours or more brings about serious mental and physical disruptions. I wish I could say I stopped at Google, but I’ve gone far down the rabbit hole now and simply don't know what else to say. I don't think my wife sleeps anymore.  
+We've been married for 6 years and together for 8. She's thirty-two, healthy as far as I know, doesn't take any weird medications, doesn't do drugs. She drinks coffee in the morning and sometimes has a glass of wine with dinner, or maybe two or three if her girlfriends are over. Nothing unusual.  
+Up until about three weeks ago, I couldn't have told you anything interesting about the way she sleeps. She snores sometimes. Maybe moves around a bit too much. That's about it.  
+My best guess is this started last month, but I only started paying attention recently. I'd go to bed and she’d still be awake. Usually reading. Not unusual. She’s an avid reader. We both are.  
+We have these little lamps mounted to the wall on either side of the headboard, so when I wanted to sleep, she'd turn mine off and keep hers on. I'd kiss her goodnight. She'd say goodnight. I'd roll over. End of story. In the morning, I'd wake up and she'd already be awake.  
+Again, not weird.  
+She'd be downstairs making coffee or showering or lying beside me scrolling through her phone. Sometimes I'd wake up and she'd still have a book in her hands.  
+I assumed she'd woken up before me and started reading.  
+Why wouldn't I?  
+Then maybe two weeks ago, I woke up in the middle of the night to pee. I checked my phone: 2:41 a.m.  
+She was lying beside me. Her light was off, but her eyes were open. Not wide or anything. She wasn't staring at me. She was looking at the ceiling. I asked if she was okay. She turned toward me and said, "Yeah, of course."  
+I asked why she was awake and she told me she couldn’t sleep.  
+That was it. Nothing weird that would make me think anything of it really. I went to the bathroom, came back, and she was still staring at the ceiling.  
+At some point, I fell asleep.  
+I didn't think about it again until a couple nights later.  
+This time it was around four.  
+I don't remember why I woke up. I just did. Maybe she moved. Maybe I had a bad dream.   
+I saw the light on next to me, so I rolled over. She lay awake, on her side facing me, eyes open. This time they were super wide.  
+It startled me because when you're half asleep and realize somebody is looking in your direction, your brain does that caveman thing before you remember it's your wife.   
+She seemed amused.   
+"What are you doing?" I asked.  
+"Nothing."  
+"You can't sleep again?"  
+She shrugged.  
+I think I asked her if something was bothering her. She said no. I fell back asleep.  
+Then it happened again.  
+And again.  
+Not every night. At least I don't think every night.  
+But often enough that I finally made a joke about it. We were having breakfast last Saturday and I said something like, "Do you ever sleep anymore?" She laughed and asked what I was talking about. I told her every time I woke up lately, she is awake. She said, "Maybe you only notice me when I'm awake." Which made sense. Obviously, I wouldn't know she was sleeping if I was also sleeping. Told her that. She said, "Mystery solved."  
+That should've been the end of it.  
+Except that night I stayed up later than usual.  
+Not because of her. I was out with some friends and came home much later than usual. When I rolled in it was after 1 in the morning. My wife laid in bed reading. Surprised, I said something like, "oh, you're still up?"  
+We’re at the point in our marriage where we don’t typically stay up and wait for the other to get home. Maybe early in our marriage, but that fad faded. She glanced at the clock and put the book down. “I lost track of time,” she said casually.    
+Lights went out and we went to sleep… Or I did.  
+Sunday morning, I woke up around seven. Since our house faces East and we don’t have blackout curtains, the sun shines right on my face. Often waking me before I’m ready.   
+To my surprise, my wife was already awake, reading.   
+I asked how long she'd been up.  
+She said, "an hour maybe."  
+Something about that bothered me.  
+I couldn't tell you why.  
+I started thinking about the night before. I'd come home at almost one and by the time I relaxed and settled in, it was probably about 2.   
+She'd been awake then and now it was seven and she'd supposedly been awake since six.  
+That gave her four hours, technically.  
+People sleep four hours sometimes. Hell, maybe a lot of times. Nothing impossible about that. So, I let it go.  
+Then Monday night I woke up at 3:18. She was awake. Tuesday, I woke up at 5:06. Again, she was awake.  
+Wednesday, I woke up a little after one. Awake.  
+Thursday, I didn't wake up during the night, but when I went to bed around midnight, she was awake, and when my alarm went off at 6:30, she was already in the shower.  
+That's when I started thinking about it. I tried to remember the last time I'd seen my wife asleep.  
+Not assumed she was asleep. Saw her sleeping… I couldn't.  
+I could remember hundreds of times over the years. Her passed out on the couch. Her asleep in the passenger seat during road trips. Her snoring beside me.  
+But recently? Nothing.  
+So, Friday night I did something admittedly ridiculous. I set an alarm for 2:30 a.m.  
+I put my watch’s feature to vibrate so it’d go off without any noise. It worked. I woke up, toggled the alarm off, and didn't move.  
+My wife lay beside me. I couldn't tell if she was asleep because her back was turned. I watched her for maybe thirty seconds. Then I whispered her name.  
+She rolled over. Not groggy. Not startled. "What is it, honey?"  
+I asked if she was awake.  
+She laughed.  
+"I am now."  
+That made me feel like an asshole.  
+I apologized and told her I'd had a weird dream.  
+She kissed my shoulder and told me to go back to sleep.  
+So, I did.  
+The next morning, I almost told her about the alarm, but I didn't. Mostly because I knew how insane it sounded. Instead, I decided to try again.  
+Saturday night I set three alarms.  
+1:22.  
+3:14.  
+5:09.  
+I picked random times because somehow that felt more scientific.  
+At 1:22, my watch vibrated. I opened my eyes. She was on her back. Her eyes were open. I didn't say anything. I closed mine.  
+At 3:14, I woke up again. She was on her side. Eyes open.  
+This time she noticed me looking.  
+"You okay?"  
+"Yeah."  
+"You keep waking up."  
+"I know."  
+She reached over and touched my forehead.  
+"You gettin’ sick?"  
+I shook my head. “I don’t think so.”  
+At 5:09, the alarm woke me for the third time.  
+Her side of the bed was empty.  
+For about five seconds, I felt this strange relief.  
+There. She'd gotten up to use the bathroom. When she came back, maybe I'd finally see her climb into bed half asleep.  
+Then I noticed light underneath the bathroom door.  
+I waited.  
+A minute passed.  
+Then another.  
+Eventually the toilet flushed.  
+The faucet ran.  
+She came out.  
+She looked at me.  
+"You're awake again?"  
+I said I have to pee.  
+She moved aside and let me into the bathroom.  
+When I came back out, she was in bed.  
+Eyes closed.  
+Finally.  
+I stood there looking at her like an idiot.  
+Then she opened one eye.  
+"What?"  
+I laughed.  
+"Nothing."  
+"You're being weird."  
+"I know."  
+I climbed into bed.  
+She rolled toward me.  
+"Seriously. What's going on?"  
+And I don't know why I didn't just tell her.  
+Instead, I said work had been stressing me out.  
+She accepted that.  
+Yesterday morning, though, I brought up her sleep again.  
+Not the alarms.  
+I just asked if she'd been having trouble sleeping lately.  
+She looked confused.  
+"No."  
+I asked if she was sure.  
+She laughed. "Pretty sure."  
+I said I'd noticed her awake a lot.  
+Her expression changed. Not dramatically. She just stopped smiling. Then she said, "We've talked about this."  
+"I know."  
+"So why are we talking about it again?"  
+I told her I was worried.  
+She said there was nothing to worry about.  
+I asked how many hours she'd slept the night before. She said she didn't know. I asked what time she'd fallen asleep. She said she didn't know that either. Then she got irritated. Not angry. Just irritated in the way anybody would be if their spouse suddenly started interrogating them about something normal.  
+She threw her arms up and said, "what do you want me to tell you?"  
+I said, "that you sleep."  
+She stared at me. For a long while. I could see her mind working. It was the strangest and most uncomfortable silence we’ve ever had between us. If someone else had stumbled into the room at that time, you’d think I’d have asked her for a divorce. Then her face broke and she laughed. That’s not what I expected. "I sleep," she said.  
+"When?"  
+"At night."  
+"When at night?"  
+"When you're sleeping."  
+I didn't know what to say to that.  
+She picked up her coffee, took a few sips.  
+"You're asleep when I'm asleep, honey. That's generally how sleeping together works."  
+Again, completely reasonable.  
+Except it wasn't anymore.  
+Last night I decided I wasn't going to set an alarm. I was just going to stay awake. I had to know. Had to look into it since I felt she was hiding something. Not sure what.  
+She came to bed around eleven. About thirty minutes later than our usual bedtime.   
+She read for a while.  
+I watched YouTube on my phone.  
+At midnight, she rolled over, tapped me on the shoulder, and asked if I was planning on sleeping.  
+I said eventually.  
+Around one-thirty, she put her book down.  
+I was on my side with my phone propped up, still awake. Out of the corner of my eye I saw her rise up and look over to maybe see if I was still awake. Since she was, she picked her book back up.   
+At two, I turned my phone off.  
+She was still reading.  
+I eventually closed my eyes because I felt if I didn’t, she would just use that as an excuse as to why she was still awake. I tried remaining awake but could still feel her awake next to me. I tried my best, but at some point, I must've drifted off because the next thing I remember was opening my eyes and seeing 2:26 on the clock.  
+My wife was lying beside me, eyes open.  
+I asked if she had slept at all.  
+She sighed.  
+"Seriously?"  
+"I'm just asking."  
+"I don't know."  
+"Did you sleep?"  
+"Yes."  
+"For how long?"  
+"Go to sleep."  
+I told her I couldn't.  
+She said, "Well, I can."  
+Then she closed her eyes. I watched her. I don't know for how long. Ten minutes. Maybe fifteen.  
+Her breathing got slower.  
+I remember thinking how stupid this whole thing was.  
+Of course she slept.  
+I was staring at her doing it.  
+Eventually I fell asleep too.  
+This morning, though, something occurred to me.  
+I'd never actually seen her fall asleep.  
+I'd seen her close her eyes.  
+That's not the same thing.  
+So tonight I tried something different.  
+No alarms.  
+No questions.  
+I told her I was exhausted.  
+We went upstairs around ten-thirty.  
+She got into bed with her book.  
+I kissed her goodnight, rolled onto my side and closed my eyes.  
+Then I pretended to sleep.  
+I slowed my breathing. I tried not to move. After maybe ten minutes, she turned her light off.  
+The room went dark.  
+I kept my eyes closed and mind working so I’d stay awake. For a while, nothing happened.   
+Then she moved. The mattress shifted behind me. I thought she was rolling over, but she was sitting up.  
+I felt the mattress dipping differently.  
+I stayed completely still.  
+She breathed softly.  
+Then nothing.  
+I don't know how long she sat there.  
+Five minutes, maybe. Could've been longer. Hard to tell.   
+Then she whispered my name.  
+I didn't move.  
+Another pause.  
+I kept breathing slowly.  
+My heart pounded hard enough I was convinced she could hear it.  
+She sat there for another minute.  
+Then she leaned toward me. I could feel her weight shift. For one horrible second, I thought she was going to touch me. Instead, she whispered: "Are you asleep?"  
+I didn't answer.  
+She stayed there. Waiting.  
+Then she got out of bed.  
+She walked across the room, opened the bedroom door, and closed it carefully behind her.  
+That was about fifteen minutes ago.  
+I'm still in bed.  
+I can hear her downstairs.  
+Not sure what she's doing.  
+But she hasn't slept.  
+I'm sure of that now.  
+I’m trying to muster the courage to sneak downstairs.
