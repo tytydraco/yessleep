@@ -1,0 +1,72 @@
+I work in tech support about thirty kilometers outside my hometown in Maharashtra. Nothing exciting—just an old Hero Splendor, forty-five minutes of dodging potholes every morning, and the exact same ride back every evening.
+
+Or at least, it used to be.
+
+Three weeks ago, on a Monday morning, I was riding through Keshopur—a tiny village along my route that’s basically just flooded fields and an old banyan tree. Near the bend, I slowed down because a small crowd was carrying a body wrapped in white cloth. A funeral. I folded my hands on the handlebar out of respect, waited for them to pass, and rode on to work. Standard stuff.
+
+That evening, the rain hit hard. It was coming down sideways, the kind of blinding monsoon downpour where your visor is useless. I pulled over under the tin roof of a roadside stall I’d somehow never noticed before: *Maa Janki Biryani Centre*.
+
+Inside, an old man was wiping down a laminate table over and over. I ordered a plate to wait out the storm. A few minutes later, I heard the faint clinking of metal anklets—*chhan*. A woman walked in, completely soaked, mud clinging to her sari, her skin having this weird, greyish-blue tint like she’d been dragged out of a pond. She sat in the far corner and started mumbling to the old man in a broken, garbled whisper. I caught fragments like *"...my daughter..."* and *"...he did it..."*
+
+I didn't want any trouble, so I threw cash on the counter and stepped outside into the rain.
+
+The second my foot left the shop's concrete step, everything went pitch black. Not nighttime dark—pure, suffocating void.
+
+A second later, I was back on my bike in the rain. I thought I had just passed out from exhaustion. I rode home and crashed.
+
+The next morning, I woke up, got on the road, and passed the exact same funeral procession. Same crowd. Same white cloth.
+
+When I reached the office, the spreadsheet I finished yesterday was sitting open and half-done on my desktop. My manager walked over and made the exact same joke about the weather, wearing the exact same faded yellow shirt.
+
+I looked at my phone. It was Monday again.
+
+For the next several resets, I lost my mind trying to escape it. I tried taking the highway detour—the blackout hit me at 7:40 PM sharp regardless of where I was, and I’d wake up back in bed on Monday morning. I took a bus two hours south; blacked out at 7:40 PM, woke up in bed on Monday morning.
+
+Eventually, the panic wore off and I got reckless. If nothing had consequences, who cares? I stopped logging into work. I blew through my savings. I said whatever I wanted to people.
+
+Then came loop ten or eleven. I was shaving in the mirror and noticed my stubble had grown into a patchy beard. The fine lines around my eyes were deeper.
+
+The day was resetting, but my body wasn’t. If I didn't get out of this, I was going to age and die inside an endless Monday.
+
+The only anchor was that diner, and that woman.
+
+Over the next few loops, I went back intentionally. I sat closer each time, trying to decipher her voice, but it sounded distorted, like someone trying to speak while submerged underwater.
+
+Three loops ago, I arrived at Keshopur an hour before the rain started. I hid my bike behind the banyan tree and walked around the back of the shop. Past a broken brick wall, there was a beaten path leading down to a river canal I never knew existed.
+
+Sitting on the muddy bank was the woman. But she wasn't blue or bruised. She was wearing a regular green cotton sari, knees pulled up to her chest.
+
+I walked up and asked if she was okay.
+
+Her head snapped toward me, and before I could flinch, her hand shot out and clamped onto my wrist. Her grip was like an iron clamp—freezing cold.
+
+Her voice wasn't muffled anymore. It was sharp:
+
+*"He wanted a son. We already had one girl. When the midwife told him the second was a girl too, he took her out to the brick kiln. He slipped off her silver anklets first—said girls weren't worth burying with silver. I followed him to the sluice gate. I saw what he did."*
+
+Behind us, a man started screaming her name, sprinting down the mud path.
+
+She let go of my wrist, looked straight at me, and fell backward into the current.
+
+I lunged to grab her, but my hands caught nothing. The world cut to black instantly.
+
+I woke up this morning gasping for air. My right hand was cramping fiercely, completely covered in dry blue ink. Under my bare feet, the floor was covered in wet river silt.
+
+On my desk were three sheets of paper covered in a frantic, slanted handwriting that isn't mine. It's a complete confession written from her perspective—her husband's full name, his grain business in the next town, the exact date, the location of the sluice gate behind the kiln, and the name of the local watchman who took a bribe to write off her death as an accidental drowning.
+
+At the very bottom of the last page, pressed hard into the paper:
+
+**Tell them where to look.**
+
+I sat there staring at the ink, and the cold realization hit me like a truck. The funeral I’ve been respectfully nodding to every single morning for weeks? It was hers.
+
+I just came back from the local police station. I told the inspector I found the papers tucked into the pump house near the canal. Given the specific names and dates, they sent a team out to the sluice gate an hour ago.
+
+I'm writing this from my desk right now. It's 7:15 PM on Monday.
+
+If this doesn't work, I’ll be back in bed tomorrow morning to start all over again. If it does... then maybe the rain finally stops.
+
+THE END ...  
+
+
+i am posting my story for first time , tho its AI written but the story is mine . I hope you like it , please tell me your thoughts in the comments , THANKS .
