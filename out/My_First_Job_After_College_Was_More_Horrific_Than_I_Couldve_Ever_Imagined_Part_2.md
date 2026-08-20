@@ -224,7 +224,7 @@ Suddenly, he exploded. Blood, gore, and bone fragments splattered the room and t
 
 Too much stimulation, an assault of colors and shapes gave me a screaming headache. I pressed my hand against my head, half consciously backed into the corner, besides Patty, and slid down the wall into a fetal position, holding my legs close and shivering. There was an occasional drop of liquid, and I couldn’t tell if it was a leak in the ceiling, dripping blood from my face, or tears. 
 
-The scene resumed around me, though it took on a rather dreamlike quality. Frank barked orders and there was a mad rush as people fortified. There was banging on the walls, the figures trying to break in. Emma was next to a pile of machines, tinkering, reverie and intense focus on her face, completely suited for this environment, a fish in water. She was wiring multiple suction bursts to a central matrix, and attaching a smattering of other gizmos and gadgets. I focused on Frank's words, unsure of how much time had passed.
+The scene resumed around me, though it took on a rather dreamlike quality. Frank barked orders and there was a mad rush as people fortified. There was banging on the walls, the figures trying to break in. Emma was next to a pile of machines, tinkering, reverie and intense focus on her face, completely suited for this environment, a fish in water. She was wiring multiple suction-bursts to a central matrix, and attaching a smattering of other gizmos and gadgets. I focused on Frank's words, unsure of how much time had passed.
 
 “The first thing that is non-negotiable is drawing them away. Obviously, given enough time, they’ll break in. The good news is, what got us into this mess will also get us out of it,” Frank said.
 
