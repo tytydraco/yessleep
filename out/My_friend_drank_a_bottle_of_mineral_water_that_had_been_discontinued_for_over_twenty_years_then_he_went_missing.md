@@ -135,7 +135,7 @@ Just as I was rambling on about a bizarre coworker at my office, Avery suddenly 
 
 "No, don't bother... There aren't many bars around here, it's a long walk... I mean, you can keep talking, I'll just manage..."
 
-His eyes wandered, his head slightly bowed. 
+His eyes wandered, his head slightly bowed.
 
 Following his gaze, I looked down at the empty glass in my hand. There was still about a third of the liquid remaining at the bottom.
 
@@ -195,10 +195,12 @@ I didn't know how much time had passed, but when I finally woke up, the sky was 
 
 My throat felt as if it were lined with dry sandpaper, every breath dragging out a burning sting. Without water, there was no way I would survive until a search team found me.
 
-Just as despair was taking over, I heard it: water.  
+Just as despair was taking over, I heard it: water.
+
 The survival instinct that kicks in when a person is pushed to the brink is truly unbelievable. Normally, I barely hear my alarm clock going off, but that night, lying in the mud and weeds, I clearly heard the sound of flowing spring water.
 
-It was a delicate, faint rushing sound that pierced through the dead quiet of the night, coming from deep inside a rocky cave a short distance ahead.  
+It was a delicate, faint rushing sound that pierced through the dead quiet of the night, coming from deep inside a rocky cave a short distance ahead.
+
 Driven by sheer force of life, I gritted my teeth. Using my hands to claw into the damp humus and cold stone, I dragged my useless, numb broken leg, inch by inch, toward the sound of the water.
 
 My clothes were shredded, the palms of my hands torn raw, leaving a gruesome trail of blood mixed with mud behind me. But I didn't care. My eyes were fixed entirely on the shallow pool reflecting faint moonlight just ahead.
