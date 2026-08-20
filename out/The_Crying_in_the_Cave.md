@@ -1,0 +1,147 @@
+I've never dreamt of labor, and frankly, I can't imagine that those who do are that fulfilled. That isn't to say that every job I've had has been unbearable. Sure, like most, I've had my share of shitty jobs; I work in building maintenance, so I'm no stranger to tight, unventilated spaces or the smell of cleaning agents. At a certain point, rats in a space that didn't have rats moments before cease to be surprising. But you wouldn't believe how much I've been able to get away with at some places.
+
+Maybe three years out of college, I had such a job, and it was, of all places, at Disney World. You figure it's Disney, massive entertainment company, geared towards families, they've probably got you on a short leash. And yeah, to a certain extent, that could be true; you're gonna have pain in the ass higher-ups no matter where you end up in the world. But I worked nights, and with all the guests gone and with us working in small teams around the park we were assigned to on a given night, you could reasonably get around without someone breathing too hard down your neck.
+
+I was fortunate in that the team I usually got put with were all fairly laidback. Most of us just wanted to get done what we needed to so that, god willing, we could enjoy a few minutes of downtime before we headed out in the early morning. A few of the folks had young families, which I imagine meant they had precious few minutes of quiet to enjoy otherwise.
+
+So we'd head to whatever spot we were supposed to service - inspect the wiring on Expedition Everest, do cleanings on Pirates, test the lighting on Spaceship Earth, that sort of thing - and then we'd find a quiet corner where a supervisor wasn't likely to go poking around immediately. Sometimes shoot the shit, sometimes not. Sometimes, we'd head to one of the break rooms in the corridors running under the parks, sometimes we'd stay topside, look out over the property.
+
+I always liked the latter; I'd gone to Disney a good bit as a kid, and I suppose looking out at it at after dark, there was something about it that took me back. Feet hurting, heading out for the night, knowing that a firm hotel bed was waiting for you. Granted, that wore off some after a little while. This was a job, after all, and like with any job, I couldn't exactly pretend I was exhilarated to be there every single night. Especially if, say, a light went out on Main Street, and we had to replace the whole row.
+
+My team was assigned to Frontierland in the Magic Kingdom one night. I hadn't been working there for long; this would have been, I want to say, 2012, maybe 2013? It was definitely November, because we'd spent the previous several shifts putting up holiday decorations (if I never saw a strand of Christmas lights again, it'd be too soon). Thankfully, this evening's work wasn't anything too crazy. We'd gone over to the queue areas of Splash Mountain and then Thunder Mountain, done some basic cleanings, made sure everything was squared away. Tested the circuits, saw that no bulbs were out of date and that the ride systems could still power on and connect right.
+
+Having just gotten done with Thunder Mountain, we headed outside and found a little area to sit down. A couple folks took a bench, the rest of us leaned against the faux-wooden fence that bordered the path. We looked out at the water which ran besides the land. Chattered a little, but it died down quick. Despite how monotonous the job could be, moments like these did still shine through sometimes. Here and there, a little lap of the water against the rock and concrete, the faint "clack, clack, clack" of another team walking along ride tracks somewhere in the distance, the November air, which was unusually chilly for Florida. I could have fallen asleep standing there.
+
+To stop that from happening, I pulled out a pack of cigarettes. Smoking on the job was absolutely forbidden, especially if you were in a building. Can't have Little Jimmy riding Winnie the Pooh and smelling lingering Camel smoke. But tonight, the manager overseeing my team was Will, who was usually pretty lax. There'd still be consequences if you got caught breaking the rules, but it was usually more just getting chewed out. Not like Greg, who'd have you go over every foot of track on Space Mountain with a magnifying glass if he caught you wearing clothes that were too dark.
+
+I lit up, offered the pack to the others, some of whom took one, and we puffed away, smoke mixing with our visible breath. This was back when the parks still had smoking areas (not that we were in one), so the way we saw it, we weren't doing anything the guests wouldn't do. Besides, we had several restaurants and shops to do rounds through that night. We needed something stimulating.
+
+A few drags in, my eyes shifted across the river to Tom Sawyer Island. It occurred to me that, in contrast to most of the area, there weren't any light's on, as far as I could see. Just a dark mass in a pool of vaguely reflective water.
+
+I turned to Jan, one of my team members. "No one working on the island tonight, huh?"
+
+She shrugged. "Guess not."
+
+"You figure a lot of people get hurt over there?"
+
+"How do you mean?"
+
+"Well, they've got those caves you can walk through. Pretty narrow. You get some kid not looking where he's going, that's a good way to get a bloody nose."
+
+"Yeah, I can see that. It's still open, so I can't imagine it's a huge concern."
+
+"I suppose not. You ever worked over there?"
+
+"Yeah," she replied. She ashed her smoke on the rim of a nearby trash bin, then brushed the ash in, dropping the butt in after it. "Couple times. Like working anywhere else. The lighting over there isn't that good, but if you watch what you're doing, you'll be fine. They'll usually have us working there at the very beginning of the night or at the very end, when it's lightest."
+
+"That makes sense." I ashed my own cigarette and lit another.
+
+"You ever been?" Jan asked.
+
+I shrugged. "Maybe once or twice when I was younger. Don't remember a lot from it." I thought for a second. "Except the mannequins at the fort. I remember those creeping me out. Oh, and that big screaming rock face in the cave. Come to think of it, I remember a lot of that place kind of giving me the creeps."
+
+Jan chuckled. "Yeah, that place hasn't changed much since.... well, since I was a girl."
+
+"The smoking rule also hasn't changed," spat a voice behind us, making us jump. We spun around to see Will, who scanned us sternly. Glancing at the rest of the group, I noticed that all of them had finished and gotten rid of their cigarettes, and none had taken another. As far as Will was concerned, I was the only one who'd lit up.
+
+We sat there a second, Will staring at us, us averting our gaze. "Well," he said, "Put it out, Gwen, will you please?" Realizing my smoke was still lit, I ashed it at once, tossed it, and sputtered out some half-comprehensible apology. "Yeah, yeah," Will said, rolling his eyes. "Alright, break's over. The rest of you get back to work. I've got a special job for miss Gwen here."
+
+This was bad. "Special jobs" were never desirable and often didn't have much of a purpose at all. The first time I got assigned a "special job" for having my phone out when I wasn't supposed to, I'd had to walk all along the railroad tracks going around the park to make sure there were no sticks between the trestles. Once the others were out of earshot, Will turned to me and gestured to walk with him.
+
+We headed down into the underground corridors, rounded a couple corners, and without a word, Will led me into a supply room. After opening a large box and rummaging through it, he pulled out a small speaker and turned to me. "One of the speakers in the Mystery Mine over on Tom Sawyer's shit itself today. You're gonna go replace it."
+
+I furrowed my brow. "But I've never installed a speaker before. What if I fuck this one up just as bad?"
+
+"My, my, the Marlboro Man has rotted our brain, hasn't he? It'll be fine," he said, matter-of-factly. "It's in the room with the ore poking out of the wall. There's only one speaker, and it's in the upper left corner; you'll know it when you see it. You'll just need to grab a ladder, unhook and unplug the old one, and hook the new one in."
+
+"Ok," I said, thinking it over. "What exactly makes this a 'special job?'"
+
+"Because the maintenance lights are also shitting out, so you get to find your way out using this," he said, handing me a small flashlight. "And when you get back, you can get rid of the garbage bag that you all *soiled* with your cigarettes and put a fresh one in."
+
+"Wait, you know the others were smoking? Why aren't they stuck doing this, too?"
+
+"'Cause you're the only one who let yourself get caught." He stretched his mouth into an exaggerated frown. "Maybe this will teach you that addiction doesn't pay." He turned away and headed out. "Just follow the directions, the corridors will bring you up under the island."
+
+I smiled and shook my head. "By the way," I called after him, "It was Joe Camel that rotted my brain, not the Marlboro Man."
+
+"Even sadder," he called back, his footsteps fading down the hall. 
+
+The real punishment was trying to carry the ladder and the speaker at the same time. Neither was really that cumbersome, but it was near impossible to position them in a way that felt comfortable in my hands. I almost dropped the speaker at least twice, and once I reached the end of the long corridor going under the river to the island, I had to get everything up a flight of stairs and through a door.
+
+By the time I'd made my way onto Tom Sawyer Island and found the entrance to the Mystery Mine, I was sweating bullets and had almost fallen down a set of steps and cracked my head open. Before entering, I leaned against the rock wall and heaved a few deep breaths. The place was just as dark as it had looked before. The flashlight didn't do much, and the only other source of light around came from the buildings across the water. Neither did quite enough to stop the greenery from looking like ink blots that had drowned the place out. I shuddered, took another deep breath, and hurried inside, wanting to get my special job over with.
+
+The Mystery Mine normally had dim lanterns illuminating the way, but they were all turned off. It was fairly normal for some form of light to be on in other dark areas, but here was a blackness that rivalled the most unlit parts of Space Mountain. Not helping was the fact that the mine was intentionally built to be lopsided in several places, which made carrying a ladder an absolute joy.
+
+It occurred to me about halfway through that there was not a sound to be heard outside my footsteps and the occasional "clunk" of the ladder against the floor. As I said earlier, I'd only been in there a handful of times, but I seemed to recall them playing cave ambiance in there. Now, it was just the damp thumps of my shoes, hardly even any reverberation to speak of. It was like I was a worm, entombed alive in oil and artificial rock. I knocked against a wall at one point, thinking it might echo, but there was only a low, dull thud.
+
+I made my way through a couple steps at a time, barely helped by the cheap flashlight. The sideways mine shaft widened into a room full of prop equipment and fake gold ore in the wall which reflected my light back at me. Somewhere off to the right was the blackened exit to the room, which began with a turn, and to the upper left was the speaker I was to replace.
+
+Will was right; the job itself didn't take more than a couple minutes. With the new speaker hooked up and presumably ready to play the background noise which would turn on in the morning, I stepped down and folded up the ladder. I pulled out my radio and told Will that the speaker was hooked up, and he glibly replied that now I could take out the garbage. I rolled my eyes and approached the inky, curved passageway leading out, but as I did so, a small sound came from within.
+
+And then came another. They were just barely perceptible, but as I froze and listened closely, sure enough, they were there. At first, the sound were like coughs; someone sputtering, just barely able to inhale. But then came a small, nasally whine. It was a child crying.
+
+"H-hello?" I called, flabbergasted. How could there be a kid in here? The park had been closed for hours, and the only way to access the island was by a barge that a cast member piloted, so this kid's parents would have had to have left without them.
+
+"H-hello?" echoed a little girl's voice. They were hidden by both the darkness and the asymmetrical rock walls.
+
+"Uh..." I  to find the words. Working at Disney, you'd maybe find the odd person who'd hidden out and stayed in after closing, but a kid? "A-are you ok?"
+
+"M-mommy?" the voice called. "I don't know where I am!"
+
+I took a step forward and then stopped. There was something about the way the girl spoke that didn't sound quite right. It might have been because she was crying; no one can talk right when they cry. But something about the way each syllable came out felt lilting and uncertain, as if the girl wasn't entirely sure she was pronouncing them right. Like when you're in a language class and don't quite know what you're doing yet.
+
+"Hello?" I repeated. "What's your name?"
+
+A moment of quiet. And then the voice repeated back to me: "What's your name?" The cadence was exactly the same as mine had been. And the timbre of the voice was slightly different than it had been. The first two words still sounded like the same little girl, though it didn't sound like she was crying anymore. But that last word fell into a slightly deeper pitch that didn't sound like it could have come from a kid.
+
+If there was some little girl stuck in here, having been left by her family, I obviously wanted to help. But something about this just felt off. There were definitely cameras in here; how could no one have noticed her? I took a step forward but held off on entering the passageway. "I'm Gwen. Do you need help?"
+
+"I'm Gwen. Do you need help?" the voice echoed, its cadence and inflection perfectly matching mine. Again, the last word dipped lower in a way that didn't sound entirely natural, but everything else could have been a perfect recording of what I had said. I stepped back, dropping the old speaker and ladder, then broke into a run back the way I'd come.
+
+I lit the floor beneath me as best I could, but it still didn't stop me from tripping once or twice. The way I'd come in was probably only a short walk from the room I'd been in, but I swear I ran two miles in that cave. But sure enough, I found my way to the entrance, the moonlight from outside looking comparatively bright to what I'd just been in.
+
+As I exited, the voice called out one more time: "M-mommy? I don't know where I am!" Syllables dipped at random. It was as if their vocal chords couldn't decide how they were supposed to sound. It reverberated through the mine so loudly that I was sure it was audible from across the water.
+
+I hurried back to the corridor entrance, all the while collecting myself as best I could, and I felt relative relief as I descended the steps into the florescent-lit space. I sped back to where Will and I had come in, not entirely sure where I was going until I stumbled into a break room and collapsed into a chair.
+
+I sat there, catching my breath, unable to stop wondering why that voice echoed so much when nothing else in there did. Just as I started to consider that I'd only been at Disney a few months and that maybe this was some elaborate hazing, Will stepped into the room.
+
+"Wow," he said, "Remind me to never hire you as a sanitation worker. Have to find a replacement in three days." I nodded, unable to think of a proper response. His eyes narrowed. "Hey, are you alright?" 
+
+I swallowed. "I, uh... yeah, I'm fine."
+
+"You sound very confident in that." He sat across from me. "You look sick. Did something happen?"
+
+I considered the question. "You've been working here for a while, right?"
+
+"Fifteen years," he nodded.
+
+"Have, uh... have you ever known people here to pull weird pranks on each other?"
+
+He raised an eyebrow. "I suppose I've seen the odd thing here or there. But it's not something that happens especially often. Why?"
+
+I took a deep breath and relayed what had happened, emphasizing that I was fully aware that I may have just been hearing things or that maybe someone had played something over another speaker. Will's face fluctuated between concern, astoundment, and irritation, finally settling on something I couldn't quite place.
+
+When I finished, he sighed. "Alright. I'm going to call the overnight security folks - which *you* should have done, I'll add - and have them take a look at the area. I'd be shocked if there was actually someone there, but I'd be just as astonished if this was some prank. If there is someone, though, it's my ass."
+
+He called the disturbance in to the overnight security and turned back to me. He massaged his temple and sighed again. "Meantime, maybe you should go home for the rest of the night. You don't look so good, and I can't have you making the rounds under the weather."
+
+"A-are you sure?" I stuttered.
+
+He nodded. "Yeah, go rest up. Try to get better by tomorrow night; still lots to do." I got up and headed for the door, but then he added: "The parks have been around a pretty long time and cover a lot of ground." I turned to face him. He now had a knowing, resigned look on his face. "I'm not going to sit here and speculate on whether something did or didn't happen. But what I will say is that in the time I've worked here, I've known the odd cast member - hell, even the odd guest - to see or hear something strange."
+
+Not sure how to respond, I settled on: "Is that so?"
+
+He nodded. "Yeah. Like I said: lot of ground, lot of shadowy corners on that ground. I've never seen anything out of the ordinary myself - not here, anyway - but if it's any comfort at all, you're not the first who's had some ride play tricks on her at night." He paused, letting what he'd said sit. "I'd maybe just advise you to be careful talking about it too much. Already enough urban legends to go around, right? Don't need the higher-ups thinking we're trying to cause dissent." He gave a sad smile.
+
+I returned one. "Yeah. Sure, Will." And I was off.
+
+I didn't get much sleep, predictably. For one thing, I couldn't get that stilted, echoed voice out of my head, and even when I did drift off, it followed me into whatever shallow dreams I had. I also couldn't shake the feeling that I had let someone stay in danger.
+
+But early that morning, I got a text from Will saying that security had done a full sweep and reviewed footage but hadn't found anyone. Whole thing was being chalked up as some prank, even though no one else was spotted on video on the island while I was there.
+
+I went back to work the next night feeling like a sack of hammers, but I got assigned to some fairly light maintenance work at Disney Springs. Had a decent bit of downtime, and when I returned home after that shift, I slept considerably better. I'd end up working at Disney for another three years before finding a better paying job in Chicago, and I can't say I really saw anything else that crazy. Had plenty of times working in dimly lit areas, even worked on the island again a few times, but I almost always had my team and didn't have any other moments that sent more than a slight shiver down my spine.
+
+I did take Will's advice, though, and didn't talk to anyone about the voice in the cave. Not that any of us held a particular reverence to Disney; I guess I just figured no one would believe me. I liked my team and didn't want to seem like I'd gone off the deep end. But after all these years, I still  sometimes have a hard time getting that voice out of my head. I thought maybe someone here would have experienced something similar or, at the very least, might believe me.
+
+I do think that I made the right choice in getting out of there as quick as I did. I like to think I know better than to follow strange voices into the dark. But I can never quite get past my curiosity of what I would have seen if I had gone into that unlit passageway.
