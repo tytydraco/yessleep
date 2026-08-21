@@ -384,8 +384,6 @@ Naively, I thought it was from my husband’s divorce attorney, we separated a y
 
 The reality, however, was infinitely worse.
 
-
-
 *Twenty-eight years have passed, and I don’t know if that summer still haunts your thoughts. I hope by now you understand the exact reason why we had to act the way we did.*
 
 *My group met in that forest three days a week. We aren't evil; the devil isn't evil. He chose freedom, rebelling against a God because he refused to live in a prison. And we refused to live in a society like ours, suffocated by hypocritical chains.*
@@ -412,11 +410,9 @@ The dirt bike crash, the trashed house, the burned shoes, the necklace, that was
 
 *I hope things are crystal clear now, and that this letter can finally put a period at the end of that chapter.*
 
-*There is just one final thing I need to confess. I am sick. By the time this letter crosses the ocean to America—hand-delivered by a trusted brother from our circle—I will already be gone. Don't worry. As long as our group draws breath, we will keep you safe, until the day comes when your two souls can finally be reunited.*
+*There is just one final thing I need to confess. I am sick. By the time this letter crosses the ocean to America, hand-delivered by a trusted brother from our circle. I will already be gone. Don't worry. As long as our group draws breath, we will keep you safe, until the day comes when your two souls can finally be reunited.*
 
-As a father, I only want to say one final thing: thank you. You made my daughter Janina’s life absolute perfection.
-
-
+*As a father, I only want to say one final thing: thank you. You made my daughter Janina’s life absolute perfection.*
 
 I should feel sick. I should be sprinting to the phone to call the police, screaming bloody murder, thinking of Katrin’s father and the family of that little boy, of that hollow, incurable grief, especially now that I have children of my own, I should understand the weight of it.
 
