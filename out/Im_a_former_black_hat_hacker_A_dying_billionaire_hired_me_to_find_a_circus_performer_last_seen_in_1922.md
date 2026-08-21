@@ -405,3 +405,5 @@ I went to the bathroom and took off my shirt. I barely recognized myself anymore
 And the wings on my back. I opened them and let them fill the bathroom. Then I closed them again, and I put my shirt back on.
 
 I looked at my reflection one last time, and I wondered what I was becoming.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1v2wrfi/im_a_former_black_hat_hacker_a_dying_billionaire/)
