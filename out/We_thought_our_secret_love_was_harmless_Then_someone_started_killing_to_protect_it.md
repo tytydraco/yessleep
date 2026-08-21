@@ -384,7 +384,39 @@ Naively, I thought it was from my husband’s divorce attorney, we separated a y
 
 The reality, however, was infinitely worse.
 
->
+
+
+*Twenty-eight years have passed, and I don’t know if that summer still haunts your thoughts. I hope by now you understand the exact reason why we had to act the way we did.*
+
+*My group met in that forest three days a week. We aren't evil; the devil isn't evil. He chose freedom, rebelling against a God because he refused to live in a prison. And we refused to live in a society like ours, suffocated by hypocritical chains.*
+
+*To everyone else, we were ordinary people, model citizens. To you and Janina, we appeared the exact same way.*
+
+*Do you remember that day in the cabin, when you thought you were completely alone? I saw your kiss, hidden away in the dust and rotting wood. In that exact fraction of a second, my heart swelled. I saw two pure, rebellious souls willing to fight against the asphyxiating hypocrisy of this small-minded town. You two were the exact answer we had been praying for. For years, we had begged for a single spark of authenticity in this village of the living dead, and our prayers were answered right through you.*
+
+*My comrades and I knew we had to protect you at all costs. We saw the way you were being targeted by your stepsister’s little gang. Let me repeat: we aren’t monsters. We tried the polite route at first, hoping to shake the town awake. But you eventually realize you can’t open the eyes of the blind unless you use brute force.*
+
+The dirt bike crash, the trashed house, the burned shoes, the necklace, that was all our doing.
+
+*When one of my brothers saw that little boy alone in the woods, while Katrin and her friend were sitting nearby running their mouths about you, laughing, speculating that you and Janina had stolen the necklace just to hock it, he decided to act. He took the boy with him; it wasn't hard. We wanted to liberate him, anyway; he was just a rotten little offshoot of that same hypocrisy.*
+
+*But that night, when Katrin screamed those vile things right in your face... well, thinking about it even today gives me the chills. I took matters into my own hands. One of my brothers slipped into your house, knocked her out cold, and carried her away. As you’ve probably pieced together by now, we eliminated both Katrin and the boy.*
+
+*Ironic, isn't it? The town ramped up its prayers, only to realize very quickly that God wasn't listening. They were completely on their own.*
+
+*As the years rolled on, we took profound joy in watching you and Janina spend your afternoons together, totally undisturbed.*
+
+*When you had to pack up and leave for America, it broke my heart.*
+
+*But we never lost sight of you. Your two children are gorgeous (though I can't say the same for your ex-husband). Janina built a brilliant career, had her own family, and we couldn't be prouder of the women you both became.*
+
+*I hope things are crystal clear now, and that this letter can finally put a period at the end of that chapter.*
+
+*There is just one final thing I need to confess. I am sick. By the time this letter crosses the ocean to America—hand-delivered by a trusted brother from our circle—I will already be gone. Don't worry. As long as our group draws breath, we will keep you safe, until the day comes when your two souls can finally be reunited.*
+
+As a father, I only want to say one final thing: thank you. You made my daughter Janina’s life absolute perfection.
+
+
 
 I should feel sick. I should be sprinting to the phone to call the police, screaming bloody murder, thinking of Katrin’s father and the family of that little boy, of that hollow, incurable grief, especially now that I have children of my own, I should understand the weight of it.
 
