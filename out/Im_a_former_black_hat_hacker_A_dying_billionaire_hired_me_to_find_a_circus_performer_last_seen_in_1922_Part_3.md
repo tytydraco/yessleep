@@ -2,7 +2,6 @@
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/1v2wrfi/im_a_former_black_hat_hacker_a_dying_billionaire)
 
-  
 I sat on the bed in my hotel room, my wings spread out behind me, watching the flickering video of a man reading from the Quran that played on the TV.
 
 I’d landed in Kabul the night before. After checking into my hotel room, I slept thirty hours straight.
@@ -127,7 +126,7 @@ Rahmat parked near one of the fences.
 
 “Okay.”
 
-I stepped out of his car. He looked at me like it was the time he’d see me, and he turned his car around and drove back the way we’d come.
+I stepped out of his car. He looked at me like it was the last time he’d see me, and he turned his car around and drove back the way we’d come.
 
 I stared at the hills in the distance. Then I looked at my map on my phone. The X was straight ahead of me. I walked towards it, through the pomegranate trees.
 
