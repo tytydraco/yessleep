@@ -279,3 +279,5 @@ Frank turned to me and put a hand on my shoulder. It was imperceptibly shaking. 
 I nodded, a peculiar resolve bubbling within me. 
 
 “Listen up everyone!” He faced the room. “Here’s the plan!”
+
+[Part 3](https://www.reddit.com/r/nosleep/s/asgI52QniD)
