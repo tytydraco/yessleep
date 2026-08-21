@@ -1,0 +1,277 @@
+Before you start reading, let me give you one piece of advice. If you ever find yourself in New York and someone tells you about a restaurant called ████████, leave. Damn it. It won't let me type the name. I've tried three times now. I'm going to tell you everything I can. Just promise me one thing. If you figure out the name of the restaurant, don't go looking for it.
+
+
+
+It was a Sunday night in New York. Me and Eli just wandering, tired but restless, feeling the cold air as the sun dipped behind the skyline. We didn’t want to go home yet, so we kept walking, ducking into blocks we barely knew.
+
+
+
+That’s when we spotted it. A place neither of us remembered seeing before. Maybe it was new, maybe we’d just missed it all this time. A heavy black door, windows glowing with soft yellow light, and packed tables inside. Dozens of people.
+
+
+
+“Let’s check it out,” I said.
+
+
+
+Eli just shrugged, half nonchalant, half curious.
+
+
+
+We walked in. Maybe twenty people or maybe more. It was almost cozy, except weirdly tense. Not one plate on a table. Nobody eating. Nobody had ordered. People sat around looking bored, some fidgeting, others scrolling on their phones, and a few glancing expectedly at the kitchen, waiting for something to happen.
+
+
+
+No waiters floating by. No menus. Just the low buzz of frustration.
+
+
+
+Five minutes crawled by. A guy stood up at the table next to us, slammed his chair back.
+
+
+
+“This is ridiculous.”
+
+
+
+He stormed out, muttering. Then a couple left. Three more followed. But just as quickly, new faces arrived, squeezing into chairs.
+
+
+
+Most people didn’t say much, but after a while their patience wore thin. Some started shouting toward the kitchen. Demanding attention.
+
+
+
+That’s when the chef finally came out. He was huge, wearing crisp whites, a tall hat. Calm, almost amused. Someone yelled, “What the hell is going on?”
+
+
+
+Another voice. "We’ve been waiting forty minutes!”
+
+
+
+A third. “You haven’t even taken our orders!”
+
+
+
+The chef stood there, hands folded in front of him, eyes scanning the crowd. Then he spoke.
+
+
+
+“We don’t serve until the restaurant is full.”
+
+
+
+The room erupted. Shouts. Threats. Everyone suddenly clattering, asking why, demanding answers.
+
+
+
+He raised his hands. “Everyone, everyone. Calm down.”
+
+
+
+Nobody calmed down. Not for a second.
+
+
+
+But the chef’s smile grew. “I haven’t told you the best part yet.”
+
+
+
+Instant hush. He grinned. “If you show some patience and eat here while the restaurant is completely full, you’ll receive free food from this restaurant for the rest of your life.”
+
+
+
+They stared at him. At first, disbelief. Someone laughed. Loud, skeptical.
+
+
+
+“You’re serious?”
+
+
+
+“Completely,” he said.
+
+
+
+Suddenly, the whole room flipped. People started calling their friends, texting their spouses, rallying their kids, parents. Anyone who might squeeze in. The crowd swelled. Seats filled, elbow to elbow. The chef scanned the room and smiled again.
+
+
+
+“Good.” He clapped once, sharp. “Now we can begin.”
+
+
+
+A cheer burst through the place. The promise of free food for life electrifying the air.
+
+
+
+But he paused. Held up a finger. “One small announcement before we start.”
+
+
+
+Everyone stilled.
+
+
+
+“If any of you are racist…” His smile vanished. “… all of you will die after eating.”
+
+
+
+A dead silence. Nervous laughter from the back. Someone muttered, “What kind of joke is that?” It wasn’t funny. A handful stood up, some angry, some just scared or stubborn.
+
+
+
+“I’m leaving.”
+
+
+
+“Me too.”
+
+
+
+The chef just watched. “Your choice.”
+
+
+
+He slipped back into the kitchen. The uneasy crowd waited, looking at each other.
+
+
+
+Minutes later, platters started coming out, passed down the rows. People dug in, hungry, hopeful, tense.
+
+
+
+Before my food arrived, an elderly woman came up to me. Her hands shaking, clothes grimy.
+
+
+
+“Excuse me,” she whispered, voice dry. “I heard the food is free.”
+
+
+
+“Yes,” I said.
+
+
+
+She glanced at my chair. “I haven’t eaten since yesterday,” she admitted, swallowing hard. “Would you mind if I took your place? I really, really need to eat.”
+
+
+
+I looked at Eli, who barely glanced up, still glued to her phone. I looked back at the old woman and gave her my seat.
+
+
+
+“Thank you,” she breathed, sliding in immediately.
+
+
+
+I stepped outside. There was a hot-dog cart, so I grabbed one and sat across the street, watching the restaurant. Honestly, it felt absurd. The chef, the stunt, the whole “free food for life” pitch. Probably some marketing thing. And the death threat? Surely a joke. I wasn’t worried.
+
+
+
+The hot dog tasted decent. Five minutes passed, then ten. Through the glass, I could see everyone eating. But something was off.
+
+
+
+Nobody was talking.
+
+
+
+I waited for Eli to come out. Twenty minutes. Nothing. I searched the faces, the room. Suddenly, a harsh laugh rang out inside. It sounded off. Shrill, jagged, like someone laughing and choking at the same time. Then another laugh joined it. And another. Soon, the whole place vibrated with something almost like laughter.
+
+
+
+It wasn’t normal laughter. It felt wrong, like something broken.
+
+
+
+I stood, walked closer. Through the glass, people were standing, staring straight ahead. I couldn’t see faces clearly.
+
+
+
+Then one moved toward me.
+
+
+
+My stomach flipped. His mouth was too wide. Far too wide, stretching across half his face, splitting his pale skin, blood running down his chin. Another person stepped up, same horrific grin. Then more.
+
+
+
+Every mouth in the restaurant had changed. Open, enormous, a ragged wound of white flesh, many stained red. Some pressed against the glass, some simply watched me, silent and eerie.
+
+
+
+I scanned for Eli. Couldn’t find her. Called quietly, “Eli?” Barely above a whisper.
+
+
+
+Then I spotted her, hiding behind the others, face obscured. Was she still herself? Had she eaten? I couldn’t tell.
+
+
+
+
+
+I stepped back, heart pounding. And then....a knock.
+
+
+
+
+
+Something tapped the window.
+
+
+
+I looked up.
+
+
+
+The old woman was standing right there, smiling perfectly normally. She lifted one hand, a plate rested in it, scraps of food left. She pointed at the plate, then at me.
+
+
+
+Then her mouth began to stretch. Wider and wider. Then it became the same monstrous, grinning wound.
+
+
+
+Behind her, dozens of mutilated faces crowded the glass. Bloody, smiling, laughing. Among them, I heard Eli's laughter, warped and twisted.
+
+
+
+I bolted. Ran the blocks back to my apartment, lungs burning, hands shaking. Locked myself inside. Sat on the floor, body trembling, mind racing.
+
+
+
+After a while, I noticed I still had the hot-dog wrapper in my hand. I looked down. Spatters of blood on it.
+
+
+
+I touched my lips.
+
+
+
+Red fingerprints.
+
+
+
+I stared at the blood, trying to remember where it had come from. Then I remembered the man who sold me the hot dog. The white shirt. The tall hat.The calm smile. The chef. For some reason I didn't recognise him at that moment. 
+
+
+
+Heart pounding, I raced to the bathroom mirror.
+
+
+
+At first, my reflection seemed fine. For a second, everything looked okay.
+
+
+
+I smiled.
+
+
+
+My mouth started to open.
+
+
+
+And kept opening.
