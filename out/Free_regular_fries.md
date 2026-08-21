@@ -1,0 +1,521 @@
+That was what brought me into Captain Cluckey's that day. I stood there in line behind two middle aged women who were taking a rather long time to place their order. Where is my mind by the Pixies played over the restaurant speakers. Over the music I could hear the man in the dirty ragged clothes out front, still yelling about the end of days. I did my best to ignore him, just like everyone else. I turned back to look out the window, past the ragged man and across the street to the bus station. I thought about how I should have been out of this backwoods town and on my way back to Chicago by now. Unfortunately, my car had broken down a mile outside of the town of Pleasence. The town mechanic said he could have the part in sometime next week, but I had no intention of hanging around that long. Double unfortunately, the bus to the city didn't run until the next morning. So, for the time being, I was marooned here. 
+
+ I glanced down at the receipt in my hand, the attached coupon read, Free regular fries with next purchase. I had gotten a Clucky combo meal earlier that day and with nothing else to do, I decided to grab my extra fries and loiter around town till morning. I was low on cash, so a room at the local motel wasn't in the cards. 
+
+I checked my watch, 7:35PM. “Only about 13 hours to go.” I thought to myself. I glanced up to the ladies ahead of me, still talking over their order. The door chimed behind me and a group of teenagers came in, laughing and talking loudly. I gave them a cursory glance and noticed one of them wore clothes that weren't quite in the style of the others, an old letterman jacket and jeans instead of the tee shirts and shorts the others wore. I noticed the bruising on his throat and made a note to myself to not make eye contact with that particular young man. I was sandwiched between the two chatty Kathys and the obnoxious teenagers and my social anxiety was climbing to a fever pitch. Not only that, but the nicotine itch was beginning to set in. I shrugged to myself and stepped out of line; I was in no hurry after all.  
+
+Stepping out into the warm summer evening, I looked up orange and purple sky. The sky seemed so clear out here away from the city. I pulled my crumpled pack of cigarettes out of the pocket of my thrift store Hawaiian shirt as the ragged man continued his tirade a few feet away from me. I lit my cigarette and continued to ignore him. After a moment he noticed me and stepped over, directly in front of me.  
+
+“THEY ARE HERE! YOU ALL MUST LEAVE THIS PLACE! DON’T YOU UNDERSTAND? THEY ARE BENEATH US! THEY ARE AMONG US! AND THEY WILL COME FOR YOU ALL! YOU THINK YOU KNOW THE TRUTH; YOU THINK YOU KNOW WHAT COMES AFTER BUT YOU ARE ALL WRONG! ALL OF YOU! THEY WILL DEVOUR YOU! THEY WILL HOLLOW YOU OUT AND FILL YOU WITH HATRED AND ROT! ROT! ROT! 
+
+I inhaled the smoke and focused on the setting sun, doing my best to ignore the man's putrid breath as he screamed in my face. I exhaled and watched the smoke drift through the man's face before calmly moving to lean against the restaurant wall. I didn't react to the man, didn't acknowledge him. I couldn't, if I did, he would never leave me alone. Eventually he went back to his place on the sidewalk and started his speech all over again. I glanced over at him, standing there shouting, begging to be heard, preaching his heart out to an absent congregation. I pitied him, what he was. I wondered at the circumstances that brought him to that place.  
+
+After smoking another cigarette and doom scrolling on my phone for a few minutes, I went back inside and found that the line had dissipated. The cashier from earlier was gone, replaced by a pimple faced kid with a name tag that read, Jimmy. His head hung low as I approached the counter. Probably looking at his phone, I thought. 
+
+“Welcome to Captain Cluckey's, how may I help you?”  
+
+His voice carried such melancholy that I assumed those other teens had been giving the poor kid a hard time.  
+
+“I'll take a small soda and a free regular fries.” I said laying the coupon on the counter.  
+
+The kid looked up at me slowly, his eyes finding mine and studying me for a moment. Suddenly his mouth dropped open in a dopey smile and he turned and headed back into the kitchen muttering something about being right back. I stood there, confused. “The hell was that about?” I wondered.  
+
+After a few minutes, the cashier from earlier came out from the kitchen and saw me. 
+
+“Sorry about the wait sir, what can I get you?” He said stepping up to the counter. 
+
+I squinted and looked back to the kitchen, “What happened to the other guy?”  
+
+“Other guy?” He asked. “What other guy?” 
+
+Then it hit me. “Shit.” I muttered under my breath. 
+
+I glanced around the restaurant. The chatty Kathys were nearby, watching me curiously. From their point of view, I had just placed my order to thin air. So, I looked like a crazy person. That was fine, maybe I was. Who the fuck cares? 
+
+I looked back to the group of teens, they were still in their own world, still being obnoxious. But the out of place one, he was watching me now. I did my best not to meet his eyes, but I knew he could see me. He knew I could see him. I fucked up. 
+
+“Looks like it's time to go.” I thought. I turned to head for the door and saw the ragged man standing outside. I needed to compose myself before leaving, I was rattled. I needed to clear my head; be alone for a moment. In the bathroom I splashed water on my face and studied myself in the mirror. I looked older than my 25 years. My shaggy sandy blonde hair was now streaked with silver, and the lines on my face were more care worn than they once were. 
+
+“Hi there!” Came the voice from behind me.  
+
+Jimmy, the other cashier, was there. I tried to act like I didn't hear him, looked through him when I turned around, tried all the usual tricks. But when I went to open the door, Jimmy stepped in my way, and I hesitated. 
+
+“I know you can see me.” He said, his eyes burrowing into mine.  
+
+Yeah, the jig was up. I do my best to avoid these situations, otherwise they never leave me alone, always seems to be just a little more unfinished business. I sighed, “What do you want?” 
+
+He laughed, “How?” He asked. “How can you see me? Can you see others?” 
+
+I shook my head, “Doesn't matter. I can see you, I can hear you. Tell me what you want or leave me alone.”  
+
+“Okay, Okay.” He said. “I'm sorry, I just... I haven't spoken to anyone in... Well, I'm not sure how long. Your car broke down right? It's a small town, people gossip, and all I can do is listen. Well, until now.” He smiled wide. 
+
+I nodded and made a get on with it motion.  
+
+“Well, there are others here. They want what I want, maybe you can talk to them too? I’ll go...” 
+
+“No!” I demanded, grabbing his arm before he could leave. “No others, that's the deal. You already know, I can't change that. I help you and you never mention this to anyone else. Got it?” 
+
+He stared down at my hand on his arm, “Holy crap, you can actually touch me.” His eyes shot up to mine.  
+
+“Thats the deal, got it?”  
+
+He nodded, “Okay, I mean, yeah deal.”  
+
+I let go of his arm; icy pain was radiating up my arm from my hand. I’ll never get used to how it feels to touch the dead, they have substance but at the same time they don't. Like trying to hold on to frozen mist. 
+
+“So, what do you want?” I asked again. 
+
+He smiled, “Well, my name is Jimmy.” He said pointing at his nametag. “And I was murdered.” He turned to show me a series of stab wounds on his back.  
+
+I nodded, “And you want me to find the killer, right?”  
+
+“Oh, no.” He said, still smiling, “I know who it was. He got away with it, but he died a few months ago. Heart attack, and he saw me as he passed. It was very cathartic.”  
+
+“Okay. So, what do you want?” I asked. 
+
+“Weeell. Here’s the thing, and you might want to brace yourself because this is a big ask... What was your name by the way?” 
+
+“My name is Jonas.” I said. “Now please for the love of God, tell me what you want.” 
+
+“Oh, like the Weezer song, neat. Okay, well here goes. So, the man that killed me, also killed several other people around town, mostly just drifters and the like, no one who would be missed. Only he wasn't the only one. He was actually a member of some kind of cult based here in Pleasence. I'm not sure what their practices or goals are, aside from killing lots of folks. But I do know that whatever they are planning, it will be coming to a head soon. I've heard lots of hushed talk about the new moon and rituals and a lot of other such stuff. I think they want to open some kind of doorway to somewhere, but I really can't be sure. You really never can tell with these culty types. So, my request is that you, Jonas, seek out the members of this cult and put a stop to whatever they're cooking up.”  
+
+I took a breath and blew out my cheeks. “So, there's a cult?” 
+
+“Yes.” 
+
+“And they are doing something big on the new moon?” 
+
+He nodded, “Correct.”  
+
+“Which is tonight.” 
+
+His smile faltered a little but didn't go away altogether, “Um, I guess so.” 
+
+I leaned back against the sink and crossed my arms, "So, you want me; one mentally unstable guy, to find and stop a whole ass cult from opening up some kind of doorway or something? And you want me to do it tonight? Like right now? Does that about sum it up?” 
+
+His smile had completely melted away as I laid it all out. He said, “I mean, it sounds like a lot when you say it like that.” 
+
+“Goodbye Jimmy.” I said as I brushed past him and out the door. 
+
+Of course, he followed me, “Hey wait!” He yelled across the restaurant as I made my way to the exit. 
+
+“Don't follow me.” I said over my shoulder. 
+
+“Are you alright sir?” The cashier asked as I passed the counter.  
+
+I ignored him and pushed through the door, also ignoring the still ranting ragged man on the sidewalk. If the kid was right and there really was some kind of cult here, doing something tonight. I wanted to get as far away from here as possible. I was halfway down the block when I heard the dead cashier calling out to me again. 
+
+“I know it's a lot, but what are the odds of you, of all people, showing up here right at this time. Thats either one heck of a coincidence or you are meant to be here. I believe you are here for a reason Jonas.” 
+
+I pulled out my phone and held it to my ear. If anyone happened to be watching, I was just taking a phone call, “I'm here because my car broke down, there is no other reason. Besides even if I wanted to help, it isn't possible. I don't know the first thing about dealing with cults or whatever. Now stop following me.” 
+
+“It is possible if we work together, if we have faith...” 
+
+“Faith?” I laughed, “Faith in what? In people? The universe? “God?” 
+
+“How can you not have faith? With your gift...”  
+
+“Gift? My Gift?” I said, cutting him off. “You wanna talk about gifts, about beliefs?” I shook my head, “Let me tell you a story. See, the original owner of the house I grew up in fell asleep with a lit cigarette in his hand. The house was almost a total loss, but my folks happened to come along and got the place for a steal. Would you like to take a guess which room he died in?” I asked. “Every night he stood the foot of my bed, tears running down burnt and blackened cheeks, going on and on about how he was a good Christian. How he shouldn't still be here. And when he found out I could see him...” 
+
+“What happened?”  
+
+“He screamed, raged, begged me to help him, demanded I help him.” 
+
+“And did you?” 
+
+“I was 9 years old. What the fuck could I have done?” 
+
+Jimmy said nothing so I continued, “It wasn't long after that, he realized he could make physical contact with me.” 
+
+Jimmy winced. 
+
+“Yeah, now he had someone to take out all his anger and frustration on.” 
+
+“Didn't you tell your parents?” He asked. 
+
+“Of course I did, and they sent me to therapy. And therapy led to doctors, which led to medication, then to psyche wards. No one believed me. Do you have any idea how many people die in those places? Do you think they move on when they do?” I shook my head, “I just thought the burned man was bad. Is that your idea of a gift?” 
+
+He began to speak, then trailed off. 
+
+“Yeah, I wouldn't know what to say either. You wanna know what I believe kid? I believe that God, if he's even still around, either hates us or doesn't give a shit about us anymore.” 
+
+‘Thats not true.” He said. 
+
+I chuckled, “Look at yourself kid, if you’re such a faithful believer, then why are you still here?” 
+
+“I don't know!” he shouted, “But there has to be a reason, I have to believe I'm here for something.” 
+
+I shrugged at him and turned to leave. “Sorry, kid. I'm all out of Faith.” 
+
+“Please, Jonas.” He continued. “Fine, don't do it for me, or faith or God or any of that. Do it for the innocents that haven't died yet.  Please help me stop them from killing anyone else.” 
+
+I stopped. I didn't want to deal with this, didn't want to know about some cult in the middle of nowhere. But now I did, and if he was right, people could die tonight, innocent people. How would I feel if I could have stopped it and didn't? What would that kind of decision do to whatever is left of my own soul. Shouldn't I at least look into it and see if anything can be done. I sighed, “God dammit.”  
+
+Jimmy smiled when I turned around. 
+
+“Where and when is this ritual happening?” I asked. 
+
+“So, you'll help?” 
+
+“I don't know. I don't know if there's anything I can do. But I have nothing else to do and nowhere to go so I might as well check it out. So, where's it happening?” 
+
+He shrugged, “I don't know for sure where, but it has to be happening soon right?” 
+
+I looked as the last rays of sunlight sank below the horizon, “Yeah, I'd say so. Okay, do you know of any other members of the cult? Where do they live?” 
+
+Jimmy thought for a moment. “I know that Mr. Paterson, the school science teacher, and Greasy Bob, the guy who runs the gas station, are both members. I've heard them discussing some horrible things inside Cluckey's. But I've never been to where they live, you'd have to go without me.” 
+
+“Shit.” Funny thing about ghosts, if they had never been there when they were alive, they can't go there when they're dead. “No, if I'm doing this, I'll need someone watching my back.” 
+
+Just then flashing red and blue lights pulled up next to me and stopped. Jimmy stood there, his legs vanishing into the hood of the town sheriff's car. 
+
+“Evening son.” He said it friendly enough, though he eyed me suspiciously.  
+
+“Evening.” I nodded back in greeting. “What can I do for you officer.” 
+
+He pushed an oversized cowboy hat up on his head, “Well we got a call about somebody out here by the Cluckey's having conversations with himself. Would you happen to know anything about that?” 
+
+I smiled, “Oh yeah, sorry about that. I must look like a crazy person. I was talking on the phone; I have a Bluetooth earpiece.” I said pointing at my ear, which was fortunately covered by my long hair. 
+
+The sheriff nodded, “Oh I see. Well, I suppose that makes a little more sense. Although, you're not from around here, are you? What brings you to town?” 
+
+“No sir, my car broke down and is in the shop here. Should be fixed sometime next week but I'm leaving on the bus in the morning.” 
+
+“Okay, so where are you staying tonight?” He asked. 
+
+I shrugged, “Honestly, I haven't quite figured that out yet.” 
+
+He studied me for a moment, “Well we have a fine motel in town, and if needs be we have a cell or two empty at the station. Come on by, if you can't find somewhere. It aint the Ritz but you won't be on the street.” 
+
+I smiled and nodded, “Thank you sir, I might just do that.” 
+
+He nodded back, “Tell them Sheriff Reed sent you.” And with that, he drove off, leaving me alone again, sort of alone. 
+
+“I got it.” Said Jimmy. “Old Mrs. Thompson. She runs the pharmacy, and she used to give me piano lessons when I was a kid.” 
+
+“And she's part of the cult?” I asked dubiously. 
+
+“I mean, I don't know for sure. But she was always such a hateful woman, and I did see her talking with the science teacher and greasy Bob a few times.” He shrugged, “Although everyone around here talks to everyone at some point, could be just coincidence.” 
+
+“Do we have any other options?” I asked 
+
+He shrugged again, “Not really.” 
+
+“Okay then.” I said, “Let's go see old Mrs. Thompson, the evil pharmacist.” 
+
+ 
+
+Ten minutes later, we were standing in front of a large old farmhouse with a long winding fence lined driveway, complete with a dilapidated red barn and grain silo. 
+
+“This is the place.” Said Jimmy. “So, what's the plan?” 
+
+“Does this place look too picture perfect to you?” I asked. 
+
+“What do you mean?”  
+
+I shook my head, “Never mind. So, what happened to Mr. Evil pharmacist?” 
+
+“Oh, he passed years ago. Poor man had a stroke while tending the field.” 
+
+“A stroke huh?” I asked. Turning to look at him halfway up the long dirt drive. 
+
+“Yeah, bless his heart.” 
+
+“I'm guessing you haven't been back here since you died?” 
+
+“No, why?”  
+
+I stopped and pointed towards the barn, “Because he's still hanging from the tree next to the barn.” 
+
+He looked to where I was pointing to see the late Mr. Thompson. He was in fact still there; his hands bound with the same blue nylon rope as was around his neck. His eyes bulged as they followed us up the drive.  
+
+Jimmy’s mouth dropped open in shock, “Well that dirty rotten liar. Why would he go and do a thing like that?” 
+
+“Look again kid, most people don't bother tying their hands to kill themselves.” 
+
+He gasped, “That means...”  
+
+I nodded. 
+
+Jimmy shook his head, “Poor Edgar. Well, that seals it, she has to be one of them.” 
+
+“I think you're right.” I said pointing to the house.  
+
+The old woman stepped out of the front door and walked over to an old pickup; she was wearing some kind of dark cloak or robe. She started the truck, and the headlights illuminated the drive. 
+
+“Get down.” I said as I ducked behind a bush next to the fence line, then realized who I was talking to and mentally kicked myself. I took the kick back when Jimmy did in fact get down behind the bush next to me. 
+
+The truck passed, probably going to wherever the ritual would be taking place. I briefly considered diving into the truck bed as it passed but quickly dismissed the idea. It was moving too fast, and I didn't think I was stealthy enough to get in without making a sound. 
+
+When we were sure the truck was gone, we made our way to the farmhouse. I was hoping I could find some clue as to where the ritual would be.  
+
+Jimmy stepped through the front door and waved to me through the glass; I grinned and flipped him off.  
+
+“Can you see anything?” I asked. 
+
+“I don't know what to look for.” He said waving his arms.  
+
+I sighed, “Are there any schedules or notes stuck to the fridge that say big secret cult thing at this time. Anything like that?” 
+
+“No, nothing here in the front room, which is the only room I have ever been in. Well, and the bathroom one time but I don't think we will find anything in there.” 
+
+“Damn. Okay, I’ll find a way in.” 
+
+I was hoping this was one of those country towns you hear about, where everyone is so friendly they don't even bother locking their doors. Unfortunately, I was disappointed with a locked and deadbolted front and back door. But not totally disappointed, I found one of the side windows had been left cracked open.  
+
+I slid open the window and looked in, it was the kitchen. I climbed inside, careful not to knock over any of the dozens of dishes stacked precariously by the sink. I looked around the kitchen and dining room. Apparently there had been some big feast here, and all of the food was just left out. 
+
+“What the hell?” 
+
+“What is it?” Jimmy called from the front room. 
+
+“Is Mrs. Thompson a bit of a slob?” 
+
+“What? No not at all, she's always been very tidy.” 
+
+ “It looks like she had company, like a lot of company. A big dinner or something but they didn't clean any of it up. All the food and dishes are just left out.” 
+
+“Why would they do that?”  
+
+“I'm not sure, unless they thought there was no need to clean up.” 
+
+“Like they weren't coming back.” Jimmy continued. 
+
+I left the disaster of a kitchen and made my way into the front room. Jimmy was staring out the window at Mr. Thompson, dangling from the tree. 
+
+“Isn't there something you can do for him?” he asked. 
+
+I shrugged, “I don't know, he most likely can't speak, and even if he could, he seems to be bound there.”  
+
+I started searching through the papers on Mrs. Thompsons desk. Out of the corner of my eye, I saw Jimmys head sink low. I cleared my throat, “I'm hoping, that stopping whatever his wife is doing will be enough to set him free.” He nodded slightly, and I went back to my search. 
+
+“Anything yet?” Jimmy asked as I came back from searching the bedroom. 
+
+“No.” I grumbled as I plopped down on the couch and pulled out my cigarettes. 
+
+“Oh Mrs. Thompson hates smoking, you shouldn't...” He started then stopped when he saw the look I gave him. He nodded and smiled awkwardly, “Right, evil cult lady. Wish I could have one, really stick it to her.” 
+
+I lit my cigarette and chuckled. “How did you die anyway?” I asked. 
+
+He looked down at his feet for a moment then took a calming breath, “Well, it was a typical Tuesday night for the most part, only we weren't as busy as we usually were. My boss, Dave, told me I could take the night off early. He said he was gonna close soon anyway, had some work to do at the church or something. I thanked him and headed out the door. I had been home for about an hour when I realized that I forgot to clock out. I was tempted to just say “Oh well” and fix my timecard on my next shift... But I always had to be a goody two shoes, that's what my brother used to say anyway.” He took another deep steadying breath before continuing.  “When I walked back into the office to clock out, I noticed the back door was open. I could hear voices but couldn't make them out. So, I got closer and peered out through the open door. Dave was there, but he wasn't alone. Greasy Bob was there, and another man that I didn't know, He was an older man, with white curly hair and dirty clothes. They had him hogtied in the bed on Bobs truck. He looked up at me and moaned something through the duct tape covering his mouth. I don't know what it was, but his eyes pleaded for me to do something. Dave had been telling greasy Bob something about where to take the man, but he stopped at the man's moans for help. They turned around and saw me and I ran, I tried to anyway, but I wasn't quick enough.” He sighed, long and sad, “And that was the end of me.”  
+
+I breathed out a lung full of smoke, “Fuck... I'm sorry.” 
+
+He nodded and continued, “Afterward, when I figured out I was dead, I learned about the cult. Like I said, Mr. Paterson and greasy Bob would come into Cluckey’s and discuss things. And there were always rumors around town about...” He trailed off. 
+
+I looked up at him, “What?”  
+
+“The rumors, I never thought about it until now but...” 
+
+“What rumors Jimmy?” I demanded. 
+
+He was pacing the floor, “The old chapel on the edge of town. When I was a kid the older teens at school always used to tell us stories about it being haunted, but I never really believed any of it.” 
+
+I gave him a look that said, “Really?” 
+
+He shrugged, “Well, that was before. And I still don't think its haunted, I mean maybe it is but that's not all. They used to tell stories about seeing dark hooded figures coming and going from the chapel on certain nights. Holy crap, Jonas. I think that's the ritual site.” 
+
+He smiled and put up his hand for a high five, “come on Jonas, let’s go stop a cult!” 
+
+I grinned and got up, putting my cigarette out on the couch and slapping his hand, “Lets fucking go.” 
+
+We left the Thompson house and headed for the old chapel. I checked my watch, 9:40PM. “Still a couple hours till midnight.” I thought to myself. I had no idea if midnight mattered but it seemed like the time to do culty ritual shit to me. 
+
+ 
+
+It took about 25 minutes to walk across town to the old chapel, even at a brisk pace. We were about 100 yards away from the chapel when Jimmy came to a dead stop. 
+
+“What are you doing?” I asked turning back to face him.  
+
+“I can't go any farther.” he said demonstrating by walking forward and not actually moving. “Other kids would go to the chapel on dares, but this is as far as I ever made it.” 
+
+“God dammit.” I muttered, “Okay. Well, I guess I’ll go see what I can do. You stay here and keep a watch out.” 
+
+“For what?” He asked. 
+
+“I don't know, just yell if you see anything.”  
+
+“What are you going to do?”  
+
+I shrugged, “I’ll figure something out.”  
+
+I crouched down in the tall grass by the road and crept up to the big creepy old building. “What the fuck am I doing?” I kept asking myself. 
+
+The old chapel was, old to say the least. It had once been painted white but was now almost all bare wood, only a few chips of paint still clung to the weathered boards here and there. The windows looked like they had all been broken and boarded up, and a faint orange light poured out from between the boards. The steeple stood tall but warped at an odd angle, and the large cross that stood up on it was partially broken off, making it resemble a capital T. 
+
+I could hear hushed voices inside, chanting low and ominously. I crept up to a window and tried to see inside but my view was blocked by old pews shoved against the sides. Through the boards, I could see the ceiling of the chapel, there was a large hole in the roof. If I could get up there, I could get a better view of what was happening.  
+
+I crept my way around to the back of the building and found the old Mrs. Thompson's pickup. Luckily it had been parked right up next to the building. I climbed on top of the truck's cab as quietly as I could, then scrambled my way onto the roof, a little less quietly. The roof boards creaked under my weight, and I held my breath, hoping no one had noticed. When there was no sign of anyone coming to see what the noise was, I made my way further up the roof, crawling on my belly. 
+
+When I reached the edge of the hole, I peered down to see a dozen people. Most of them were dressed in dark robes with hoods up. They walked in a circle around a large pentagram drawn on the floor. Another man stood at the alter holding a large leatherbound book. He wore a white robe and hood. I leaned out to see better and the boards began to creak more. Suddenly they gave way, and I fell down into the midst of them in a heap of rubble, luckily some poor bastard broke my fall.  
+
+The assembled cultists jumped back at my sudden arrival, then one by one, they all gathered round to look down at me. 
+
+“So, I guess this isn't AA?” I said between coughs. 
+
+“You!” Said the man in white, who I guessed was the leader.  
+
+He removed his hood and glared at me; it was Sheriff Reed.  
+
+“Evening again, officer. I think I'll take that cell now.” I said as I climbed to my feet. 
+
+“The son of a bitch killed Bob.” Said one of the cultists behind me. 
+
+“What the hell are you doing here?”  
+
+“I was gonna ask you the same thing?” I said, “But I think I already know.” 
+
+He squinted at me, “Whatever you think you know, you're wrong.” 
+
+“So, you're not trying to open a doorway to hell and let out a whole bunch of nasty shit? Pretty much fucking up the whole world.” 
+
+The cultists around me started muttering to each other. 
+
+“We are doing the world a favor. I know you can't see that, but you will.” He said as a smile spread on his face. “You will soon see firsthand. Since you robbed us of one of our number, your blood will have to do.”  
+
+I looked back to see the cultist I had landed on; his neck twisted at an unforgiving angle. “Oops.”  
+
+“Hold him.” Said the sheriff. 
+
+I looked around and recognized one of the hooded figures approaching me. 
+
+“Hey Mrs. Thompson. Edgar says hello, or at least he would if the rope hadn't crushed his throat.” 
+
+She stumbled back in surprise, “What? How...”  
+
+But I didn't wait for her to finish. My foot shot out, connecting with the nutsack of the man in front of me. He crumpled to the ground as I pivoted and threw a punch at the next cultist, their nose crunched audibly and blood splattered Mrs. Thompson. Unfortunately, that was about all the damage I managed to do. I tried to fight but there were too many. suddenly, something hard impacted the back of my head and the last thought that ran through my head as my vision went dark was, “Well, shit. This is how I die.”  
+
+ 
+
+I came to some time later. My hands cuffed around a pillar at the back of the chapel. The cultists were chanting something in some language I couldn't understand, maybe Latin? I wasn't sure. I could feel blood, sticky on the side of my face. I tried to move but the cuffs would let me get far. 
+
+“You’re awake.” said the sheriff. “Just in time.” 
+
+I stood, as well as I could, “In time for what? To watch you fuck up the whole world?” 
+
+“To watch us save it. And you, whoever you are, get to be a part of it. Though you don't deserve it.” 
+
+The sheriff went back to his place behind the alter and raised his hands addressing the assembly. “My friends. Tonight is the long-awaited night. You have all worked so hard to get us to this point and I am so very grateful to you all.”  
+
+The cultists gave polite cheers and applauded. 
+
+“This world is sick my friends, and it will only get sicker. We must stop it. We must bring about the great cleanse.” 
+
+They applauded louder. 
+
+“Just as God cleansed the earth with the great flood, we must now bring upon it the power of the cleansing flame! Only then will the world know true peace and righteousness again!” 
+
+The cultists shouted with joy. 
+
+“The hour approaches, bring out the sacrifice!” 
+
+The cultist came and uncuffed me from the pillar, I tried to get away but it was no use. They drug me to the center of the pentagram. Sheriff Reed approached me, the book and a knife in his hands. 
+
+“You must have really bad luck son. You see, Bob there had volunteered to be the sacrifice. But since you decided to drop in and break his damn neck, looks like you’re it.” 
+
+I squirmed in the cultists grip, “How do you even know this will work? Don't I have to be willing or something?” 
+
+Someone punched me in the gut, causing me to gasp for air. As he approached, he pricked his finger with the knife. My shirt was ripped open and began drawing something on my chest. 
+
+“Doesn't say anything about willing, only that the sacrifice be marked with the sigil. Which now, you are.” 
+
+The sheriff opened the book and began reading a passage. The language he spoke, it made no sense, it hurt my head to hear. My vision blurred and cleared then blurred again. I thought I would pass out, then I saw it. Through the hole in the ceiling of the chapel, stood a huge, emaciated figure. Towering high and blocking out the night sky, its flesh the color of ash. Two massive wings spread out, flexing and stretching, eager to take flight. There were charred and broken skeletons dangling from the thing's coal black antlers. Its face was like that of a jackal and its eyes were deep set and burning with a fire so hot I could feel the heat from them. As it looked down at me, I saw visions of scorched cities and towns, the oceans boiled and the whole world burned. I knew that there would be no peace on earth, there would be nothing left but ash and ruin if this thing got out. I could not let that happen. 
+
+I looked back at Sheriff Reed just in time to see him plunging the knife straight at my heart. I had no other choice. I did something I absolutely hated. Something I had only done once before. I clenched every muscle in my body, and I shifted myself out of the living plane. Every cell in my body screamed out in agonizing pain. It felt like dying, which I guess it kind of was. I could only hold it for a few seconds, but it was enough. The knife passed through me and into the chest of the cultist behind me. I shifted back and fell to the floor, looking back at the cultist with the blade buried in his chest.  
+
+Everyone gasped, the sheriff started to say something but was cut off by the cultists blood curdling scream. His body began to stretch and expand as skin ripped, and bones snapped. Suddenly his eyes caught fire, and his body exploded. Showering everyone with chunks of gore. Just as quickly, the cultist who had been next to him began screaming as his eyes caught fire. I jumped to me feet and ran for the door. I heard the wet pop as the next one exploded and the screaming continued. I shoved through the door and slammed it closed behind me. Maybe I'm an asshole for barring the door shut with them inside. But I did it anyway.  
+
+One by one the screaming stopped, accompanied by the sound of 9 more people exploding from the inside out. Then came a great deep howling roar that seemed to shake the earth, car alarms went off, dogs and coyotes howled in the distance. The tone was so low, I felt like my eardrums would burst. There was the sound of strong winds like a hurricane, heat radiated from the edges of the chapel door. Then all at once the roaring and wind sound faded away into nothing. 
+
+ After a few minutes, when I was pretty sure it was all over, I opened the door and stepped inside. The blood and gore that had to have covered the place was burnt to ash, but the robes lay there still, empty and smoldering but whole. I walked across the floor to what stood at the center of the ash covered room. The book, it completely unharmed. I bent down to pick it up and read the inscription on the cover, Liber Vitae, Mortis et Ultra. “Whatever that means.” I thought. No clue how those yokels got ahold of something like this, but I figured I had better hang on to it. Wouldn't want it to fall into the wrong hands, again. 
+
+Jimmy was standing there waiting for me as I approached, “Jonas! Are you alright? What happened? And what was that thing standing over the chapel? “And why are you covered in blood? Eww” 
+
+I laughed and patted him on the shoulder, “Let's get out of here, I'll tell you on the way.” 
+
+On the way back into town we stopped by a pond where I rinsed the blood off of my shirt and out of my hair, didn't need anyone asking complicated questions. Jimmy was doing enough of that already. I told him what had happened and how I stopped the cult through sheer stupid luck.  
+
+“You mean you went ghost mode?” he asked, grinning like a kid. 
+
+I shook my head, “First off, that's fucking stupid and I'm not calling it that. Second, I really don't know what it is or how I do it. It just seems to be something I can do, though it hurts like hell and I never want to do it again.” 
+
+A firetruck passed as we walked back up the street towards the bus stop, it looked like it was headed for Mrs. Thompsons place.  
+
+We sat together on a bench next to the bus station and talked for a while. Jimmy told me stories about his life growing up in the small town, we laughed and joked together. I wondered to myself what was still keeping him here, I had assumed that once this was over, he could move on.   
+
+It turned out I had been unconscious for longer than I first thought. My watch and phone had broken at some point, so I had no clue what time it actually was. As we sat there talking like two old friends, I could see the first rays of the sun peaking over the treetops. 
+
+Jimmy stopped halfway through a story; his eyes focused on a man a few blocks away. The man was maybe in his mid 50s, with thinning gray hair and a thick mustache. The man stopped to unlock the front door of a hardware store. I looked back to Jimmy and saw tears in his eyes. 
+
+“Your dad?” I asked. 
+
+He nodded, “We had a fight, just before I...”  
+
+Now I understood. 
+
+“I told him I hated him, that I couldn't wait to get away from him. But, I didn't mean any of it, I was just angry.” 
+
+“What was the fight about?” I asked. 
+
+Jimmy shrugged, “I can't even remember, we fought so much about anything and everything, we were just so different. I’d give anything to take it all back.” 
+
+I nodded and got up. 
+
+“What are you doing?” 
+
+I didn't answer, just kept on walking. I stepped through the doors of the hardware store the man had entered and saw him behind the counter a thermos of coffee in one hand and a newspaper in the other.  
+
+“Excuse me, sir.” I said stepping up and clearing my throat. 
+
+He smiled, “Early bird huh? What can I help you with today?” 
+
+“Um, you don't know me, and this is gonna sound a little strange, but I knew your son, Jimmy.” 
+
+He blinked and looked me over, “Okay.”  
+
+“I just wanted to tell you that he was a good friend. He had a great heart, and he spoke very fondly of you.” 
+
+The smiled sadly, “You must not have known him too well. We didn't really get along, especially near the end.”  
+
+“Everyone has rough patches, that's part of life. He loved you; he may not have shown it at the time. But he always loved you.” 
+
+There were tears in the man's eyes, but he held them back as he nodded again. “Well, thank you, young man. I really needed to hear that.” 
+
+Jimmy was standing outside, waiting for me, tears in his eyes as well. “Thank you, Jonas. Thank you for that.” 
+
+I just shrugged and looked at the rising sun, “Morning already, I'm starving.”  
+
+“Oh hey, you still have the coupon.” he said. 
+
+I dug around in my pocket and pulled out the receipt, crumpled and with a drop of blood on one corner but still readable. I smiled. 
+
+“One small soda please, and my free regular fries.” I said, placing the coupon down on the counter. 
+
+The cashier took it and looked it over, before hissing through his teeth, “Ooh sorry sir, this coupon is only good if you purchase a Cluckey combo.” 
+
+I sighed, “Really?” 
+
+He nodded and slid the coupon back across the counter to me, “I'm afraid so.” 
+
+“So, I have to buy a combo with fries to get the free fries?” 
+
+“That is correct sir.” 
+
+I shook my head and laughed. 
+
+“Would you still like the small soda?” he asked. 
+
+ 
+
+I stepped out of Captain Cluckey’s, small soda in hand. “Yo Jimmy, you're not gonna believe this.” 
+
+... 
+
+“Jimmy?” I said again. 
+
+... 
+
+I glanced around for him, but I already knew. I smiled and chuckled to myself, as I pulled out my last cigarette and headed for the bus station.  
+
+“Goodbye Jimmy.” 
