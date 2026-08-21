@@ -1,0 +1,45 @@
+Hello, apologies in advance if my writing is poor, this is my first time documenting what’s been happening.
+
+I’ve recently moved in to a new neighborhood after a really hard divorce, and I’ve been looking to start a new life. The houses are dirty, the streets are old and sun damaged, but it was cheap. I finished unpacking my boxes about 3 weeks ago, and I’ve been working at a local supermarket. I typically leave my house at 8:30 and get home at 7:00. I keep to myself often and I don’t know any other people in the neighborhood.
+
+a few days ago I received a basket outside my doorstep. It seemed to have assorted goods of random origin, ranging from a tape measure to an old ant farm. The basket had a piece of cardboard taped to the side, but it had no writing on it.
+
+I brought the basket inside and went through its items, getting more confused with each one. There was a picture frame with no image inside, an eaten apple, and a gift certificate to a beauty salon. I was almost certain whoever left it for me just grabbed the stuff from a dump. Not to mention, all of it was ever so slightly sticky.
+
+I was pretty weirded out by the gift, but I just threw it out without much of a second thought.
+
+When I got home the next day, I saw that another gift basket was outside my door. I was very skeptical as to who might be leaving these baskets, and didn’t want to bring it inside until I had an answer.
+
+Throughout my entire time of living in the neighborhood, I had never talked with my two next door neighbors. Both houses seemed to keep to themselves, and I was pretty ok with that, but after receiving the second basket, I decided it might be best to meet them face to face.
+
+I went to my neighbors house on the left and knocked on the door; I waited a few moments longer and knocked again. I heard a few locks undo (kinda like in tv shows) and the door flung open. On the other end was a very thin, young woman.
+
+I greeted her and asked if she has been leaving any gift baskets by my doorstep, she simply replied with “hell no”
+
+I was a bit confused, as that didn’t seem like the most common answer, but before I could say anything else, the woman closed the door and locked up again. To say I wasn’t frozen in thought for a few seconds would be a lie.
+
+The woman was insanely thin, but very tall. She had tired looking eyes and an overall sad look, like she had just finished crying. Her skin was flustered and she had short red hair. From the time I had to look at her, she seemed to be around 30.
+
+After the strange encounter with the woman, I moved to the other next door neighbor. I knocked on their door, and they opened almost instantly, that startled me, but I quickly recovered.
+
+The man behind the door was very heavy, and seemed to have that same sad expression that the woman had, only I could see visible tears streaming down his cheeks. He was wearing a dirty yellow T shirt, and black shorts. I asked the man if he had been leaving any gift baskets in front of my door, but before I could finish, he let out a yelp and closed the door. I could hear him violently sobbing after that, it was pretty frightening.
+
+It was dark by now, and I went back to my house, where I could see that instead of one basket, there was now three. At this point I was pretty confused, who the hell was leaving these baskets, and why? If they had contained meaningful gifts, then I would appreciate it, but from what I saw, it was just more assorted garbage.
+
+I took the baskets straight to my garbage can and threw them out, and clocked out for the night.
+
+The next morning, or the day before yesterday, I woke up, made coffee, got dressed, and headed out for work. What lay before my door were 5 baskets of garbage.
+
+At this point I thought some pranksters were just getting a good laugh, but this time was different, this time the baskets reeked of a putrid stench.  
+I tossed them out one at a time, almost gagging at the smell. Whoever was doing this certainly thought it was funny. I went to work and returned to two baskets, smelling just as they did before.  
+I could tell these baskets were emptier than the others, only having about 3 things each. At this point I was getting angry, this was getting out of hand. My garbage was too full to throw them out, so I just left them by the curb.
+
+I was preparing to go to sleep when I had an idea, what if I watched out the window tonight, to see who was leaving the mystery baskets? I made some coffee, and I sat down. I waited for hours, watching YouTube and listening to music, when the culprit appeared. A man in a black hoodie quickly ran out from the nearby forest, holding a flashlight and a single basket, he dashed over to my doorstep and left the basket, then casually walked away, slow and steady.
+
+Now, at this point I was watching through the blinds, so he didn’t see me in the window, but because of that I didn’t get a clear view of his face. He was slender, and VERY quick. At this point I was tired, and went to bed thinking I’d deal with it in the morning, but so certainly wasn’t expecting what happened yesterday.
+
+I was woken up at around 6:00 by a pounding at the door, followed by more intense knocking. I got out of bed, put on a robe, and checked to see who it was. It was the sheriff.
+
+I asked him if everything was ok and he said that I was reported for a murder, and he came by to see what the meaning was. I frantically told the man that I hadn’t done anything wrong, and that I would never, ever commit such a crime, but he just stared coldly.
+
+He asked me why I had the belongings of the deceased person outside my home.
