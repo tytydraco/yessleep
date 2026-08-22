@@ -1,0 +1,131 @@
+I moved into Apartment 4B because I was broke. That’s the least interesting part of the story, but it’s important. The building was called Ashbury Court, although there was nothing remotely court-like about it. It was a six-storey concrete block wedged between a laundromat and a tyre shop. The hallway always smelled faintly of wet cement, cigarette smoke, and something sweet that I could never identify. The rent was suspiciously low. The landlord, Mr. Rao, explained this by saying the building was old. I should have asked why it was *that* cheap. I didn't.
+
+The first thing I noticed about 4B was the wall behind my bed. It was unusually thick. When I knocked on it, the sound didn't echo like it did from the other walls. It sounded dull and hollow, as though there was a room on the other side. I asked Mr. Rao about it while he was helping me carry in a mattress. “What's next door?” “4C.” “Anyone living there?” He paused. “No.” “For how long?” He looked at me strangely. “Why?” “Nothing. Just curious.” He shrugged. “It's been empty.” That was the end of the conversation.
+
+For the first two nights, nothing happened. On the third night, I woke up at exactly 2:13 a.m. I don't know why. There wasn't a noise that woke me. I simply opened my eyes and found myself staring at the ceiling. My room was completely dark. Then I heard it. Three knocks from the wall behind my bed. *Knock. A pause. Knock. Another pause. Knock.* I sat up. I waited. Nothing. I told myself it was plumbing. Old buildings make strange noises. I lay back down. Five minutes later, it happened again. This time I heard something afterward. A woman's voice. Very faint. “Please.” I didn't move. I listened. Nothing. I grabbed my phone and turned on the flashlight, even though that was completely useless against a wall. I stared at it until morning.
+
+At 7:42, I messaged Mr. Rao. *hey, sorry for the early message. is there someone in 4c? heard knocking last night.* He didn't reply. At 8:01, I sent another message. *seriously, someone sounded like they were asking for help.* He called me immediately. “Did you answer?” His voice sounded different. Not annoyed. Afraid. “No.” “Good.” There was a long silence. Then he said, “Don't knock on that wall.” I laughed nervously. “Okay?” “I'm serious.” “Why?” Another pause. “Just don't.” Then he hung up. I almost moved out that afternoon. Almost. Instead, I went to work. Because apparently adulthood is mostly ignoring supernatural warnings because you have a shift at nine.
+
+The next night, nothing happened. Neither did the night after. I started convincing myself I'd imagined it. Then, on the sixth night, at 2:13 a.m., there were three knocks again. This time I was awake. I was lying completely still. Then the voice came. “Please.” It sounded closer. Not through the wall. Inside it. I whispered, “Who's there?” The knocking stopped immediately. I regretted speaking the second the words left my mouth. For almost a minute, there was absolute silence. Then something scratched the wall. Slowly, from left to right, like fingernails dragging across the inside of it. Then I heard a voice. My voice. “Who's there?” I stopped breathing. It repeated me perfectly. Same pitch. Same hesitation. Same tiny crack in my voice. “Who's there?” I got out of bed and ran into the living room. I slept on the sofa with every light on.
+
+The following morning, there was a new message from Mr. Rao. *Did you speak to it?* I stared at the screen. Then typed: *what is it?* He didn't answer for almost an hour. Finally: *Do not speak to it again.* I called him. He didn't pick up. I called six times. Nothing.
+
+That evening, I knocked on the door of 4C. There wasn't anything unusual about it. Same peeling blue paint. Same brass number. 4C. I put my ear against the door. Nothing. I knocked. “Hello?” Silence. I knocked again. “Is anyone there?” Nothing. I was about to leave when I heard something. Three knocks from the other side. *Knock. Knock. Knock.* I stepped backward. Then someone whispered, “Please.” I ran downstairs.
+
+Mr. Rao was sitting in the lobby. He looked at me. “You went to 4C.” It wasn't a question. I nodded. He sighed. “Come upstairs.” We sat in his office. He locked the door. Then he told me about the previous tenant. Her name was Meera. She had lived in 4B for eight months. One night, she reported hearing knocking from the wall. Three knocks. Every night. Eventually, she started answering. At first, she'd knock once. The wall would knock twice. She'd knock twice. It would knock three times. Then she started having conversations with it.
+
+“She thought someone was trapped in 4C,” Mr. Rao said.
+
+“Was someone?”
+
+“No.”
+
+“Then what was making the noise?”
+
+He looked at me.
+
+“We don't know.”
+
+“What happened to her?”
+
+“She disappeared.”
+
+“Disappeared how?”
+
+“She left her phone. Her wallet. Her clothes. Everything.”
+
+“What do you mean, disappeared?”
+
+“The police assumed she ran away.”
+
+“And you?”
+
+He looked toward the ceiling.
+
+“I knew better.”
+
+I asked him what happened after she disappeared. He didn't answer. Instead, he asked me, “Has it spoken in your voice yet?”
+
+I nodded.
+
+His face went pale.
+
+“How many times?”
+
+“Twice.”
+
+He stood up.
+
+“Pack your things.”
+
+“Why?”
+
+“Because it's learned you.”
+
+I laughed. Not because it was funny. Because I didn't know what else to do.
+
+“What does that mean?”
+
+He looked directly at me.
+
+“It can't leave the wall.”
+
+I waited.
+
+“So?”
+
+“It needs someone to answer it.”
+
+My stomach dropped.
+
+“Why?”
+
+“Because every time you answer, it learns something.”
+
+“What?”
+
+“Your voice. Your breathing. Your words.”
+
+He swallowed.
+
+“Eventually, it learns enough to sound like you.”
+
+I didn't sleep that night. At 2:13, there were no knocks. Instead, my phone rang. Unknown number. I answered without thinking. There was silence. Then my own voice whispered, “I'm scared.” I hung up. The phone rang again. I didn't answer. Again. Again. Again. Eventually it stopped.
+
+I sat in the darkness until sunrise. Then I noticed something. There was a voicemail. I played it. For the first few seconds, there was only static. Then I heard breathing. Then my voice. “I'm scared.” A pause. Then: “I'm hungry.” Another pause. Then: “I can see you.” I dropped the phone.
+
+The bedroom wall was moving. Barely. The wallpaper near the bottom was bulging outward. Something was pressing against it from inside. A hand. I could see the outline of five fingers. Slowly, the fingers dragged downward. The wallpaper tore. Behind it wasn't concrete. It was darkness. A narrow space. A cavity running through the wall. And inside that cavity were dozens of photographs.
+
+I pulled one out. It was a picture of Meera sleeping in my bedroom. Another showed her sitting on my sofa. Another showed her standing in the kitchen. All of them were taken from inside the wall. Then I found one of myself. It had been taken three nights earlier. I was asleep. The photograph showed the bedroom from inside the wall. And standing beside my bed was Meera. She looked exactly the same as in the old photographs. Except her mouth was open impossibly wide. And inside her mouth was another face. My face.
+
+I dropped the photograph. Something whispered from inside the wall. My voice. “Please let me out.” I ran. I didn't pack anything. I didn't even lock the door. I went straight to a hotel and stayed there for three nights. Then I changed my number. I blocked Mr. Rao. I told myself it was over.
+
+Six months passed. Nothing happened. I moved into a different apartment across the city. I started sleeping normally again. Eventually, I stopped thinking about Ashbury Court. Until last night.
+
+At exactly 2:13 a.m., I woke up. Three knocks came from the wall behind my bed. *Knock. Knock. Knock.* I didn't move. I don't know how it found me. I don't know how it followed me. But then I heard something that made me start crying. A woman's voice whispered from inside the wall. “Please.” It was Meera.
+
+Then another voice spoke.
+
+Mine.
+
+“Please.”
+
+Then another.
+
+And another.
+
+Dozens of voices. Men. Women. Children. All whispering the same word from inside the wall.
+
+“Please.”
+
+I sat there until morning.
+
+At sunrise, I finally got the courage to look at the wall. There were four words written on it. Not scratched into the paint. Written in fresh blood.
+
+**YOU ANSWERED ME FIRST.**
+
+And underneath it was a fifth word.
+
+One I don't remember saying.
+
+**THANKS.**
