@@ -1,0 +1,457 @@
+It has already been the fourth night since the bodies started disappearing.
+
+ASI Arman and I have been doing everything we can to figure out what is happening. I just came back from another report of a missing corpse.
+
+This time, it was taken straight from a mortuary van.
+
+The van had crashed into a tree in the middle of the night while transporting a body. The driver died at the scene, but somehow his assistant survived. He was taken to the hospital, although judging from his injuries, I don't think he'll make it.
+
+I'm writing this because I can't sleep. There are too many thoughts running through my head right now.
+
+I just hope someone here might know what is happening.
+
+I'll start from the beginning.
+
+I'm a Sub-Inspector in a small city in West Bengal. I was transferred here four years ago, and in all the time I've worked here, there has never been a single report of a corpse being stolen.
+
+That changed four nights ago.
+
+During night duty, ASI Arman and I went on our scheduled patrol. The roads were almost completely empty. Every few minutes, a truck carrying sand would rumble past us, its headlights briefly lighting up the road before disappearing into the darkness.
+
+We were planning to pass the government hospital and stop at a tea stall nearby to get something to eat.
+
+As we got closer to the hospital, we heard people shouting.
+
+Someone was screaming for help.
+
+When we reached the front gate, we saw a crowd gathered outside. Several people were surrounding a man and beating him while cursing.
+
+I got out of the Jeep and walked toward them.
+
+The people who noticed our uniforms immediately moved aside.
+
+In the middle of the crowd was a bald man lying on his back with his hands over his head. His clothes were torn and covered in dust. There were bruises on his face and arms, and his eyes were bloodshot.
+
+He looked drunk.
+
+A well-dressed young man noticed me and immediately came running over. He grabbed my legs and started crying.
+
+"Sir, he sold my sister's body."
+
+I pulled him to his feet and asked him to explain.
+
+His sister had died in the hospital the previous night after taking poison because of depression. Her body had been moved to the morgue and was supposed to be collected by the family within a few hours.
+
+But when they arrived, the body was gone.
+
+The bald man, who was the hospital's janitor on duty that night, was found unconscious inside the morgue.
+
+The brother was convinced that he had taken the body and sold it to body brokers.
+
+It was a reasonable suspicion.
+
+He was the only person assigned to clean the morgue that night. According to the hospital staff, nobody else had entered after him.
+
+So where had the body gone?
+
+I crouched beside the man. He was still groaning from the beating.
+
+I gave him some water.
+
+"Nobody is going to touch you anymore," I told him. "Just tell us exactly what happened."
+
+He started crying.
+
+"I didn't do it, sir. I swear."
+
+He told us that he had been working at the hospital for eight years. He had never caused trouble and had always done his job. He insisted that he would never steal a corpse.
+
+"Then why were you unconscious inside the morgue?" I asked.
+
+The man stared at me.
+
+Then he whispered something that made me wonder whether he had truly lost his mind from all the beating.
+
+"It was a Pishach."
+
+The brother immediately tried to attack him again.
+
+Arman grabbed him before he could reach the man.
+
+"What are you talking about?" I shouted. "Did you drink so much that you started hallucinating?"
+
+"I'm not lying, sir."
+
+His voice was shaking.
+
+"I've been drinking since I was five years old. I know what being drunk feels like. What I saw was real."
+
+He swallowed.
+
+"Th-that thing wasn't human."
+
+Before he could say anything else, he passed out.
+
+I looked at Arman. He was still holding the brother back.
+
+"What do you think?" I asked.
+
+"The chances of him being involved are high," Arman said.
+
+He paused.
+
+"But... I don't know why, sir. I don't think he's lying."
+
+That surprised me.
+
+Arman had always been good at reading people. If he thought the man was telling the truth, even after hearing something as ridiculous as a Pishach story, I had to consider the possibility.
+
+I asked the hospital staff if there were CCTV cameras near the morgue.
+
+"There is one directly outside the entrance," someone told us.
+
+"Then that should settle it," I said.
+
+One look at the footage would tell us whether he had stolen the body or someone else had.
+
+Except it didn't.
+
+The footage was perfectly clear.
+
+The man entered the morgue.
+
+He never came back out.
+
+Nobody else entered.
+
+Nobody left carrying the body.
+
+The next footage showed the girl's family dragging him out of the morgue.
+
+I watched it three times.
+
+Then I went inside the morgue myself.
+
+There were no windows. The ventilation opening was far too small for a person.
+
+There was simply nowhere for the corpse to go.
+
+"Does that mean he was telling the truth?" I asked.
+
+Arman stared at the empty space where the body had been.
+
+"I have no idea."
+
+Neither of us could make sense of it.
+
+"There's only one person who can tell us what happened," Arman finally said.
+
+We went back outside.
+
+The man was still unconscious. A nurse had cleaned his injuries and given him some basic first aid.
+
+Leaving him there with the girl's family nearby didn't seem like a good idea.
+
+So we took him into custody and brought him back to the police station.
+
+He woke up about an hour later.
+
+"I haven't even asked your name yet," Arman said.
+
+The man looked confused.
+
+"Bheem."
+
+Once he had calmed down, I asked him to tell us everything he remembered.
+
+According to him, he had entered the morgue as usual to perform his janitorial duties.
+
+He already knew that the girl who had died that night had been moved there.
+
+But the moment he opened the door, he noticed something strange.
+
+A horrible smell hit him.
+
+It wasn't the normal smell of a morgue.
+
+It smelled like hundreds of dead animals had been left to rot in a closed room.
+
+Bheem said he nearly walked back out.
+
+Then his eyes adjusted to the darkness.
+
+That's when he saw it.
+
+A short, obese figure was standing beside the girl's body.
+
+It was almost completely naked except for a dirty cloth wrapped around its waist. Its body was covered in coarse hair.
+
+Bheem shouted at it to get away from the corpse.
+
+The creature picked up the body and threw it over its shoulder.
+
+Bheem grabbed his broom and started walking toward it.
+
+Then it turned around.
+
+Bheem froze.
+
+He told us he had never seen anything so unnatural in his life.
+
+The creature had no visible ears or nose. Its head was completely bald, and its eyes were so small that they were barely noticeable.
+
+And its mouth...
+
+It had no lips.
+
+No visible teeth.
+
+Just a dark opening that seemed far too large for its face.
+
+Then it spoke.
+
+Its voice was unnaturally high, almost feminine.
+
+"Don't interfere with the master's command, human. I don't have time for you."
+
+Bheem said he lost consciousness immediately after that.
+
+He couldn't remember anything else.
+
+To me, the story sounded like the ramblings of a drunk man.
+
+Under normal circumstances, I might have dismissed him completely.
+
+But the CCTV footage had already proved one thing.
+
+Bheem hadn't stolen the body.
+
+There was no reason to keep him in custody.
+
+We released him and closed the case for the night.
+
+By then, it was almost dawn.
+
+There was still no sign of the missing body.
+
+A search party was sent out that morning, but we found nothing.
+
+No footprints.
+
+No vehicle.
+
+No blood.
+
+Nothing.
+
+How could a body simply disappear without leaving a trace?
+
+I wasn't ready to believe some superstition told to us by a drunk hospital worker.
+
+"A Pishach? In the middle of a city?"
+
+I remember thinking how absurd it sounded.
+
+Then I laughed at myself.
+
+"That's a load of bullshit."
+
+At noon, I was sitting at the station trying to go through the case files.
+
+I hadn't slept since the previous night.
+
+My eyes kept closing while I was reading, and at one point I nearly fell asleep at my desk.
+
+That's when Arman suddenly rushed into the station.
+
+He looked worried.
+
+"Sir."
+
+I looked up.
+
+"Another body has disappeared."
+
+This time, it happened in broad daylight.
+
+A young man who had died from a brain hemorrhage had disappeared from his own home.
+
+His mother had been sitting beside the body.
+
+When the other family members returned, they found her unconscious on the floor.
+
+Her son's body was gone.
+
+There had been relatives and neighbours throughout the house.
+
+Nobody had seen anyone take it.
+
+The mother was taken to a nearby nursing home.
+
+I went there immediately.
+
+The doctors told us she had lost consciousness from shock. They weren't sure when she would wake up.
+
+"Maybe the shock of losing her son was too much," one of the doctors said.
+
+Arman and I questioned everyone who had been present in the house.
+
+Nobody knew where the body had gone.
+
+We searched every room.
+
+Every corner of the house.
+
+Nothing.
+
+No clue.
+
+No explanation.
+
+By then, I was exhausted.
+
+I went home that evening and went straight to bed.
+
+I woke up at around 1 p.m. the next day.
+
+I was off duty, but the two cases wouldn't leave my mind.
+
+How could two bodies disappear without leaving a trace?
+
+I went to a library and started looking through old records for similar incidents that might have happened before I was transferred here.
+
+I found nothing.
+
+The city had a relatively low crime rate to begin with. There had never been any reports of body brokers operating here either.
+
+On my way home that night, Arman called.
+
+"Sir, there's someone here who wants to meet you. He says he has information about another dead body."
+
+"I'm off duty today. Can't you take the report?"
+
+"He says he'll only speak to you."
+
+There was a pause.
+
+"Please, sir. I think this is important."
+
+I had no choice.
+
+I went back to the station.
+
+A middle-aged man was standing beside Arman.
+
+Arman saw me enter and introduced him.
+
+"Sir, this is Malik."
+
+I turned to the man.
+
+"Why did you specifically ask to speak to me?"
+
+Malik hesitated.
+
+"Sir, I heard you spared Bheem even after hearing his... strange story. So I hoped you'd listen to mine too."
+
+He took a breath.
+
+"I came here myself before someone else has to."
+
+"Wait. You know Bheem?"
+
+"We're from the same village. We aren't close, though."
+
+"Fine. Tell me what happened."
+
+Malik worked at the crematorium. He had been handling bodies and operating the cremation furnaces for most of his life.
+
+He said he had never experienced anything like this before.
+
+A few hours earlier, he had placed a body inside one of the cremation chambers.
+
+Almost immediately, a horrible smell filled the room.
+
+The same smell Bheem had described.
+
+Like hundreds of dead animals rotting at once.
+
+Malik couldn't stand it.
+
+He left the room.
+
+When he returned later to collect the ashes, he found the tray empty.
+
+There were only ashes from the wood.
+
+The body was gone.
+
+No one had entered or left the room while he was away.
+
+And there was no practical way anyone could have removed a body from a sealed cremation chamber.
+
+He swore he hadn't moved it.
+
+That's why he came straight to the police station.
+
+By then, the case had become far too strange.
+
+Bodies disappearing from morgues was one thing.
+
+Bodies disappearing from houses was another.
+
+But a body disappearing from inside a cremation chamber?
+
+How was that even possible?
+
+There was only one connection.
+
+The Pishach.
+
+Bheem had seen it.
+
+Malik hadn't seen anything, but he had experienced the same smell.
+
+Could it really be true?
+
+"But we still don't know what happened to the second body," Arman said quietly. "Until the mother wakes up, we can't say for sure that it was the same thing."
+
+We spent the next day and night searching the city for anything that could connect the cases.
+
+We found nothing.
+
+Then came the report about the accident.
+
+The mortuary van had crashed into a tree.
+
+The driver wasn't drunk.
+
+Neither was his assistant.
+
+The driver had been working that route for almost ten years.
+
+There was no mechanical failure either.
+
+The road was straight.
+
+The weather was clear.
+
+And yet, somehow, the van had left the road and hit a tree hard enough to kill the driver.
+
+A broken branch had gone through the windshield and struck him.
+
+His assistant survived, but barely.
+
+The body they were transporting was gone.
+
+I don't understand any of this.
+
+But one thing is becoming increasingly clear.
+
+This isn't over.
+
+I'll try to update as soon as I find any more clues.
+
+If anyone here knows anything about what is happening, please tell me.
+
+I am in desperate need of help
