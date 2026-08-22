@@ -100,7 +100,7 @@ As my eyes adjusted to the dark, I got up from my bed to rummage around for a st
 
 Instead of returning to bed I got to work with my tools and once again pulled the door off its hinges. It fell to my bed with a thud that I worried might wake the neighbors, but I soon forgot seeing the place beyond the door had changed. 
 
-On the other side was a white louvered closet door, its slats letting in morning sunlight despite the real time. Between the slats I recognized the room, my childhood bedroom sat beyond the closet door on my ceiling. But beyond the slats everything rotated parallel with the doorframe, as if gravity kept different rules just beyond the threshold. This time I had to be sure, I reached up and pulled the closet door open before climbing inside. And as my feet left the stool, I felt my weight suddenly lurch horizontally and nearly fell backwards into my apartment. 
+On the other side was a white louvered closet door, its slats letting in morning sunlight despite the real time. Between the slats I recognized the room, my childhood bedroom sat beyond the closet door on my ceiling. But beyond the slats everything was rotated parallel with the doorframe, as if gravity kept different rules just beyond the threshold. This time I had to be sure, I reached up and pulled the closet door open before climbing inside. And as my feet left the stool, I felt my weight suddenly lurch horizontally and nearly fell backwards into my apartment. 
 
 For a moment I struggled on all fours to orient myself as I looked back at the closet door, seeing my bed straight ahead appearing as if it had been stood up against the wall. The stool looked like it had been placed directly into a wall, I forced myself to look away as dizziness swept over me. 
 
@@ -320,4 +320,3 @@ I can’t wait to finish up our game, and mom said if I eat all my dinner she ha
 I had a lot of fun today and I'm excited for tomorrow. I love my mom and dad, I’m glad they love me too.
 
 \---
-
