@@ -92,3 +92,4 @@ I felt like I was in a dream as we stomped up the stairs to my apartment, the op
 
 The door was wide open.
 
+Part 2: [https://www.reddit.com/r/nosleep/comments/1vvewhu/theres\_a\_door\_in\_my\_house\_thats\_only\_in\_the/](https://www.reddit.com/r/nosleep/comments/1vvewhu/theres_a_door_in_my_house_thats_only_in_the/)
