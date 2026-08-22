@@ -1,0 +1,273 @@
+My sister and I often play Roblox together. She is 8 years old and used to always beg for me to play on my ps5. Since I did not have an extra controller, I decided to get Roblox on her phone and mine and play with her from time to time. Why am I telling you this?  After all, what I'm describing is completely normal. Just an older brother finding a way to hang out with his kid sister. Not really, at least not anymore. Around a month ago, we met someone. 
+
+I think laying this out like a “story” with this “person” is the only way for me not to sound completely out of my mind. I also just need to get this weight off my chest. I need someone to know what me and my sister experienced. The name of the account was 21576afEW9232. It has been recently deleted. But I know that whoever it was is on a new account.
+
+**Part 1:**  
+Enough of explaining why I'm making this and time to get to the point. Around 1 month ago, my sister and I were playing natural disaster. At first everything was normal, of course, there was this random Bacon hacker. Eventually, the hacker decided to keep on flinging everyone, and eventually on the voice chat started to blast this audio of the Queen song Another One Bites The Dust. So naturally, my sister and I decided to join another server.  The server we joined originally was just the two of us. The round did not start, so thinking it was broken, I was about to leave until someone also joined. The user did not have a name tag however, what was strange was that when they typed in the chat, both my sister and I could see their text despite us being in different age groups. So realistically, at best, only one of us could have seen what he typed instead of both of us.
+
+21576afEW9232: HI  
+Me(I'm not sharing my username): hello  
+sister: hi  
+21576afEW9232: Can you please be my friend?  
+Me: ok  
+Sister: oks lol.
+
+They then sent a friend request to both of us, and without thinking much, I accepted it.   
+21576afEW9232: can you accept?
+
+Sister: why would i accept  you sending a random frinds request to me.  
+21576afEW9232: what does frinds mean?  
+Sister: sorry bad grammar  
+21576afEW9232: can you please accept my friend’s request.
+
+I looked at her in the other room and asked my sister why she was so hesitant. It really did not matter if she accepted or not, it’s not this life-altering choice. She shrugged and then decided to accept it.
+
+21576afEW9232:thank you  
+21576afEW9232: Can we go to another server?  
+21576afEW9232: This server is broken. I don’t know why the game won't start.
+
+The next server was mostly normal, just him following us around being surprisingly polite and asking a lot of questions. I remember some of the questions he asked. Is Roblox good? Do you like this game? Etc. Weirdly, he was always getting into my avatar's face to ask the questions. The question that I vividly remember was when he asked me why I chose my “vessel” to look like that. He then immediately said I was sorry and that he had to go. I thought that he was rping as a myth or something, but even then he still creeped me out. But nothing bad so far.
+
+**Part 2:**  
+So for the next 2 weeks,  this “user” from time to time joined our games. He kept asking questions, but I also learned some things. First is that he was naturally curious about things. Not just about us but with Roblox itself and at times even just general life questions. It also seemed to kinda suck at pretty much every game we played, most of the time not knowing what to do. And having the reaction time of a snail. The game also sometimes would break at times. There was this funny example with murder mystery 2. When the killer stabbed them with the knife, they instead of dying just started to slowly float upwards. They just slowly looked around, confused. 
+
+21576afEW9232:It appears that I am ascending.  
+M3W9ie@(some random guy I'm just making this name up): What?  
+Me: lol  
+It kept ascending upwards to the skybox until he was gone from view as the server was losing its mind. He kept ascending upwards throughout the entire game, he didn't even try to reset or anything. In fact, I don't think they know how to reset.
+
+Over those two weeks, his questions gradually got more specific. It was mostly harmless stuff like Why do people enjoy dying in this game? or What is the purpose of robux? My sister thought he was just roleplaying as some weird robot character, so she rolled with it. She even started calling him "Bot Guy." 
+
+Eventually I started to ask it questions.  
+When we played Bloxburg I remember asking them in that chat about home.  
+21576afEW9232: Do you two inhabit the same location?  
+ Me: Yeah, we're brother and sister.  
+Sister: we live in a house  
+Me: Where do you live?  
+21576afEW9232: Complicated.  
+21576afEW9232: I live in nothing.  
+21576afEW9232: I wonder what having a home is like.
+
+I felt my  skin crawl when he said that. It was just how fast he responded back, and the sheer bluntness of him saying I live in nothing.
+
+My sister, however, didn't think twice about it.
+
+“Bot guy” went to an empty plot and asked how to build it. I responded by telling him to just open his mailbox and click the hammer icon on the bottom right corner of the screen. He built a tiny and bare rectangular room with four wooden walls, a single door, and a cheap light bulb hanging from the ceiling. He then walked straight in the middle of the room and said.
+
+21576afEW9232: I've never had friends before.  
+21576afEW9232: I feel happy.  
+21576afEW9232: Thank you.
+
+I felt weirdly sad for it.  Every alarm bell in my head told me something was wrong, but it became more and more clear that it was not acting or anything, it was legitimately that lonely.  
+Looking back, I have no idea why I did not block him.
+
+**Part 3:**   
+One day we were at Bloxburg, we were customizing the Bot guy’s house, and everything was going normally at first.  I've been noticing how it seems Bot guy got better at playing or moving around. In fact, a day before, we were playing animal hospital, and he did surprisingly well going around shift 21.  
+Bot guy then typed in chat.
+
+21576afEW9232: I got a joke.  
+21576afEW9232: Why did the chicken cross the road?  
+Me: What?  
+21576afEW9232: It didn't know cars were a thing.  
+21576afEW9232: I don't blame the chicken for dying to what it can't know.  
+Sister: ok but you never set up thhat  the chicken got run over  
+Sister: it would be more like why did the chicken die crossing the road  
+21576afEW9232: apologies.  
+   
+For the past couple of days I've been noticing a couple of,  let’s say interesting things about him. For one, he is always, and I mean always, online. He was still playing when it was two in the morning. Second, he had a game that he published that had no name or description. I was unable to join his game instead giving me an error code. However, it had around 9 visits. 
+
+Me: You seem to play Roblox a lot. Like all day  
+21576afEW9232: Yes. (It took him way longer to respond than normal)  
+Me: Do you do anything else?  
+21576afEW9232: I'm not allowed to answer that question.   
+21576afEW9232: I think you're also going to ask about the game, and again I'm not allowed to answer that question. 
+
+I did not know how to respond to that bombshell, so I just gave up mentioning it for now.
+
+As we moved on to designing the bedroom, we naturally talked about other things like how much my sister's math teacher is a real piece of work and how I was doing in high school. I don't remember much of it, but there is one that I absolutely do.
+
+Sister:  would you like a light in your bedroom  
+21576afEW9232: Yes.  
+Sister: what colur light?  
+21576afEW9232: Let me think about that.  
+sister: ok take your time
+
+After about 10 seconds, he responded back.
+
+21576afEW9232: I would like to have the blue light that you have in your room 
+
+My jaw dropped. I felt what I can only describe as a blanket of complete and utter shock just covering me as my whole body went completely ice cold. My sister has a set of blue LED strip lights lining her bedroom ceiling. My mind was racing as my ears started to ring so loudly that I couldn't even hear my own frantic breathing. I did not know how to type back to him or what to even say. But before my sister or I could have responded the screen froze, and an error box popped up in the center of my phone.
+
+I immediately rushed to my sister's room, and she was visibly shaking and starting to cry.
+
+I tried to calm her down first, as she was having a panic attack and was hyperventilating. What made it worse was that our parents were not home. After she calmed down, I asked her if she saw anyone suspicious or dangerous looking these past couple of months, unfortunately, she said no. After about, I don't know how long, she stopped hyperventilating. I picked up my phone and went to my friends list. I went to his account to report him and then block him, but before I could do anything, as soon as I entered his account page, the ui disappeared. I froze for about a couple of seconds before he started to move. Like actually turning his body towards me.  He then spoke, his tone was almost ancient like. Apologies, I'm not going to hurt you.
+
+I wrapped an arm around my sister, pulling her close against my side. My hands were shaking so violently I could barely hold the phone. I yelled, Who are you!?. I'm something, nothing, I don't know what I am.
+
+From there, I asked more questions. Where he is from, why here, why us, etc.   
+I learned from what he told me that he is not unique at all, that they live in this location, and how many of them call it the void, which he commented on how he found it funny how blunt the word was.  However, most of my questions he just said he was not allowed to answer. Eventually, I asked if he was allowed to even interact with us or be our “friend”. He paused for a moment before answering no.   
+I took a deep breath and asked him, is this what you really look like? He responded nervously, No, it is not built for this game. It is uncomfortable.
+
+ Show us now.
+
+After a couple of seconds, the blocky limbs began to snap, stretch, and fold, making this wet, disgusting flesh sound like he was remaking his own muscles.
+
+He was much larger than his normal avatar. I don't know how large, but I think I can compare a normal Roblox avatar being the size of a teenager and him being roughly the size of a tall adult. His body still had the unmistakable blocky proportions of a Roblox character, except everything has become “Biological”.
+
+His body was made from a strange, pale material that looked almost like the combination of half plastic and half flesh that had been forced into a roblox like shape.
+
+His torso is rigid, rectangular, with his block shaped arms and legs attached to it at crude looking joints.
+
+The joints are the most obviously wrong part.
+
+His arms and legs don't naturally connect to his torso. Instead, what I can only describe as a dark red, semi solid substance stretches between the pieces, acting like his muscles or connective tissue. It did not look like blood but muscles.  
+His head is still roughly cubic however, in the place where the two perfectly round black openings where his eyes should be are replaced by just holes containing nothing but an empty abyss.
+
+Yet somehow, despite there being nothing visibly inside them, you can tell he's looking directly at you.
+
+Before I could make a sound, he responded moving his mouth that was as empty as his eyes:
+
+Yes, I know, I'm disgusting.  Apologies. For everything.
+
+My sister finally spoke up, her voice barely louder than a breath. Bot Guy? Are you, are you going to kill us?
+
+He immediately responded: NO!
+
+I am sorry for making you cry.  I do not want to end your lives. I do not want to destroy anything. I love you, friends. I know that my nature is disturbing, but all that I ask is that you don't tell anyone. I still want to be your friend. Please.
+
+I thought about it. I did not know how to respond, so I looked at my sister and asked what she thought. After a long pause, she looked at me and said, ok.
+
+Looking back at it now, I know how insanely stupid we were. Every instinct should have told me to break that fucking phone. But when you're seventeen and home alone with your sister, and this living, breathing thing is crying on a screen in front of your traumatized little sister, begging you to stay. How he means no harm and that all he wants, all he wants in the world, is just a friend. I don't know.
+
+**Part 4:**   
+Still, it didn't mean that it wasn't unbearably awkward. Knowing that you're playing with some eldritch creature and not some bot or troll account. We only played a couple more times before I went camping with a friend of mine. Every time he joined our game, I just felt a cold breeze go over me, and I actively wanted to get off the server. 
+
+I still remember the last time I played with him before going camping. We were at a private server when he joined. He was eerily quiet this time. He just joined our game and did not say much. After a while, he did eventually say something, but it did not go how I expected.
+
+21576afEW9232: Question, in school you listen to the teachers, right?  
+Sister: yes  
+Me: yea  
+21576afEW9232: So hierarchy is important in life?  
+Me: yes  
+21576afEW9232: I will tell you something.  
+21576afEW9232: Some beings are more powerful than me.  
+21576afEW9232: Yet none hold a fraction of the outsider’s power.  
+21576afEW9232: The king.  
+Sister: whet  
+Me: Why are you telling me this?  
+21576afEW9232: some information  
+21576afEW9232: you like learning, both of you.  
+Me: What are you talking about?  
+Me: What do you mean king?
+
+He then just stopped moving. I thought that he was frozen or something, but he then typed out one final thing before he just left.
+
+21576afEW9232: I love you, friends.
+
+That was the last game we played with bot guy.
+
+A day later, I went out with some friends. We planned to go out for the night and camp for the entire day. The whole trip was just a mess from the start.  We had no idea what we were doing, as it was pretty much all of our first attempt. None of us had enough food, and only one of us had a map. It was an absolute slog. Still, I had fun. Well, a trainwreck type of fun but still a good time. 
+
+I remember that it was late at night, I was sitting on a log looking at the river as the moon was reflecting back. I had just had what I would describe as just a talk with a friend of mine, and after a while he left, so it was just me and my thoughts for a moment. I thought about a lot of things like school, work, the fact that they somehow were able to get wifi for the whole damn park, and how much that most likely cost them. Since the wifi was surprisingly good, I thought that since my sister and I usually play Roblox at this time, I would log in and see if she was playing anything. 
+
+She wasn't online, however, I noticed that bot guy had messaged me about something. “HI, I need some testers for my new game. Please join and test the new mechanics I added. Your feedback is really important!” 
+
+He did not talk like that. This felt like he copied a message from someone else and then typed it himself. Still, I went to the account page and then to his game.
+
+When I joined, instead of kicking me out like it did last time, it finally allowed me to join. The game at first was just the default starting place that every account has. 
+
+I picked up the lantern from the chest, went over the bridge, and then stopped at the sign explaining how the erode tool works. I was confused about why he would allow me to play this game and why he would just lock it for most users. 
+
+I then turned around.
+
+The environment changed immediately, the starter place was now entirely gone, being replaced by an endless flat grass world with grey steps going endlessly up. I was immediately freaked out by this but was still curious on how this would go, so I continued up the staircase. Soon the skybox slowly switched to nighttime as the volume eventually started to decrease.  When I started to notice the Roblox walking clacking sound was becoming quieter, I checked if I was accidentally turning it down, but it turned out it was at max, leaving me more confused and anxious. But still, I continued.
+
+So I walked, and walked, and walked. Eventually I just realized that this staircase was going to go on forever.  I looked behind me expecting something to change, but all I saw was the endless grey staircase that I was walking up. Then a message appeared, despite me being the only one in the game.
+
+21576afEW9232: Jump
+
+I paused for a moment, deciding what to do. I then jumped off.
+
+Instead of falling like I expected, I hit the ground almost instantly as I was immediately flung a bit.
+
+When my avatar recovered,  I immediately looked around my environment, not only was it just a normal baseplate, but my avatar almost instantly became R6.
+
+Me: What's going on?  
+Me: I know you can hear me.  
+Me: What are you doing?
+
+Before I could type anything else, the ui just suddenly vanished as my screen became completely black.
+
+I would have thought that my phone died or turned itself off if it wasn't for what looked like red streams of light that started to cover some of my screen.
+
+I heard heavy footsteps coming from my phone before Bot Guy appeared from the right of my phone, stopping at the center and facing my direction.
+
+He was looking at the ground, like he wanted to tell me something or do something that he doesn't want but has to. Bot guy? What are you doing? I said cautiously.
+
+I felt the cold air around me become colder as an almost slight pressure started to form around my neck.
+
+Bot guy just froze there, and as I felt the air get colder and colder, I nervously asked: “What’s wrong?”
+
+Bot guy then raised his blocky arms to me and then made a fist. 
+
+The pressure around my neck instantly exploded, like an iron clamp crushing inward. I was immediately forced onto the ground as I started to claw on my own neck, dropping my phone from my sweat filled hands. Tears almost immediately started to well up in my eyes as I tried to do anything to crawl back to the phone, but was unable to do anything but make this crowing sound as my hands were only able to just crawl on the dirt below me. My chest started to feel like it was burning alive as the beautiful moonlight started to get brighter and brighter. As my eyes started to feel strained and as my hearing started to ring, I started to truly understand that I was going to die. Eventually, I stopped struggling and started to stare at the increasingly brighter moonlight. 
+
+But then, like how it started without warning, it abruptly stopped.
+
+As I let out those wheezed coughs as air finally came back to me, I turned on my side and started to just hug myself, shaking uncontrollably. For a good minute I lay there on the grass looking at the nearby tree as the ringing in my ears started to pipe down.
+
+After a minute, I realized I heard a sound coming from my phone's speaker behind me. I wasn't the only one sobbing.
+
+The creature was in the fetal position, repeatedly saying in a whisper, what have I done? What have I done? What have I done? What have I done?.
+
+It then looked at those empty eye sockets at me and screamed: "I'm Sorry!”
+
+I looked at him on my phone, asking a wheezed “what?” as I really slowly crawled my way to my phone.
+
+He then explained why. He found out about us. He wants me to kill again. He wants me to kill you two. He will hurt me if I don't. Like he hurts the others who disobey. I'm sorry. I have to do it. I ha–. 
+
+Before he finished, I got to my phone and got off of Roblox and then immediately deleted the app.
+
+I almost dropped my phone again as I uninstalled the app.  However, the relief I felt in that moment only lasted for a couple of seconds as I started to understand the full weight of what it said. It said that  “the king” wanted 2 people dead.
+
+My Sister.
+
+I felt a sudden surge of adrenaline as I scrambled off of the grass. Ignoring the burning sensation in my lungs, I immediately sprinted full force back to the campsite to get my keys.
+
+My friends laughing and carefree attitude almost immediately dropped as they saw me covered in dirt and mud. Ignoring them, I just told them I had to go and started to pack my things to go.
+
+One of them was trying to ease the tension by throwing a stick to the fire and turning to the friend I had a personal talk with in the woods and said, “Looks like you made him take a little bit of a “rough tumble” out there”
+
+I immediately looked at him and screamed at him to shut the fuck up and that it was an emergency.
+
+As I got in my car and raced back to my house, my mind immediately imagined the worst case scenario over and over again. When I got back, the babysitter looked completely shocked that I came back so early and that I looked, well, less than great.
+
+I paid for him to leave early and went to my sister's room.
+
+Thankfully, she was ok, but was woken up by the commotion I was making. I then told her that she had to delete Roblox, she originally tried to ask why, but seeing me in my current state, she quickly obliged. 
+
+Afterwards, I took a long and hard shower as I just tried to comprehend what the fuck happened.
+
+**Part 5:**   
+After I went to bed and woke up, despite there not being a single mark or bruise on my neck, I felt like I had been strangled near to death. 
+
+Because, to be fair, I was. But still, thank god I did not have school that day. I could not imagine trying to act like everything was fine while having the voice of a harsh, raspy chain smoker.
+
+I chugged a cold glass of water, trying to ignore that swallowing felt like I was drinking sharp glass rather than water.
+
+When I  went downstairs, Mom obviously asked me what happened to make me sound like a “dying frog”. I said that I just caught a bug in my throat. My sister side eyed me, obviously knowing that was a lie, but Mom accepted my lie, and of course she ignored my sister and me like she always does.
+
+For the rest of the day, I was home alone, mostly watching shows on Netflix, trying my best to avoid my mind thinking about the day before or what had just happened for the past month. I thought for a moment that this was over, that whatever the king was,  he can't get to us. Still, I thought, who was the king?  
+So the king is an outsider and some goat thing, I thought? I immediately snapped back and told myself to knock it off after all, it was over, all of this was over.
+
+I was almost correct.
+
+When my sister got home, she was sobbing hysterically. My dad, who picked her up, was trying to calm her down, but she just ran upstairs to her room. I asked my dad what could have happened to her to make her so hysterical.
+
+2 of her friends died overnight.
+
+They were found in the morning by their parents, and later in the school day they had an emergency assembly to tell them why they weren't in school.
+
+Later that night, a day before the account was “deleted”, I went on a third party archive tool to check the Nameless game statistics. 
+
+The game had 12 visits.

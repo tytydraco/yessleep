@@ -22,7 +22,7 @@ I just need to drive down to the store and get a screwdriver set and I could pop
 
 When I returned from the store I headed straight for the red door, and that's when I spotted it. On my coffee table sat a brand new screwdriver set, the exact same set that I had just purchased. 
 
-In front of the red door was a single curved scrape along the floor that outlined the inward swinging of its path. It had opened while I was gone, and even possibly left me a screwdriver set. This all sounds crazy but I don’t have any real explanation for what's going on, but maybe I can get one. 
+In front of the red door was a single curved scrape along the floor that outlined the inward swinging of its path. It had opened while I was gone, and even possibly left me a screwdriver set. This all sounds crazy and I don’t have any real explanation for what's going on, but maybe I can get one. 
 
 I got to work on the hinges, and one by one I freed the screws from their frame. Finally I took off the doorknob and pulled away the door, I held my breath as I peered behind it. 
 
