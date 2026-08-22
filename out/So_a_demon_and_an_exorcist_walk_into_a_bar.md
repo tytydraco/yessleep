@@ -1,0 +1,263 @@
+I took a long deep drag on my cigarette as I followed the woman through the darkened park. A chill ran up my spine as the wind blew against my face. Winter in Chicago was always brutal, and it was coming on fast. Like the geese, I usually headed south this time of year. I generally prefer somewhere sunny, Southern California, Miami, or Galveston. This year though, I had been forced to stick around a little longer. My new line of work had taken off, and I had a job to finish before leaving town.  
+
+I watched the woman as she walked through the park, her eyes darting back to me from time to time. It had taken me a while to find her; Chicago isn't exactly a small city, and I didn't have much to go on, but here she was. The woman, Ann, walked along under the glow of artificial lights. I looked down at my watch, nearly 11:45PM, and fortunately the park was nearly empty, most of the people driven home by the hour and late October chill. 
+
+Ann walked along the sidewalk under a stone bridge, then stopped on the other side before turning back to face me. I stopped under the bridge and watched from the shadows as her body tensed. Her hands came up, slapping at an unseen attacker. She struggled and fought for a moment and then fell back into the water without a splash. I took another drag on the cigarette and breathed out the smoke, “Fuck.”  
+
+I had known it would be something like this, after all, she had been soaked and unable to speak when I found her. I sighed and flicked my cigarette into the river before stepping up to where she had fallen in. I doubted her body would still be there, but I was getting paid to find out. After quickly glancing around to make sure no one was nearby, I stripped down to my skivvies and with great reluctance, dove in.  
+
+The water was freezing and nearly took my breath away, but I managed to make it the fifteen feet to the bottom. I flicked on my waterproof flashlight, searching through the green murky water for any sign of her. Finding nothing, I rose to the top and took another deep breath before plunging down again. In this weather, I couldn't do this much longer. I floated along the bottom of the river with the current, scanning the river bottom from side to side. 
+
+My lungs were burning and I was about to give up, but then I saw it. A small, withered hand wedged between two large rocks. I swam back to the surface, taking another deep breath, then plunged back to the bottom. I quickly looked over the woman's body and then around in the water. I nearly choked out all of my air when my light shone on Ann's face as she stood there watching me on the bottom of the river. She raised her left hand, showing me the diamond wedding band, the same band that was on the finger of the emaciated hand. I pulled the ring from the hand of the body and swam back to the surface.  
+
+My body shivered violently as I pulled my clothes back on. I thought about how much I was being paid and wished I had decided to charge more. When I was dressed, I looked up and saw Ann standing in front of me. Water dripped from her long, graying hair but never touched the sidewalk. 
+
+“You were mugged?” I asked. 
+
+She nodded. 
+
+“They took what they could, then pushed you into the water? The cold sent you into shock and you never got out.” 
+
+She nodded again.  
+
+“And I’m guessing you never saw their face?” 
+
+Her shoulders slumped as she shook her head.  
+
+I nodded, “I'm sorry that happened to you. I wish I could do more, but I’ll make sure your daughter gets this.” I said, holding up the ring.  
+
+Ann smiled and nodded before turning to walk back down the sidewalk, still trapped in her endless loop. I decided 'I'd try to come back here after returning the ring to her daughter, hopefully she won't be here anymore.  
+
+My name is Jonas, and my job is an odd one. If you haven't put it together yet, I can see the dead, even interact with them. The problem is that if they know I can see them, they won't ever leave me alone. The idea of unfinished business keeping someone from being able to move on is actually accurate; however, most ghosts don't actually know what business they need to finish. I end up doing favor after favor with no results and no peace from them. I used to pretend I didn't see any of them; it was more peaceful that way. Then I ran into a dead kid named Jimmy in a small town filled with psychotic cult members that were hell bent on releasing a demonic creature onto the earth in order to bring about the “great cleanse” as they called it. Somehow, I managed to stop the cult and help Jimmy move on in the process. After that, I decided to try helping more. If you have trouble with the afterlife and if you can find me, maybe I can help. I am very particular about which cases I take though, I have to be.  
+
+After leaving the park, I caught a cab across town. On the way, I sent a text to Ann’s daughter Marie, telling her to meet me at Mick’s Pub. Marie had contacted me two weeks ago about her mother's disappearance. I guess she heard through the grapevine that I was the weird guy people went to for stuff like this. Unfortunately, after I helped a family with a poltergeist a few months back, the father of the family started frequenting Mick’s Pub, my local hang out. He started blabbering about how after I visited their apartment, all the strange haunting stuff had just stopped.  Which was technically true; the “poltergeist” turned out to be an angry little boy, who didn't understand why there were strangers in his home or where his parents had gone. After doing some digging, I found out that the boy had been murdered in the apartment and the landlord had covered it up as to not lose business. 
+
+Normally I would have just exposed the rat bastard and given the kid some peace, but I was about 60 years too late. The landlord was long gone, and I honestly didn't know how to help. So, I talked to him. Told him what had happened to him and why he was stuck there. Obviously, he was pretty upset, but eventually when he calmed down, I was able to explain to him that he was scaring the kids who lived there now. He said he was sorry and that he didn't mean to, to which I told him he was not in any trouble. He just needed to stay calm while I tried to find out how to help him. 
+
+ I gathered all the info I could about the murder and the cover up and sent it to the Chicago Tribune, hoping that finally revealing what happened would set him free. Like I said, it's been a few months and I've yet to see anything about his story in the paper. If it doesn't make it through, then I truly don't know what I can do. The boy, Oliver, promised he would be good in the meantime, and I promised I’d come back and check on him after the story went live. The family was so distraught though; I may have stretched the truth a bit and told them I got rid of the poltergeist. I hoped I could follow through. 
+
+Ann’s daughter, Marie, was waiting for me when I walked through Mick’s front door.  
+
+“Did you find something?” She asked.  
+
+I nodded and led her to a table at the back of the room, ordering a beer on the way.  We sat and I lit another cigarette just as my beer arrived.  
+
+“I found her.” I said as I took a sip of the beer. 
+
+Marie’s face lit up, “You mean she’s...” 
+
+“No.” I said shaking my head, “I'm sorry.” 
+
+“Oh.” She said deflating slightly. 
+
+I brushed back my shaggy sandy blonde hair and slid the ring over to her. “Here, she wanted you to have this.” 
+
+Tears filled Maries eyes as she looked down at the ring. “You mean, you spoke to her.” 
+
+“Not exactly. But this was important to her.” I said. 
+
+She nodded, “When I was a kid, she always said she wanted me to have it when I got married.”  
+
+I said nothing, letting her be in the moment. Then she looked up at me, “What happened to her?” 
+
+I swallowed hard and took a drag on my cigarette, “She was mugged, she never saw their face but... they pushed her into the river, and she couldn't get back out.” 
+
+Tears flowed down Marie’s face as she began to sob silently. I slid over by her and put my hand on her back, “I'm sorry.” We sat there like that for a while, knowing there was nothing more to do.  
+
+The deal was that I find out what happened and bring the client proof. I never told anyone the exact location of the body though, if they took that info to the police and they found the remains, that would not be a good look for me. As it stood, I could always just claim I was a con artist. 
+
+After Maries had paid me for my services and left, and I finished my beer, I left Mick’s and walked three blocks to my apartment building. Once upon a time, I struggled to find a place not filled with the dead. I bounced around from apartment to apartment, in search of somewhere I could get a decent night's sleep. But now, thanks to the ancient demonic book I stumbled across back in the small town of Pleasence. I was able to mark my doors and walls with runes and sigils, barring the restless dead from entering wherever I called home.  
+
+After taking a blistering hot shower in an attempt to drive out the lingering chill from my icy dive in the river, I flopped down on the couch and turned on my small cable tv. I flicked through the channels for a while, but there wasn't anything worth watching, just news, old sitcom reruns and some new game show that I couldn't figure out the rules of.  Eventually I just turned off the set and drifted off to sleep right there on the couch.  
+
+A few hours later, I shot awake to the sound of screaming. I jumped up, looking around my small apartment but there was no one there. The screaming was coming from outside, in the street. I ran over to my window and looked out at what was happening.  
+
+“What the hell?” I muttered, trying to understand what I was seeing. 
+
+Down on the street, there was a man, clearly one of the dead but something was wrong. There were dark tendrils of smoke wrapping around his arms, legs, and neck, pulling him toward the dark alley across the street. He struggled and fought but couldn't hang on to anything to anchor himself. I watched as he was violently pulled, screaming across the street and vanished into the dark alley. After a moment more, his screams faded into silence. Then, a man in a dark suit stepped out of the alley, he glanced up at my window for a moment then casually walked off down the street. I quickly threw on my clothes and jacket before leaving the apartment. The man in the dark suit was not one of the dead, but he wasn't really living either. He was something else, something new.  
+
+I was about a block behind the man when I reached the street and began following him. I thought I had seen all the different kinds of dead. There were the Wanderers, the ones who know they are dead and wander through the places they once lived and visited. There are the Bound, those who can't accept their life has ended and are stuck in the location they died. And there are the Loopers, like Ann, sometimes aware they are dead but unable to escape their death loop, constantly reliving the last few moments of their life. This guy though, he was something else. Somewhere between living and dead, something like me.  
+
+I followed him at a distance, but I was sure he knew I was there. It was nearly 3:00AM and we were the only ones on the street. Mick’s being an extra late hour bar was still open for the next hour and a half. I followed as the man in the dark suit stepped through the door.  
+
+Tom, the bartender, looked up as I entered, “Back already, eh Jonas. What can I get you?”  Tom was a big man, a former boxer who still looked like he could go toe to toe with the best of them. 
+
+“Two scotches.” Said the man in the dark suit. He was seated at the back table and motioned me over. 
+
+I stepped through the mostly empty bar to the back of the room, taking note of the remaining patrons. Besides Tom, there were four old barflies leaning crookedly against the bar top and seated on stools. There was Sharon, the middle-aged cleaning lady, a real sweetheart of a woman. Six people, and then there was him. I sat down across from the man. We sat silently as Tom brought the drinks and sat them on the table between us. The man took a sip from his scotch and studied me.  
+
+Finally, he said, “You are an interesting man. Mr.?”  
+
+“Jonas.” I said. “Just Jonas. And I could say the same thing to you. Who are you? And more importantly, what are you?” 
+
+He raised his eyebrows, “Straight to the point, I see. You can call me Caliban. What I am is of less importance. What I want is a certain book.” 
+
+I shrugged, “Caliban huh? You know, I never was much of a fan of Shakespeare; he’s a bit long winded for me. But I’m sure you can find whatever book you’re looking for at the local library.” 
+
+Caliban smiled, “This is a special book, one of a kind in fact. The Liber Vitae, Mortis, et Ultra.” 
+
+“Sounds fancy.” I said. 
+
+“I had tracked it to a small town a few hours south from here. But, when I got there, the book was gone, along with the group who were attempting to use it.” He said, looking me in the eyes. 
+
+I took a sip of the scotch and met his stare, “And what does any of this have to do with me?” 
+
+His smile faded, “I have no interest in games, boy. You have the book and you will bring it to me.” 
+
+I sighed and stood, “Sorry pal, even if I knew what you were talking about, I wouldn't give you shit. I saw what you did to that ghost in the alley, something tells me you aren't playing for the team upstairs.” I finished the scotch and turned for the door. I didn't know who this guy was, but now that I had gotten a closer look at him, I knew that I needed to keep the book as far away from him as possible. 
+
+I made my way across the room and pulled open the door, only for it to be slammed shut when it was halfway open. I turned back to look at Caliban, seated at the table.  
+
+“You are going to bring me the book, or I will kill every person in this room and consume their souls.” He said it loud enough for the remaining patrons to hear. A few of them chuckled drunkenly, but no one gave him a second thought. Tom, however, gave me a concerned look from behind the bar. 
+
+I looked from Tom to Caliban, “Is that so?” 
+
+Tom spoke up, “Hey fellas, whatever you got going on, let's keep it peaceful alright?” 
+
+Caliban raised his hand and with a flick of his wrist, rotated one man's head 180 degrees. Bones snapped like wet kindling as he fell to the floor, gurgling. 
+
+ The room went silent. Out of the corner of my eye, I saw Tom reaching for the sawed-off shotgun he kept behind the bar. 
+
+“No!” I shouted to him. Tom turned to look at me, “Don't.” 
+
+The remaining people in the bar jumped to their feet and tried to rush past me, but the door was held shut. One by one they took out their phones to call for help, and one by one the screens flickered and went black. 
+
+“Bring me the book, Jonas.” Said Caliban. He reached out his hand; dark smokey tendrils extended from his fingers and encompassed the dying man's body.  
+
+I watched helplessly as the man's soul was ripped out and absorbed into Caliban. 
+
+When I didn't answer, he raised his hand again. Tom’s body began to lift as he choked and reached for his throat.  
+
+“No, wait.” I said, “I'll get it. Just let everyone else go, they aren't part of this” 
+
+He shook his head, “That's not how this works. I get the book and I will set free.” He squeezed his fist, raising Tom higher. 
+
+I nodded, “Alright, alright.” I said, backing toward the door. “Just leave them alone and I’ll go get it.” 
+
+The door opened as I approached, “Hurry back now.” He said, dropping Tom back to the floor. 
+
+ 
+
+I ran the three blocks to my apartment, no easy feat for an out of shape chain smoker. I hurried up the stairs and through my front door. I opened my bedside safe and pulled out the leather-bound book, The Liber Vitae, Mortis, et Ultra. Could I really give the book to that... What the hell was he? I didn't know, but what choice did I have? 
+
+I flipped through the book on the way back to Mick’s, looking for any clues as to what I was dealing with. There were several mentions of various trickster demons in the book. Tricksters like Azeban, Huehuecoytl, Kitsune and Puck. But there was no mention of any called Caliban, if that was even his real name. Shit, I was in way over my head here. 
+
+I pushed open the door to Mick’s to see two more of the bar patrons lying dead on the floor. “What the hell, asshole?” I shouted, “You said you would let them live!” 
+
+Caliban stood and smiled at me, “I think my words were, I’d set them free.” He laughed.  
+
+I grimaced as I looked around the room, Tom, Sharon, and one of the drunks were still standing, huddled in a corner, Tom standing protectively in front of the other two. 
+
+“The book.” Caliban prompted, “Or should I free a couple more?”  
+
+I shook my head and tossed the book at his feet, “Take it, and fucking leave.”  
+
+Caliban bent and retrieved the book, cracking it open and thumbing through the pages. “Thank you very much, Jonas.” He said as he stepped past me and out the door. I tried to follow him out, but the door slammed in my face again. 
+
+I pounded on the door, “What is this?” I asked. 
+
+He looked at me through the door, “A parting gift, for being such an irritating little shit.” He stepped back and began reading something from one of the pages. I strained my ears to hear what he was saying but the only word I managed to make out was “Necrophage.” The lights inside Mick’s Pub began to flicker as he closed the book and smiled before setting off down the road. 
+
+I pushed and pushed on the door, but it wouldn't budge. If the windows weren't barred, I would have just busted one out and went after him. I was about to use my handy little party trick to get through the door, even though that would still leave the others sealed inside. But then the lights went out altogether.  
+
+“What's going on, Jonas?” asked Tom. 
+
+I shook my head and removed my flashlight from my jacket pocket, “Bad shit. Where is the back door?” 
+
+“This way.” Said Tom, flicking on his own flashlight and taking the sawed off from behind the bar.  
+
+Sharon and I, along with the drunk, whose name I found out was Phil, followed as Tom led the way. We stepped over the bodies and through the barroom, past the bathrooms and down the back hallway. Tom approached the door and turned the handle but the door refused to budge, he slammed his weight against it with all of his strength, but still the door held shut. “Dammit!” He exclaimed. 
+
+“Can't you just break it down?” Asked Phil. 
+
+Tom shook his head, “We had it reinforced after that break in last year. You’d need a battering ram to break it down now.” 
+
+“Is there another way out?” I asked. 
+
+Tom thought for a moment, then said, “The upstairs apartment, it's still being renovated, and we haven't had the windows reinforced yet. We can get to the fire escape and climb down.” 
+
+I nodded, “Alright, let's go.” 
+
+We turned and ran back down the hall and into the barroom. We were about to turn the corner and head up to the apartment, when Sharons' voice stopped us in our tracks. 
+
+“Hey, where are the bodies?” She asked. 
+
+I turned to look around the room, shining my flashlight from side to side, but she was right, the bodies of the three men Caliban had killed were gone. 
+
+“Maybe they weren't actually dead?” Said Phil. 
+
+Tom shook his head, “You saw what I saw, they were as dead as dead gets.” 
+
+“Can we just get out of here?” asked Sharon. 
+
+I started back for the door to the staircase, “I think that's a good idea.” 
+
+Suddenly, something wet fell from the ceiling. Slapping to the floor with a squelching thud. Tom and I turned, shining our flashlights at the object on the floor. Phil made a gagging sound; Sharon just turned away and buried her head against Toms chest. There on the floor in a pool of blood was what looked like a large, red, burst open water balloon filled with half-digested food and alcohol. The smell of copper and bile filled the room as dark red continued to drip to the floor from above. We raised our flashlights, pointing them at the ceiling as a single word echoed in my mind “Necrophage.” 
+
+It was, the worst thing I had ever seen. It perched there on the ceiling, the thing that had once been a man. The first man Caliban had killed; it’s head still turned 180 degrees. The things arms and legs had split at the shoulders and hips, diverging into separate limbs. Its spine and torso had stretched into an unnatural misshapen form. One set of the six legs held onto ridges in the ceiling, the other set held another of the dead men. The creature, the necrophage, had its head buried inside the man's torso, chewing and gulping down chunks of organs.  
+
+It seemed not to have noticed us, so I turned the others, raising a finger to my lips and motioning them towards the staircase door. Tom, being closest, reached his hand behind him for the doorknob, turning it as quietly as he could. The door clicked as it opened, and the necrophage stopped its chewing. I held my breath as the thing removed its head from the dead mans ruined chest cavity and looked straight down at us. Its eyes had turned completely black and its jaw unhinged to reveal rows of jagged, serrated teeth.  It let out a high-pitched warbling screech and dropped the body.  
+
+Phil screamed and rushed past Tom and Sharon to the door, flinging it open. Only to see the third man, a second necrophage crawling down the stairs straight at him. The thing pounced on him like a spider, knocking him to the floor beside the other two. It pinned him to the floor with two limbs and screeched wildly as it used the others to beat and claw at him Sharon screamed and started up the staircase, Tom shouted, “What the fuck!” and let loose with both barrels of the sawed-off shotgun. Flesh flew from the necrophage, but it didn't stop. It clawed and punched and bit until Phil’s screaming went silent.  
+
+I broke out of my shock, just as the first necrophage dropped to the floor and started towards me. I leapt over the bar top and grabbed the box of shells Tom kept there. I shouted to him before tossing him the box. Tom caught the shells and immediately began reloading the shotgun, but the first creature was already crawling over the bar after me. I jumped back, grabbing heavy liquor bottles and throwing them at the creature as hard as I could. A nearly full bottle of Jack Daniels thudded hard against the necrophages' head, stunning it momentarily. I leapt back over the bar and started towards the staircase. The second creature was still busy with Phils' body and didn't look up, but I could hear the first already skittering across the floor behind me, its warbling screech growing closer.  
+
+“Drop!” Shouted Tom as he snapped the breach shut on the sawed off. 
+
+I leapt to the floor, hearing the thundering boom of the shotgun. I smiled when I heard a short, pain filled screech as the pursuing creature slid to a halt behind me. I turned back to see a large chunk of its misshapen head missing. Jumping back to my feet, I ran past the second necrophage, still feasting on Phil’s innards.  
+
+“Go!” I shouted to Tom.  
+
+He nodded and turned to head up the stairs, fumbling with the shells as he went. 
+
+I started up the stairs behind him but fell hard as something caught my ankle. I turned back to see the second necrophage, blood and gore dripping from its teeth as it pulled me back down the stairs. The creature loomed over me, hunger filling its blackened eyes. But before it could strike or sink its teeth into me, Sharon appeared, screaming and jamming a broken mop handle into the necrophages' eye socket. The thing lunged back, pawing at its ruined eye. I leapt to my feet as Tom tossed me the sawed-off shotgun. I fired one shot, removing its reaching arm and causing it to stumble back. Sharon drove in with the mop handle again, stabbing it into the thing's torso. The necrophage screeched and howled, flailing its arms and knocking the gun out of my hands. Tom rushed forward, an old wooden baseball bat in hand. He swung the bat with all his strength, knocking limbs aside as Sharon stabbed at it again and again.  
+
+I bent and retrieved the shotgun as one of the necrophages arms made it past Toms defense; it grasped onto the side of his head, ripping a chunk of flesh away along with his left ear. Tom howled in pain as he fell to the floor, blood erupting from his head. I dashed forward and grabbed the mop handle with Sharon, pushing forward and pinning the monster to the wall. I leveled the shotgun and fired the last shot, removing the necrophages' head completely. 
+
+With the necrophages dead, we ran to Toms' side and helped him to his feet. He was losing a lot of blood and was unsteady as he walked, but we managed to get him out of the upstairs window and down the fire escape.  
+
+“Jonas, what's happening?” Asked Sharon, panic in her voice, “What were those things?” 
+
+I shook my head, “Listen, I promise I will explain all of this but right now, I need you to get Tom to a hospital and I have to go after Caliban.” 
+
+Tom leaned against the side of the building holding a bloody rag to the side of his head, “I don't know how you're gonna find him?” He said, digging in his pocket and removing his keys. “But take my car and kill the bastard.” 
+
+I nodded and ran for Toms old station wagon, not the fastest chase vehicle, but hey beggars can't be choosers. I jumped into the car and took off in the direction Caliban had gone. I had no idea how I was going to find him, but I had to try. 
+
+A few blocks later, I began to notice a pattern. Chicago is not exactly a city of peace, and there is definitely no shortage of ghosts. Only now, in some places there were. Places where I would normally see bound or wandering spirits. There was now a mysterious lack of dead. I followed the trail as best I could, although it wasn't nearly as precise as I would have liked. I made mental notes as I drove. On that corner, there should have been a paperboy who was hit by a truck. That side road was normally home to an old man who was shot in a gang war. And... There, the entrance to the L train boarding platform, the woman who took a bad fall down the steps and broke her neck, she was gone too. I slid the car to a stop next to the platform stairs and ran up them, breathing hard. But there he was. 
+
+He must have sensed that I was there. He turned to face me and smiled as he stepped onto the train near the front. I ran for the rear train door as it began to close. I managed to slip inside just before the doors slid shut, and the train began to move. I bent over breathing hard, knowing that I really needed to cut down on the cigarettes.  
+
+After a moment more, I stood and started toward the front of the train, trying to come up with some kind of plan. I didn't have to go far, however. I met Caliban near the center of the train. Apparently, he had been heading for me as well. 
+
+He stopped and looked at me from across the train car, “How did you escape from my pets?” 
+
+I shrugged, “Easy, I just killed them.” 
+
+Caliban smiled, “My my, you are full of surprises.” 
+
+“Give me the book, asshole.” I said. “ 
+
+He laughed, “Here.” He said, setting it on a seat behind him, “Come ang get it.” 
+
+I started forward, asking myself what the hell I was doing. And what the hell I was going to do. I was sure now that he was some kind of demon, what could I do against a demon? But before I could come up with a plan of attack, Caliban rushed forward, driving his fist into my chest.  
+
+I fell back hard, gasping for breath. He laughed as he circled me, “You pathetic mortal. You have no idea the world you have stepped into.” He bent down next to me, “Whatever power you have gained from this book, pales in comparison to what I can and will do to you and every single person you care for.” 
+
+I jumped to my feet swinging my fist up and landing an uppercut to Caliban's chin. He stumbled back but quickly recovered, swinging out with a punch of his own. I ducked under it as his fist smashed into the train car window. I stumbled back as glass shattered and fell to the floor. Then something caught my eye, Caliban's fist was bleeding; he was mortal too, at least partially. I stared down at the drops of crimson, an idea forming in my mind.  
+
+He noticed my attention and looked down, an expression of disgust on his face, “Yes.” He said, meeting my eyes, “This flesh has its limits. But soon I won't have to wear this disgusting body any longer. I will be fully realized here in this plane.” 
+
+Even if his body was mortal, I knew I couldn't beat him in a fight. There was only one chance. I dashed past him, grabbing the book from where he had set it and ran for the front of the train. Caliban's laugh following me the whole way. “Where are you running to, Jonas?” 
+
+I kept on running until I got to the front train car. I turned around to see the demon enter right behind me, “Was this your plan? Run?” He laughed, “There is nowhere to go.” He stepped forward, his fists clenching at his side. “Give me the book and I promise you a quick death.” 
+
+I dropped the book on the ground behind me and met his eyes, “Come and take it.”  
+
+We started for each other at the same time, only I didn't attack. I grasped onto the front of his jacket and tensed every muscle in my body. I screamed in pain as I felt my body change and shift. Confusion flashed in his eyes just before I shifted us both out of the living world and into the aethereal. The train passed around us as if we didn't exist. In the realm of the dead I could see Caliban's true form; he was a twisted and ugly thing, decerped and vulture-like.  
+
+“What is this?” He demanded in a voice not meant for living ears. 
+
+I grinned, “You said it yourself, I'm full of surprises.” I looked past him at the oncoming L train and leaned in close, “Now Fuck off.” I released him, pushing him back into the living plane. Caliban let out half an enraged scream before his body smashed against the oncoming L train, blood and gore flying off in all directions. I shifted back, still on the same train I started in, now at the very end of it. I made my way to the front of the train and retrieved my book. 
+
+I don't believe for a second that Caliban is actually gone. That's why I'm on the move again. Studying the book, preparing for when he comes back or whatever comes next. I did notice something though, just as I was boarding the bus to leave town I caught a glimpse of an article in the Chicago Tribune, an article about a murdered little boy and a sleezy landlord. I smiled, hoping Oliver could rest now. I had a feeling he would, but I'd still come back and check soon. My name is Jonas and I’m half dead already. 
