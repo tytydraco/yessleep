@@ -22,7 +22,8 @@ I unlocked the unit, but there was nothing inside but a bunch of boxes. We looke
 
 I didn’t feel great lying to her, but as a representative of Hold-It Self Storage, my responsibility is to the customer. It’s sad, but sometimes people come to the Big City to get away from their so-called “family” and “friends.” I would hate to be the person who’s just trying to help but ends up landing one of our customers back in an unwanted or even abusive situation.
 
-I mentioned it to Alison later that night and just as I predicted, she freaked out. And I don’t blame her. Family stuff can be pretty touchy, and it can really mess you up, take it from me. Hey, I guess that’s another thing Alison and I have in common.  
+I mentioned it to Alison later that night and just as I predicted, she freaked out. And I don’t blame her. Family stuff can be pretty touchy, and it can really mess you up, take it from me. Hey, I guess that’s another thing Alison and I have in common.
+
 I decided to give her a minute to cool down while I searched the rest of 237 for her phone. I guess we were vibing so much when she moved in, I forgot to pop out the SIM card and toss it in the river. Pretty careless, I admit. It’s the kind of stupid mistake that can cost you a friendship. 
 
 Anyway, lesson learned and no harm done, unless you count Alison going ballistic when I left with her phone. It’s crazy how attached we get to our devices nowadays…she was NOT happy. I thought she was going to chew right through her gag. 
