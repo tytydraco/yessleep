@@ -118,7 +118,7 @@ The footsteps stopped just behind the door, the shadow of two shoes casting bene
 
 And my fathers voice replied.
 
-“Your mom wanted me to remind you you’re grounded before I leave for work, but instead I'll just remind you to take out the trash before I get home. I guess its my fault you’re a disobedient fuck up, my gear of becoming my own father poisoned my efforts in raising you. But I couldn’t trust myself, if I could hurt the people I love the most, even as a punishment, what would that make me?” 
+“Your mom wanted me to remind you you’re grounded before I leave for work, but instead I'll just remind you to take out the trash before I get home. I guess its my fault you’re a disobedient fuck up, my fear of becoming my own father poisoned my efforts in raising you. But I couldn’t trust myself, if I could hurt the people I love the most, even as a punishment, what would that make me?” 
 
 I felt a turning in my stomach as he talked at me, words my father had never spoken. But about things that sowed doubt into my image of the man he was, things that I almost feared were true.
 
@@ -126,7 +126,7 @@ I felt a turning in my stomach as he talked at me, words my father had never spo
 
 “D-dad?” My voice cracked as I spoke.
 
-“Before I leave for work, your mother and I will kiss with the same transactional formality of a public bus making its route. In the parking lot I’ll take off my wedding ring before entering the office and hitting on the receptionist that drunkenly kissed at last year's christmas party. I still remember the feeling of her clumsy fingers running over my zipper as our lips met, only pulling away after seeing your judging face staring up at me from my desk. Now I place the photo facedown instinctually when she comes by my office, how monstrous is that?” he finishes nearly emotionless. 
+“Before I leave for work, your mother and I will kiss with the same transactional formality of a public bus making its route. In the parking lot I’ll take off my wedding ring before entering the office and hitting on the receptionist that I drunkenly kissed at last year's christmas party. I still remember the feeling of her clumsy fingers running over my zipper as our lips met, only pulling away after seeing your judging face staring up at me from my desk. Now I place the photo facedown instinctually when she comes by my office, how monstrous is that?” he finishes nearly emotionless. 
 
 Stunned at their words, and unsure if any of that could be true I took a step away from the bedroom door. I watch the shadow beneath the door intently, frozen in place. 
 
