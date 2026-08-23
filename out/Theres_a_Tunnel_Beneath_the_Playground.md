@@ -114,7 +114,7 @@ Her hand was clenched so tight that she was shaking. I stepped forward alarmed, 
 
 “September Tenth.”
 
-“Did you notice anything strange or different before that?” She pried, her grip on my wrist was tight, almost painful as if bite down into my wrist.
+“Did you notice anything strange or different before that?” She pried, her grip on my wrist was tight, almost painful as it bite down into my wrist.
 
 “Mom, can you please let go your hurting me.”
 
