@@ -1,0 +1,136 @@
+Finally, the day is here.
+
+August 18th.
+
+Our day.
+
+The day our entire group gets together and spends the whole weekend camping, grilling, and drinking.
+
+Always the same forest. The same spot. The same lake.
+
+Sarah, Peter, Amber, and I. We've been friends since childhood. I never thought we'd stay friends for this long. When I was ten, my parents and I moved away, but I kept writing letters to my friends. Later, we started talking online, and we still kept meeting up. It continued even after high school and college.
+
+My thoughts are interrupted when Sarah starts waving at me from a distance as I pull up in my car. I get out, hug her, and then greet the rest of the group.
+
+“I have no idea how happy I am to see you guys,” I say with a smile.
+
+As always, we all put our phones into the box and turn them off.
+
+A few hours later, we're all sitting around the fire, slightly drunk. The tents stand behind us, and the smell of grilled chicken fills the air.
+
+Suddenly, a voice comes from nearby.
+
+“Hey, guys. Aren't you forgetting something?”
+
+We all turn toward the voice at the same time.
+
+A guy is standing in front of us. He looks about our age. Blond hair. Blue eyes. Average build. A face I don't recognize. He has a huge backpack and a huge grin on his face.
+
+“It's me. Adam. Adam Gray.”
+
+“Adam?” I ask, staring at him in confusion.
+
+“Adam. When we were kids, we promised we'd play together forever. And I don't want to sound offended, but it's been twenty-five years and none of you ever even contacted me.”
+
+“Holy shit,” Peter says, scratching his head. “I don't understand how we could have forgotten.”
+
+“What?” Amber asks.
+
+“There used to be five of us,” he says. “Remember? One day, our parents came and told us Adam had moved away.”
+
+“I vaguely remember something like that,” Sarah says.
+
+“Me too,” Amber adds.
+
+I just keep staring at him in confusion.
+
+“It's okay, Joe. We were only five years old back then. I understand that you forgot,” Adam says with a sad smile.
+
+I could seriously slap myself. The entire group remembers him. Everyone except me, of course.
+
+“How did you even know we'd be here?”
+
+“Well, we moved back recently, and my mom mentioned that she'd talked to your parents. Apparently, you guys were going to be here today.”
+
+“Come sit down, man, and tell us what's new with you,” Peter says.
+
+“Well, you know... I'd rather hear what's new with you guys. Then I'll tell you all about what happened to me.”
+
+We slowly start telling each other about our lives, interrupting one another and laughing. But I can't stop wondering why the hell I can't remember this guy. And why doesn't he want to tell us anything about himself?
+
+I apologize and say I need to relieve myself. Making sure nobody notices, I grab my phone and walk away.
+
+I go a little farther than I intended because getting even a single bar of signal out here is nearly impossible.
+
+Finally, I manage to get a connection and frantically type Adam Gray into my phone.
+
+Several pages come up, but none of them are what I'm looking for. So I try searching for Adam Gray along with the name of the village where we'd all lived together back then.
+
+An article from more than twenty years ago appears on my screen.
+
+I quickly scan through it, my eyes jumping from one sentence to the next.
+
+Two boys were kidnapped. Sadly, only one of them returned. The killer was arrested. Adam was only five years old. His friend suffered severe shock and memory loss.
+
+And suddenly, I remember everything.
+
+That horrible night.
+
+Me, Adam, and that psychopath.
+
+We were both crying. The last thing Adam said to me was that he wanted to go home, and I told him not to be afraid, that everything would be okay and that we'd play together again.
+
+Then I watched that bastard smash his head with a baseball bat.
+
+I screamed like a madman.
+
+Then the door opened, and the police came in.
+
+I'd lost my memory from the shock. My friends' parents told them that Adam had moved away. The internet wasn't nearly as widespread back then, and newspapers were the last thing we'd have paid attention to as children.
+
+The village was small, and everyone looked out for each other, so when this tragedy happened, nobody talked about it in front of the children.
+
+When everything finally came back to me, I felt what I'd buried deep inside my mind for all those years.
+
+That horrible, paralyzing fear.
+
+I grabbed my car keys and ran to my car. I started the engine and got the hell out of there.
+
+I just wanted to get away.
+
+As fast and as far from that place as possible.
+
+When I got home, I locked the door and just sat there, shaking. I sat there for hours until my phone suddenly rang.
+
+“Good evening. This is the police. Am I speaking with Mr. Carter?”
+
+I found out that my friends were dead. A young couple who had gone for a walk by the lake at night found them. Apparently, it was a mass suicide. They were all found hanging from a tree, with no signs of foul play.
+
+I don't know if this will even get posted. My internet isn't working. I have no signal. I've sent messages asking several of my contacts for help.
+
+A goodbye message to my parents.
+
+And this story to Reddit.
+
+They all say the same thing.
+
+Sending.
+
+When I look at the clock, it's still 10 p.m.
+
+When I pull the curtain aside, I see them standing there.
+
+All of them.
+
+Sarah, Amber, Peter, and Adam.
+
+They're standing outside my window, smiling at me.
+
+They're waiting.
+
+And they know that eventually, I'll have to go outside.
+
+If you're reading this, I'm either dead, or I somehow got out of this mess.
+
+Either way, I needed to tell someone.
+
