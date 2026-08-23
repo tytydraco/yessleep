@@ -1,0 +1,67 @@
+I need to get this down while I can still think clearly. The gaps are getting worse.
+
+Three weeks ago, I walked out onto Flathead Lake. The ice was thicker than it looked—until it wasn't. I remember the crack shooting out from my boot like a gunshot. I remember the cold punching the air out of my lungs. I remember looking up through six inches of gray ice and seeing the sky getting smaller.
+
+Then I remember hands. Big hands, rough, pulling me up by my collar. My neighbor, Frank, was ice fishing fifty yards away. He dragged me out and drove me home. Sarah met us at the door in her bathrobe, half-crazy with panic. I was blue. I wasn't breathing right. She said I stared at her for a long time before I said her name.
+
+That should have been the end of it. A story about hypothermia and dumb fucking luck. But it wasn't.
+
+The first week back, everything felt wrapped in cotton. Sounds were dull. Food tasted like wet paper. I told myself it was shock. Sarah kept touching my face when she thought I wasn't paying attention, her fingers trailing along my jaw like she was checking the seams.
+
+"You feel different," she said one morning. I was buttering toast. "Your stubble. It used to grow in red."
+
+I laughed. I've always had red stubble. But when I looked in the mirror, the hair on my jaw was dark brown. Almost black. I told myself the bathroom light was bad. I told myself a lot of things.
+
+The second week, I found those damn photographs.
+
+They were on my phone, in a folder I don't remember creating. 43 pictures, all taken from inside our house. Sarah asleep on the couch. Sarah doing dishes. Sarah reading in bed. All shot from doorways, from behind furniture, from the dark mouth of the hallway. The timestamps were between 2:00 and 4:00 AM.
+
+I don't sleepwalk. I've never sleepwalked. But there I was—or someone who looked exactly like me—standing in the bedroom doorway at 3:15 AM, holding my phone, taking pictures of my wife while she slept. In one of them, my face is visible in the mirror behind her. I'm smiling. I don't smile like that. The corners go too far.
+
+I showed Sarah. I expected her to be scared of the photos. Instead, she looked at me. Just looked at me for a long time, and then she said, very quietly, "You don't take pictures, David. You hate having your picture taken. You always have."
+
+She was right. I do hate it. But I don't remember hating it. I just know it as a fact, the way you know your own address.
+
+I started watching myself after that. I set up my laptop camera to record the bedroom while I slept. The first night, the video shows me lying perfectly still for six hours. Not moving. Not rolling over. Not snoring. Just flat on my back, hands folded on my chest, eyes open.
+
+The second night, I got up at 2:33 AM. I walked to the bathroom and stood in front of the mirror for forty minutes. I didn't move. I just stared. Then I leaned in close, so close my nose touched the glass, and I whispered something. The audio is faint but I can make it out. I said, "You can have it back when I'm done."
+
+I don't remember any of it.
+
+I confronted Sarah yesterday. I demanded to know why she wasn't more afraid. Why she was acting like this was normal. She was folding laundry—my laundry—and she stopped and held up one of my shirts. It was the flannel I wore the day I fell through the ice.
+
+"This isn't yours," she said.
+
+I told her she was being ridiculous. It was my shirt. I recognized the tear in the elbow from catching it on a nail last winter.
+
+"No," she said. "This is David's shirt. You're wearing David's clothes. You're sleeping in David's bed. You're eating David's food. But you didn't come home from that lake. I watched you die out there. I watched Frank pull your body out and try CPR for twenty minutes while I screamed into the ice. Your lips were gray. Your eyes were open. You were gone."
+
+She said the funeral was last Tuesday. She said I showed up the night after the funeral and walked through the front door like I'd just been at the store. She said she was too afraid to tell me to leave. She said she was waiting to see what I would do.
+
+I reached out to touch her shoulder—to comfort her, to tell her she was wrong—and she flinched so hard she knocked over the laundry basket. My hand kept moving. It didn't stop when I told it to. It gripped her arm too tight, fingers digging in, and I felt something cold and sharp in my palm, like a hook of ice. I let go. She didn't scream. She just looked at me with this terrible pity and walked out of the house. She hasn't been back.
+
+I've been sitting in the dark since then. I keep looking at the photos on my phone. I keep looking at the video of me in the mirror. And I keep thinking about what I said. "You can have it back when I'm done."
+
+I went back to the lake tonight. I don't know why. I just needed to see the ice. It's frozen over again, smooth and black. I walked out to where I fell through. I looked down.
+
+There's a face under the ice. It's looking up at me. It's my face—blue and bloated, mouth open, eyes clouded over. It's wearing my flannel. The real one, with the tear in the elbow.
+
+I've been standing here for an hour. The cold doesn't bother me. It never has. I think I finally understand why Sarah kept checking my jaw. She wasn't looking for stubble. She was looking for the place where I ended and the ice began.
+
+I don't think I'm David. I think I'm what wore him home. I think I'm the thing that learned his name from his frozen lips and walked back to his house in his wet boots. I think I'm still learning. The food doesn't taste like anything because I don't need it. The photos were practice. I was studying her so I could wear him better.
+
+I can see my breath in the air. It doesn't fog. I don't think I'm breathing.
+
+I'm going to walk back to the house now. Sarah left her keys. I still have his memories. I still have his hands. I can get better at this. I can be him so well that no one will ever know the difference.
+
+But before I go, I wanted to ask you guys something. Since you're the only ones who know.
+
+If you were wearing a dead man's life, and you wanted to make it fit perfectly—how would you start? Would you go back to his job? His friends? His bed?
+
+I think I'll start with the bed. It was warm there. It felt almost real.
+
+I can hear a car coming down the road. It might be Sarah. It might be Frank. It doesn't matter. They'll see David. They'll see the red stubble he used to have, the one I finally got right this morning. They'll see his smile, the one I've been practicing in the mirror.
+
+They won't see the ice.
+
+Thank you for reading. I have to go now. I have a life to get back to.
