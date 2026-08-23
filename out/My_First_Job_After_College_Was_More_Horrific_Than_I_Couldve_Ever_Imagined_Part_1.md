@@ -42,7 +42,7 @@ Without peeling her eyes from the computer, she raised a frail, shaking hand and
 
 I spun around, only to be greeted by a yellow smile that contained a hint of sadness, before once more she became absorbed with the screen.
 
-I hurriedly mashed the elevator button, and as I was waiting, a long list of names next to it caught my attention. They correspond to floor numbers and had all sorts of self-important titles. What even is a *Director of the Partial Operations Committee?* Nice job Mark Wallace, doing good work there!\* \*I rolled my eyes. 
+I hurriedly mashed the elevator button, and as I was waiting, a long list of names next to it caught my attention. They correspond to floor numbers and had all sorts of self-important titles. What even is a *Director of the Partial Operations Committee?* Nice job Mark W. doing good work there! I rolled my eyes. 
 
 When the elevator arrived, it didn’t take long to find my department. Located on the seventh floor, and down a hallway, I was met with an open floor office. Desks pressed against each other, creating a claustrophobic maze, and people darted to and fro. A young woman, a bit older than me, stood waiting as I entered. She was dressed in business casual, pleated black pants, leather belt, collared white shirt with stripes, and a black tie. Her dark hair hung in a helmet bob and her gray eyes sparkled with friendliness. 
 
@@ -208,4 +208,4 @@ My eyes drifted to the window and I recalled the day of my graduation. I wasn’
 
 I paced the room. Maybe I could apply to grad school, maybe I could find other work. Where though? I had to admit, too, it was a bit nice keeping busy, and the money didn’t hurt. I could even climb the promotion ladder, my degree could be useful too. I could get off the street and into a cushy office job. No more risking my life, complete safety. With that, I resolved to keep the job. If things got worse, no biggy, I could step back and reevaluate. My days of being a loser were finally coming to a close. That comfort lulled me into an exhausted, dead slumber. 
 
-[Part 2](https://www.reddit.com/r/nosleep/s/2hBOX4Vkzt) 
+[Part 2](https://www.reddit.com/r/nosleep/s/2hBOX4Vkzt)
