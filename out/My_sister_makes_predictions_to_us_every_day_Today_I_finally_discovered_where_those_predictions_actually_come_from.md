@@ -54,7 +54,7 @@ That night, after tucking Lily into bed, I returned to my room, locked the door 
 
 The next day came, and nothing happened. Lily was alive and well, I hadn't touched a single hair on her head.
 
-That was the very first time her prediction hadn't come true. You might think, "Hey, were you actually planning to do something to her? " 
+That was the very first time her prediction hadn't come true. You might think, "Hey, were you actually planning to do something to her? "
 
 No, that's not what I mean. Lily’s predictions always had a "consequence." Think about what happened before: Mom avoided a car accident, and Dad dodged a potentially fatal allergic reaction. Their fates were borne by others. But what about me? I followed the instruction, so what was the consequence of doing so?
 
@@ -152,8 +152,6 @@ It was a text message. Sent from Lily's iPad—the one she usually uses to watch
 
 With trembling fingers, I picked up the phone and tapped the notification.
 
-She had sent an audio file. I pressed play, and a flat whisper of hundreds of overlapping voices echoed through the quiet cabin:
+She had sent an audio file. I pressed play, and Lily's voice came through the phone's speaker—her own, true voice, echoing in the silent cabin:
 
 "Jesse, don't look back."
-
-I'm wondering if I should look back to see what's in the backseat.
