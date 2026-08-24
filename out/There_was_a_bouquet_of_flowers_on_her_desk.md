@@ -1,0 +1,414 @@
+That was the first thing I noticed- a bouquet of white flowers on the desk of a living person; the stares she got from her classmates and her teacher; the glowing red bracelet she wore on her right arm.   
+She did not notice me watching her be ruthlessly mocked and jeered at and even *beaten* for five minutes straight, recording it for four minutes.  
+I know someone who would rush in, but I am not her…
+
+…this was not my battle to fight, anyway. I headed off to the disciplinarian's office to file a report- certainly they could not ignore anything as bad as this.
+
+I saw her the next day, being scolded by the disciplinarian for ‘familial abuse’ in front of the office.  
+…did not really believe it, but the darkest evil spawns from surprising places. I went to ask what exactly she had done.
+
+The disciplinarian pointed a finger at her, struggling to get the words out. “She- this bastard- she did-”  
+She was silent, head bowed, fists clenched to the point that there was blood seeping out.  
+“-she bought her sister a *floral skirt!*”
+
+… … silence.
+
+Cooling fans were whirring in my head. It would be easier to just leave.
+
+“I’m- I’m calling the cops! You will pay for this act! Rotten bastard, have you no shame? Have you no-”  
+\-I grabbed his hand as he opened the door.  
+“Please repeat, sir,” I asked sweetly, “I could not understand.”
+
+“WHAT PART OF ‘SHE ABUSED HER SISTER’ DO YOU NOT UNDERSTAND?! ARE YOU TRYING TO *COVER* FOR HER?”  
+“Sir, please tell me how-”  
+“GET YOUR HAND OFF ME, YOU BASTARD!” He tried to shake me off. “LET ME IN MY OFFICE OR I WILL CALL THE COPS ON *YOU* AS WELL!”  
+“Calling floral skirts ‘abuse’ is an insult to abuse,” I continued. But his shouting overpowered mine.  
+“BUT IT IS, AND NO ONE CAN DENY IT!”
+
+At this point I just wanted to leave. My class was over, everyone was staring at us, and the disciplinarian was acting like *I* was the one talking nonsense.  
+“C-could we just go?” she asked, timidly, whispering.
+
+On the other hand, I was curious how anyone could come up with such a horrid piece of logic.  
+“Just… please tell me how buying a dress counts as abuse. I beg of you.”  
+“IS ANYTHING WRONG WITH MURDER INHERENTLY? BUT WHY DO PEOPLE HATE IT STILL?”  
+“Murder takes an innocent life from-”  
+“WHAT? DO YOU THINK THAT *SHE* IS INNOCENT?!”
+
+…and that was the point when I let go. No point.
+
+There was already a crowd of everyone around us. I glared at them, and they parted like the Red Sea.
+
+—
+
+I ended up taking her to my place. Mother was sweeping the floor, whistling along the way.  
+“Allie! Surprised you brought someone else here!” she said, smiling.  
+I nodded. “Long story.”
+
+Then the newcomer knelt down, tears flowing down her face.
+
+“Ma’am!” she said. “You’ve got to help me! I’m going insane!”  
+As I tried to help her up, my mother asked her about her ailment.
+
+“I just bought a skirt for my sister-”
+
+“*Get out.*”
+
+…wait.  
+“Ma, please explain what-”  
+“Allison, if you don’t get this wretched *thing* out of my sight right now, I will disown you. Why are you friends with an *abuser*? *Get out*.”
+
+We were pushed out the door, which slammed shut.
+
+Her bracelet, an oddly metallic thing, just kept flashing red, while she looked about in confusement.  
+I sighed and took out my phone. “May I speak to Emily, please...”
+
+—
+
+I had questions. Enough to carry physical weight, even. But first:  
+“Tell me your name…”  
+“Amara. ”
+
+The walk to Em’s home was not far- only half a kilometer.  
+Enough for me to try collecting my thoughts.  
+I never did know that my mother was capable of a tone this cold- not even when talking about Grandpa. 
+
+But the incident is… a dress. I went online; no dresses have been found with poisoned spikes or psychedelic drugs, no dress companies have been shuttered for unsafe practices.
+
+“Show me a picture of the dress, please.”  
+She hesitated, understandably.  
+“Look,” I pointed to myself, “I have not tried to kill you yet. Certainly I cannot start now.”
+
+Amara was in a lecture hall on the opposite side as mine yesterday. A quick check of the semester study plans told me what subject she was in. Thankfully, it was a subject I took as well- so there it was, in the class list, her full name.  
+Searching for it online yielded nothing either.
+
+She showed me a picture of that skirt. It was… a skirt. One that could have come from any shopping mall, fitting just about any sane dressing pattern one could think of.
+
+I could only assume that some idiot released cognitohazards that targeted her for… whatever reason. It probably activates whenever she tries to talk about buying her sister a skirt- perhaps she is a suspect.  
+Now to figure out how I am immune. 
+
+“My parents have always disliked me, but never to that extent.” she told me.  
+I could not help but interject. “Your *parents*.”  
+“I’ve gotten used to it,” she said, raising the bracelet, as if this was anything normal. “Me and my sister, we’ve always had these on. It’s to judge our honesty, apparently- but hers never glows red and mine never green, no matter what we do.”
+
+I cannot physically have headaches. I felt on the verge of one anyway.
+
+“I went to school to complain to my best friend- but she slapped me, called me names. The lecturer came to ask me what was wrong, but the second I told him he screamed at me…”
+
+We arrived.
+
+—
+
+I told Emily all about the above events.  
+Outwardly, she looked fine, cheerful even. Still smiling, declaring that we will get to the bottom of this. Upon seeing her not immediately rush to the kitchen for knives, Amara became visibly more relieved- even hugging her and getting her shoulder wet.
+
+I have known Emily for the past fifteen years. Her reaction should be far less… scripted. 
+
+—
+
+We pored over a paper map of the city. Amara drew a triangle shape from her house, then a line to our university. Ten kilometers.  
+Then I drew a line to my house. Another two kilometers.  
+This was already about the city’s edge. All in a relatively straight line.
+
+“Even if one is such a bastard- that doesn’t justify *any* of this…” I heard Emily mutter. Amara seemingly did not hear her.
+
+Tell me *who* released this thing over our city and why- imagine if this was something more…deadly. Tell me where they even found this forsaken thing and *how*.  
+Motives. I need motives. This person knows that she exists, so it is not a random job. They even know that she has a sister. This narrows it down somewhat.
+
+“Have you ever made enemies of anyone?” asked Emily. “Random strangers, classmates, friends, family.”  
+“No one,” was the immediate answer.  
+“Right… anyone you’ve annoyed before?” She was scratching her head now.  
+“Not really.” The bracelet kept jumping between red and green, like some light fixture.
+
+Wait, perhaps the perpetrator had found her randomly on a database…please, no.
+
+“Has anyone become colder towards you the last month?” Emily tried. “People can be horribly cruel, you know. I’ve seen some hold eternal grudges over a few coins, heard of people being killed for the sake of it, which bully ever started for a valid reason?”  
+Amara went silent for a few seconds. Then her head rose-
+
+\-there was a knock on the door.
+
+—
+
+The cognitohazard affected policemen. Which poses a significant problem for me.  
+I should follow the law and turn her in. But I also know that she is innocent.  
+I cannot disobey the law, can I. If I take that first step… 
+
+But they were not acting within the law, either. No part of the law considers buying someone a type of skirt any type of abuse, not that they would care.  
+But they are still law enforcement. I should not disobey them.
+
+“Could you give me proof that she did it?” Emily was asking. “Because otherwise I can't let her go. Can you guarantee a fair trial?”  
+Her parents were out working. They might be back… any moment now.  
+The officers did not say anything. They simply moved forward, faces twisted in anger. 
+
+She is innocent. I cannot let her be taken away either.
+
+“I said, could you please show me evidence that she did it? Because I cannot let a potentially innocent person come to harm!”  
+“You are obstructing the law,” one of the officers said. “Let us in.”  
+Emily opted to grab an umbrella. “This is my home, and *you* need a warrant and proof to enter! Back off!”
+
+Get everyone out of here. Now.  
+I put Amara behind me. “Back door. Wait there.”  
+“What about you two-”
+
+“Officers? What seems to be the problem?” Emily’s mother had returned.   
+Amara was just barely out of her sight, blocked by the policemen at the door.  
+“Ma, they won’t present evidence that they’re not arresting an innocent person!”   
+I told Amara to start running. She refused.
+
+“‘Arrest’?! Emi, what happened here?”  
+One of the officers turned towards her- dear heavens, there was a gap. “We have proof that your daughter is hiding a dangerous criminal. She is refusing us entry, please convince her to stop this action.”  
+Emily simply held up her umbrella. “Not until you show me said proof!”
+
+I whispered for Amara to start running. “No, I have them where I need them.”
+
+Whoever did this might have added an intelligence-lowering curse to their brew.   
+I could honestly feel myself *breaking down* from this.  
+Calm down, calm down. “Tell me who you think did it.”  
+She refused to speak.
+
+“Officers, you have to understand- my daughter is quite the humanist. She won’t let you take the suspect unless you show her-”  
+Then I heard someone being pushed to the ground.   
+“MA!” yelled Emily, trying to force her way through.   
+Amara froze, while my eyebrows rose. Did they actually…
+
+“Your daughter is hiding a dangerous criminal! If you speak up for her, we will arrest you as well,” the officer said. “Now is not the time for *games!*”  
+I drew a ballpoint from my pocket and walked forward. They were packed in the doorway; none of them could draw tasers or batons until they got in. Or they could simply walk out and reorganise there, but it seems that blind hatred has replaced common sense, thankfully for us.  
+Emily’s mother was still on the ground, she was moving at least. So we would have to push them out, but then they can spread and take out their weapons.  
+Then what we should do, I have no idea. Hopefully we escape the courts-
+
+“Stop.”
+
+And we all turned to look at her.
+
+“I can explain everything; just listen to me, alright?”  
+I wish to know what she was thinking. 
+
+—
+
+“My family, they never particularly liked me. Dumped all their love into my sister, left me scraps-”  
+”So you found it fit to mess with her, *criminal*?” one of the officers said.  
+“You could have told *someone*,” Emily agreed.  
+“I didn’t do anything! I figured that- she was my sister, they were my parents, they must feel something for me even after all this- they must, they *had* to, right?"   
+The bracelet kept flashing.
+
+Another officer tried to interject, but Emily’s mother climbed up and closed her hand around his mouth.
+
+“And who would have listened? They all say ‘oh please, that is your family, surely they can’t mean any harm’ while they’re at home jeering at me for doing anything with my life and- but you know what? I think I know better now. Just give me a chance, please. I’ll prove my words.”  
+She glared at the officers. Who probably would have laughed if they were not furious.
+
+If I considered her guilty, *I* would have been in those ranks as well.  
+“Amara, you are accusing your family- that these *fine men* are here on behalf of,” I remarked, “of familial abuse and gaslighting.”
+
+She glared at me. “They managed to trick *cops*! Who else would have known that much about me, had any motive to do such a thing?”  
+“Certainly they should not be petty enough to commit *terrorism*. Tell me where they got their weapons from anyway.”   
+“*Weapons?*” an officer went. “So you admit that-”  
+Just in case he said anything, I stepped on his shoe.
+
+“Miss… Amara? Is that right?” said Emily. “Do you promise that there will be the truth within your family?”  
+We held on; somehow they were pushing us back.   
+“Could you respond, please? I can’t see you.”  
+Her voice was reasonably steady. “Yes.”
+
+Then I felt pressure rise on my side- Emily had let go. I had to, as well, and the policemen came in.  
+“We could as well, then.”  
+Two squad cars were already waiting outside.
+
+Emily had her mother stay back home, while we got in one car with Amara and two policemen. She argued that they could not be trusted to not abuse their suspect, and I opted to stay with her.
+
+The driver could not really keep his eyes on the road, and the one sitting between us kept his hand ready on a taser. Amara had pleaded with them to turn off their sirens ‘to surprise her family’, which made me question just how badly things got there.  
+It was a long drive to the city center.
+
+I asked Amara about her family. Her father and mother were both lecturers, and her elder sister was about to graduate. She just needed one final paper.  
+Asked if she could take off the bracelet. She could not- it was too fragile and the strap was one solid piece.
+
+In the meantime, I typed out a message for Emily. “You consider her guilty.”  
+“Do I have to explain why?”  
+Perhaps, but it would not matter. “You still protected her anyway. Thought you hated that sort of people.”
+
+I counted around thirty-three seconds before she replied:  
+“Yes.”  
+“On the other hand, \*someone\* has to be there, no?”
+
+—
+
+She lived in an ancient mansion- of course it was an ancient mansion. *This* one had neighbours, however.  
+It had no broadcasting dishes nor antenna visible. Please tell me that this is reversible- my *mother* was affected, so give me an explanation or die.  
+Amara was the only person with any sort of confidence. She walked up the stairs and knocked loudly on the door three times.
+
+It did not open.
+
+Emily walked towards it. “Hello? Is anyone home?”  
+No one responded.
+
+An officer started. “Criminal-”  
+“*Suspect,*” corrected Emily, “until I see proof otherwise.”  
+“-did you drag us here to waste police time? This will be charged against you.”
+
+The windows were shining, the lawn was tidy, no moss grew on the walls, and I said as much. If this was the house of somebody else, they probably would have come out to scream- except if they had *other* reasons to fear the police, and *that* would not be a waste of their time.  
+Still, if there was someone in that mansion they would have to come out. It *is* a waste of my time.
+
+“We just have some questions about your daughter!” Emily called out. “She is suspected of committing abuse against her own sister- which is to say, your elder daughter! Could you please-”  
+The door swung open.
+
+“If you know that, why are you asking *us*?” asked a feminine voice. “Scram!”  
+“For reasons, she said that she has proof that she didn’t do it right here, in this house. I don’t know if I should believe it, but-”  
+“Why are you listening to *her*?!” the woman shrieked. “Damn her! I have only one daughter, and this is the devil’s spawn! Get her out of my sight!”
+
+Emily said nothing. Simply grabbed Amara’s hand and tried to drag her down the steps.
+
+I also said nothing. Simply wrenched Amara’s hand back from Emily and dragged her back up.  
+“They clearly do not want her here!” yelled Emily. “There are other ways!”  
+She still thinks that Amara was guilty. “That is an admission of *their* guilt, perhaps.”  
+”What guilt?!” she said, grabbing Amara’s hand once more with force. “Allison, what guilt does a horrified mother have?!”  
+“I have no idea how to explain, just please-”
+
+\-something snapped.  
+We froze. Emily slowly opened her palm, wincing in pain.  
+It was the bracelet, in shards.
+
+And there I saw… well, nothing that could possibly gauge any sense of honesty or sense.  
+It was a chip-blob connected to an LED.  
+“... no wonder she’d done all that…” Emily said, taking out a few bandages. “Does it hurt?”
+
+—
+
+So, to clarify: the bracelet, that was supposed to measure people’s honesty, was installed with a randomly flashing light instead. Please tell me that no one added intelligence-lowering drugs to their water supply.
+
+Emily sighed, took the pieces, and walked up the steps again, knocking again.
+
+“Why haven’t you bastards left?!” the mother asked, opening the door. “I can sue you for giving my daughter second-hand trauma-”  
+“Which *you* might share responsibility for.” The pieces were presented.
+
+…”you broke it? How *could* you?!” Her eyes were lit with hellfire. “How much did she pay for you to do this-”  
+“Look at what was inside. Look at it.” Emily was barely holding it in as well.   
+“-all of you are the devil! The devil! Who does she *think* she is, believing that just because I gave birth to her I have to love her?! 
+
+“I never wanted a second child anyway, and this only proves it, lying thieving snivelling brat that she-”  
+*“Look at it!”* Emily yelled.
+
+That shut her up, at least.
+
+“Stop ranting and look at what you *trusted* all this time! Actually take a gander at what you put on her- no sensors, no meters, just this weird *blob* and a light! What measurement *were* you expecting to gain?!”
+
+She didn’t respond. She stood there, silently, shaking slightly. *“No…”*  
+“Of course she grew up to be a monster. You never gave her another chance…” Emily’s voice was tearful. Lamenting. “It was terrible, what she had done to you… it was horrible, what could have been…”
+
+Amara looked helpless. “Y-you think I did…?”  
+And three people spoke at once.
+
+Emily trying to argue that no, she still *does* have a chance to become a better person.  
+Me trying to argue that no, she did not *do* anything, as it was all the result of a cognitohazard.
+
+And the mother shrieking and trying to push Emily down the steps, only for me to catch her.  
+“No, no, no! It can’t be fake! It can’t be! The expert said that it worked! It cost *thousands* to buy that pair! It can’t be! It can’t-”  
+“Hang on, what expert sold you this?”  
+But she was clutching her head and ranting. “No, no, no! YOU! YOU MUST HAVE REPLACED IT! WHERE IS THE ORIGINAL?! WHERE IS IT?!”  
+“It must be horrible for you right now,” Emily tried to say, “but-”
+
+“Mum?” someone asked, walking downstairs. “What-”  
+I rushed towards the figure, watching her eyes widen-  
+*“Al-”*  
+\-pulling on her arm-
+
+*snap.*  
+Her green bracelet broke apart, revealing another chip-blob and light. For whatever reason, she blanched.
+
+I walked back towards three horrified pairs of eyes, dangling the broken remains in front of them.  
+Emily’s voice was shaking. “Did you just…”  
+The mother collapsed.  
+Amara, for her part, froze for half a second, and rushed into the house.
+
+Only for Emily to block her way.
+
+—
+
+“You still traumatised her, *both* of you. Get out, please? Let me handle this.”
+
+Policemen were securing the mother, who was silent in whatever feelings she could have had. They were not, however, taking a step into the house.  
+I could feel some kind of radiowave coming from upstairs. I cannot get near it, however.
+
+“Emi, you should check up on her.”  
+She continued to stare me down. “After her abuser leaves. Please?”  
+Amara walked up to her, fists clenched. “What, exactly, did I actually do to deserve you calling me this…?”  
+Emily could not answer. She was trying to find the right words.
+
+I should side with Amara. She *is* innocent, and the potential culprit may be trying to hide the evidence right now.  
+I do not know if she is the culprit, however, or if Amara is just using it as an excuse for vengeance.   
+I should side with Emily. She *is* my friend, for what value I hold of the word, and she might calm the sister down.  
+Just because I know her does not make her position right. She cannot be reasoned with at this stage.
+
+I could push Emily down and go confront the girl upstairs.  
+This is using her well-being as a means for my purpose.  
+It is the best thing I can do.  
+There has to be another way, there has to-
+
+Laughter rang out upstairs.  
+And we forgot about any of it, and ran.
+
+—
+
+There was a machine, humming in her room steadily, steadily. A skirt- *the* skirt- was thrown on her bed, creased. She was at her computer grinning- *heavens, tell me she did not…*  
+I snatched the monitor, expecting to find some global influence zone of skirt-haters.  
+Or a ransom letter addressed to the nations of the world. Or something.
+
+I saw paragraphs upon paragraphs of text, prefaced by the words
+
+‘On the Inducement of Madness within Humans: An Essay’.  
+“You can’t delete this no more,” she sing-songed, “I already sent it to my professor. Oh, he’d be so glad.”
+
+… … oh.  
+I grabbed a pair of scissors from her desk.  
+“Eh, tear the thing down.” She was grinning. “Not like I need it anymore.”
+
+I went towards her wardrobe and took out an old paint-stained shirt, balled it up, and pressed it on one side of my neck.
+
+The scissors went into the other side.
+
+—
+
+That calmed me down somewhat.  
+The machine had no visible switches. It had no visible antennae either, but wires poked out of all sides of the thing.  
+Emily was trying to explain to Amara about how I was still moving.
+
+What it broadcasted was some sort of hypnotic command that could only target humans. That explains it.  
+Speaking of explanations, it was connected to a wall socket.  
+“Please tell me that unplugging this will not give people mental whiplash,” I groaned, voice metallic.  
+The madwoman at her desk asked me what ‘people’ meant.
+
+My mind feels sluggish, my head hurts, and honestly I wish to go home.  
+“Just…please explain how you coded this thing.”  
+She very helpfully showed me *a row of computer ports.*
+
+I used my phone to interact with it- never connect to unknown devices, after all.   
+And… *send*.
+
+They stood still for a second, two.   
+Then the sound of footsteps rushing up- policemen.
+
+Then the sound of knees hitting the floor- Emily was apologizing to Amara.  
+What for, I have no idea.
+
+“Gentlemen,” I pleaded, “give me some time.”  
+Emily led Amara downstairs, an officer having called.
+
+—
+
+I must be in a dream. Only dreams are nonsensical.  
+“This whole thing…” I said out loud, trying to recognize each word, “was part of your… *graduation paper*.”  
+She nodded. “No one’s thought of it before, I checked. And we even have the perfect test subject!”  
+“A live human. I would be surprised if your professor took it seriously.”
+
+Her face visibly darkened. “*Is* she human, though…? Mother never cared for her. She always cared for me, instead. Only humans are loveable, right?”  
+Her eyes were shining. “It was a nice little prank I did. Would have been nice if it worked- then perhaps Mother would actually be happy for once.”
+
+I still held out hope that she was lying; no one could ever think like that.
+
+“Your bracelet. It never shone red for you, and never shone green for her.”  
+“Ah, that…” She gave a light chuckle. “I figured out what it was long ago. Hacked into the thing. As for what happened to *hers*… I have no idea either. It always did have a tendency to glow red more often. You might be asking why I didn’t help her…”
+
+She gave me a quizzical tilt, almost naively. “...if she couldn’t figure it out after all this time, why *should* I?”
+
+“... because that’s what people do?”  
+I turned around- Emily had apparently finished whatever business she had downstairs.  
+“Let alone her being your family, what do you do if someone trips and falls?”
+
+“I’d help them up,” she said, raising a hand. “But what *does* this have to do with my paper…?”

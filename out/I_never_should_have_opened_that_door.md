@@ -1,0 +1,102 @@
+Growing up in rural England, I had always loved the picturesque scenery. Old houses, generously spaced. Low, stone walls surrounding properties that were home to luscious, sometimes overgrown gardens. The roads were quiet, and the community friendly. It was much different from the cities and busy towns I had seen on the television.
+
+
+
+But our house had something that never really made sense: a strange green door on one of the external walls. It was an old door, with chipped paint, and an elegant brass handle.
+
+
+
+At first I thought nothing of it. A door to a storeroom, maybe. But there were a few details about it that always concerned me.
+
+
+
+First, I never understood why it was barred shut. Huge planks of wood with reinforced iron bars prevented me from ever opening it. If I twisted my limbs at unnatural angles, I could sometimes get a hold of the handle. But I was never able to open it.
+
+
+
+Even more curious, though, was where the door was placed.
+
+
+
+Our house was an old, two-storey stone cottage. Some of the inside had been renovated to add plaster walls, but the majority of the ground floor was still stone wall throughout. So when I traced out the placement of the green door, I was surprised to find, on the inside of the house, the bare wall of our dining room.
+
+
+
+It didn't make sense. Logically, it should have opened up into that room.
+
+
+
+I asked my mother about it, curious to see if she had any answers. She responded with her usual gentle demeanor, letting me know that it was an old entrance that had since been blocked off. But the hesitation before she spoke, and the distant look in her eyes, told me a different story.
+
+
+
+Not wanting to cause a fuss, I dropped the subject, and did my best to remove the door from my mind.
+
+
+
+This worked well, until a few weeks later. I was walking home from school when something caught my eye.
+
+
+
+It was a house, maybe about 100 metres back from the road. I had walked past this house dozens of times, maybe more. But today, one single detail stopped me in my tracks, causing my heart to momentarily skip a beat.
+
+
+
+On the side of the house stood a single green door. I couldn't tell from here, but I was certain it would have chipped paint, and an elegant brass handle.
+
+
+
+Curiosity got the better of me. I leapt over the small stone wall surrounding the property, and made my way toward the house.
+
+
+
+I knocked on the front door for several minutes, hoping to ask the owner about their house, and the mysterious green door. No one appeared to be home.
+
+
+
+I walked a lap of the house. Maybe someone was out in the garden. But as I circled around, no one in sight, I found myself pausing in front of the green door.
+
+
+
+Looking down at the chipped paint and elegant brass handle, I couldn't help but wonder what lay beyond. I reached out and gripped the cold brass. It creaked as I turned it.
+
+
+
+As the door slowly inched open, I expected to see the dull interior of the house. Furniture and lights. Maybe even a rug to provide comfort against the cold slate floor. But instead I saw something different.
+
+
+
+At first I wasn't sure what I was seeing. Sunlight. Trees. The reflection of the door itself. A figure, my own. Was this a mirror? It took up the entire frame of the door. But then something made my heart sink.
+
+
+
+My reflection had no face.
+
+
+
+My blood ran cold at the sight of the smooth skull that made up my reflection. It moved as I moved. Or… did I move as it did? I couldn't tell. I suddenly felt as if my movements weren't mine anymore. I waved my arm, watching the figure wave back at me in perfect synchronization.
+
+
+
+We pointed to each other. Then to our faces. I touched my hand over my mouth. As I moved it away, so did the reflection. Only now it had a mouth. My mouth.
+
+
+
+I stared in shock, unable to believe what I was seeing. Then, without any conscious decision, my hand started reaching toward the reflection. Slowly, our mirror fingers moved closer. My breathing stopped in anticipation. But then some instinct kicked in, and I ripped my arm back.
+
+
+
+In a moment of terror, I slammed the door shut. I suddenly understood my mother's distant look. 
+
+
+
+I looked around, desperate to find something - anything - to make sure this door could never open again. I found some old planks of wood and a fallen tree branch. I wedged them all up against the door as best as I could.
+
+
+
+Then I ran.
+
+
+
+And as my legs swiftly carried me back to the safety of my own home, I kept asking myself: what would have happened if I touched the reflection?
+
