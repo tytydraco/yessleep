@@ -60,7 +60,7 @@ The queen cascaded out of the pit, lighting struck behind it, and it charged acr
 
 I thought my energy had been spent, but any exhaustion vacated my body. I tore through the blackberry bush, and barely even noticed. Behind me, trees crashed to the ground, and an awful wailing came from the queen. Comparable to what you might hear if you were in a plane crash, men, women, and children, helplessness and lack of control potent, screamed at the top of their lungs. They were often overpowered by the trumpeting, which contained a vastness, as if it were blanketing the entire forest.
 
-To call it a scramble up the ridge would be an understatement. I clenched the ground and flung dirt, threw my arms and legs forward with all my might, and launched myself off any solid root or tree. I crested it,  tossed myself down the hill and went into an uncontrollable roll. I tumbled down, hit my head and somersaulted, but maintained my grip on the bag of emitters. I came to a stop by slamming into a log, and without skipping a beat sprung up and ran down the trail. 
+To call it a scramble up the ridge would be an understatement. I clenched the ground and flung dirt, threw my arms and legs forward with all my might, and launched myself off any solid root or tree. I crested it,  tossed myself down the hill and went into an uncontrollable roll. I tumbled down, hit my head and somersaulted, but maintained my grip on the bag of emitters. I came to a stop by slamming into a log, and without skipping a beat sprung up and ran down the trail.
 
 This time, I turned my head briefly. The queen slid down the hill, a mudslide in her wake, taking entire logs and trees with it. I threw an emitter to try and distract her, but she ignored it and didn’t waver from her chase. All I could repeat to myself, over and over, in equal parts disbelief and disgust: *I had really done it now hadn't I, I had really done it now hadn’t I, I had…* 
 
@@ -169,3 +169,5 @@ He started sobbing, a dry heave, as if it was his first time crying in years. I 
 “It’s all good man.” I got up, patted his shoulder awkwardly, left him crying into his hands on the table, and went back to the party. 
 
 It was late when I stumbled out of the bar. It was deserted, except for a single black van parked across the street. I eyed it, then walked down the sidewalk, hands in pockets. A flash of light startled me. I turned around, and the van was driving away. There were a few streetlights that flickered, and so I blamed those. In my drunkenness, I quickly forgot the incident, and whistled as I walked home, my mind on my bright future.
+
+[Part 4](https://www.reddit.com/r/nosleep/s/pyFOWfYQgK)
