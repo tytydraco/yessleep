@@ -1,0 +1,103 @@
+I don’t think I’m alone here.
+
+So, I’ll start by saying I’m sorry.
+
+I know it might not mean all that much but I really didn’t mean for things to get this bad. Well, maybe you’ll have better luck with it.
+
+I might sound crazy saying all of this and I know I would thing so too… But before I do this you need to know.
+
+We aren’t alone here.
+
+\-
+
+It started on Friday. No, maybe it was Thursday. I didn’t notice it at first so maybe it was earlier. Honestly it could’ve been tomorrow or next week.
+
+Things really get confusing like that but if you really concentrate it’s easier. I guess when and where it happened doesn’t matter when we’re here to talk about the why and what it is. So, it started on Friday. No, maybe it was Thursday… What? I said that already? Yeah, that happens a lot too. 
+
+Things don’t make a lot of sense when you look at them for too long.
+
+Okay, let’s do this again. Concentrate and don’t look at them, look at me and it’ll make more sense. It still doesn’t make much sense to me either so I've tried to write down my disorganised thoughts in an attempt to keep track of things but there are gaps. I don’t really remember what happened first. I think it started with the fingers— The ones from the dead bodies.
+
+The addict -
+
+Let me preface by saying that I don’t do hard drugs, I went to that place to find someone who does. 
+
+He’d been clean for months but then he disappeared, something that’s never a good sign for a recovering addict. This man was Toby. Toby was my older brother and Rudie had known us for just about our entire lives. I could never give up on Toby even when I hated him and I don’t think Rudie would even consider it. Toby was a difficult brother to have sometimes and he’d disappoint you over and over. It’s hard to give up on someone who saved your life more than a few times. That’s why Rudie was looking for the guy at least. He always said he owed his life to the guy — and that he used to be really fun at parties.
+
+For the past few nights I’d been staying in Toby’s apartment in case he’d showed up but the trail of clothes and necessities scattered across the old floorboards told me he’d taken off so suddenly he couldn’t stop to stuff some socks or toothpaste in a bag. I can’t say there was anything homely about the place, it looked like the den of a conspiracy theorist. He’d covered everything from his windows to the balcony door with torn paper ripped from just about anywhere he could get it and the dust clinging to all that glue meant it wasn’t anything recent. He’d been bugging out and paranoid that someone was watching him. His furniture had been dragged into barriers and lines toward the kitchen like trenches in the mud and with little sense about what and where he was actively hiding from.   
+The  ratty old couch facing the wall and the second hand TV underneath his bed that was stripped bare— he’d built a nest of blankets and pillows in his bathtub and the overwhelming stink of sweat tells me he’d been sleeping there for months. I couldn’t explain his erratic behaviour beyond drugs but even sober I didn’t expect it to be anything rational either. Toby has been going through a lot since his friend hit the pavement. The strings of tape piled up on the tiles like scribbles of trash where he’d sealed and unsealed his bathroom door a hundred times, the fist sized dents and deep nail scratches covering half the doors and the plates. So many plates. Pots and pans and cups and plates spread across the floor in crop circles to alert him when this mysterious lurker would find its way into his home.   
+The plates all had a thin layer of dust coating them except for one. One that was worn and chipped from scrubbing away the leftovers a thousand times— the linoleum bathroom tiles look scratched and scrubbed with the same intensity. Scuffs and footprints drew a line from the balcony and stopped at one place within arms reach of the bathroom door like he had been leaving offerings out for this something as tall as a building invading his home.
+
+I’d cleaned every surface with enough bleach it had my head spinning and dissolved the glue to rip off all the paper and tape but I’d never seen any sign of an intruder who existed outside of Toby’s mind, honestly I wasn’t expecting one to show up but the extent of Toby’s psychosis left me with the uncomfortable thought that something dangerous truly was looking at me when I’d left the trenches and bought light to no man’s land. Toby had gone off the wagon and it wasn’t the first time he’d been consumed by a drug fueled paranoia. Still, Toby hadn’t returned from his apparent bender and calling anything from the hospital to the police station didn’t give us much information that suggested they had him and any real interest in finding a missing junkie. So I’d resigned myself to laying there on his old couch and staring up at this unusual water stain slowly building its own little garden of black mold— I was trying to decide if the thing looked more like a grinning Jesus or the devil with a pointed moustache, if I turned my head to the left it could’ve just as easily been a rabbit. 
+
+I’d spent days mulling over this until Thursday.
+
+This is when Rudie called.
+
+We took the car we’d later find utterly destroyed, but if it was in that condition when I arrived then I certainly don’t remember it. 
+
+The bayside apartment building. 
+
+I’ll never forget that apartment building, it’s amazing what your brain clings to when everything else seems to slip away. 
+
+I remember the grey concrete skin, the colour of a corpse and covered in cracked veins crawling across every corner, any paint that had managed to cling to it was peeling away like sunburn. The body stood lopsided and sunken from exhaustion but its iron bones were too stubborn to collapse. Everything about the decrepit building was an unapproachable sickly thing that was just too stubborn to die. The Bayside apartments were like black mold and cockroaches infesting the area no one could quite get rid of.
+
+Bent metal bars lined the balcony like stained teeth loosely guarding the boarded up throats while each room that sat there like a stomach full of half dead junkies who’d climbed into its mouth and joined the long list of people places like these chew up and spit out. I always felt guilty when the pungent smell of misery left me scrunching up my nose in disgust and trying to keep down the rising bile in my throat, it’s easy to forget the people wasting away in stomach acid aren’t those cockroaches themselves, they’re people but the overwhelming stink of piss and vomit makes it hard for everyone to remember that l. The bayside apartments will probably never be washed clean when the odour has seeped into every wall. 
+
+Rudie is a good example of someone who could scrub hard and wash all of that muck off. 
+
+We both just wanted Toby to do the same. 
+
+ “ We’ll be here all day at this rate.” Rudie nudged a woman with his foot, she was this grey sort of sickly pale with a thick coat and old blanket bundled around her. It did nothing to hide her frail, skeletal frame— most people seemed to look like that. Like the Bayside itself. “ Yo lady, have you seen a tall and lanky guy? Short ginger mop of hair, blue eyes. Very punchable face.”.
+
+“ We won’t get an answer out of anyone in here, dude.” I say and move on to the next throat. “ You're right. They’re all just ghosts aren’t they?”. No one is really helpful, they seem to realise neither of us look like cop material but the restless paranoia or half dead expressions meant they either won’t to talk or can’t do more than drool. What Rudie said hadn’t registered until we walked upstairs and I felt as if I should understand the passing comment but I couldn’t find it in my head. The shock of the place left my head spinning too much to think of anything. “ We shouldn’t be up here. Fuck, this place gives me the creeps.” Rudie says, snorting at some memory and adding “ I used to dare Toby to come up here and look in the windows all the time. He thought this place was haunted. Turns out…”, he stops with his eyes on something for just a moment, barely a second before slipping back into his usual nonchalant— borderline dickish manner. “ Eh, don’t worry about it. Neither of us had the balls to come upstairs.”. “ What’s so different about being upstairs?” I say but Rudie just pats me on the shoulder, “ Sometimes the view is scarier.” His words give me an uncomfortable feeling like they make my stomach churn but I know he’s just being a prick. The only thing you could even see was the empty car park and the red dot of a diner off in the distance. 
+
+A jarringly out of place man squats hunched over on himself at the far end of the Bayside balcony hidden where the daylight won’t reach when we get to the second floor, balding and awkwardly curled like a child crying into their knees but the spine protruding from their back only conjures up the image of a skeleton with each bump visible through the shirt covering his greying skin, his thin arms are scabbed with red bites and cuts he’s scratched open. I know I shouldn’t feel repulsed by the sight but there’s an unexplainable fear in the back of my mind telling me that this man is wrong. This man doesn’t belong here. His clothes are pressed and ironed with a crisp white shirt and a sweater only dirtied by the open scabs bleeding where the sleeves haven’t bunched up. He isn’t supposed to be here— instead they’re holed up in a crack den, shitting in the corner of a balcony. 
+
+Probably. 
+
+Room 203– The final room was right by the man bent down and facing the wall so I felt a need to be quiet as if something bad would happen when some loud noise set him off. Rudie lagged behind me for just a second but had no such trouble walking past them, I doubt he’d even noticed the man. At least he didn’t mention them. The room smelled like rot and copper that managed to cling to my gums like the air itself was made of iron, the furniture was so old and so stained that even breathing on it would make a disgusting squish and the walls were covered in things I don’t want to know the origins of. Toby sat with his back to us just like the man that’s becoming increasingly difficult to remember, perched like a squatting goblin with something crusted on his neck— I watched as Toby sways on dirty feet with unsteady limbs struggling to keep him upright like a puppet on snapping strings, gaunt and lifeless. He was like a grotesque perched on a building, a stone monkey just picking and chewing at something I can’t see but I can hear the squelching of molars grinding lazily against whatever counts as a meal in this kind of place. Toby reaches back and scratches his neck with the mangled and gnawed hands stripped of skin and bitten until there’s nothing but nubs where his fingers used to be. 
+
+Fingers. 
+
+He’s eating his god damn fingers.
+
+“ Holy shit! Toby!” I rushed over and grabbed them without much thinking, holding their wrist and trying to pry it away from their bloody mouth but they so effortlessly returned to chomping down on the almost missing fingers— the rest were rolling idly around his full mouth, “ Stop! Toby stop!” I look around in a blind panic and finally shake off my jacket as quickly as I can, wrapping it around the deranged man’s hand when they once again move from chewing to scratching like it’s the only thing his mind is even capable of doing in his fugue state. The fabric dampens with spit as he continues to repeat himself like it isn’t there. “ Rudie!!” I shout and Rudie quickly comes to a rescue that stops just as quickly, a dumb look of pure shock on his face “ What the hell happened to—“, “ Not now, Rudie! Help me get this idiot on his feet before he starts choking on those things!”. 
+
+The scene descended into the chaos of two men trying to desperately stop an addict willing to break his bones just to rip the others off, each harsh pull was met with thrashing and wrestling that ended in Rudie crashing onto a sickly damp mattress and me hitting something sharp with the crazed man going down with me. Toby clawed and grabbed and soon the snapped finger bones jutting out of torn skin dug into my jaw. “ You don’t understand!! It doesn’t make them go away!!” Toby frantically spoke through big lips and broken teeth, “ You saw it didn’t you? You always see it! Don’t lie to me, you saw it outside!!”, he tried to explain himself with blood and spit covering my face, “ It— It’s everywhere but you forget it all— and…” he pulls up his sleeves to reveal the putrid red-green infection on a flayed and ragged forearm, the other just as bad with small strips still hanging loose— Jesus! The psycho has been doing it everywhere he can reach and I don’t know how long but it must’ve been days, “ I give it everything but they won't go away— get it? No— you don’t— not yet, but you saw Them.”
+
+Thwack!
+
+Rudie hit Toby with the only thing he could find, his boot, kicking them off and yelling an incomprehensible mess of words as if it would take a million insults before any sense got into Toby’s head but the man’s bloodshot, horrified eyes won’t look away from something else— the man from the balcony's face hangs on a bent neck craned to meet Toby’s eyes from the doorway but the blood in my eyes only shows me a blur, their eyes follow him as he scrambles to his feet, “ You see it— that’s one of them!!” He throws himself past Rudie despite their efforts to pull them back and dives out onto the balcony, his head whipping side to side in a panic to find a way out like the stairs weren’t an option— his meltdown reaches its peak and drops just as hard, his shoulders go slack, his expression dulls and what I see feels like I was witnessing the exact moment he’d given up. Without another word or a glance he calmly climbs up on the rusted railing and lets himself fall head first onto the car below. 
+
+A shut my eyes at the sickening sound of the wet crack I’m certain I can hear beneath the crash of Toby’s body hitting the car.
+
+“ Fuck! Toby!” Rudie rushes out and B-lines to the stairs to get down to the man. I stand, trying to do more than sit there wide eyed and shocked through. 
+
+“ My fucking car!!” Rudie shouts in anger and it’s more than loud enough to snap me to attention. I pull the broken needle sticking to my back, another jutting out of my calf and get downstairs as quickly as I can hobble with the feeling of needles pricking everywhere on my skin.
+
+“ The hood is all… Agh! Fucking junkies!” Rudie kicks a tire, raking his fingers through hair that’s matted with blood and pieces of something I can’t place— and don’t know if I want to. He paces, “ Fuck, fuck, fuck!!”. 
+
+At first I can’t process what I’m seeing and Rudie out of rage is just more nonsense my brain struggles to understand— The damage on the car isn’t just damage, it’s Toby. Toby’s body. Contorted with the impact breaking his neck and snapping his back in a twisted mangle of limbs folded like a stack, his head conforming to the dented metal and his dislocated jaw spilling out a pool of blood in the contours. His body twitches and I hope to god he’s dead. “ Ru-Rudie… Can’t you,” I try to speak but Rudie doesn’t even give Toby a second glance. Toby, his best friend. “ We didn’t even fucking find him! He’s fucking paying for this bullshit—“ Rudie shouts and paces with no real outlet for his rage but I can’t take my eyes off of Toby. Toby, who Rudie won’t even acknowledge.
+
+If I was smart I would’ve said something right then to make Rudie look— really, closely look. If I didn’t take my eyes off of Toby and paid attention to the other things I would’ve known. The other things? Ah… You don’t remember? Neither did I. The out of place man staring from behind the rusted balcony bars. He had his back to us but when I looked at him something in my brain knew that he was looking right back.
+
+I didn’t notice that Toby wasn’t there anymore.
+
+And I didn’t notice the others either.
+
+\-
+
+Is this making sense yet?
+
+Don’t worry, it took me a while to figure it all out too.
+
+Okay, we’ll try the next one, maybe that’ll help you understand. 
+
+Now, focus on me. 
+
+Don’t look at them, pretend they aren’t lingering there just in the corner of your eye— staring. If you can feel the cold air on your back like something wrong is standing behind you, pretend your skin isn’t prickling. There’s nothing behind you and there’s nothing behind me. Just remind yourself there’s nothing there and don’t let them know you know there really is.
+
+Lastly, and please don’t forget this— we’ve already been over this too many times. 
+
+Don’t. Look. Up.
