@@ -1,109 +1,213 @@
-You ever notice something in your house that… wasn’t? A corner that feels colder. A shadow that bends wrong. Maybe a door you swear didn’t used to be there.
+So hey guy this is my story when it was my first year in college
 
-Mine appeared on a Tuesday.
+When I joined college, seniors told us one rule about the old hostel building:
 
-I live in a two-bedroom apartment. One bedroom, one office. Always been that way. I work from home, no pets, no guests. Just me. But when I walked past the hallway that afternoon, there it was: a door on the left wall. Same color, same handle. Perfectly normal. Only problem? That wall’s *never* had a door.
+Never use the staircase between 2:00 and 3:00 AM.
 
-I stood frozen. Just stared. I even took out my phone to check old pictures. Wall’s empty in every single one.
+I thought it was the usual hostel nonsense.
 
-So obviously I did the stupid thing: I opened it.
+Then, during my second semester, I had an exam the next morning and stayed up studying in the library until almost 2:30.
 
-It was a room. Small. Empty. Dustless. Windowless. The air was warm, still. The floorboards were the same as the rest of the apartment, but… newer? Like freshly installed. The ceiling light flicked on automatically, humming softly.
+I returned to the hostel alone.
 
-I stepped inside. Just for a second.
+The corridor was completely silent.
 
-When I stepped out again, it was night.
+As I reached the staircase, I noticed something strange.
 
-I checked my phone: *3:42 a.m.*
+The lights on the ground floor were off, but the light above the first-floor staircase was glowing.
 
-I’d lost over ten hours.
+I started walking up.
 
-I tried to convince myself I fell asleep, blacked out, whatever. But the next morning, the room was still there. And something was in it.
+Halfway through, I heard someone walking behind me.
 
-A *chair*.
+Slow footsteps.
 
-Not like one I own. This one was old. Victorian maybe. Ornate carvings. Crimson velvet, worn down to threads in spots. And on the chair—*a single Polaroid*.
+Tap.
 
-It was of me. Standing in the room. But I never took that photo.
+Tap.
 
-I slammed the door shut, locked it, pushed a bookshelf in front of it. I didn’t sleep.
+Tap.
 
-The next morning, I pushed the shelf aside.
+I turned around.
 
-The room had changed.
+Nobody.
 
-Now there were *three* Polaroids. Me sitting. Me looking up in confusion. And the third—*me screaming*.
+I laughed nervously and continued.
 
-Over the next week, the room *grew*.
+Then my phone vibrated.
 
-Slowly. By inches. A side table one day. A coat rack the next. Every day, something was different. The lightbulb began to flicker. The air smelled like rotting wood. The photos multiplied.
+2:47 AM.
 
-But I never went in again.
+A message from my roommate:
 
-I started hearing things at night. Shuffling. A soft, dragging noise—like something pacing in a circle. One night, I heard humming. A lullaby I couldn’t place.
+"Bro where are you?"
 
-And then, the photos started appearing *outside* the room.
+I replied:
 
-In my fridge. My coat pocket. My shoe.
+"Coming to room."
 
-One was pinned to my pillow:  
-**Me. Sleeping.**  
-Shot from above.
+Three dots appeared.
 
-I called my landlord. I asked about previous tenants. He hesitated before saying:  
-“You’re in 3B, right?”  
-“Yeah.”  
-He paused again.  
-“There is no 3B.”
+Then disappeared.
 
-I thought he was messing with me—until I went outside.
+Then appeared again.
 
-The building has *no third floor.*
+Finally:
 
-I live on the second floor. And the apartment above me is *gone.*
+"Don't come upstairs."
 
-It’s just roof.
+I stopped.
 
-I ran back inside. My hall was longer than I remembered. The door to the room was now *the only* door.
+I typed:
 
-My bedroom? Gone. Office? Gone.
+"What?"
 
-Just… the door.
+He replied immediately:
 
-And the chair. And the photos.
+"I'm in our room. There's someone outside knocking."
 
-Hundreds now. Thousands maybe. Piled on the floor, pinned to the walls, floating in the air. All of me. Dozens of angles. All expressions.
+Before I could answer, I heard it.
 
-Some I don’t remember making.
+Knock.
 
-Some... I know I *never* made.
+Knock.
 
-Some photos are of me sleeping in places I’ve never been. One shows me with my eyes *stitched shut*. One shows me hanging from the ceiling.
+Knock.
 
-One shows me holding a camera, smiling.
+From somewhere above me.
 
-And now?
+I slowly looked toward the next floor.
 
-Now there's a mirror.
+Someone was standing at the end of the corridor.
 
-It wasn't there before.
+A boy.
 
-And in that mirror—I just saw myself stand up from the chair.
+Wearing an old college uniform.
 
-But I haven't moved.
+His head was lowered.
 
-**I don't think I ever left the room.**
+I called out:
 
-I think it’s been watching me *pretend* to.
+"Bro?"
 
-I think it’s learning.
+He didn't move.
 
-I think it's almost ready to *take my place.*
+Then my phone vibrated again.
 
-So if you ever notice a new door in your house…
+My roommate:
 
-Don’t open it.
+"Don't talk to him."
 
-Please.
+I looked back toward the boy.
 
-Don't let it out.
+He slowly raised his head.
+
+His face was completely dark.
+
+Not shadowed.
+
+Just... dark.
+
+I ran.
+
+I reached my room and slammed the door.
+
+My roommate was sitting on his bed, staring at me.
+
+He looked terrified.
+
+"Who was that?" I asked.
+
+He whispered:
+
+"I don't know."
+
+I pointed toward the corridor.
+
+"Then why did you tell me not to talk to him?"
+
+He stared at me.
+
+"I never messaged you."
+
+I showed him my phone.
+
+The conversation was still there.
+
+But now the messages were different.
+
+The last message said:
+
+"Don't come upstairs."
+
+My roommate looked at it for a few seconds.
+
+Then he asked:
+
+"Bro..."
+
+"Yeah?"
+
+"Why are you showing me messages from my number?"
+
+I looked at the sender.
+
+It wasn't my roommate.
+
+It was my own number.
+
+I didn't sleep that night.
+
+The next morning, I asked the hostel warden about the staircase.
+
+His expression changed immediately.
+
+He told me that three years earlier, a student had died there at exactly 2:47 AM.
+
+He had apparently been sleepwalking.
+
+The warden said something else that I still remember.
+
+"His room was on your floor."
+
+I asked which room.
+
+He pointed toward the end of the corridor.
+
+Room 217.
+
+My room.
+
+I laughed and told him that was impossible.
+
+Room 217 had always been mine.
+
+The warden stared at me.
+
+Then quietly said:
+
+"Son... there hasn't been a Room 217 in this hostel for three years."
+
+I went back upstairs.
+
+Our room number was 218.
+
+I checked the door beside us.
+
+There was no 217.
+
+Just a blank wall.
+
+But that night, at exactly 2:47 AM, three knocks came from behind it.
+
+Knock.
+
+Knock.
+
+Knock.
+
+And my phone lit up.
+
+A message from my own number:
+
+"You forgot to come home."

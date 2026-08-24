@@ -1,0 +1,75 @@
+The Church of Abner’s Folly sits in the middle of a vast wetland just off the junction of Choptank River and the Piankatank.
+
+I pass it every mornin’ in my boat on my way to the oyster farm where I work.
+
+“I heard ‘dem teenagers use it for intercourse,” barks my drunkard boat-mate, Leroy, as we move by it.  
+
+The story goes that its last congregation drank a tonic of arsenic and ginger-ale as they sang hymns to ward off the rising tides and appease their God, who they called Mother. 
+
+That was before my time.  In my years, it has sat, quiet, vacant and strangely without decay in that marshland.
+
+I am a man who does entertain tales of hooey and what-have-you…
+
+…but I was still uneasy when **my lady-to-be-wed asked to exchange our vows there**.
+
+“The Church of Abner’s Folly?” I repeated back to her nervously.
+
+She nodded and smiled at me.  That smile was the closest thing to witchcraft that I knew of, I was helpless against it…but still I tried to make a case against her request.
+
+“Sugar plum…I heard the teenagers use it for intercourse…”
+
+She chuckled it off, “You know darn well nobody after a poke is gonna paddle out to the Marsh of Gregory then put on boots to trudge through that muddy marsh, to then go into a church that probably smells like formaldehyde and a man who’s neglectin’ himself.”
+
+“Okay…So why get married in some place like that?  You wanna have this big wedding, honey…how you gonna get thirty-five-some-odd people…some with bad hips…to wanna do all that?”
+
+She just smiled again and I melted.  I am the tub of Country Crock to her white bread, and she knows she can dip in me with abandon.
+
+Although, I did put my foot down and say I did not want to handle the logistics.  She gave me the sweetest kiss and told me to leave it with her.  A mark of a real, loving, working relationship if you ask this fella.
+
+….
+
+I stood there in The Church of Abner’s Folly, hand-in-hand with my lovely.  All of our nearest and dearest dressed in their finest skivvies.  I was filled with a warmth that I cannot place words for you here.
+
+There were Aunt Rita, Clammy Sam, Daryl and my Great Uncle Coolio on my side of the pews. Most of my family long gone to various ailments or disagreements. 
+
+On her side was a strange mix of well-to-do men and women that I had never laid eyes on.  She called them brothers and sisters even though she spoke to every Tom, Dick or Stanley about the fact she was an orphan.
+
+The preacher was a cloaked woman named Preacher Mayhew.
+
+But I will give credit where credit is due, my sweet girl did handle everything, even the writing of my vows, which again, I was thankful.  I am not one for words and candor.
+
+“My angel, Bethesda, I take you as you are.  A man who lies in front of the woman before him and asks her to guide him to a bold flame of enlightenment.  I take your hand and I will dance with you to Beelzebub’s fiddle, until our feet fall off…”
+
+Those on Bethesda’s side found a good chuckle with this.  My Aunt Rita dosed off a bit, but everyone else looked quite perplexed on my side.
+
+Then Bethesda began…
+
+“I am the child of Abner’s fortune.  As the life left those brothers and sisters who lay on this very floor, I was shaped by Mother’s diamonds in the oyster shells of the Choptank River. A gift, to end mankind….”
+
+I have been accused of being a bad listener more than once or twice in my life.  In this moment, I was guilty as charged because I was lost in the beauty of the woman who I was moments away from calling my wife.
+
+Some of my side of the church got a little rowdy as Bethesda finished…
+
+“Upon marriage to this baptized Christian, Abner’s Tribulation shall commence.”
+
+They began to shout and scream as Preacher Mayhew said, “I now pronounce you husband and wife.  You may kiss the bride.”
+
+Jubilation.
+
+I puckered up and sank into my first kiss with my wife.  I worry “love” is a word that is lacking in emotion, when I tell you I felt love in that moment that I never have.
+
+Here is where I believe you may call me a liar, but I promise you, as we kissed, a dark sea of red began to pour into that church.  I only know that…
+
+**Because I heard the screams.**
+
+Everyone began to **BURN.** The tide, acidic with something holy, or unholy, depending on your disposition, brought all of our guests pain…until they no longer lived.
+
+Not us.  The pulpit on which we kissed — and my friend we KISSED — simply raised up to the ceiling until it was just us.  Alone in our love, ready to set forth on a life of happiness.
+
+I imagine I will field some questions of uncertainty from the lot of you, which is fair game and good banter.
+
+But before that…
+
+I’d like to tell you that we are currently operating The Church of Abner’s Folly and we are looking for new, excitable members of the congregation.  
+
+Are you interested?
