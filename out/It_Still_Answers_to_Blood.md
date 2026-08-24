@@ -1,0 +1,77 @@
+I got there the afternoon they put my uncle in the ground. The house stank of cold earth and wet gorse. I only meant to clear it and leave.
+
+There was a half-finished letter on the table, dated the day before:
+
+Don’t come if you can help it. If you do, keep the blue stone close. It still answers to blood.
+
+I nearly turned round. Told myself one night. Box the papers, lock up, gone by morning.
+
+I checked the locks twice. Mirror normal. Shadow clean.
+
+I woke after two to the sound of water dripping deeper in the house. Footprints were already inside. One set went up the stairs, stopped halfway, turned, and came back down. Another waited on the landing. Same boots. Same wet edge. Same stride. No mud on the banister.
+
+It smelled like gorse after rain, only colder, like it had come up from under the soil. I stood on the bottom step with the torch until my arm shook. I sat there till first light, watching the empty stairs.
+
+There was a blank notebook open in the morning. My name at the top. The handwriting was close enough that I had to look twice.
+
+You’re blood. You don’t leave the valley.
+
+I packed the car. The second the tyres crossed the boundary something heavy settled on my chest like wet soil. The engine died. The phone died.
+
+I tried my sister. It rang once, then wet static and breathing pressed against the speaker, slow and close. I walked twenty minutes into that thick air before my legs folded. I turned back.
+
+Fresh prints were already going straight up the stairs, still dark with wet.
+
+I found the blue stone in the drawer next to his tobacco tin. When I touched it something small and cold clicked behind my ribs. The weight eased a fraction. I kept it in my pocket after that.
+
+A man knocked that evening. Same disc at his throat, Awen cut into it. He didn’t step inside. He looked past me up the stairs like he already knew.
+
+“Gate opened wider when your uncle stopped. Something got past. Lost three this year. Found one on the lanes two nights back. Still answered to his name. Shadow didn’t match. Mouth already wrong—too wide, teeth too even. Like it had been practising. We burned what was left.”
+
+He touched the stone at his neck.
+
+“Mountain tomorrow night. Or stay. Stone only works if you’re already claimed. Looks like you are.”
+
+He was gone before I could speak. Just the dark road and the smell of wet gorse again.
+
+From the landing window I watched a figure cross the street. Ordinary coat. Its shadow stretched twice as long and dragged half a second behind the boots. Under the streetlight the head turned farther than a neck should.
+
+Later in the bathroom the eyes in the glass moved after mine had stopped. Just a fraction. Enough.
+
+New lines appeared in the notebook when I wasn’t looking.
+
+Still counting.
+
+The prints came closer every night. Top of the stairs. Halfway down the landing. Outside the bedroom door. Soft wet sound of them arriving, then nothing.
+
+I put the stone on the floorboards just inside the threshold. Hung the Awen round my neck. The prints stopped a foot short each time. Stayed till morning. Then gone.
+
+I tried the back way through the gorse the next day. Same pressure, heavier the higher I climbed. Halfway up the slope my legs folded. I crawled back on my hands.
+
+When I got in the prints were already in the kitchen, leading straight to the table. The newest page was torn out and left open:
+
+three
+
+The boots are back tonight. Something is standing on the other side of the bedroom door. Breathing slow and ragged, like it’s trying to remember how.
+
+The Awen is hot against my skin. The stone on the floor is going dark at the edges, sticky now, like it’s sweating.
+
+It spoke. Uncle’s voice, vowels stretched all wrong.
+
+“…two.”
+
+I can’t move off the bed. The notebook is open on my knee. A fresh line is waiting. The handwriting isn’t mine anymore.
+
+one
+
+The door handle turned. It turned all the way. The latch clicked.
+
+I don’t know how long I sat there with the stone in one hand and the notebook in the other. Long enough that the breathing on the other side slowed, then stopped. Long enough that the wet prints under the door faded to nothing.
+
+When I finally stood up the landing was empty. The house smelled of cold earth and wet gorse again, but quieter. The weight on my chest is still there, lighter than it was, but it hasn’t left.
+
+I’m posting this from the kitchen table. The stone is in my pocket. The Awen is still warm. The notebook is closed and under a plate so I don’t have to look at the last line.
+
+I don’t know if the mountain is still an option. I don’t know if the man with the disc will come back. I only know I can’t cross the boundary, and something in this house still answers to blood.
+
+If you’re reading this and you ever inherit a house that smells of wet gorse and cold earth, don’t come if you can help it. If you do, keep whatever stone they left you close. And don’t open the notebook.
