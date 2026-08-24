@@ -1,0 +1,1738 @@
+My husband Sun-hei told me yesterday my nightmares have been out of control. That, if I want to let go of the past—I need to write it all down, find some way to get it on paper. I’ll *try* to post this in two parts. Because, who knows if I’ll have the mental wherewithal to write again.
+
+
+
+I understand this sub-Reddit is about posting stories that *are* *real*. That's why I chose to share it with you. This series of events has changed me: I mourn the kid I once was, but have a silent appreciation for the man I am now.
+
+
+
+No matter how unbelievable this may seem, I urge you to keep an open mind. Even writing this now…I’m starting to feel less alone. 
+
+
+
+**Thank you for being here.**
+
+
+
+
+
+**July 5th, 2026**
+
+
+
+Billy Barker Days was a summer celebration— the only one my small town of Quesnel, BC, truly celebrated in full. There were carnivals, a monster truck derby, and every mom and pop establishment in town kept their doors open late.
+
+
+
+I was celebrating the town's dedication to the Gold Rush in my own way.
+
+
+
+By staying home.
+
+
+
+It’s not that I didn’t want to attend. It’s that I had nobody to go with. My boyfriend, Sun-hei and I had recently broken up. We had been dating for five years—we got into a shitty argument about *‘plans after graduation not aligning,*’ which, in hindsight, sent me into a sort of depression.​
+
+
+
+All I wanted was to be with Sun-hei. He was my light and my love, but he wanted to be an accountant in the big city, and I wanted to pursue my art career; cozy and safe in my childhood home.
+
+
+
+It was an ugly breakup. Full of tears, and I needed the quiet of my family farmhouse to sort out all the painful emotions. Honestly: It’s the catalyst for what happened next.
+
+
+
+The house was peaceful as the sun set over the horizon. Tall bur-wood trees swayed in the gentle breeze. In the distance, out the office window, stood the barn. A dark brown roof, two swing doors, and a chicken coop where three chickens roamed freely across the freshly cut lawn.
+
+
+
+My mother, Layla, worked part-time as a veterinarian. She loved animals. Loved our sow, aptly named *‘Mrs. Piggy*,’ and had made it her life's mission to work full-time on the farm. My father wasn’t present; they had divorced three years ago. I never cared. Dad was a deadbeat anyway; he was a bartender and had never stuck around long enough to help Mom build her dream home.
+
+
+
+As the sky darkened, I entered the studio and took a five-by-five pre-prepped wool canvas and propped it against a wooden sill.  This was a creative space I shared with Mom and my little brother, Adam—who was one year old and thought crayons belonged on walls and not on paper.
+
+
+
+I brushed aside a pile of loose primary colours that rolled off the table onto the hardwood floor to make space.
+
+
+
+With a creative surge, I squirted a mound of thallo-blue onto the wooden palette, followed by a smear of burgundy.
+
+
+
+At first, I started with blue and drew in the sky; I faded that into red and indigo before feeling my emotions swell…
+
+
+
+…the painting was too peaceful. As peaceful as my life could have been if Sun-hei had agreed to stay here, in Quesnel, for post-education… and not all the way in fucking Vancouver.
+
+
+
+As my brush lost traction, I swore under my breath. *“Am I the problem?*” I thought. “*Is all this time worth it? Or wasted?”*
+
+
+
+With how much my oil paints cost, and my art page on social media having a mere twenty followers, my pessimism was at an all-time high.
+
+​
+
+I remember thinking: “*Fuck it. Count my losses. What’s my fallback if becoming an artist fails? Am I really willing to lose the love of my life for a bucket of damn paint?”*
+
+​
+
+With a surge of rage, my brush stabbed thick into the red mass of paint and splattered the canvas. It spurted out in pools, destroying the blue hues and turning them into a brownish mess.
+
+​
+
+Following through with the jerking of my limbs, I smothered the canvas in bloody paint.
+
+​
+
+*“That’s more like it,”* I thought. “*I’m red: an annoying eyesore you can’t get rid of.”*
+
+​
+
+I wish I could hug past-me, because after my fit— I remember saying, “**Do better, dumbass.**” Before throwing the paintbrush on the ground.
+
+​
+
+With a grunt of frustration, I set the palette down and slumped into my mother's office chair in the other corner of the room.
+
+​
+
+My eyes wandered back to the painting.
+
+​
+
+Minutes passed.
+
+​
+
+Gathering myself, I returned to it, found the flat brush on the floor, and brought the horse bristles to the spot of red—before my hands trembled and stopped.
+
+​
+
+This is where I need you to suspend your disbelief. Because that spot of red? **It had grown brighter.**
+
+​
+
+What had once been a deep burgundy had now devolved into a blood-red hue. “*The colours should not mix like that,”* I thought before apprehensively trailing my finger through the ink.
+
+​
+
+The canvas was warm, like sweaty skin on a hot summer day.
+
+​
+
+The wetness stuck to my skin and created a trench of white where the canvas peeked through underneath.
+
+​
+
+When I pulled my hand away, I looked down at my forefinger.
+
+​
+
+The ink bubbled… like sea foam. Then, the ink slowly sank into my skin.
+
+​
+
+I gasped and let out a rushed, “What the fuck?” before frantically wiping my finger against my jeans.
+
+​
+
+When I looked back at my finger, the red ink had disappeared.
+
+​
+
+Confused, I stepped out of the studio and into the en-suite bathroom. I held my finger up to the light like I was examining a counterfeit dollar bill… nothing shone through.
+
+​
+
+And there was no sign of the red ink.
+
+​
+
+This unnerving feeling ruined my creative flow. I shook my head before stomping back into the living room and slumping down on the couch. I sat in silence for a long while, staring at my finger.
+
+​
+
+After a few minutes, I wondered if all of that had been real.
+
+​
+
+With a quick Google search, I typed “*ink on skin”* into the search bar.
+
+I got nothing but the run-of-the-mill AI recap: *“If ink gets in your eyes, rinse with warm water for ten seconds. If oil paint gets on your skin, wash with warm water. If ingested, call your local poison control center—”*
+
+​
+
+With a grunt, I threw my phone onto the other side of the couch and curled under the blanket, begrudgingly searching for the TV remote.
+
+​
+
+As night fell, the living room sank into darkness.
+
+​
+
+I put on a comforting comedy-action movie on Netflix to calm my nerves.
+
+​
+
+Over time, the unsettling moment I had experienced turned from a bad memory into déjà vu, until it felt like it had never happened in the first place.
+
+  
+
+
+\-
+
+
+
+I didn’t sleep well that night. I tossed and turned. Something that smelt of sulphur and rot lingered from out of the studio. In my mind's eyes? My canvas. The red spot is a searchlight. Looking for me– the taut cotton canvas was breathing.
+
+​
+
+And then…I felt something.
+
+​
+
+It was warm and bulbous, nuzzling the center of my palm.
+
+​
+
+If you have a pet, like a cat or dog, you’ll know they like to come up at night and nuzzle your hand sometimes. That’s what this felt like…But I did **not** own any pets at the time.
+
+​
+
+So— *what the fuck?*
+
+​
+
+Still half asleep, I twitched my fingers and squinted my eyes. There was a wet ‘slurping’ sound in the darkness.
+
+​
+
+A sudden rush of adrenaline threw me off the couch.
+
+​
+
+I ran for the light switch. I flipped it—heart pounding. ‘*Was there a massive spider in my hand? A rat?’*
+
+​
+
+The living room lights blinded me.
+
+​
+
+When my eyes adjusted, I looked down at my hand. Where the red paint had sunk into my skin?
+
+​
+
+I was now staring down at a massive, foot-wide bleeding tumour.
+
+​
+
+It was pulsing and fleshy, with strings of wiry meat that interconnected my fingers. It matched the pace of my erratic heartbeat. It had no mouth— but still, the mass on my palm made a *‘chittering’* noise.
+
+​
+
+More swearing escaped me as I fell flat on my ass. Over the noise and the panic, now in the light, that red mass ‘***screeched!’*** It detached itself from my hand and slunk down onto the floor, slumping like bundles of wet wool.
+
+​
+
+I watched in horror as the tumour sprouted two wet arms, spindly like a tarantula and thorny like a rose.
+
+​
+
+It finally landed in a meaty mass, moving across the floor like a worm with two front legs, pulling itself along the carpet.
+
+​
+
+I had no idea what this creature was capable of, or why it had grown out of my hand. I took three quick steps forward and stomped down on it—**hard.**
+
+​
+
+A ***‘squelch’*** and an explosion of wet goo splattered around my ankle and the ball of my foot. I stood entirely frozen as the now-dead *‘thing’* remained glued to my skin.
+
+​
+
+With one leg raised, I awkwardly hopped back to the couch and sat down. I picked my left leg up and tilted the ball of my foot so I could look at the gooey mess underneath…
+
+​
+
+…It was an amalgamation of gore. Like I had just stepped on a slug with steel-toed boots and pushed down with all my body weight.
+
+​
+
+A total mess.
+
+​
+
+“Oh, god, what in the—what *are* you?”
+
+​
+
+Whatever it was. It was dead now.
+
+​
+
+Until…it **wasn’t.**
+
+​
+
+All those slimy bits came together like yarn knitting itself with unsteady hands. I instinctively started smacking the shit out of it, trying to smoosh it like an annoying bug.
+
+​
+
+“Die! Dammit!”
+
+​
+
+After a few more wet slaps, it slipped between my fingers like putty and darted off faster than I could process.
+
+​
+
+It sped into the black hallway…and when I chased after it? I flicked on the lights, but that terrifying creature was gone.
+
+  
+  
+
+
+\-
+
+
+
+I understand. It’s a lot. My paint infected me and grew into a tumour that somehow spawned a monster from my palm. I wouldn’t believe me either— I’ve watched *‘The Thing*,’ I’ve seen enough horror movies on Netflix that this is around the time I should have called the cops or run to the nearest hospital.  
+​  
+
+
+But let me ask you something.
+
+
+
+Have you ever believed a fact to be untrue?
+
+
+
+So untrue, that no matter what the opposition says or thinks, your mind cannot be changed?
+
+
+
+We are hardwired to be nonbelievers. That these things, breathing paintings—monsters— are not in the realm of possibility.
+
+
+
+Your own mind fights against facts.
+
+
+
+*‘It was in my head,’ ‘I was having a night terror,’ ‘I’m stressed because of my breakup,*’ these are the first rational thoughts I have— not anything along the lines of, *‘There’s a monster in my house! Run for your fucking life!’*
+
+
+
+Besides…nobody believed my story.
+
+
+
+Because we couldn’t find the damn thing.
+
+
+
+My mother was empathetic at first. It was a late night for her and my little brother. She put Adam to bed and listened to my mind-bending tale.
+
+
+
+In only a few minutes, my Mom set out through the house like a seasoned hunter—she flashed her phone light into the dusty attic, pushed aside every wooden box on the farm, and even checked on Mrs. Piggy to see if she had eaten the monster.
+
+
+
+No such luck.
+
+
+
+I remained hidden in my bedroom, sitting on my bed with my hands clutched together and my body trembling. When my mother placed a gentle hand on my shoulder, she shushed me—just like she had when I was a child. Undeniably comforting.
+
+
+
+“Kiddo,” she always called me. “I know you’re scared. But nothing is here.”
+
+
+
+Mom held her palm up before I could start to protest.
+
+
+
+“Did you have a bad dream? Maybe it was a night terror?”
+
+
+
+My hand, where *‘it’* had grown from, was uninjured. I was angry, confused— I rushed into the office, making sure I tiptoed past Adam’s bedroom, then hurried into the corner by the window.
+
+
+
+If I could find any hints, it would be in the painting.
+
+
+
+But the painting itself remained the same as when I had made it. It was not breathing like in my dream. It had the same thin line from when I dragged my finger across it.
+
+
+
+Keeping the momentum, I ran for the living room.
+
+
+
+“Did you check for a trail?” I asked Mom as she haplessly trailed behind me.
+
+
+
+There was no trail of blood on the carpeted floor.
+
+
+
+Mom finally caught up to me from behind and patted my back.
+
+
+
+“Relax for the rest of the night.”
+
+
+
+I slumped back onto the couch.
+
+
+
+She continued, “Go take a shower. I’ll stay awake and keep an eye out for anything red and gooey.”
+
+
+
+“Fine,” I said stoically. “Sorry about this, Mom. I know you work in the morning.”
+
+
+
+“Anything for you, kiddo.”
+
+
+
+\-
+
+
+
+…I flipped the bathroom light switch.
+
+
+
+Three orange light bulbs above the sink cast warm reflections on the cabinets; one of the three flickered, needing to be changed. Above me, the fan rattled inside a five-foot-by-five-foot hole. 
+
+
+
+Mom had found black mold in the ceiling fan, so the attic interior loomed overhead.
+
+
+
+Ignoring the insistent rattling of the old fan, I looked in the mirror. My dark brown eyes locked onto my baggy white T-shirt. I searched for a spot of red and found nothing. Another reminder that what had transpired couldn’t be real. With all that blood and gore? *Something* would have stained the fabric.
+
+
+
+With a frustrated huff, I threw off my shirt and pants, lumbering into the shower. The shower curtain was one of those cheap, tinted fabrics you got at the dollar store—where you could see the shape of your sink and toilet through it.
+
+
+
+The warm water soothed me. I went to shampoo my curly hair with a product that my mother *“swore by all that was holy,*” claiming it kept thick hair “*luscious and bouncy*,” when in reality I was sure it all cleaned the same.
+
+
+
+I washed the suds from my hair—
+
+
+
+A loud ***“ba-bump!”***
+
+
+
+I threw open the curtain as it rattled on its metal clips. 
+
+
+
+It took a moment to recognize the noise came from above.
+
+
+
+**“Hello**?”
+
+
+
+Nothing. Just a misty, empty room.
+
+
+
+When my racing heart finally settled, I reminded myself that old farmhouses made noises all the time. The walls and roof could breathe. Random bumps could be attributed to anything. 
+
+
+
+I closed the curtain and returned to my shower, taking a bar of lavender soap and scrubbing the spot on my forefinger where I could so vividly remember the ink sinking into my skin like an anchor thrown into water.
+
+
+
+I kept scrubbing. My skin started to ache, but I didn’t care. I just wanted to cleanse the memory---
+
+
+
+***“BA-BUMP!”***
+
+
+
+Through the half-transparent curtain, I saw a fuzzy blur. 
+
+
+
+Crouched on all fours on the floor. 
+
+
+
+The size of a toddler. 
+
+
+
+Its limbs were spindly. Its skin was blood red.
+
+
+
+Like any normal person: I screamed and threw open the curtain while half-fumbling like a newborn deer.
+
+
+
+I was panicked. My vision blurred as I slipped on the tiled floor trying to get out of the tub. I slammed my head against the back wall of the shower. 
+
+
+
+A rush of embarrassment cut through the tornado of fear as I raised both hands to defend my vulnerable self from attack—
+
+
+
+—the roof rattled and a cacophony of bangs lumbered around the room. When I opened my eyes?
+
+
+
+—nothing. ***Again?***  
+
+
+Whatever had been crouched on the floor was gone now.
+
+
+
+“No. No. **Fuck this.**”
+
+
+
+I rushed for the brown towel hanging from the metal rack and tied it around my hips, all the while trying to ignore the ache in my head.
+
+
+
+***“KNOCK, KNOCK, KNOCK!”***
+
+
+
+I already knew who it was.
+
+
+
+“Mom,” I assured her. “I’m okay. I slipped and hit my head.”
+
+
+
+“Unlock this damn door,” she said in a terrified rush. “Now, please.”
+
+
+
+After checking my head for blood—none, thankfully—I turned off the shower and lifted myself to standing. 
+
+
+
+The moment the bathroom door opened, my mother’s hands went to work checking the back of my head.
+
+
+
+“Did you slip?”
+
+
+
+“Yeah…” I couldn’t decide whether to confide in her or not. “...Mom, can we go to the doctor tomorrow?”
+
+
+
+I figured it was a smart idea to share what I had seen with her.
+
+
+
+As I reiterated the visage of a bloody, crouched, baby-sized humanoid on the bathroom floor, I could see the worry in her eyes being replaced by a calm kindness. 
+
+
+
+It was the same look my mother had when Adam got a severe fever. When I broke my foot at ten years old. It was a mother trying to keep her child calm in the midst of a storm, an obligatory response that I could see through now that I was older. It was this fake calm that made me feel even more panicked.
+
+
+
+“Of course, we can visit Doctor Abel first thing in the morning. I’m sure your grandma can babysit Lil’ Adam.”
+
+
+
+For now, Mom told me to take some Tylenol and lie down in bed.
+
+
+
+As I gathered myself and managed a semblance of calm, my mother went up into the attic to look for the bloody monster.
+
+
+
+I could hear her fumbling around up there, footsteps thumping above my head and throughout the entirety of the home.
+
+
+
+“All clear, kiddo!” she shouted down from near the hole in the bathroom. “Nothing but a bunch of Christmas decor.”
+
+
+
+A numbness washed over me. This looming sense of *‘giving up*’ on it all.
+
+
+
+Mom returned from her attic escapades and met me in my bedroom. I was curled up in bed.
+
+
+
+“This could develop into a migraine,” she said, pointing at my head. “And watch for any signs of a concussion. Other than having a big goose egg, I don’t think a hospital visit is worth it when we can go in the morning anyway.”
+
+
+
+She paused, then offered a warm smile.
+
+
+
+“We’ll talk to Doctor Abel about your hallucinations,” she assured me. “I’ll be in the living room all night. If you need anything, shout or text. I love you.”
+
+
+
+“Love you, Mom.”
+
+
+
+She went to turn the lights off, but stopped.
+
+
+
+“I assume you’ll want this on tonight?”
+
+
+
+I smiled up at her and nodded.
+
+
+
+“Okay. Goodnight.”
+
+
+
+She shut the door.
+
+
+
+Unbeknownst to my mother, I wouldn’t be sleeping either. 
+
+
+
+I plugged my phone into the charger beside my bed. I doomscrolled social media for a while. I listened to a funny podcast, but I couldn’t get the image of the crouched monster out of my head.
+
+
+
+I needed to talk to somebody…it was honestly an excuse to call him again.
+
+
+
+I’ll transcribe our texts and post them below…. 
+
+
+
+**Haven:** Hey, are u awake?
+
+
+
+It took him a few short minutes to respond. Sun-hei was always good at keeping people off *‘read*,’ 
+
+
+
+**Sun-hei**: I thought you were an early riser?
+
+
+
+I could hear his soft, raspy voice in my head, and felt myself longing for it.
+
+
+
+**Haven**: I had a bad night, is all. I wanted to talk to someone.
+
+
+
+**Sun-hei**: Are you hurt?
+
+
+
+Before our breakup, Sun-hei had only ever referred to me by nicknames. *‘Hun*,’ or, most commonly, ‘*Chill,*’ because no matter what happened in life, Sun-hei had always seen me as calm and collected.
+
+
+
+
+
+**Haven**: I took a bad fall in the shower and hit my head. Going to the doctors tomorrow morning; I've been seeing shit.
+
+
+
+**Sun-hei**: …feel better.
+
+
+
+It was a cold response. Maybe one I deserved. I could see Sun-hei so clearly in my mind’s eye, lying on his back on that king-sized mattress with a Darth Vader blanket he admitted he should have thrown out months ago. 
+
+
+
+I imagined Sun-hei’s green eyes narrowed on his phone screen, wondering if I was going to address the elephant in the room. 
+
+
+
+**Haven:** I'm sorry about what I said to you the night we broke up. It was uncalled for.
+
+
+
+**Sun-hei**: …and?
+
+
+
+Ten minutes later, my phone *‘bwee--pped!’* and he sent me another text.
+
+
+
+**Sun-hei**: Why do u do this? You start a conversation and can't finish it?
+
+
+
+**Haven**: I just don't know what 2 say to you.
+
+
+
+**Sun-hei**: We've been dating for five years, and now you want to ghost me?
+
+
+
+**Haven**: No.
+
+
+
+**Sun-hei**: Fine. Whatever. Good luck with your paintings.
+
+
+
+I was a firm believer that arguments should never be handled through text. You couldn’t sense the emotion in people’s words, the hidden meaning in their facial expressions. If Sun-hei could have seen the pained expression on my face, would he have blown me off so easily? I sat upright as the wind outside my bedroom window began to howl.
+
+
+
+I dialled his number.
+
+
+
+Three rings—on the last one, he picked up. He let out a heavy sigh on the other end.
+
+
+
+“**What**?” he demanded.
+
+
+
+I cleared my throat before answering shakily.
+
+
+
+“I don’t know what I’m doing…”
+
+
+
+The sadness in my tone made Sun-hei think for a long while. In the silence, I felt compelled to continue.
+
+
+
+“I think all this post-graduation stress is getting to me. I’m seeing things—babe, *really* seeing shit. I imagined this red tumour growing out of my hand. When I was in the shower, I thought I saw this monster crouched on all fours—**and**!”
+
+
+
+As my voice grew more erratic, Sun-hei started to calm me down.
+
+
+
+“Woah, *woah!”* he shushed me. “Catch your breath.”
+
+
+
+“What I mean is, I’m panicking. You know how much my art means to me… but if I moved to Vancouver with you, I’d need to get a full-time job. I’ve spent my life tirelessly on my craft. Without a plan? It’ll all be for nothing.”
+
+
+
+The house moaned as the rainfall began crashing harder against my bedroom window. A roar of wind cut through the panicked static in my head as I cast a glance through the glass pane into the depths of the Canadian wilderness.
+
+
+
+Sun-hei finally answered.
+
+
+
+“Everything always has to be so black and white with you…” A familiar softness crept into his voice. “You’ll still find time for what you love. It just… will come less often.”
+
+
+
+“**Art is all I am**,” I whispered. “It’s the only thing I’m good at.”
+
+
+
+To my surprise, Sun-hei let out a soft laugh.
+
+
+
+“Man, you have to learn to be kinder to yourself. You shouldn’t need me to tell you that.”
+
+
+
+“Right.”
+
+
+
+A gentle longing floated between us.
+
+
+
+“I am sorry. My insult… was *cruel*.”
+
+
+
+“It was.”
+
+
+
+I heard his blanket shuffle as he sat upright.
+
+
+
+“I forgive you.”
+
+
+
+“...You do?”
+
+
+
+“Yeah.”
+
+
+
+He sucked his teeth before admitting,
+
+
+
+“I don’t expect you to be perfect. Everyone makes mistakes. But next time we get in a fight? Don’t you ***dare*** throw out a racial slur again. I’ll throw you to the pavement.”
+
+
+
+“Yes, sir.”
+
+
+
+I blushed, ashamed, feeling heat rise in my chest.
+
+
+
+“It was super uncalled for.”
+
+
+
+“Bygones are bygones…” he said contemplatively. “...*white boy*.”
+
+
+
+“Fuck off.”
+
+
+
+We laughed.
+
+
+
+“Can I take you out for coffee tomorrow? Maybe we can retry this whole ‘figuring out our life’ talk.”
+
+
+
+“I would like that,” Sun-hei admitted. “I’m going to bed.”
+
+
+
+“Okay. I’ll try to do the same.”
+
+
+
+Neither of us hung up. I could hear Sun-hei smiling on the other end of the line.
+
+
+
+“Hey… I love you, *Chill*.”
+
+
+
+I was so overjoyed to hear those words again.
+
+
+
+“I love you too, *Sunny*.”
+
+\-
+
+
+
+Our conversation left me feeling hopeful. It was easy to lay my head on my pillow and finally catch some sleep…
+
+
+
+But… in my dreams, I was staring at an all-black canvas.
+
+
+
+An eternal abyss.
+
+
+
+The only point of contention was a bright red spot in the middle of my vision. This red spot—no more than ten inches in diameter—started to bleed.
+
+
+
+The blood flowed—*faster*—***faster***—until it swelled beneath my feet and drowned me. My breath came out in ragged gasps. My own screams choked in my lungs as they filled with iron and the weight of blood.
+
+
+
+**“MOM!”**
+
+
+
+I jolted upright, gasping for air. The lights in my room blinded me. It took a second for my eyes to adjust. My bedroom door swung open.
+
+
+
+“What—what?” she demanded, grabbing both my shoulders. “Are you okay?”
+
+
+
+Now fully awake, I started to collect myself.
+
+
+
+“Shit—wait, yes. Yes. I’m fine. It was just a bad dream. Holy shit, a really bad one. I stopped breathing.”
+
+
+
+Behind her, the storm outside had gotten out of hand. Torrential downpour overflowed the gutters, spilling torrents of water across my window. At that point, I could hardly see the movement of the trees as their roots held onto the earth for dear life.
+
+
+
+“I’m a mess. Mom, I’m so sorry.”
+
+
+
+“It’s okay—come sleep in the living room for the rest of the night.”
+
+
+
+Just as I agreed, the sound of Baby Adam’s screaming erupted through the house.
+
+
+
+Mom sighed.
+
+
+
+“Bring your blanket and pillow to the couch,” she said, hurrying across the hall to Adam’s room.
+
+
+
+With sluggish, sleep-deprived movements, I made my way down the long, dark hallway toward the couch and slumped into it. Mom had been watching ‘*Mysteries of the Faith*’ on TV, a documentary about Christianity’s most sacred Catholic relics.
+
+
+
+Finally, Mom came out of the bedroom with a lazily swaddled Baby Adam in her arms. My little brother had finally gotten the hint to calm down; he hiccupped once or twice.
+
+
+
+“What the hell is happening tonight?”
+
+
+
+I was thinking the same thing. 
+
+
+
+Then, over the howling of the wind…
+
+
+
+…we heard a pig squealing bloody murder from the distant barn. 
+
+  
+\-
+
+
+
+At first, it was little more than a whistle before it rode the wind and pierced my eardrums.
+
+
+
+“Damn it all.”
+
+
+
+Mom quickly handed Adam to me. She entered the kitchen and returned with a set of car keys. 
+
+
+
+She pressed a red button, and in the driveway, I saw the headlights of her Jeep Wrangler come to life. With her free hand, she gave me the keys.
+
+
+
+“Okay. I need to check on Mrs. Piggy. Get Adam some diapers and his bottle. Take him to the car once you’re all packed up. When I come back, we’ll drive you to the doctor.”
+
+
+
+I squeezed the car keys until my palms turned red. I was scared to death. Ready to tell her to leave Mrs. Piggy and get the fuck away from that house.
+
+
+
+She snapped her fingers in my face.
+
+
+
+“Pay attention, and don’t push yourself.”
+
+
+
+Mom trudged to the front door and pulled on her red rubber boots and long burgundy raincoat.
+
+
+
+She threw open the door. A gust of wind blew her hood off and tousled my hair…
+
+
+
+…what was most difficult to describe now was the **smell.**
+
+
+
+Have you ever been inside a local auto repair shop? There was an unmistakable scent of metal, the sting of gas that flared your nostrils. Imagine that, but carried on a muggy breeze—as if you had stepped onto a beach in the middle of July and let waves of warmth suffocate you. Added to it all was an undeniable stench of rot and sulphur.
+
+
+
+Those sensations flooded into the house the moment my mother opened the front door.
+
+
+
+When the door slammed shut, the smell vanished.
+
+
+
+Unable to take my eyes off her because of the sheer strangeness of the evening, I ran to the living room window, large enough to provide a full view of the twenty-foot stretch of grass and the tiny red-roofed barn.
+
+
+
+Mom covered her nose from whatever strange scent was wafting across the yard and made her way to the pig pen. She opened the wooden gate, and the wind forced it shut behind her. 
+
+
+
+Then she entered the barn.
+
+
+
+Mrs. Piggy stopped screaming.
+
+
+
+The barn’s eastern window cast my mother’s upper body into a block of shadow. A swinging orange light was the only sign that life remained within. 
+
+
+
+I held my breath, an awful sick feeling settling in my stomach.
+
+
+
+I started to count.
+
+
+
+*One.*
+
+*Two.*
+
+*Three minutes.*
+
+
+
+“What was taking her so long?”
+
+
+
+Another minute passed. Mom’s shadow crossed the window twice, as if searching for something.
+
+
+
+Then, finally, she stood at the window.
+
+
+
+**Her silhouette looked directly at me.**
+
+
+
+The standoff stretched on. Seconds turned into minutes that felt like years. I inhaled sharply, reaching into my pocket and gripping my cellphone with sweaty hands.
+
+
+
+I dialled my mother’s phone number.
+
+
+
+The silhouette raised its hand to its ear.
+
+
+
+Phone in hand.
+
+
+
+My mother picked up.
+
+
+
+“What’s wrong…” I whispered. “Are you okay? Why are you staring at me?”
+
+
+
+No answer.
+
+
+
+“Mom? This isn’t funny.”
+
+
+
+She breathed in, filling her lungs. Her vocal cords strained like guitar strings about to snap—  
+There was an awful hissing sound from the back of her neck and a ‘*pop—pop—popping!’* as the shadow in the window threw its head backward at a ninety-degree angle.
+
+
+
+***‘SNAP!’***
+
+
+
+Adrenaline surged through me. I swore and hung up.
+
+
+
+My eyes stayed glued to my trembling fingers as I tried to remember where the phone app was on my home screen. My dumb ass couldn’t even see straight through the rising panic.
+
+
+
+I finally opened it and dialled 911.
+
+
+
+I raised the receiver to my lips, still juggling Baby Adam, who was none the wiser to the horrors unfolding around us.
+
+
+
+Then I looked back toward my mother’s silhouette.
+
+
+
+**Mom was gone.**
+
+
+
+“911, what is your emergency?”
+
+
+
+The female dispatcher sounded professional and cordial, almost impatient.
+
+
+
+“My name is Haven Miller. I live at *\_\_\_* Crescent Drive!”
+
+
+
+I fumbled over my own address details. It was so difficult to think when my wide eyes remained fixed on the distant pig barn.
+
+
+
+“There is somebody in our barn! I don’t know *who*—they attacked my mother.”
+
+
+
+That was the most sane explanation I could offer. Telling the dispatcher that ink from my painting had grown into a tumour? That I had seen a naked flesh monster on my bathroom floor? Out of the question. It would have been overwhelming information for even the most seasoned peace officer.
+
+
+
+The dispatcher answered, sounding apathetic now.
+
+
+
+“Okay. Did you get a look at the intruder?”
+
+
+
+The barn door ***‘SMASHED!’*** open.
+
+
+
+Wood splinters flew into the rainy night sky.
+
+
+
+“Do you know if they are armed?”
+
+
+
+A figure wearing a red coat and red boots took a four-foot-long step into the yard, its legs elongated and spindly like a spider’s. Its chest appeared weighted, dragging behind those impossible limbs.
+
+
+
+“Who is in the house at the moment?”
+
+
+
+It suddenly snapped to attention like a veteran soldier.
+
+
+
+Two beady red eyes, their sclera reflecting in the grainy moonlight, glared at me from the darkness as it stood motionless, its back straight as a wooden plank.
+
+
+
+“Is it just you, or do you have multiple family members in the home?”
+
+
+
+Two humanoid arms sprouted skyward from inside my mother’s coat. In the darkness, I could barely make out the red pigment that composed all of its skin. 
+
+
+
+Chipped nails. Bubbling palms. A meaty texture stretched across its wrists and elbows.
+
+
+
+“If you are able, please grab a weapon and fortify yourself in a safe location…”
+
+
+
+The red-bodied imposter jolted forward.
+
+
+
+*Stopped.*
+
+
+
+Its limbs seemed held back by invisible marionette strings.
+
+
+
+“I will stay on the line with you the whole time.”
+
+
+
+**…and then it ran toward me.**
+
+\-
+
+
+
+My first order of business was to fucking **panic.**
+
+​
+
+I screamed. I fell backwards. My body seized as I flailed around for a good second, wondering what the fuck I was supposed to do.
+
+​
+
+Then I remembered: the dispatcher said it herself.  “*Grab a weapon. Barricade yourself until the RCMP arrive.”*
+
+*​*
+
+It was a mad dash to the kitchen. A desperate hunt for a knife. I couldn’t juggle a phone, a knife, and a baby, so I shoved the phone into my pocket while the dispatcher grew more irritated.
+
+​
+
+“Sir, *please* tell me what’s happening.”
+
+​
+
+As if I could have reiterated the insanity of the moment to her—
+
+​
+
+***“BANG!”***
+
+​
+
+Something heavy barreled into the front door. I heard wood splinter once again as large chunks clattered onto the boot room floor. Whatever this monster was, it would be upon Baby Adam and me in minutes.
+
+​
+
+As I fumbled down the hallway, I heard ***“blam, blam, BLAM!”*** against the old wooden hinges.
+
+​
+
+A sudden gust of wind blew across my back.
+
+​
+
+I smelled iron and warmth. It made me gag.
+
+​
+
+I stumbled into the art room…
+
+​
+
+Just as a familiar voice croaked from behind me through the wreckage of the front door, taut and pained.
+
+​
+
+“*O*—Haven. **Son**? Please wait—it’s *o...o.*..okay. Come on out of that room. *O—****ooooooooooo*****.**”
+
+​
+
+The “*ooing”* noise deformed into rampant pig squeals.
+
+​
+
+I gently laid Adam on his back in the middle of the studio.
+
+​
+
+His crying was a welcome anchor, reminding me this was the real world. If it hadn’t been for Baby Adam—this need to keep him alive—I would have been a weeping mess in the foyer.
+
+​
+
+*“Shhh*, it’s going to be okay, little man.” My voice was light and kind.  “Your big brother is going to keep you safe.”
+
+​
+
+Surprisingly calm, I grabbed the easel, the office chair, and the desk, barricading the entrance.
+
+​
+
+*“Tump, tump, tump, tump!”* Rapid footsteps barreled down the hall, sounding like thunderous wet thudding.
+
+​
+
+It stopped short, just outside the door.
+
+​
+
+Two feet cast long shadows beneath the frame.
+
+​
+
+I backpedaled, scooping Adam off the floor.
+
+​
+
+“*A---****ahhhh***,” it groaned. *“Aahh*— **Adam!”**
+
+​
+
+It finally found the word in a eureka moment.
+
+​
+
+“Tell your big brother to open the door. Come to Mama.”
+
+​
+
+“**You can’t have him!**”
+
+​
+
+The words came out stronger than intended.
+
+​
+
+The thing outside fell silent.
+
+​
+
+“What do you want with me?” I asked, far less confident.
+
+​
+
+I continued backing away until my heels bumped into the painting that had started all of this.
+
+​
+
+I twisted to stare at **it.**
+
+​
+
+My blue-and-indigo canvas, smeared with blood, now breathed. *Just as I dreamed.*
+
+​
+
+The center, where that damned red spot had been so ruthlessly splattered, moved ‘*out’* and *‘in*’ upon the canvas: the soft breathing of warm air.
+
+​
+
+A million thoughts raced through my head.
+
+​
+
+*“Did I summon a demon?”*
+
+​
+
+*“Is the painting cursed?”*
+
+​
+
+*“Am I somehow to blame?”*
+
+​
+
+Then my “*mother*” screamed.
+
+​
+
+**“LET. ME. IN.”**
+
+​
+
+A rapid succession of banging followed, like an expert drummer doing a paradiddle a mile a minute upon the door.
+
+​
+
+If this had truly been my mother, she would have broken her hands.
+
+​
+
+Behind me was a window.
+
+​
+
+I gripped the worn metal latch and twisted it open, throwing wide the pane.
+
+​
+
+A gust of wind nearly knocked me off my feet.
+
+​
+
+It made Baby Adam scream again. I climbed up and over the sill. The **‘*****bang, bang, bang, banging!’*** continued.
+
+​
+
+Within the sea of noise, the door exploded. More violent this time, as though a tornado had blown through it at Mach speed.
+
+​
+
+I cast a glance over my shoulder.
+
+​
+
+A quick one was all it took.
+
+​
+
+Her jacket was slick with rainwater…
+
+​
+
+…Her boots were covered in muck and more red ink that *‘drip-dropped’* onto the hardwood floor. Blood-red skin turned her into a lighthouse beacon—so bright and in-your-face that you couldn’t help but blink away.
+
+​
+
+More ichor dripped from beneath her fingernails.
+
+​
+
+Salves slid from her half-formed smile, where I saw toothless gums and those beady red eyes still pinned upon me, darting across my face like a maniac’s.
+
+​
+
+It radiated desperation. I sensed immense evil rolling off it, riding the waves of that god-awful smell.
+
+​
+
+Whatever this thing was, ***it was not my mother.***
+
+​
+
+My foot slipped, and I stumbled into the wet grass of the front lawn.
+
+​
+
+Baby Adam remained safe as I used my core to shield him and my head to absorb the brunt of the impact.
+
+​
+
+Beyond us stretched the pavement and Mom’s gray Jeep, still parked with its headlights on. Ignoring the pain radiating up my leg, I reached the rear passenger-side door and threw it open.
+
+​
+
+Behind me, I could smell it drawing closer and closer, like an incoming wave upon the sea.
+
+​
+
+My sweaty hands fumbled with Adam’s seat buckles.
+
+​
+
+“Lock the fuck in!” I screamed at the plastic buckles; I finally managed to secure Baby Adam into his car seat.
+
+​
+
+The chest strap clicked into place. I left his legs unsecured. A single belt was all I had time for.
+
+​
+
+I slammed and locked the door in Adam’s face before half-tumbling, half-flailing into the driver’s seat.
+
+​
+
+My eyes lifted toward the windshield.
+
+​
+
+Beyond the tinted glass, I saw the creature on all fours, just as it had been in the bathroom.
+
+​
+
+It moved faster now. It skittered across the grass like a cockroach fleeing a human. Belly kissing the ground. Long fingernails dug up dirt as its eyes stayed low, hunting for me.
+
+​
+
+All the while, a face-splitting grin stretched across its features.
+
+​
+
+I threw the automatic transmission into reverse and put all my weight on the gas pedal.
+
+​
+
+Gravel ground beneath the all-season tires as I jerked the steering wheel.
+
+​
+
+The momentum only made Adam’s screaming more heartbreaking.
+
+​
+
+But in my mind, **it was this or death for both of us.**
+
+​
+
+Once I was facing away from the monster, I shifted into drive and stared into the distance. The engine roared as I pushed the Jeep to its limits, veering off the path and onto the winding backroads of the Quesnel countryside.
+
+​
+
+With the thunderstorm raging, I couldn’t see more than an inch in front of me.
+
+​
+
+I switched on the high beams.
+
+​
+
+—in the car headlights. Its blood-red eyes were inches from mine. Separated only by a thin panel of glass.
+
+​
+
+I screamed something along the lines of:
+
+​
+
+**“Get the fuck away from me!”**
+
+​
+
+Then, in a Hail Mary attempt, I spun the steering wheel to throw it off.
+
+​
+
+The Jeep jolted and bounced across clumps of dirt on the side of the road. I barely managed to keep in control. Tree limbs and debris splattered against the windshield.
+
+​
+
+When, suddenly, the monster raised its arms and its two fists— shattered the windshield.
+
+​
+
+There was an ear-shattering ***‘CRASH!’***
+
+​
+
+Rainwater blinded me. The car was still moving. I hadn’t crashed us yet. Cold air knocked the wind from my chest.
+
+​
+
+I sputtered in confusion, realizing glass had sliced open my cheeks. I tasted blood on my tongue.
+
+​
+
+In the chaos, a single spindly limb reached out, grabbed my hand, and yanked it from the steering wheel.
+
+​
+
+“**Let go of me!**” I screamed over and over.
+
+​
+
+But the windstorm drowned me out. Wet, cold, rough hands gripped my fingers.
+
+​
+
+With a quick lurch, the monster ripped my arm upward toward its mouth.
+
+​
+
+I couldn’t see what it was doing in the darkness.
+
+​
+
+One moment, my right arm was stretched out into the night.
+
+​
+
+The next? The monster had my hand in its mouth.
+
+​
+
+All I could hear was gurgling and swallowing, along with the painful ache of my shoulder being pulled from its socket.
+
+​
+
+It felt like shoving your hand into a bowl of warm gelatin. Uncomfortable. *And in this situation?*
+
+​
+
+Horrifying.
+
+​
+
+A god-awful scream tore from my throat.
+
+​
+
+One I didn’t recognize as my own. The pain didn’t register. I don't think my brain allowed it. All I felt was warmth trickling down my wrist, accompanied by a loud cacophony of wet slurping.
+
+​
+
+Behind the creature, two holy beams of fluorescent white light pierced the darkness. I could see it now. Pointed teeth biting down on my pinky and ring finger.
+
+​
+
+There was a loud ***‘SNAP!’***
+
+​
+
+The monster pulled back, taking both my fingers with it. Over the chaos I heard something familiar in the distance--- the wailing of police sirens.
+
+​
+
+The lights continued approaching. Then I realized. *Headlights.* 
+
+​
+
+I ‘*SLAMMED!*’ on the brakes.
+
+​
+
+There was a loud tumbling sound as the monster became a blur of red. It was thrown from the hood onto the pavement. Maintaining its momentum, it sprang like a frog on all four limbs and vanished into the bushes.
+
+​
+
+Red and blue lights flashed rapidly. Seizure-inducing. The sirens were loud enough to drown out Baby Adam’s screams.
+
+​
+
+I was finally able to feel something else other than sheer fucking panic. I turned my hand toward my face, staring blankly at my missing fingers as blood pooled from the empty sockets like slow-streaming fountains.
+
+​
+
+A strange feeling washed over me. I was tired. Thirsty. Lightheaded. Every muscle in my body ached.
+
+​
+
+The female RCMP officer threw open the driver’s-side door and stepped from her cruiser.
+
+​
+
+Using the door as cover, she raised her pistol toward me.
+
+​
+
+“Driver! Step out of the vehicle.”
+
+​
+
+“I can’t…” I whispered weakly. “...My baby brother. Save him. *Please*.”
+
+​
+
+Something crackled over her radio.
+
+​
+
+Her eyes widened in realization. She slammed the cruiser door shut and rushed toward my Jeep.
+
+She opened the rear passenger-side door first.
+
+​
+
+“Hey, little one,” she whispered to Baby Adam. “You’ll be okay. You’re safe now.”
+
+​
+
+“Is he…” I slurred. “..***.hurt?***”
+
+​
+
+I stared down at my blood-soaked hand.
+
+​
+
+Looking into the rearview mirror, my face appeared pale and bluish. My pulse weakened.
+
+​
+
+The last thing I saw was the RCMP officer approaching my door. Then I fell unconscious.
+
+  
+\-
+
+  
+That's more than enough for me today. It's tough to type this story with missing fingers. I'm starting to feel sick...
+
+
+
+...Sun-hei is waiting to take me out for a walk. We love our rainy evenings out together....something about that cold air brings me back to my senses. 
+
+
+
+I'll be back with more when I am ready. 
+
+
+
+Until then, thank you.
+
