@@ -40,9 +40,9 @@ I nodded, unconvinced, and got up from my chair. I picked up the crumpled paper 
 
 “Yes, you banged on the door. Do you have an appointment with Mr. Flanagan?”
 
-I was about to say no, but the gold name plate on the door caught my attention. *H. Flanagan*\*\*,\*\* in bold, surrounded by embroidered roses.
+I was about to say no, but the gold name plate on the door caught my attention. *H. Flanagan* in bold, surrounded by embroidered roses.
 
- “Yes, I do.”
+“Yes, I do.”
 
 She led me through a cubicle sized reception area. No windows made the room even more dreary and cramped than it might have been otherwise. Her desk, a folding table, seemed like it was about to collapse under the weight of its contents – even sadder, as it was only a phone, some folders, and an old computer. She rapped lightly on the door, which had a nice, presumably new, finish.
 
@@ -92,7 +92,8 @@ She stuck her head in. “Yes, Mr. Flanagan?”
 
 “Right away, Mr. Flanagan.” She left and returned a few seconds later with a bucket and a sun reflector. While she was setting up a beach chair, he undressed himself. 
 
-“Oh, sorry.” I averted my eyes. “Should I be here?”  
+“Oh, sorry.” I averted my eyes. “Should I be here?”
+
 “Should I be here, sir, to you.” His face darkened, his shirt bunched in his hands and fat rolls gleaming white. 
 
 “Should I be here, sir? 

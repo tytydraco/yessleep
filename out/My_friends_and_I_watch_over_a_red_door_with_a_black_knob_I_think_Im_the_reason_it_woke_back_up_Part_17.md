@@ -1,7 +1,6 @@
 [{Original Post}](https://www.reddit.com/r/nosleep/s/zHC46AQ3l3) \~ [{Part List}](https://www.reddit.com/u/Ink_Wielder/s/msMvKqweMG)
 
-Content Warning: >!Depictions of child abuse and harm.!<  
-
+Content Warning: >!Depictions of child abuse and harm.!<
 
 The trap we’d set did a lot of heavy lifting on the creature of the latest cycle. A grotesque, bipedal beast with a head almost like a hammerhead shark and a jaw that unhinged all the way down its chest to its stomach. It hit the tripwire, the boards with nails rammed through them snapped inward, and in a flash, the creature was on the floor, that overlong jaw curling back to scream out a noise like a gnarled metallic creak.
 
@@ -360,3 +359,5 @@ The red door and its corruption, the monsters coming out to find prey—they had
 I may not have started this mess; I knew the whole thing was ultimately out of my control. Even so it didn’t change the facts.
 
 All of this—all the deaths and injury and fatigue that had come about when the door woke up again? It was because of me.
+
+[{Next part}](https://www.reddit.com/r/nosleep/s/sPoGwOTq3a)
