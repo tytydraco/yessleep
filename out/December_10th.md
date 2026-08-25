@@ -1,0 +1,21 @@
+My alarm goes off, screaming at me. Again, I wake. My eyes shift out the window; the darkness looks like a mirror. The ancient nostalgia of empty resentment creeps in. The darkness doesn't stare back, but I feel it smile. I can't see the smile, though I feel the beaming grin. I finally assault the alarm bleeding sound at me.
+
+My feet creep across the empty concrete I unthankfully call home. Eventually, my hands start the dark coffee. Some philosophy enters my being: are these walls my prison, or is it the skin-gilded bones? The creamer sloshes, mixing into my dark desire. Like a typical morning, the internal pondering melts away with the burn of the dark liquid.
+
+Why I wake so early, I don't know. I have no reason to. I grab the center of my universe, my laptop. I hastily put in my password, 13 characters memorized to a T. Protected from the walls that creak. The browser blinds me to the dark contrast of the wallpaper. If someone were here, they surely would mock me for not using dark mode.
+
+The lights flick on, feeling like the mind-numbing fluorescents of a subway bathroom. But where a subway bathroom is covered in grassroots art, mine is just a barren white with a film of brown. I urgently start to pee, my eyes strained by the hour of the bright screen.
+
+My eyes catch the mirror. There in the grime-covered glass appears my disheveled reflection. He looks somber... almost uncanny. His eyes stare through me. Those eyes display a lack of humanity, like a void staring into itself. I see a functioning body, yet dead long ago. The only details that feel real are the greasy hair and the sloppy neckbeard.
+
+I grab my chair and roll it back. Without looking, I plummet, feeling the cushion eat the impact of my reality. I check the time, seeing that 20 minutes have elapsed. A realization I choose not to acknowledge. Peering at the dark window, expecting to see sunlight peeking over the horizon, yet it doesn't.
+
+Five to ten minutes later, staring at the only source of light, my screen, I protest the lack of sun. Marching to the window, I see just darkness. In that moment, everything fades. Darkness consumes my sensations. It is mocking me. "You bastard," I mutter.
+
+After a moment, I realize it feels just like a mirror. It is like staring into his, damn, empty eyes. Even now, that abyss won't stare back. He isn't better than me; he couldn't be. After all, that's me in that mirror, in this window. It's me? 
+
+Suddenly, a jarring realization of reality hits me. My heart drops. I can see my hands in the faint light, but they look distant. My thoughts feel like speakers down a long hallway—neither close nor far. The feeling of something moments from devouring the synthetic flesh encasing this dark room. For too long of a moment, I feel real in a fake world. For a brief moment.
+
+Staring into the screen, watching cat videos, what's left of my sanity claws my throat, yet I don't scream. Nowhere to run, nowhere to hide, the darkness begins to embody my environment. I dare not look at it. Time won't move anymore. Inside, I feel what's left scream. The void assures no comfort I can feel it licking every ounce of me. The light of the screen now sickened and black, the eyes of the abyss press against mine. A deep breath labors my lungs, as I stare back.
+
+My alarm goes off, screaming at me. Again, I wake up.

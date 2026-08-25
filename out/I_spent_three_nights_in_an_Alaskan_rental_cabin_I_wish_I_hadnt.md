@@ -1,0 +1,61 @@
+&#x200B;
+
+My name is Gavin. I'm 25, male, and I live in Oregon.
+
+Last January, I decided to take a week off work and rent a cabin somewhere in rural Alaska. I didn't really tell anyone where I was going. I just wanted to get away from people for a few days.
+
+The cabin was about two hours from the nearest town. There was a dirt road leading to it, but according to the owner, nobody lived within several miles.
+
+That was exactly what I wanted.
+
+The first two days were honestly perfect.
+
+No emails. No traffic. No people.
+
+Just trees, snow, a little wood-burning stove, and enough food to survive the week.
+
+On the third night, the weather changed.
+
+I woke up around 1:30 a.m. because the wind was hammering the cabin. I'd never heard anything like it. The entire building was creaking.
+
+I got up to check the windows.
+
+That's when I noticed the porch light was on.
+
+I was sure I'd turned it off before going to bed.
+
+I looked through the front window.Nothing.Just snow blowing sideways. Turned the light off and went back to bed.
+
+About ten minutes later...A knock.Knock.Knock.
+
+I sat up immediately.I didn't move for maybe thirty seconds.Then it happened again.Three knocks.
+
+I grabbed my phone and turned on the flashlight, even though I knew there was no signal.
+
+I walked toward the front door.
+
+There was a small window beside it. I looked through.Nothing.The snow was coming down so hard that I could barely see the porch.I whispered, "Hello?"No answer.Then I heard something that made my stomach drop.Someone whispered my name."Gavin."I stepped away from the door.
+
+I hadn't told the owner my name. The reservation was under a different name because I'd booked it through a company.I stood there for probably five minutes.Then I heard footsteps.Someone was walking around the cabin.Slowly.Crunch.Crunch.
+
+Crunch.They went past the front window.
+
+Then around the side.Then stopped underneath my bedroom window.I didn't breathe.A few seconds later, something scratched against the outside wall.
+
+Three slow scratches.Then silence.I stayed awake until sunrise.When I finally looked outside, there were no footprints around the cabin.None.I actually started laughing because I thought maybe I'd imagined the whole thing.Then I noticed something.
+
+There were handprints on the bedroom window.
+
+On the inside.I immediately called the rental company when I got enough signal.
+
+The woman on the phone went completely silent when I told her which cabin I was staying in.
+
+Then she asked me something I'll never forget.
+
+"Are you sure you're alone?"I said yes.She paused.
+
+Then she said:"That cabin hasn't been rented since November."I left immediately.I didn't pack properly. I threw everything into the car and drove until I had cell service.I still have the photos I took that morning.I haven't looked at them in months.But last week, I zoomed in on one.There's something standing between the trees behind the cabin.I don't know what it is.It's too tall to be a person.And it's looking directly at the camera.So what the hell do I do now? Do I go to an exorcist, a priest, a paranormal investigator, or is there someone who actually specializes in this kind of thing? I don't even know if I believe in ghosts, demons, or whatever the hell this thing is, but I know something happened out there. If anyone has actually experienced something like this, please tell me who I should contact or what I should do, because I'm genuinely starting to feel like whatever was in that cabin followed me home.
+
+Thanks in advance
+
+\-Gavin
