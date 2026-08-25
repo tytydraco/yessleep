@@ -1,47 +1,33 @@
-Exactly 3:33 am, again. It was the third night in a row. The overflowing rain from the drain fell against the window beside my bed, tip, tap, tip, tap, each drop perfectly timed after the other, growing louder after each drop. I tossed and turned, nothing was working, it was as if the sound was stuck in my head, growing louder and ever so slightly faster with each patter of rain, like a clock that’s gone into overdrive. I leaned over and opened my drawer, reaching for my headphones.
+(Long read) Ever since I could remember, I’ve been intrigued with the paranormal. I don’t know if it’s because my dad and I would watch horror movies since I was little or maybe it was something more. 
 
-As I put on the headphones and turned on the music, the tapping of the rain grew even louder in my ears. It was as if the sound was coming from inside my head, and no matter how loud I turned up the music, I couldn't drown it out.
+I don’t remember when exactly I started seeing him, but it started at a very young age. For reference in 25 (f) now, my earliest memories of this was when I was around 7 or 8 years old. I had a smaller bedroom with my twin bed in one corner and a large vintage family heirloom mirror in the opposite corner facing my bed. 
 
-I got out of bed and tried to walk away from the window, but the sound seemed to follow me wherever I went. I could feel a growing sense of dread in my chest as the rain continued to fall. 
+My first memory of seeing the man, it was super late at night, my parents already went to bed and for some reason I could not fall asleep. It was a school night, and I remember it was super windy out, I could hear the branches slamming against my window. I felt a sense of unease and remember sitting up in bed and I felt drawn to the mirror. He was there, in the mirror, looking like he was sitting on the corner of my bed. I remember being so freaked out because when I looked away from the mirror, there was no one other than me on my bed. He was a tall slender man, dressed in a full suit. He would never say anything, but just stare, deep into my soul. I always felt scared seeing him, but also safe? If that makes sense. 
 
-I stumbled into the bathroom and splashed water on my face, trying to clear my head. But as I looked up into the mirror, I saw something that made my blood run cold.
+Every other night I would be woken up and would feel a pull towards the mirror. He would always be there watching me. This lasted months, until one night (I personally don’t remember this but my mother swears by it to this day) my mom was woken up and heard talking coming from my room. She came to check on me, finding it weird that I was up so late (around 1 am) and found me sitting on the corner of my bed facing the mirror chatting to no one. She told me she was super freaked out at this, she asked who I was talking to and I told her the man in the mirror. She apparently brought me into her bed to sleep the rest of the night and the next day my father removed the mirror from my bedroom. 
 
-The face staring back at me from behind the glass. It simply wasn’t me. Everything was the same, down to the tiny grains of hair on my stubble, but those eyes, they were soulless. It felt like it was staring through me, like a corpse. It was the embodiment of my worst fears, and it was coming for me.
+Months went by and my dad surprised me with a brand new bunk bed. This is when everything went south. I remember the first night in my new bed I was so excited! I finally felt like a big kid and had so much extra space in my room!  I still wasn’t able to sleep well and I started getting weird nightmares. It was always the same dream of the tall man in the suit coming into my room. He would just stand there and stare at me. He never touched me, he just watched, I felt scared but again protected. 
 
-It blinked. 
+That was until he stopped coming around. It felt like something was missing from me. I started to miss his visits, I started to feel attached to him. I felt like I was not safe anymore from the dangers that lurked ahead. 
 
-I screamed and backed away, tripping over my own feet and falling to the floor. I looked up at that mirror, transfixed. The creature smiled at me, a sinister, awful smile that expressed pure evilness. 
+I remember this night clearly. It’s burned in my memory. I was laying on the top bunk, ready to fall asleep, but I couldn’t. I felt like someone was watching me. I look down from my bed towards my bedroom door and could see two eyes staring at me. I knew this wasn’t the tall man. The eyes were different, demonic if you will. I got so scared, I ripped the covers over my head because if I can’t see them, they can’t see me right? That was when I heard creaking, someone or something was on my ladder, slowly coming up to my bed. I was shaking in fear. I wished for the tall man to come save me from whatever was about to happen. I felt frozen, I couldn’t move, I could barely breathe, it was like something was sitting on me. The next thing I know, I felt a claw, not a hand but a claw clamp down onto my ankle. I screamed as loud as I could, bloody murder type of scream. I removed the covers from my head ready to fight off whatever this was and I saw it. It didn’t look human. I can’t even explain what it could’ve been, its eyes were unlike anything I’ve seen. It had huge talon like claws and it was moving towards me. I felt every move it made, it was climbing onto me. 
 
-It was trying to come out of the mirror. 
+The next thing I know, I blink and it’s gone. Right when my dad barged into my room worried as hell. He flicked on the lights and came up the ladder to see what was going on. I couldn’t say anything, I just bursted out in tears. He brought me into his room and I slept in my parent’s bed that night again. 
 
-Suddenly, the rain stopped and the creature disappeared. I lay on the floor, panting and sweating, unsure of what had just happened.
+The next morning, my mom and dad sat me down and asked what I saw that night. They thought it was just a nightmare but when I told them my ankle was hurting, they looked and found red marks - claw like marks - on my ankle. This freaked them out and my mom truly thought I was being stalked by a demon. 
 
-It was as if the rain had brought the creature to life, and now that it was gone, I was safe. But I knew that I wouldn't be able to rest easy until the storm passed and the rain stopped for good.
+After that night it stopped again for a bit. My dreams of the tall man came back and I felt safe again. Like I could sleep again. I mentioned it to my mom randomly one day and this peaked her curiosity. She started asking what he looked like, what he did and I told her, he just watched me. She started pulling out old family photo albums and we were just looking through them when I stopped on one page. It was him, the tall man. I would never forget his face. 
 
-I scrambled to my feet and ran out of the bathroom, not looking back. I crawled back into bed, and laid there, contemplating what I  saw. 
+Turns out that was my great great grandfather, he passed before my mother was even born. This startled her to her core and she called my grandmother (her mom) right away. My grandmother was a spiritual lady and believed that he was here to protect me from something. To just let him be. 
 
-Sunlight approached, and I had not gotten a wink of sleep. 
+A few years go by, I’m around 10-11 ish years old and he would come around periodically, but not as often as before. I was a very outgoing kid growing up and would always make new friends wherever I could. I had this imaginary friend, he would come around when I was feeling a bit down/sad and would always cheer me up. He was around my age, shorter, brown hair and beautiful blue eyes. I remember his eyes, they were like crystal blue. He never spoke, I never knew his name, but he started to come around more and more. This was when my depression hit. I got diagnosed at age 11 and was starting therapy. I remember crying all the time, feeling so low and helpless. He would help me, make me laugh, make me feel seen. I don’t know what happened but one day he became mean he wouldn’t try and cheer me up anymore. It was like he was trying to suck my energy from me. 
 
-I made my way downstairs and into the kitchen, where my parents were having breakfast. 
+The last memory I have of him was thanksgiving of 2012. We were all at my grandmothers house like we do every year. Our family was very large and would always get together on holidays. I remember feeling so helpless and alone, the little boy was following every move I made and my parents brushed it off as being an imaginary friend. I knew he was real though. We were all standing in the kitchen, my grandfather standing beside me. My mother and grandmother were across from us chatting up a storm. I kept complaining about the boy trying to pull me away, seclude me. My family started to think I was going a bit crazy, talking to myself and such. I kept trying to tell the boy to leave me alone and the next thing I know, my leg is being yanked in the air. My grandfather saw this whole thing happen and grabbed me trying to pull me away from whatever force was taking me. 
 
-"What's wrong, honey?" my mother asked, concern etched on her face. "You look so pale."
+He still gets shook up about this ordeal, swearing that he felt like something was physically pulling me toward the hallway. He said my leg was a full 90° in the air. And it took him a good pull to get my leg back down to the ground. 
 
-I tried to explain what had happened, but the words wouldn't come. I kept getting the feeling that somebody was watching me, from every place I wasn’t looking. 
+After that night my mother and grandmother brought me to the church. The priest blessed me, came to our home, blessed our whole house and said many prayers over my head to rid the spirits from me. 
 
-"I think I need to go outside for a bit," I said, grabbing my jacket and heading for the door.
+Since then nothing else has happened and I truly believe that the tall man (my great great grandfather) was trying to protect me from some evil spirit that was attached to me. 
 
-"Are you sure that's a good idea?" my father asked, his brow furrowed with worry. "It's freezing outside."
-
-"I'll be fine," I lied, not wanting to stay in the house any longer. "I just need some fresh air."
-
-I stepped outside and rain started spitting down, the water pelting against my skin and washing away my fear. I walked for what felt like hours, until the storm finally passed and the rain stopped.
-
-I spent the rest of the day doing things to take my mind off of the event, playing video games, watching some shows, but every time I felt like I was starting enjoying the thing I was doing, the thought of those eyes kept crawling into my mind. It was getting late, and I was too tired to finish the show, so I headed upstairs. 
-
-As I settled back into my bed, I couldn't shake the feeling that the creature was still in the mirror, waiting for its chance to strike again. I tried to tell myself that it was just my imagination, but the fear was still ingrained in me, lurking in the back of my mind. Deep down I knew it was real.
-
-I tossed and turned, unable to sleep. Every little noise made me jump, and I couldn't shake the feeling that the creature was watching me. I couldn’t sleep at all.
-
-The clock struck 3:33am again, I heard the sound of the rain starting to fall. It was as if the creature was calling to me, beckoning me to come to the mirror.
-
-I knew that I had to face my fear and confront the creature otherwise this would go on forever. I grabbed a baseball bat and made my way to the bathroom, ready to face it.
+I still get super creeped out everytime I think about what happened and I don’t think I’ll ever fully understand why. 
