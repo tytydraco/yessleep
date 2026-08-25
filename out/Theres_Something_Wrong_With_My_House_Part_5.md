@@ -1,0 +1,246 @@
+[Part One](https://www.reddit.com/r/nosleep/comments/1voy2cl/theres_something_wrong_with_my_house/)
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/1vriree/theres_something_wrong_with_my_house_part_2/)
+
+[Part Three](https://www.reddit.com/r/nosleep/comments/1vt1x1r/theres_something_wrong_with_my_house_part_3/)
+
+[Part Four](https://www.reddit.com/r/nosleep/comments/1vvsadp/theres_something_wrong_with_my_house_part_4/)
+
+By this point, I had started to trust explanations more than I trusted experience. That sounds obvious, given what I was studying, but it felt different after the sleep paralysis. Before, all of this had been theoretical: people saw things, heard things, felt presences, and there were mechanisms that could explain why. Now I knew, bodily, how convincing something false could be. You could feel a person standing beside your bed with the same certainty that you felt the mattress beneath you and still be wrong. Strange experiences could be completely real to the person having them without being real in the way they appeared to be, and that distinction made me feel better.
+
+By the time Hannah came back from Australia, I had mostly turned the whole thing into an anecdote. I told her about it in bed, though not immediately. There had been other things to do first.
+
+Afterwards, we were lying face-to-face beneath her duvet, both of us too warm and neither willing to move far enough away to fix it. Hannah had one arm folded under her pillow, her hair stuck to the side of her face, and a red mark was beginning to come up on her shoulder where I had apparently bitten her. I touched it.
+
+She slapped my hand away without opening her eyes.
+
+“Leave it.”
+
+“I was checking.”
+
+“You were poking.”
+
+“I was checking whether I injured you.”
+
+“You seem devastated.”
+
+“I am.”
+
+I touched it again. One eye opened.
+
+“Eve.”
+
+“Sorry.”
+
+I wasn’t.
+
+Juniper arrived a few minutes later by launching herself onto the mattress hard enough to shift both of us. She planted one paw directly on my ankle, then walked across Hannah’s stomach as though neither of us had bones or internal organs worth preserving.
+
+Hannah made an offended noise. Juniper stopped, looked directly at her, then stepped on her again.
+
+“She missed you,” I said.
+
+“She wants me dead.”
+
+Juniper turned three tight circles in the space between us and lowered herself with her back pressed against Hannah’s chest, paws tucked neatly beneath her chin. I pulled the duvet up around her.
+
+“Oh,” I said. “Look at her.”
+
+Hannah opened her eyes properly. Juniper was wedged between us now, facing me, with Hannah curled behind her.
+
+“She’s the little spoon.”
+
+“Don’t encourage her.”
+
+“She is.”
+
+“She’ll get ideas.”
+
+“She already has ideas.”
+
+I rested one hand lightly over Juniper’s side. After a moment, Hannah put hers over mine.
+
+“There,” I said. “Family.”
+
+“That’s deeply upsetting.”
+
+“You love it.”
+
+“I’m calling the gay police.”
+
+“For what?”
+
+“Whatever this is.”
+
+I smiled. Hannah did too, although her eyes were already beginning to drift shut again.
+
+That was when I nearly said it. The thought came so naturally that for half a second I thought I already had: *I love you.*
+
+Three completely ordinary words. People said them drunk, at airports, into phones, halfway through arguments, after sex when they were feeling sentimental and sometimes when they didn’t mean them at all. I had said them to people before and survived. But lying there with Hannah’s hand over mine and Juniper breathing warm little cat breaths against my wrist, they felt less ordinary than they ever had before.
+
+I knew what would happen if I said them. Hannah would open her eyes. There would be a second—maybe less—when I would have no idea what her face meant. Then she would either say them back or she wouldn’t, and whichever happened, something would have changed. That was the excuse I gave myself, anyway.
+
+So I listened to Hannah breathe, and to the faint wet snuffling noise Juniper made when she was almost asleep, and let the moment pass.
+
+At the time, I thought there would be plenty of other chances. That was one of the luxuries of being happy: you start treating the future as if it has already agreed to happen. There would be another night like this one, and another after that. Another morning with Hannah complaining that I had stolen the duvet. Another evening with Juniper sitting on the kitchen bench despite being repeatedly informed she was not allowed on the kitchen bench. There would be some better moment to say it, one where I wasn’t sweaty and naked with a thirteen-year-old cat wedged between us and Hannah almost asleep.
+
+So I said nothing. I lay with my hand resting over Juniper’s side and Hannah’s loosely covering mine, listening to the soft, uneven rhythm of them breathing. Outside, a car went past on the wet road, its headlights moving briefly across the ceiling before disappearing. Somewhere farther down the street, somebody shut a door, and the room settled back into darkness.
+
+Hannah murmured something I didn’t catch.
+
+“What?”
+
+“Nothing.” Her eyes were already closed. “Goodnight.”
+
+“Night.”
+
+I stayed where I was, awake. I know people always say that after things like this—*I wasn’t asleep*—as though insisting on it hard enough can make memory objective. But Hannah had said goodnight perhaps thirty seconds earlier. Juniper was still purring beneath my hand, Hannah’s fingers were warm over mine, and I was still wondering whether not saying *I love you* had been cowardly or sensible.
+
+Then the bed moved.
+
+Only slightly at first: a small dip near my feet, enough to draw the duvet tight across my ankles. I assumed Hannah had shifted. She did that sometimes when she was falling asleep, one sudden twitch followed by complete stillness. But when I looked down, she hadn’t moved. She was still facing me with one hand tucked beneath her cheek, her breathing already slow and heavy. Juniper remained wedged between us, eyes closed, chin resting against my wrist.
+
+The mattress dipped again, farther up this time, near my shins.
+
+I stopped breathing. There was no violent jolt, no sudden collapse of the mattress. Just the slow compression of springs, as though somebody had put their weight onto the end of the bed.
+
+I lifted my head. There was enough light coming through the curtains to make out the folds of the duvet. Nothing was there, but near my feet the fabric sloped gently downward.
+
+I stared at the hollow until the pressure released. For several seconds, nothing happened. Then the mattress sank again in two places, side by side.
+
+I remember thinking *knees* before I had any reason to. That was simply what the shape suggested: two narrow depressions perhaps thirty centimetres apart, deep enough to pull the duvet down into them. Someone kneeling at the foot of the bed.
+
+My whole body went rigid, and almost immediately I understood what that meant. I could move.
+
+I flexed my toes beneath the duvet. Moved my fingers against Juniper’s fur. Swallowed and felt the movement in my throat. Whatever this was, it wasn’t sleep paralysis.
+
+The two depressions remained.
+
+Juniper’s eyes opened. She raised her head and looked towards the end of the bed, ears flattening against her skull.
+
+“Hannah,” I whispered.
+
+Nothing. I looked at her. Still asleep.
+
+“Hannah.”
+
+A little louder this time. She breathed out through her nose and shifted her mouth against the pillow but didn’t wake.
+
+When I looked back, one of the depressions had moved.
+
+The mattress had risen at the foot of the bed and sunk again closer to my knees. A second later, the other hollow followed. The springs gave beneath each point of pressure with a soft, ordinary creak.
+
+I knew that sound. It was the sound a mattress made when somebody crawled across it.
+
+Juniper stood, her back arching beneath my hand as the fur along her spine lifted. The depressions stopped.
+
+I told myself it was the mattress. An internal spring shifting. Hannah’s weight redistributing through the frame. The fact that two points had appeared one after another meant nothing. Human beings impose patterns on sequential events. That was practically the foundation of my entire—
+
+The nearer depression lifted, and the mattress sank beside my thigh.
+
+A tiny sound came out of me. Juniper hissed.
+
+Hannah did not wake.
+
+The second depression followed. Now they were on either side of my legs.
+
+I couldn’t look anywhere else. The duvet pulled down around the two hollows, deep enough that there was no mistaking where the weight was, but nothing occupied the space above them. My brain tried to complete the image anyway: knees, a body above them, hands somewhere I couldn’t see, a face.
+
+I hated myself for thinking it.
+
+“Hannah.”
+
+My voice came out thin. I reached across Juniper and grabbed Hannah’s wrist. Her skin was warm. I could feel her pulse beneath my fingers, slow and steady and real.
+
+“Hannah.” I shook her.
+
+She made a small irritated sound and pulled her arm towards herself.
+
+“Mm.”
+
+“Hannah.”
+
+Nothing.
+
+Juniper was growling now. I had never heard her make that sound before. It was so low I could feel it through the mattress more than hear it, a continuous vibration from somewhere deep in her chest. She backed towards Hannah without taking her eyes off the empty space above my legs.
+
+Then the mattress dipped again, closer. One hollow appeared beside my hip, then the other.
+
+I recoiled so fast my shoulder hit the wall behind the bed.
+
+Juniper scrambled over Hannah’s stomach, claws catching in the duvet as she tried to get away from whatever I had just moved towards. Hannah woke all at once, coming upright with a gasp, one arm flying across her chest.
+
+“What the fuck?”
+
+I couldn’t answer.
+
+She looked at me, then at Juniper, then back again. I was pressed against the wall with my knees drawn up, one hand gripping the duvet hard enough that my fingers hurt. My breathing was fast and shallow, and I could tell from Hannah’s face that she could hear it.
+
+“Eve. What happened?”
+
+“There was—”
+
+I stopped. The mattress was flat.
+
+Hannah followed my stare towards the foot of the bed.
+
+“What?”
+
+I shook my head.
+
+“You nearly put yourself through the wall.”
+
+“I know.”
+
+Juniper had climbed behind her and was crouched against the headboard, body low, tail puffed to twice its normal size. Hannah reached back automatically to touch her, and Juniper flinched away.
+
+That changed Hannah’s expression.
+
+“What did you see?”
+
+“Nothing.”
+
+She stared at me.
+
+“I didn’t see anything.”
+
+“Then what happened?”
+
+I looked down at the mattress. There was no evidence left: no dent, no mark, nothing displaced that I could point to and say *there*. The duvet was rumpled because we had been lying under it. The bed was old enough that any sound it made could be blamed on springs. Juniper was frightened because I had thrown myself backwards without warning.
+
+Everything already had another explanation. Except I had watched it happen.
+
+“The bed moved,” I said.
+
+Hannah looked down. “How?”
+
+“It was like someone was on it.”
+
+She went very still.
+
+“I thought it was you at first.”
+
+“But it wasn’t.”
+
+“No.”
+
+Her eyes moved briefly to Juniper.
+
+“I don’t know what she was reacting to,” I said quickly.
+
+“Eve—”
+
+“I don’t know.”
+
+It came out louder than I meant it to, and Hannah went quiet.
+
+My heart was still pounding hard enough that I could feel it in my jaw. I wanted her to laugh. I wanted her to tell me the mattress was fucked, or that I had been half asleep, or that I had spent half the year filling my head with stories about strange experiences and then lying awake in dark rooms waiting for them to happen. I wanted her to give me an explanation, because explanations were what made things small again.
+
+Instead, Hannah pulled the duvet around herself and looked towards the foot of the bed. That was worse.
+
+Neither of us spoke for a while. Juniper stayed pressed into the corner behind her, watching the mattress. Hannah watched Juniper, and I watched Hannah.
+
+For the first time since all of this had started, I realised that what frightened me most was no longer the possibility that I had imagined it. It was the possibility that Hannah believed me.
+
+For the first time since all of this had started, I realised that what frightened me most was no longer the possibility that I had imagined it. It was the possibility that Hannah believed me. What I am grateful for, now, is that this was not our last night together. It could have been. Instead, we got another week. Seven days of Hannah home again: singing badly in the kitchen, Juniper occupying whichever part of the bed we wanted most, coffee going cold beside us while we got distracted halfway through drinking it, Hannah’s hand finding the back of my neck when she passed behind me. We were in love by then, although neither of us had said it, and for one more week that love belonged to the ordinary world.
+

@@ -46,7 +46,7 @@ She giggled, dangling her legs under the stool as she reached for the syrup on t
 
 Yes, maybe the prediction was wrong. I slid the pancakes from the pan onto the plate in front of Lily. She happily enjoyed her breakfast, chirping away like a little sparrow, while I could do nothing but obsess over the meaning of that warning.
 
-Lily’s predictions were always declarative statements meant to stop us from doing things we might or were about to do. But what on earth could happen to create a possibility where I would kill her?
+Lily’s predictions were always imperative sentences meant to stop us from doing things we might or were about to do. But what on earth could happen to create a possibility where I would kill her?
 
 Over the next twenty-four hours, I fell into a state of extreme paranoia. I didn't dare step a single foot out of the house. Every time I picked up a butter knife, every time I walked past her, anxiety gnawed at my insides like a viper, making my skin feel stretched and swollen with tension.
 

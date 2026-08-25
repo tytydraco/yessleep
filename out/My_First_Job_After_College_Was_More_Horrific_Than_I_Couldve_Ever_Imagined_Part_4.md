@@ -386,7 +386,7 @@ I opened the door, letting her in first like a gentleman. and we awkwardly walke
 
 “I should be the one apologizing,” she said.
 
-“It was just hot..”
+“It was just hot…”
 
 “We were  frustrated by not finding the room…”
 
