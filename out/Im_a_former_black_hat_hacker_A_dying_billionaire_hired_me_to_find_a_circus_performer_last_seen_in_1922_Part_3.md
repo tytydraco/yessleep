@@ -443,3 +443,5 @@ But I’d be home soon.
 With Destiny’s help, I’d get the truth out.
 
 There are angels on Earth, and they’re at war. One side wants our children, and the other wants our souls.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1vyfhuo/im_a_former_black_hat_hacker_a_dying_billionaire/)
