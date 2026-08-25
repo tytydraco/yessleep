@@ -98,7 +98,7 @@ She stuck her head in. “Yes, Mr. Flanagan?”
 
 “Should I be here, sir? 
 
-He lit up again. “Why, I don’t see why not. We’re a family here at this company.”
+He lit up again. “Why, I don’t see why not. We’re a family here.”
 
 I nodded, and tried my best to suppress an involuntary cringe. He collapsed on the chair, leaned back, and whistled with satisfaction. Trisha left the room, not taking her hostile look off me as she did.
 

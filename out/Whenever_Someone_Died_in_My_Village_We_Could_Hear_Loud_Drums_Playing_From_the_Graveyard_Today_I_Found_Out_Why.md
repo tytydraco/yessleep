@@ -1,0 +1,85 @@
+Whenever Someone Died in My Village, We Could Hear Loud Drums Playing From the Graveyard. Today, I Found Out Why
+
+I grew up in a very rural village in Rajasthan. As far back as I can remember, we'd occasionally hear loud drums being played from the graveyard at night. My parents never let me see what happened there.
+
+"It's none of our business," they used to say.
+
+When I was fourteen, I moved to the city to pursue higher education and eventually settled there. My parents moved in with me as well. During holidays, they sometimes went back to visit my grandparents, but I never went with them.
+
+What's the point of leaving the comfort of city life to visit a village in the middle of nowhere?
+
+But this year, during Diwali, my mother convinced me to go back because my grandparents wanted to see me. I couldn't say no to her.
+
+The village sits on the edge of the Thar Desert. On the way there, we passed a large graveyard. Seeing it after so many years brought back memories of those distant drumbeats from my childhood.
+
+I didn't mention it.
+
+I spent the entire day with my grandparents. But staying in that isolated village, surrounded by people I barely remembered, was becoming too much for me. There wasn't even any internet connection.
+
+I planned to leave the next morning, but the heat during the day was unbearable. Riding my motorcycle that far in the middle of the afternoon would have been miserable, so I decided to wait until evening, when the temperature finally began to drop.
+
+I left just before sunset. Night fell quickly.
+
+The rocky dirt road was completely empty. There were no streetlights, houses, or passing vehicles. My motorcycle's headlight was the only thing cutting through the darkness, illuminating perhaps twenty or thirty feet of road ahead. Beyond that was nothing but blackness.
+
+I was beginning to wonder if leaving that late had been a mistake.
+
+Then I reached the graveyard.
+
+I noticed several faint lights in the distance and slowed down. I stopped my bike beside the graveyard wall.
+
+Then I remembered the drums from my childhood. After all these years, I finally had the chance to find out what they were for.
+
+Curiosity got the better of me. I left my motorcycle against the wall and climbed over it.
+
+The graveyard was mostly deserted. Dry, twisted trees stood here and there between the graves, their branches rattling softly in the night wind.
+
+In the middle stood a small temple.
+
+A crowd had gathered around it. Several people were carrying torches, while others were arranging firewood in an empty space in front of the temple.
+
+I ducked behind a dried tree trunk and watched.
+
+There was a body wrapped in white cloth. Several men stood nearby, and a few others had large drums hanging from their necks. Each held a pair of drumsticks.
+
+Beside the body stood a middle-aged woman dressed in a white sari. What caught my attention was the girl standing beside her. She looked about fourteen.
+
+She was wearing a red dress with a large red tilak on her forehead. The clothing seemed completely out of place at a funeral. She was trembling, clutching the woman's hand, and repeatedly looking between her and the body.
+
+At first, everything seemed like an ordinary funeral. Then the body was set alight.
+
+That's when everything changed.
+
+Two men seized the girl and pulled her away from the woman. She immediately began crying and struggling as they dragged her toward the flames. The woman stood still with a blank look on her face.
+
+ I stood there, frozen in fear.
+
+The girl was forced toward the burning pyre while the people around her simply stood and watched. Her cries became louder, desperate, pitiful.
+
+Then they began to play the drums. The purpose was very clear. it was to drown out her screams. The loud drums mixed with blood curling screams shook me to my core. I could do nothing but watch as her body slowly stopped moving. Nobody in that crowd bat an eye while witnessing this horrifying and inhuman scene. 
+
+The beating became faster and louder until it seemed to fill the entire graveyard. The crowd remained completely silent beneath it, watching as though this were an ordinary part of the ceremony.
+
+Nobody tried to stop them. Nobody even looked shocked. It was as if they had done this before. As if they had been doing it for years.
+
+My legs felt weak. I wanted to run, but for several seconds I couldn't move. I could only stare at the flames and listen to those terrible drums.
+
+Then the smell reached me. The smell of Smoke, burning wood, and something else I couldn't bring myself to identify. The smell of a burning body.
+
+That finally broke through whatever had frozen me in place. I turned and ran.
+
+I nearly fell climbing back over the wall. I reached my motorcycle, started the engine and accelerated down the dirt road without looking back.
+
+After that, everything became a blur. The only thing I could hear was the drums. Even with the motorcycle engine roaring beneath me, I could still hear them in my head.
+
+I didn't stop until I finally saw the lights of the city.When I reached my apartment, I was shaking so badly that I struggled to get the key into the lock.
+
+The first thing I did after getting inside was contact the police.
+
+I told them everything I'd seen and gave them the exact location of the village and graveyard. I don't know whether they've taken any action yet. I'm writing this now because I don't know what else to do.
+
+Whenever I close my eyes, I see those flames again. I can't sleep. And the worst part is knowing I stood there and did nothing while that poor girl was being burnt alive.
+
+I don't know how long this has been happening. I don't know how many people have been part of it. But one thing is certain.
+
+I'm never going back there. And I'll never forget the sound of those damn drums.
