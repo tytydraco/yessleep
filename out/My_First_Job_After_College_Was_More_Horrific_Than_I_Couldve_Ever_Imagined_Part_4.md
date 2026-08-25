@@ -244,7 +244,7 @@ She pulled out a notepad and pen.
 
 “What are you doing?
 
-““W-well, to help find our way back, I guess? We can write down the turns.”
+“W-well, to help find our way back, I guess? We can write down the turns.”
 
 “That’s–” I stopped myself. 
 
