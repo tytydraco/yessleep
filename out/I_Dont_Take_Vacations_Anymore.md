@@ -80,7 +80,7 @@ In one corner, there was a pile of just....keys, all those old to modern fobs...
 
 "Ok, no, fuck this. I'll get us a fucking Uber or something, I'm NOT staying here with this guy and his goddamn keys!" Jake started toward the door, but they quickly slid closed."Fuck you old key master!" Jake yelled, his anger was always his worst friend.Calmly, I looked to Sarah. She was white as a ghost and petrified in stillness. She had already checked. 
 
-She whispered with a quiver,"It's locked from the inside....we're trapped guys."
+She whispered with a quiver,"It's locked from the outside....we're trapped guys."
 
 "FUCK ALL OF THIS!" Jake and I screamed in unison, our baseball instincts taking over. We turned ready to fight, we never got the chance. Frank met our faces with a huge tire iron, knocking both of us out clean.
 
