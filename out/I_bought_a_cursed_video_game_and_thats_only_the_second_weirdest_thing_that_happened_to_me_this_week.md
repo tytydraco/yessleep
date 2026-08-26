@@ -4,6 +4,8 @@ I was in the middle of hoeing an 8-bit field when a text box opened over my farm
 
 I unplugged the console and drove to Rick's to return the cartridge. 
 
+That was the *second* weirdest thing to happen this week. The first was when my mom called me BEN.
+
 I’d consider myself a collector of sorts. I refurbish consoles as a hobby. 
 
 Never was big into the modern gaming scene, what with all the microtransactions. That’s how I ended up in a storage unit paying “Ratface” Rick $340 for a Sharpie’d NES cartridge. 
@@ -176,4 +178,4 @@ They wrote it down again and again, in a language that runs on everything and ca
 
 HARVEST.
 
-I hope that when it comes, it is not *bountiful*.
+I hope that when it comes, it is not [*bountiful*](https://www.reddit.com/r/TalesFromTheMullet/s/SPuaE5KXCw).
