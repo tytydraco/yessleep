@@ -1,0 +1,187 @@
+Around 8:30, right after she put our daughters to bed, Annie came downstairs and suggested we drop acid. 
+
+It wasn’t totally out of the blue. We’d been talking about sharing some kind of shared psychedelic experience for a few months now, ever since her depressed coworker, Bora, had chugged peyote tea on a weekend wellness retreat and returned to the office on Monday with a big smile on her face and a newfound appreciation for the various spreadsheets and PowerPoints she spent her day creating.
+
+“Do you have it?” I asked. In answer, she reached up to the top shelf of the pantry where we stashed the candy we didn’t want the kids to be able to reach and retrieved a small tin. Inside were a few bottles of CBD gummies and a stack of inch-square papers, each printed with a different Pokémon. 
+
+Annie and I had our share of adventures before the kids came along, but over the last decade we’d been fairly subdued. We’d often share a bottle of wine while we watched *House of the Dragon,* maybe eat a gummy or two if we were feeling adventurous. It hadn’t been long ago that, Maya, our youngest, had woken up two or three times a night, which required a certain degree of lucidity on our part. 
+
+Now Maya was six and Shiloh was ten, old enough that we could dial down our responsibility level a couple of notches.
+
+ “Come on,” she said holding up two of the little papers. “I got you a Charizard. The girls were at the pool all day. They’re exhausted. They’ll sleep in. By the time they get up, we’ll be golden.” She walked over and snuggled up to me on the couch, the two squares pinched between her fingers. She ran her free hand down by arm in a way that promised something special. “Come on,” she said. “Aren’t your bored? I know I am.”
+
+She held up the Charizard and I took it from her, sticking it on my tongue. 
+
+“Well then,” I said. “Let’s make it fun, like the old days.”
+
+Soon we’d killed the lights and put candles all over the house. They were all different scents: Beach Sandalwood, Citrus Mint, Redwood Vanilla, Candy Cane, Hot Cocoa. Even before the acid hit, walking from room to room hit me hard, the different scents setting off chains of memories: walking through certain forests as a child or visiting a saltwater taffy shop on our honeymoon.
+
+We set out bowls of popcorn, Hershey’s kisses and grapes, which Annie carefully halved, something she’d gotten used to doing for the kids. 
+
+I lay back on the couch, and my body seemed to sink a few inches deeper than usual. 
+
+“Oh shit,” I said. “It’s hitting.”
+
+Annie put on a jazz album and then sat next to me. Soon, I’d pivoted so that my head was in her lap, my feet dangling over the arm of the couch. She carefully stroked my hair in a way that made my toes curl. Then she started laughing.
+
+“Remember the lice scare?” she asked. “I spent an hour checking every inch of Maya’s scalp. Didn’t find one knit.”
+
+“See any on me?” I asked, joking. 
+
+“Just dandruff,” she said, dreamily.
+
+I reached over for a piece of popcorn but the coffee table felt impossibly far away and my fingers were limp noodles anyway.
+
+“Are you happy?” she asked. 
+
+“Yeah,” I said. “It’s not easy, but it’s good, you know?”
+
+She was quiet. Then she asked, “Do you ever think about Ruthie?”
+
+At the mention of the name, everything inside me froze. I saw the night taking a dark turn.
+
+“You shouldn’t think about her,” I said. “Not tonight. You’ll have a bad trip. We both will.”
+
+A year and a half after we had Shiloh, Annie had gotten pregnant again. We made it through five healthy months of pregnancy before an anatomy ultrasound revealed a crucial missing brain structure. What followed was a horrific series of decisions and medical procedures. 
+
+After we lost the baby, Annie had fallen into a deep depression. I’d struggled to take care of Shiloh while Annie languished in bed, her mind mush, going in and out of believing the fetus was still inside her. It took maybe half a year before she got back to something like her old self. A year after that, she got pregnant with Maya and the darkness in her seemed to lift. 
+
+ “No, I mean, I know,” she said. “I just thought maybe we could see it a different way. Like a good way. That she’s part of our story.”
+
+“She is,” I said. “She definitely is.” 
+
+Something thumped upstairs. Shit. If one of the girls had woken up, I was already feeling woefully unequipped to deal with it. 
+
+“Did you hear that?” I asked, and Annie nodded.
+
+I nodded with resignation. Investigating mysterious bumps in the night was my job. “I’ll go check it out.”
+
+Carefully I crept up the stairs, trying to stay quiet and avoid slipping, though it suddenly seemed impossible to do both at once. The patterns on the carpet had begun to swirl and the woodgrain on the banister had grown as furry as a leopard’s back. 
+
+At the top of the stairs, I navigated the short, dark hallway toward the girls’ room. The door was open a crack and a quietly pushed it open, hoping it wouldn’t squeak and wake them. Inside, I saw the two dark lumps of them, huddled close in the middle of the queen mattress that they shared. They breathed in perfect sync, the little black forms rising up and down.
+
+Taking one last look, I noticed a small bump at the foot of the bed near Maya’s feet. A shadow maybe? No. It was clearly something under the covers. It moved, ever so slightly. It couldn’t have been much more than a few inches tall. Fuck. What could it be? An animal, maybe?
+
+Then Maya rolled and the object disappeared.
+
+*Her foot, idiot,* I thought to myself.
+
+I scanned the rest of the small room for intruders or fallen objects. Nothing seemed out of place. I took a breath and a feeling of impossible peace settled in my chest. Everything was okay. Everything was fine.
+
+Somehow, I made it back downstairs. I sat on the couch and ate a single piece of popcorn, its white flesh dissolving into my tongue in a satisfying way.
+
+“It’s a clear night,” Anie said suddenly. “I want to look at the stars.”
+
+Without another word she began to walk toward the backdoor, and I followed as if she had me on a leash. Soon cool night air rushed through my hair and across my arms. Annie stepped off our back porch onto the green-black of the lawn and then knelt and rolled onto her back. Soon, I was lying next to her. 
+
+We lived a bit outside of the city limits, and the stars were magnificent. Tonight, they shone so brightly that there was more light than dark. 
+
+“Ruthie would be eight today,” said Annie. “If she’d come on her due date, I mean.”
+
+I felt a twinge. She was right. If was August 15^(th). It had taken years for the date to stop haunting me. This year, it hadn’t even registered, which I counted as a good thing.
+
+“Please don’t,” I said. “I don’t want us to have a bad time.”
+
+She was quiet for a moment.
+
+“The squares were different,” she said after a while. “The one you took, the Charizard, that dose was called ‘Open Heart.’ It’s supposed to make you receptive. Mine was ‘Manifest.’ It empowers you. I think it’s working. I feel strong, like I could grab two handfuls of grass and pull the whole planet in half right down the seam.”
+
+I reached out and took her hand. She squeezed back so hard it hurt. I tried to pull my fingers away and found I couldn’t. I weighed twice what Annie did and worked out at the company gym three times a week. She barely made it to Pilates once a month, but tonight, I sensed that she could snap me in half on a whim.
+
+“I can give us the life we deserve,” she said. “I can make the stars wink in and out.” She let go of my hand and then ran her fingers in front of my face, blotting out the sky. When she took her hand away, I realized I was looking at the girls’ upstairs window. Someone had opened up the bottom pane, and I could see the wind playing with the curtains.
+
+“Was that open before?” I asked.
+
+“It’s too hot to have it open,” said Annie. “Aren’t you sweating? I’m sweating.”
+
+“I want to check on the girls again,” I said, leaving her in the grass. 
+
+Inside, the air felt even warmer. The floorboards bent like wheat in the wind. Upstairs, the girls breathing echoed loudly. I wondered: *how loud would it be inside a lung?* Quietly, I approached their door. They were still huddled together on the bed, but they were different now: not two, but three. Three little lumps, all breathing together.
+
+I closed my eyes and checked again. One. Two. Three.
+
+My heart stopped beating. Every ounce of blood in me rushed to my head. My gums hugged my teeth as if they’d swelled with pus. It felt like my molars would start springing out like popcorn on a hot pan. I realized I had never been afraid, not *really* afraid until this moment. Never in my life. Not once.
+
+What was this thing, this third thing that had invaded my children’s bed? A little changeling, or a tiny serial killer? A dog? A living doll? A ghost? A golem? 
+
+I closed my eyes and didn’t move. When I opened them, there would only be two lumps in the bed. I took a deep breath and looked again.
+
+One.
+
+Two.
+
+Three.
+
+I walked closer, near enough that I could see the moonlight playing on their faces. There was Maya, her brown-blonde bangs total chaos. I saw Shiloh, too, dark eyebrows raised like something had surprised her.
+
+And in the middle, another. A third girl. She had Shiloh’s nose and Maya’s lips. She slept right between them, peanut butter between two slices of bread. 
+
+I watched and watched and the strangeness of her gave way to an even stranger familiarity. It was Ruthie, of course, my middle girl. It was suddenly so obvious that I almost wanted to laugh at myself. Who could forget Ruthie, the family prankster? The one who poured buttermilk into the regular milk carton and laughed her head off later as we spit out our Cheerios. 
+
+“Dad?”
+
+Ruthie got up, wriggled out from between her sisters and walked over toward me. I took a step back reflexively as she got to the foot of the bed and took a few tentative steps in my direction. She walked strangely as if she’d forgotten how to use her own body.
+
+“I think my legs are asleep,” she said.
+
+My heart raced. I wanted to turn and run, but that was wrong. I couldn’t run away from my own daughter. 
+
+She took another step, this one more assured, and reached me. She wrapped her arms around my waist, and her grip was strong. It seemed that if she hugged much harder, she’d break my back. I imagined her laughing hysterically as I crawled down the stairs toward safety, my legs dangling uselessly behind me.
+
+“How long was I asleep?” she asked.
+
+I looked down at her head, pretending to stroke her hair. Hadn’t her brain been missing? Hadn’t it? If I knocked on her skull would I hear an echo. No. What was I thinking? Here she was, whole. Perfectly formed. 
+
+She hugged tighter, too tight.
+
+“Back to bed,” I said, trying to make my voice sound normal, unafraid. For a moment, I waited for her to double down, to hear the sound of my own spine snapping. But no. She let go and looked up at me with a big smile.
+
+“Okay, daddy,” she said. Then she crawled back between her sisters and closed her eyes.
+
+How stupid I’d been, I suddenly thought. Afraid of my own daughter. What was wrong with me? Of course, Ruthie wasn’t going to hurt me. Sweet little Ruthie.
+
+Chuckling to myself slightly, I descended the stairs. It wasn’t until I’d grabbed a few half-grapes and skipped outside that my stomach fell through my feet. 
+
+There was no Ruthie. She didn’t have the piece of her brain, remember?
+
+No, no. That was crazy. She’d been right there, snuggled between her sisters. She’d been there for years, all along. 
+
+It was the other thing that I’d imagined: the horrible grainy picture in the hospital room, the doctor trying not to meet our eyes, Annie weeping the whole ride home and then again and again with every fresh trip to the hospital. Why had I even imagined such a horrible thing? What was wrong with me?
+
+“How were they?” asked Annie, dreamily from the grass. She was lying down in the dark, and I couldn’t quite see her. Then I noticed a black hand reaching out for the stars, and I walked toward her.
+
+“Shiloh seemed fine,” I said. “And Maya.” I trailed off. Maybe I wanted to see what she’d say.
+
+“And?” she asked, putting the question back on me.
+
+“And Ruthie also seemed. You know. Good.”
+
+“Good,” she said, wiggling her fingers slowly. She must have been looking up at the stars, the silhouette of her hand wiping them away, then sticking them back in the sky. “How’d she look?”
+
+“Like her sisters,” I said. “Like you and I.”
+
+“That’s good,” she said. “I like that.”
+
+“Has she always been there?” I asked. “I’m freaking out. I think I’m having a bad trip.”
+
+“Shhh…” she said. “Don’t be afraid. Yes, she’s always been there. You’re doing fine. Better than fine. You’re doing things just right.”
+
+I sat down in the grass, and Annie reached out and took my hand. With here free hand, she was still reaching out for the sky, conducting an invisible symphony.
+
+“What are you doing?” I asked.
+
+“Manifesting,” she said, as if that would explain it all. “What about you? How’s the ‘Open Heart’? Is it working?”
+
+“I’m not sure,” I said. “I think so.”
+
+“It has to,” she said. “I can’t do it alone.”
+
+I’m not sure how long we laid there. At some point, the stars began to disappear, the cosmic background going orange and then, slowly, blue. The song of the insects changed from a nocturne to a matin. The world still bent oddly around me, but not as vertiginously as hours earlier. 
+
+“I should check on the girls,” I said quietly.
+
+“If you’re ready,” said Annie. I didn’t answer.
+
+I went inside, but I didn’t go upstairs. I wanted time to write, to think, to put a few thoughts down on paper while they were still fresh. In a few minutes, I’ll go up and open the door. I’ll see two girls or three. I’ll know what’s in store for our family. 
+
+But first I just need another minute. One more minute to figure out what I want [to find.](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/)
