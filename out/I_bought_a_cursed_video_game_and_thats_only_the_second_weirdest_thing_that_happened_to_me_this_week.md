@@ -1,0 +1,179 @@
+I was in the middle of hoeing an 8-bit field when a text box opened over my farmer’s head. It appeared to be an entry screen, three characters wide, though it somehow filled in with my full legal name.
+
+*Nope.*
+
+I unplugged the console and drove to Rick's to return the cartridge. 
+
+I’d consider myself a collector of sorts. I refurbish consoles as a hobby. 
+
+Never was big into the modern gaming scene, what with all the microtransactions. That’s how I ended up in a storage unit paying “Ratface” Rick $340 for a Sharpie’d NES cartridge. 
+
+***“FARM”***
+
+Rick labels everything himself. He can't read Japanese. 
+
+What I could deduce was that it was a genuine development cart. You can tell by the solder mask (and by the fact that repro guys don't bother faking things *nobody's* heard of). 
+
+When I got it home and powered it up, the title screen read **“****豊****かな****収穫****,”** or **“BOUNTIFUL HARVEST,”** and underneath it, ©1987, and a blank space where the publisher goes.
+
+Farming games did not exist in 1987. The genre was invented years later by Harvest Moon on the Super Nintendo. So this? Definitely a rare find. Paying $340 was almost a crime. 
+
+The game’s pretty fun, too. 
+
+You clear rocks, till, plant and haul water from a well. Crops come in on a schedule of every five to seven days. That’s the basic loop.
+
+At the end of every day you walk into the farmhouse and sit at a desk, and this cute ledger opens, and you write your harvest yields. Six turnips. Two crates of barley. Said vegetables are sucked into the digital void, never to be seen again. The pen makes an impressive scratching sound. DPCM channels have no business producing that cleanly.
+
+I played that loop sixty times over a few days. Plant, water, harvest, write it down, sleep. It's the most relaxed I've been in a year.
+
+There was an animation error earlier this week. My farmer wouldn’t stop hoeing. 
+
+A system prompt opened over him, covering half his body while he continued to work. 
+
+Three characters wide. My whole legal name in it, in a font that wasn’t featured anywhere else in the game. The files have been decomped online, it isn't in there. 
+
+My name ran past the border of the box and out over the fence and into the trees.
+
+Underneath, in the game's hand-drawn font:
+
+**IS THIS CORRECT?**
+
+I pulled the cartridge out immediately, unplugged the console as mentioned, and hauled ass. 
+
+Rick's storage unit is open until whenever Rick decides it isn't, which is how I was standing in it at 11:40 at night. He sat in a folding chair in front of a space heater, smoking a cigarette, and explained his return policy to me.
+
+The policy was that he didn’t do returns. 
+
+In this instance, though, he said he’d do me a kindness. Ended up giving me store credit. 
+
+Behind him, in a milk crate, were forty-one other cartridges. Different labels on each of them. I asked him if all his games were like mine. 
+
+“Like what?” he responded.
+
+“Cursed.” 
+
+He seemed surprised I'd asked. 
+
+“I dunno. I mean, I've only ever had, what, like, three returns for this type of shit?”
+
+“*Three* returns? Do your games doxx people often?”
+
+He shrugged and took a drag of his cigarette.
+
+I asked where he got his supply next. Rick showed me some invoices. They come by the pallet from a contact in Hong Kong saved in his phone as **CARTS.** When we got her on the phone, she complained for four minutes about freight forwarders before telling me she buys them by the lot from someone else in Abu Dhabi. 
+
+No answers there. 
+
+With little to go off of, and curiosity biting the both of us, Rick let me unload the cart onto his laptop. Thirty-two kilobytes of it is the farming game. Bug-free as far as I can tell. 
+
+The rest of the cart is a few hundred bytes that spell out “$4018.”
+
+Those are the CPU's test registers. They exist on real hardware, and are documented as disabled in normal operation. Nothing has ever had a reason to touch them.
+
+Then there's the table.
+
+It's plain ASCII, sorted alphabetically, and it goes on for a very, very long time. 
+
+Some rows are three characters in length. Most rows aren't. Those ones are whole human names, first, middle and last. I scrolled for five minutes and didn't make a dent in the list. Learned a few new names, though.
+
+A flag byte distributes two states among the names. Long names are flagged as one state. Three-character stubs are flagged as the other.
+
+Mine was in there, full length, greyed out.
+
+The Ricoh chip, featured in every NES, has a region of dead silicon on it, a block Nintendo paid to fabricate and then had disabled at the factory. It's the binary-coded-decimal unit. It's been switched off in every console ever sold, worldwide, for forty years.
+
+There are public photos of that die. People decap these chips and shoot them under a microscope; it's a whole hobby. *My* hobby. 
+
+On a normal chip that region is empty.
+
+On this revision it isn't.
+
+There's a shape etched into it. 
+
+A stalk of grain. 
+
+I thought I did the responsible thing. I posted the dump to a preservation forum and asked for help understanding the payload.
+
+The forum was magnificently paced. People were foaming at the mouth to get their hands on potential lost media. A guy in Finland actually wrote a full disassembly within an hour of me posting. 
+
+Another user pointed out, correctly, that no emulator implements those $4018 test registers. To emulate them *accurately*, you'd have to emulate what they *expose*. That means transcribing the contents of the disabled region. 
+
+There are people who do that work for free online. The pull request was merged hours later. It’s up on GitHub right now.
+
+I had the table open in front of me the whole time. Rows were changing states. A sparse few names were shortening. Whole people were being simplified to three characters, alphabetically, one at a time.
+
+I checked my row. It said it changed “five minutes ago.”
+
+“BEN.”
+
+My grandfather was Ben. Not me. Mom made a *big stink* about my full, unshortened name. She corrected teachers and employers. Embarrassed me at every turn. 
+
+At the coffee shop this morning, my regular barista wrote BEN on my cup. I've never had to correct her before. For some reason I couldn't.
+
+My work badge came back from reprint. It said BEN. Nobody seemed to notice besides me. 
+
+Even on my socials, my username has been truncated. BEN. I don't know how I could have even gotten that username on some of these sites. Surely it was too short, or already taken?
+
+This afternoon, Mom called and said it; “BEN,” in her *own* voice, in her *own* kitchen. I could *hear* the capitals. When I said something, she laughed, and asked,
+
+“What am I *supposed* to call you?”
+
+She…*knows,* right? It's BEN.
+
+No, BEN.
+
+BEN.
+
+BEN!
+
+Fuck.
+
+I had just the thing, a folder. Everyone has a folder, right? Birth certificate, social security card, high school diploma. I pulled mine out from underneath my childhood bed.
+
+My birth certificate has three letters on it.
+
+Three letters, typed in 1979, on a form that has been sitting in a sealed box in the dark for six years.
+
+It has always said BEN.
+
+My social security card says it. My diploma says it. A photo of me from the ‘80s says it in ball-point pen. 
+
+There is no version of *me* on file. There is nothing I can show anybody.
+
+I tried to write it. My hand finishes the third letter and it's *done*. Just stops working. I can’t make it write another letter. 
+
+I've tried eleven times. There are eleven pieces of paper on the desk and they all say the same thing.
+
+BEN.
+
+I called for Mom. I asked her to say my name. The whole thing, middle and all.
+
+She started to. She stopped.
+
+I heard her breathing change.
+
+“I know it. Hold on, I know it…”
+
+She reached for something that I knew wasn't there.
+
+She started crying. She apologized for crying. Half a minute passed, if even. She took a breath, laughed at herself, asked if I'd eaten. She was fine. She's fine right now. She's watching her show like nothing happened.
+
+I'm still here. 
+
+When I checked the decomp just now, there was something I noticed that I hadn’t before.
+
+There’s a string of binary. It translates to an executable file. An executable inside a Ricoh chip. 
+
+***“HARVEST\_ALL.exe”***
+
+Nobody has figured out how to run it. Yet.
+
+It was locked in an obscure box, tucked away somewhere nobody could reach it. 
+
+And I gave it to them, key and all.
+
+They wrote it down again and again, in a language that runs on everything and can never switch off. 
+
+HARVEST.
+
+I hope that when it comes, it is not *bountiful*.
