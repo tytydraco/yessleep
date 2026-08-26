@@ -425,3 +425,5 @@ I sighed, and plopped down on a chair in front of the study table. Patty was off
 I smiled, looked around, and figured it wouldn’t hurt to take a peek. After all, we were the only ones down here, it’s not like anyone would notice. I flipped it open. The first page stated that this was a report, the result of a Congressional investigation from 1950, into the American Supernatural Investigations Bureau, or *ASIB.* More intrigued, I lifted it up to get a better look, and a few loose photos fell out.
 
 I reached down to pick them up, and stopped halfway, the room spinning. The photos were of me. Me getting dressed in the morning, from outside my window. Me riding my bike. Me watching a movie and eating dinner. I fell out of my chair and hit the floor with a crash.
+
+[Part 5](https://www.reddit.com/r/nosleep/s/oyizbOALoI)
