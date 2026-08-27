@@ -2,7 +2,7 @@ Before reading, know that this is not the full story, i simply do not have the t
 
 Thats all.
 
-Years ago, when i was around 13, i vividly remember sitting right next to my little brother during dinner, eating quietly as my mother and father talked about work. We were eating pesto pasta, i had just gotten a haircut earlier in the day and it was a saturday wich i was particularly exited for considering i had to go to the water park with my friends on sunday. The reason i remember this scene so well, however, isnt because of the quality time i spent with my family, but its because of something that was said on the news. I recall hearing the lady on TV talk about a man killed by, and i quote, "Something that looked like a person" before explaining where and when it happened. I shook my head slightly and my brow furrowed in confusion, i wondered if i had heard that right, but when i looked around the table to see if my family had heard it too, my mother and father weren't paying any attention to the TV and my brother was attempting to tie a knot with a piece of spaghetti, making a mess before being stopped by mom after a minute of trying and failing.
+Years ago, when i was around 13, i vividly remember sitting right next to my little brother during lunch, eating quietly as my mother and father talked about work. We were eating pesto pasta, i had just gotten a haircut earlier in the day and it was a saturday wich i was particularly exited for considering i had to go to the water park with my friends on sunday. The reason i remember this scene so well, however, isnt because of the quality time i spent with my family, but its because of something that was said on the news. I recall hearing the lady on TV talk about a man killed by, and i quote, "Something that looked like a person" before explaining where and when it happened. I shook my head slightly and my brow furrowed in confusion, i wondered if i had heard that right, but when i looked around the table to see if my family had heard it too, my mother and father weren't paying any attention to the TV and my brother was attempting to tie a knot with a piece of spaghetti, making a mess before being stopped by mom after a minute of trying and failing.
 
 "Maybe i just heard it wrong..."
 
@@ -34,7 +34,7 @@ After about two seconds of silence, she smiles, raisisng her hand to my cheek an
 
 "Ooh! How are you, im fine! Today is a beautiful day! The weather is so nice!"
 
-Her voice was high pitched and weak, but what confused me the most was the fact that, none of what she said made sense. I was expecting "Its alright, dont worry!" or maybe "Be more careful next time!" or even "Watch where you're going, young man!", not whatever this is, it was like she trying to have small talk with me without giving me the time to even open my mouth.
+Her voice was high pitched and weak, but what confused me the most was the fact that, none of what she said made sense. I was expecting "Its alright, dont worry!" or maybe "Be more careful next time!" or even "Watch where you're going, young man!", not whatever this is, it was like she trying to engage in small talk with me without even giving me the time to open my mouth.
 
 "Ah, yeah, uhm, it is a nice da-"
 
@@ -58,7 +58,7 @@ I walk in the kitchen, placing the eggs on the counter and grabbing the sandwich
 
 Mom walks up to me and ruffles my hair, and i respond by quickly moving away from the hand and complaining, cause, you know, i was 13 and i thought i didnt need my mother's affection anymore.
 
-"Thank you sweetie, i'll bake us a cake whenever i have the time, how's that sound?"
+"Thank you hun. I'll bake us a cake whenever i have the time, how's that sound?"
 
 Despite my defiance, i cant help but light up at the idea.
 

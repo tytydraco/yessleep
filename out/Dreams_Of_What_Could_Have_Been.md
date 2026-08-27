@@ -1,0 +1,213 @@
+Dreaming. Huh. It's a really odd thing, you know? When you fall asleep, sometimes your brain just hallucinates images and sounds, and if you're lucky, maybe even smells, taste and touch. By all logic, that type of thing shouldn't happen. Officially, it's just the brain trying to make sense of the random electrical charges that shoot in your brain when you sleep. Nothing more, nothing less.
+
+As a 20 year old undergraduate in psychology, I knew what my thesis would be about before I even stepped foot into university: how dreams could help one understand yourself and others. It was a suitably odd thesis, and my fellow peers were rather... well, confused was an understatement. Dreams were infamously difficult to study in psychology, due to their fleeting and nonsensical nature.
+
+What wasn't nonsensical, however, were lucid dreams.
+
+This is indeed a bias, but yes, I love lucid dreams. You can be in a world of your own, shaped by no rules, with no limits except for your own imagination. To be conscious in a dream is to be the God of your world. To be able to create, and to be able to destroy; to be able to change and to be able to transform.
+
+The day someone invents a way to trigger a lucid dream on command, is the day I will finally have a good sleep schedule.
+
+But I'm getting way too ahead of myself. See, I chose this thesis for a personal reason. A personal reason, that, until now, I have never told anyone, not even my closest friends, or even my aunt and uncle, who were my foster parents. The only person that even knows to some degree is my cousin, Gary, who is the biological kid of said aunt and uncle. Even then, I never told him the whole truth, because the truth is sometimes less kind than a lie.
+
+Oh yeah... I still haven't said my name yet. You kind of need it. Call me Oliver, please, even though my full name is Oliver Johannesburg.
+
+...
+
+The thing that started it all was my little sister, Ava's, 13th birthday, the 19th of April on 2022. It's odd that I still remember that. We were in the dining room of our comfy suburban home, and I was singing Happy Birthday to her, along with our mother and step-father, with reckless abandon. The cake itself was a strawberry shortcake, Ava's favorite, with the candles making the shape of a thirteen. She had just come back from school, what with it being a regular Tuesday.
+
+Ava looked like a mini-version of our mother, those black dreads reaching down to shoulder-length, and brown eyes sparkling with joy that one could only find from a girl in her own birthday party. Me, I looked more like my birth father, with messy brown hair and baby blue eyes that never left me even after I stopped being a baby. Some of the softer features I inherited from my mother, like my nose and ears. Mind you, Ava was still my full sister. My mother and my birth father divorced shortly before Ava was born, for reasons I... well, I was probably too young to understand.
+
+"Make a wish, Ava," my stepfather said, a soft smile forming on his face.
+
+She gently closed her eyes, and blew the candles out, silently wishing a birthday wish.
+
+At least, it should have been silent.
+
+"I wish for justice against the one who has wronged *us*."
+
+Those words, in the sweet and still-innocent voice of my little sister, without her even opening her mouth, jarred me. What on Earth did she even mean? What was she trying to imply? Justice? What justice was there?
+
+Now that I thought about it, I looked around. Things that weren't in my field of view were swirling around, like a shitty video game that hadn't been rendered yet. It was wrong, but the more I thought about it, the more unstable the world became. Even my stepfather's face was swirling, like it was on the verge of existing and not-existing. My mother remained stable, and so did my little sister, oddly enough, as if they were trying to ground me in this... place. I had to use all of my mental power, because I didn't want to leave whatever this place was.
+
+And then it hit me.
+
+I was in a dream.
+
+As soon as those words echoed through my mind, the place, the cozy suburban home stabilized. Everything seemed so much clearer, all the details of the place becoming crisp. There were photographs of my family scattered throughout the house, and all sorts of stuff. I saw a colorful box, presumably holding all sorts of toys. The stairs became clearer, and I knew there had to be an upstairs now.
+
+My stepfather's face stabilized, and I looked into those emerald green eyes for the first time. Because, the last time I checked, I did not have a step-father. This man, this person with blonde hair and green eyes, was unknown to me. I had never seen him before, and was probably some mashup between the people I've seen over the sixteen years of my life back then. After all, I did know the basics of dreaming.
+
+Oddly enough, I did know his name, and it was in my head: Scott Brighton. His name was familiar, but I couldn't pinpoint why.
+
+As I glanced at my mother, I suddenly had to drink in the view, those loving brown eyes showing a mother's love on full display, forcing my eyes to water. A mother's love that... I had never felt before. Why? Because my mother, Catherine Davis, was dead. Dead in a car accident that almost killed me, dead carrying Ava in her womb, who probably died in the same instant that she did. I was only three at the time, never understanding the gravity of the situation as the car crashed into ours, and mercifully only getting minor injuries from the impact instead of getting killed. And Scott Brighton... the person who crashed his car into my mother's, before, according to official reports, committing suicide in shame. He was also inebriated, hence he probably wasn't thinking straight.
+
+In an instant, my mother's face flashed, and I saw shards of glass on her face, piercing it in horrifying ways. Blood was running down her face, but that was nothing compared to the piece of steel from the car that smashed into her stomach, and most certainly her placenta, almost certainly killing the unborn fetus that was Ava. I didn't consciously remember that scene, but it seemed that my subconscious did.
+
+I stepped back in horror and revulsion at the sight, but my mother reverted back to her loving self, looking at me with all the love in the world. Looking back at Ava, the sister that never saw the light of day, she looked at me with sadness, all the innocence sapped from her eyes, a stark contrast to what I saw previously during the birthday.
+
+That was what finally broke the dam, as the tears flowed down, and now that I think about it, they behaved surprisingly realistically for what was a dream. But at the time, I was overwhelmed with sadness, unable to comprehend that I was looking at the family I never had, the family that could have been. My mother, with swiftness, came by my side and gave me a fierce hug, one that felt so warm and loving it could have been real.
+
+"Y -- you're dead," I said with almost a sense of finality, as the tears flowed down my cheeks.
+
+"I know, Oliver," she said, almost as if it was some casual joke, "It doesn't stop me from loving you beyond the grave. Even if it's a dream."
+
+But even as I was in my mother's arms, there was a simple question in the back of my head.
+
+Where the hell was my birth father?
+
+Nathaniel Johannesburg was still taking care of me, still suffering grief from the loss of his wife and daughter. He loved me as a son, and never remarried anyone else since the accident, heartbroken and destroyed from what he presumed was his failure. He wasn't in the car during that incident, seeing as how he was busy doing a project at home.
+
+So, again, where was he in this dream?
+
+As if hearing the question in my head, Scott Brighton, who was... somehow supposed to be my step-father, even though he technically caused my mother's death, answered.
+
+"He won't appear here," he said soothingly, sounding hurt and tired from something. I looked up to see him. "He's not dead, after all."
+
+"You... you killed them," I said flatly, and he winced in shame, "Almost killed me too, actually. Why the hell is this dream showing you *married* to my FUCKING MOTHER?"
+
+My voice rose at the last two words, causing the world to shake a little bit, the dream going a little hazy before stabilizing once more.
+
+"Look," he said, voice laced with pure shame and self-hatred, "I hate myself for doing what I did. You don't have to forgive me for what I did, you know. But now, this is what it is. I have to deal with my own sins, and so, go ahead and scream at me. God knows I deserve it."
+
+Before I could say anything else, I heard my sister's pouting voice.
+
+"Hey!" Ava said, hands on her hips in a fake expression of disapproval, "Have you forgotten about me, Oli?"
+
+"No," I tilted my head to the side, looking at what my sister... well, what she could have been. What could I even say to a person that had never been born yet, and would never been born into this world?
+
+As if hearing my question to myself, Ava answered. "It's fine. I would have liked to see the real sky, but it's fine. It would have actually been my thirteenth today, if... that didn't happen. And also, Oliver, I do mean my birthday wish."
+
+The words echoed in my head again. She wanted justice to be delivered to someone. But... who? Wasn't it an accident?
+
+"I wish it was one," my mother spat out, voice suddenly twisted in disgust. "The things... the things that happened after that... it sickens me. You never deserved *any* of that."
+
+Her words swirled with confusion, with me unable to get head nor tail of it. What didn't I deserve? And the entire thing, if the dream was correct, was not an accident. It couldn't be, could it? Everyone, back in the real world, when I asked, looked down in shame and said that it was a tragic accident, one that nobody deserved, least of all me.
+
+"Listen, kiddo," Scott Brighton looked me dead in the eye, "I'm asking for just one favor, please. When no one is at home, go into your father's room, open the second drawer from the top on his desk, and grab the phone with a DNA sticker. The passcode is 473901. Once you have it, you know what to do next. Do this... for your mother and your sister. I know you don't trust me, but please, for the love of all that is sacred to you, do it. Please..."
+
+For a moment, I had the temptation to tell him, no, I hoped he was actively burning in hell, but I thought otherwise. If this guy was appearing as a figment of my imagination, maybe I knew something about this passcode. After all, lucid dreams did have a tendency to reach into your subconscious.
+
+"Fine," I snapped, looking at him with anger, "Clearly, my brain is trying to mess with me. And I don't understand why you're giving me this information, but I'll do it. This isn't even fucking real, but *whatever.* I'll do whatever this... fetch-quest is, but if it doesn't work, I hope I get another lucid dream to scream at you for fucking with me."
+
+"It will work," Brighton said with surprising confidence, "Though you are welcome to do whatever you want the next time you go lucid."
+
+"Oliver," my mother interrupted, "Listen to Scott, will you? He's right."
+
+"I'll do it for you... Mum," I said, the unfamiliar word rolling off the tongue surprisingly easily, "And for Ava. But... this isn't even real, is it? I'm just talking to my own mind; I mean, I do know how dreams work. You aren't real... even though you do feel real."
+
+"Of course I'm real, Oliver," she answered in a surprisingly sage tone, "All of us are, after a fashion. Sure, it's all a dream, but that doesn't stop it from being real. If it feels real... well, doesn't that mean it is real?"
+
+"Bye-bye, Oli," Ava said, running over to hug me tightly, surprising me. For a person who hadn't been born, she felt so warm. It felt odd, like some sort of brotherly instinct coming over me, for a sister that never lived. "You're going now, I can feel it."
+
+She was right, as the dream began to swirl gently.
+
+"Bye, Ava," I said, feeling the tears flow down my cheeks again, "See you... someday."
+
+And in an instant, I snapped back, feeling the bed in my real bedroom under me, the sunlight already piercing through the window. With a glance at the digital clock, the time was 7:10 in the morning, the date being the 20th of April, 2022. Odd, how the date remained consistent, but I ignored it.
+
+...
+
+I ignored it all, in fact, for the time being. It was a fucking dream, for goodness sake. My mind was clearly on something that night, because it came up with a stupid fetch quest that made absolutely no sense. My father, very much real and alive, was busy with his work and all.
+
+Still, curiosity got the better of me, which was how I ended up in my father's bedroom, opening the second drawer from the top. And lo and behold, on the very back was a phone with a DNA sticker, of a model thirteen years old at this point. I had never seen it in all my life, and yet my brain still was able to tell me exactly what it was. I was, however, more concerned about the fact that there was another phone in the drawer. Regardless, I left it hidden in there, as I was forced to charge the old phone.
+
+Fortunately, my father never noticed its disappearance, and once it was usable, I clicked it on.
+
+And gasped at the wallpaper, which was none other than the grinning face of Scott Brighton, with my father on the side of. Tapping 4-7-3-9-0-1, and I was in, my dream ringing true once more. Confusion and curiosity formed twin streams in my mind, and I checked Scott's last messages with my father, trying to ignore why Scott's phone was in my father's drawer.
+
+**Me: Mate, you got my car, right**
+
+**Me: Help driv me back home, will u**
+
+**Me: I'm drunk**
+
+**Nate: Sure, no problem.**
+
+**Me: Thanks, you a lifesafer**
+
+The time of the conversation? 10:30 pm, the 2nd of February, 2009.
+
+Time of the accident, based on the official investigation of Scott Brighton's body? Approximately 11:00 pm to 12:00 am, of the same date.
+
+The blood ran cold in my body, because that right there was something. I had no idea why my father kept Scott's phone, but clearly, this wasn't right. This wasn't right at all. Based on these messages, my own father was driving the car when he was heading back home. According to what the news article said, he was at home since ten at night.
+
+Which meant that my father was lying.
+
+My body was all numb as I trudged into my father's room, placing the phone exactly where it was previously. I would find it if I had to. But then, my eyes were drawn to the second phone, which, for some reason, instilled a deeper sense of fear, piercing my heart like a dagger. This one was newer, and actually had a decent amount of charge. So, curiosity won once more, and I flicked it open.
+
+It was at that point, however, that I realised that I didn't know the passcode for this new phone. Three tries, before I was locked out. This one smelled like my father's cologne, which meant that this was probably one of his phones, which probably meant it was a birthday.
+
+8-0-0-9-1-4. My father's birthday. Access denied.
+
+8-1-1-1-0-5. My mother's birthday. Access denied.
+
+0-6-0-5-3-0. My birthday. Access granted.
+
+I froze as the lock screen faded away. My father used my birthday as a passcode. Immediately, I entered WhatsApp as fast as I possibly could. After all, who was he communicating to on this phone? And what was he trying to do? Why would he kill my mother and unborn sister, if that was truly what happened.
+
+The most recent messages were to an unknown number, named Dealer by the messages.
+
+**Dealer: Will he be alone?**
+
+**Me: For the most part.**
+
+**Dealer: Just one push?**
+
+**Me: Hopefully.**
+
+**Dealer: Why not yourself?**
+
+**Me: I can't.**
+
+**Me: It can't be me.**
+
+**Dealer: Fair enough.**
+
+**Dealer: Date and time?**
+
+**Me: 7 May**
+
+**Me: Be on the lookout from morning to noon.**
+
+**Dealer: Payment?**
+
+**Me: After job is done.**
+
+No. This wasn't happening, as I grabbed both phones, and stuffed everything in my backpack. I stuffed all of the snacks, everything. And I bolted out of the house, and ran, never planning to stop, even for a bit. There was no chance in hell this was happening. On the 7th of May, me and my father would be travelling to a scenic location, which included a particularly famous cliff.
+
+My father was going to kill me. But he didn't have the balls to do it himself, so he needed another person to do the job for him. Or maybe he did feel something for me. Either way, he was going to kill me. The person who loved me, the person who laughed and joked around with me, the person who cried for my mother, with tears that must have been fake, was going to kill me. Every bit of evidence was unanimously crying in one direction, that I was going to die.
+
+...
+
+What happened afterwards was a blur. I just remember running from my home, a backpack slung over my shoulders, heart pounding like I was going to die. Eventually, I reached the local police station, and I showed the evidence, scared for my life. Turns out, the only reason they closed the case about the accident was because they thought Scott's death was a suicide. The messages cast doubt into that.
+
+And the other phone, the one where my father was plotting my own death? Well, I still remember the face of the officer morphing into a horrified look at the sight of this. I was temporarily put inside a holding cell, usually reserved for inmates, while they arranged transport to a random AirBnB around 50 kilometres away.
+
+There, my life was almost entirely upside down. With only my actual phone to keep me company, and some books, I was living along for the first time of my life. Sure, law enforcement is rather friendly to people under witness protection, but I wouldn't actually consider them friends.
+
+I don't exactly know the details of how my father got arrested. I don't even know how he reacted when the police came to my old home. The first time I met him since I ran was during the trial, where I served as a witness. Hell, I don't even remember the exact words I spoke in court, but it was probably a shaky explanation of what went down, carefully skipping over the fact where I got information from a dream.
+
+Hence why, the authorities got a story of how I managed to guess the passcode because I heard my dad mutter it in his sleep for some odd reason. The phone, I admitted, was just plain educated guessing. The defence lawyer tried to claim that it was a set-up, and that I wanted to put my father in jail to further some agenda about money. This was, before the prosecution revealed that my father would have gotten almost a million pounds if I died from insurance. In fact, he had gotten a million already from my mother's death.
+
+For the first time in my life, I cursed the fact that I looked like him.
+
+When he tried to plead to me, saying that he loved me and that he would never hurt me, I do still remember my response, down to the word and inflection.
+
+"You could at least have had the courage to kill me yourself, *coward*."
+
+Nathaniel Johannesburg was convicted on one count of conspiracy to murder, and sentenced to life imprisonment, only possibility of parole being after 35 years. That wasn't even counting the possible murder of my mother and Scott Brighton, which, if convicted, could land two more lifetimes in prison, with no possibility for parole.
+
+I had no need to be present for both of those trials. I still did anyway, just to spite my father and taunt him with his failure. He was convicted on both counts, unable to use his money to retain a lawyer, seeing as how it was from a possible murder death claim.
+
+Oh, and Dealer? Yeah, he tried to run, but he was caught in the end after only a few months.
+
+On the night of 19th of April 2023, a year after all this insanity began, I found myself in the same dream yet again, this time to celebrate Ava's fourteenth birthday. This time, however, I guessed what was going on instantly. Personally, celebrations in what I assumed had to be the afterlife (look, I knew damn well that there was no chance this was a normal lucid dream) were rather happy, for some reason.
+
+I stayed there for what I felt was much longer, before Scott Brighton hugged me for the first time, and told me that he was proud of me, even though he couldn't have taken care of me.
+
+Alas, all dreams must come to an end.
+
+So, as I'm typing this, looking over my shoulder to ensure my roommate *isn't* going to walk in and snoop at this godforsaken confession, I must say, dreams really do like to fuck around with people. Sometimes in good ways, though maybe in bad ways too. I wouldn't know. My sister had her 17th a few months ago, and I'm still invited when I sleep, which is nice. Am I insane for thinking that all of that stuff in the dream was real? Perhaps. But as I personally like to say, insanity is merely the other side of the coin for ingenuity.
+
+Though, I wonder if I'm the only person plagued by dreams like this...
