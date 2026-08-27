@@ -1,0 +1,161 @@
+I’ve never been an outdoorsy person. I’ve always preferred the comfort of staying inside and enjoying my own privacy, but I am entirely aware of how that could negatively impact my mental health. It’s always been like this for me, for my whole life. I’m a quiet introverted person. I don’t like being out in public, I feel sometimes that every eye is looking in my direction when I am out. I felt like every person I pass by is silently judging me, even if I know that they aren’t. The thought is enough to scare me into staying inside, often resulting in me not getting some errands ran.
+
+The more I’ve grown up the more I’ve started to realize that I needed to get over my fear, and so I’ve tried. I would go out alone to bars, casinos or anywhere I could think of. I had a specific goal in mind to make friends, but it would never work. It was my own fault frankly but I was at least aware of that. I live alone in a boring studio apartment with a decent job that paid me to live comfortably, but have grown tired of my introverted lifestyle. I tried for months to go out every weekend with the hopes of meeting new people but it would never work out, affecting my mental health little by little each time.
+
+This is how I found myself looking into Airbnb’s for a few days of peace and isolation. I realized I had grown increasingly depressed over the following months and I wanted to mentally check out for a while to get away from everything. I had some spare money leftover after I had paid my rent for the month so I figured I could take a few days off work and have some time to myself. Looking back I don’t understand why I did this. If my main problem was my own isolation I don’t know why I thought more isolation would fix my issues, but I can’t change the past.
+
+I had found a tiny home of one bedroom in a very small town about 2 hours from where I lived and the reviews looked decent enough, so I booked a 4 day stay. I put in a notice at my job and it had been approved, but only barely. I could tell my boss was reluctant about it but after-all I was a good and loyal employee so it didn’t take much convincing.
+
+I packed everything I would need for the week and with that I was on the road by morning, excited for my short vacation. When I eventually had arrived at the town I found it was far up into the mountains. Only a small sign reminding me I was now in unknown land. The population was under a thousand. I was dumbstruck by the number of people but even more so of how everything looked in general. Windy two lane roads all around, only a handful of gas stations and two grocery stores with no freeway for miles.
+
+I finally pulled into the driveway of my temporary home and turned off my car. I looked at the house. It was smaller than I thought, but I wasn’t complaining. It almost reminded me of a cabin, surrounded by woods away from civilization. The porch gave off a wonderful view into the mountains and even had a small jacuzzi next to a set of chairs. As I looked at the two chairs, I found myself wishing I had another person to occupy them with me. I day dreamed of someone sitting there next to me, laughing with me and enjoying the view.
+
+I snapped out of my trance and pulled my bag out from my backseat and keyed the door open. It was just as small as it looked on the previews, just a living room with a fridge and microwave that led into an even smaller bedroom with an open door frame. I had gone grocery shopping before the drive up here and stocked the fridge with beer cans and some water bottles, along with burger patties in the freezer. I smiled to myself thinking of how nice this break from life would be. Just me.
+
+I was here for four days, but as a writer I saw this as an opportunity to overcome my writers block and get some work done. I quickly unpacked my clothes and looked out into the backyard. There was a dock built with a fireplace with three chairs surrounding it. I started day dreaming again, I couldn't help it. I could almost hear myself laughing and talking with someone else about anything I could think of, I wish I had friends or even a girlfriend. Anyone at all. But that was the point of this entire trip wasn’t it? To be alone with myself, to take a mental break from my normal routine.
+
+I stepped out to the back dock and stared off into the view for a few moments. I thought about everything, my life. Everything that led up to this trip. My only friend I’ve ever had moved across the country to a college when I was in my late teens, leaving me completely alone. He never came to visit and we talked less and less until we didn’t at all. I had no siblings and my parents were separated and both lived alone. As sad as I felt, watching the view before me put a small smile on my face. The way the trees danced in the wind, the cool air hitting my face. I had to admit, at this point in my trip I was happy I took it.
+
+After I spent a few minutes outside, I decided to step back inside and get to work. I left the door slightly ajar to let the cool air in, but not open enough for bugs to get in. I walked over to my bag and pulled out my laptop.
+
+I spent the rest of the day with my laptop putting together a short story, the woods had an almost magic feel to them the way it sparked my mind with ideas and scenarios. With nothing around to bother me, I got lost in my own imagination and words until it became dark outside. It was the most I’ve written in months. I had nearly half of my story already done and was ready to get to bed.
+
+I closed my laptop and was now back in reality. I decided I wanted to sit out on the front porch and smoke a quick cigarette before I did so, just to relax my mind. It had been working for the entire day. I cracked open a beer from the fridge and stepped outside.
+
+I sat on a chair on the porch, looking off into the view. The sounds of crickets filled the air with their chirps. The view was almost mesmerizing, I could see off to another mountain ahead full of swaying trees in the wind and could make out a few houses far apart from each other. I pulled out my pack of cigarettes and picked one out. I flicked my lighter with the cigarette tucked between my lips and watched smoke rise in the air as I took a hit. Just as I was about to take another drag, I heard something.
+
+A sound of a horn blared out from a direction I couldn’t make out interrupting the crickets. It was loud, but not deafening. It sounded almost like a boat horn but slowed down a full octave deeper. Like a groan. It rang out into the mountains for nearly half a minute. I hadn’t realized I was holding my breath until it was over and I swear for just a few short seconds, all was quiet. No crickets or any noise at all. Just the loud ringing in my ears that you only hear when it’s dead silent.
+
+The crickets returned but I was still in shock. What was that? I couldn’t even begin to put logic to what it might be. Maybe it was someone working on something in the distance at another home? That didn’t sound too far off so that’s what I went off of.
+
+I relit my cigarette and managed to calm my state of mind. It was my first night here, I didn’t want to ruin it so soon. I finished my cigarette and ashed it out. I walked back inside and started getting myself ready for bed. It was quiet in there, too quiet. I turned on the television for background noise and felt a bit better. I tucked myself under the blankets and dozed off pretty quickly and before I knew it, I was asleep.
+
+***KNOCK KNOCK KNOCK***
+
+I shot up instantly, I could have swore I heard someone knocking on my front door. My stomach lurched and pure dread overwhelmed my senses. Who could be at my door at this hour this far up into the mountains? Growing up, I would often sleep in and my parents would knock on my door to wake me up so it wasn’t unusual for me to wake up to the sound of knocking when it wasn’t there, this was the only thought keeping me from going into a full panic. If there was someone there I knew it couldn’t be good. The house was far away from anything else.
+
+I sat up still as stone too afraid to move and prayed it wouldn’t come again, but it did.
+
+***KNOCK KNOCK KNOCK***
+
+Now I knew it was there. My front door felt like it was staring at me with burning eyes in the darkness. I didn’t know what to do, maybe someone needed help? I turned off the TV and cautiously stood up and tip toed to the door. I looked out into the peephole.
+
+There stood a man with both hands in his pockets. He didn’t seem to look harmful, matter of fact he looked terrified. I studied him for a few moments before deciding I had to open it, he surely knew I was in here. My car was all but invisible in the driveway and I saw him glance at it.
+
+I slowly opened the door and the man instantly spoke.
+
+“Hello, so sorry to bother you. You’re not from around here are you?”
+
+This question caught me off guard and I suddenly found myself feeling irritated. I just wanted to get some sleep.
+
+“What are you talking about? It’s 1 in the morning what could you possibly want? I was trying to sleep.”
+
+The man looked around frantically before nervously replying.
+
+“Like I said I’m sorry to bother you. Really, I mean no harm. I’ve come here to warn you.”
+
+I raised an eyebrow.
+
+“What do you mean you’re here to warn me? I’m trying to enjoy my vacation here.”
+
+The man sighed heavily and looked to the ground.
+
+“Did you hear that sound earlier? Do you have any idea what it is?” He said.
+
+This caught my interest.
+
+“Yes I did, and no I don’t know what it is. I’m assuming you do?” I said.
+
+The man put his arm out and motioned for a handshake.
+
+“My name is Ethan.”
+
+I shook his hand but my eyes never left his. I wanted to ask him so many questions but he continued before I could say anything.
+
+“I need you to listen to me. What I’m about to say is going to sound like madness but if you want to make it out of here then I’m your best chance. That sound is bad news. I don’t know exactly what it means but there’s something up that mountain. I was hoping nobody would be up here but I saw your car here. Listen, you need to leave”
+
+“Woah woah. What are you talking about man? And where did you even come from? Why would I want to leave, I have this place booked for 3 more days.” I said as sternly as I could. I would be lying if I said I wasn’t on edge at this point, but I did want to see where he was going with this.
+
+Ethan held up a hand demanding my silence, but it didn’t seem rude in any way.
+
+“I don’t live too far from here, it’s walking distance. You can’t see my home because of the trees. That’s besides the point. I’ve come here to tell you that you need to stay inside, don’t come out for any reason.”
+
+I was dumbstruck and confused, I didn’t know what to say. I just stood there. I didn’t believe him but there was fear in his voice with that last sentence. Every part of me was yelling at me to call him out on his bullshit, but I stood speechless.
+
+“I have to go, i can’t be out here. I know I probably sound crazy but it’s better to be safe than sorry. Please remember my warning, it’s too late to run now. Just stay inside. Good luck.” Ethan said. His fear was much more audible now.
+
+He shut my door and with that I was alone again. I cursed at myself for not being able to say anything but I couldn’t help it. This man I’d never seen before comes knocking on my door at an isolated house at 1 in the morning to tell me to not come outside after I had heard a terrifying noise just a few hours before. It was all too overwhelming for me to take in at once and I found myself suddenly terrified. What in the hell did he mean by that? Why would I have to stay inside?
+
+I sat on my bed in silence for a few minutes trying to process what had just happened. He had to be crazy right? That had to be it. I felt bad for the guy, he seemed nice enough but he clearly had some problems. Nevertheless I decided to listen to him, just to be safe. I would have ignored it completely if it weren’t for the horn noise earlier, I still had no idea what that was, but I didn’t want to think about that. Not at this late hour.
+
+My thoughts rapidly span through my head but it was interrupted in a quick second.
+
+The sound of the horn spilled down the mountain, but it was much louder this time.
+
+**NMMMMMMMMMMMMMMMM**
+
+**NMMMMMMMMMMMMMMMM**
+
+I slammed my hands over my ears in an attempt to block out the noise but it was useless. The walls around me were rapidly shaking and I heard the TV slam on the floor. It kept going and going, longer than before until it finally stopped.
+
+No crickets, no sound, no wind. Pure silence.
+
+*Calm down. Calm down.*
+
+I knew something was wrong now, my instincts were screaming at me that I was in real danger. A feeling of unspeakable horror was completely enveloping me, and when I looked outside my window I saw why.
+
+I saw a figure in the trees. It looked to be walking around cluelessly, as if it were studying the area. It was tall, too tall. It's height seemed to be nearly half the size of the trees, at least 8 feet tall. It looked to be human shaped until I saw it's arms. Long fleshy twigs stuck out of it's body as if to resemble arms. They looked like long skinny bones and dragged across the ground with long sharp claws. It walked on two legs and after a short moment, it paused. I was paralyzed, standing completely still watching in awe. My understanding of everything I thought I knew about the world crumbling in front of my eyes.
+
+The figure turned towards my direction with a speed I couldn't comprehend and I ducked beneath the window as fast as my body would allow, but it was too late. It knew I was here now. I heard leaves crunching outside slowly inching closer towards the house and I was in a full blown panic. Eventually the sound stopped, the only noise around now my heavy rapid breathing. I was terrified and helpless. All I could do was hope it would leave.
+
+I sat there on the floor in silence for what must have been ten minutes, but it felt like hours to me. The tension was so present you could cut it with a knife. Finally, I mustered up the courage to look above me at the window but saw nothing. It was gone. I was relieved for only a small second, until something happened.
+
+Out of nowhere, Ethan's body dropped from above and splattered onto the ground outside. He was mangled nearly beyond recognition. His throat looked to be gouged open with multiple slice wounds. Blood poured from his throat and spilled onto the rest of his body. His face registered a look of absolute horror and his mouth was wide open, offering an all too late scream. He didn't look long dead.
+
+I didn't have time to process what I was looking at. I felt a scream rising from my throat but I forcefully held it back, and that's when I heard the sound of a loud series of pounding on my front door. It almost sounded like gunshots.
+
+***BANG BANG BANG BANG BANG***
+
+The door violently shook in it's frame and I couldn't believe it wasn't breaking down. Ethan's voice began to yell out from the other side of the door as it continued trying to forcefully break it down.
+
+"Come outside. Come outside outside outside outside **OUTSIDE**"
+
+Ethan's voice was perfect for the first few words but it slowly dropped into a deep distorted voice to form broken words. I almost couldn’t make out what it was saying, its voice was unlike anything I've ever heard. It kept going and going until it finally stopped as quickly as it began.
+
+My ears were ringing loudly and I could feel my body turning to static. My heart was throwing itself against my chest and my head felt like it was pounding against itself. I had to breathe.
+
+Everything was too quiet. The silence hung in the air far longer than I thought it would. Nothing was happening anymore, but I was still cautious. I needed to get out of here, but I was too afraid to move. I was too afraid to even breathe too loudly.
+
+Just then a realization hit me with the force of a thousand suns.
+
+*The back door*.
+
+Christ I had never closed the back door.
+
+I had to get up and check. I frantically searched around the house for the door shooting my head in every direction and I thought I noticed a dark shape.
+
+No, not a shape. A figure in the corner of the room standing completely still.
+
+I stared at it in silence hoping I wasn’t looking at what I thought I was looking at, but it was too dark to tell. The more I stared the clearer it became and that’s when I realized I was looking at two pairs of yellow pupils on a smiling face. The smile grew wider across what was supposed to be a face as it realized I had saw it, it’s lips slowly turned up to its eyes as a black liquid spilled out of its mouth leaking onto the floor. All while it made a deep gurgling type noise. It almost sounded like a burp, but severely slowed down to a deep groan. Deeper than anything I had ever heard and it stung my ears to listen to.
+
+Seeing this broke my paralyzed state as I knew I had to get out of there. I jumped onto my two feet and began to sprint to my car, running off pure adrenaline. As soon as I opened the front door I heard tens if not hundreds of more creatures making the same gurgling noise but I didn’t dare look, running to my car was my only mission. Footsteps were rapidly running closer towards me from behind, it sounded like multiple horses running on four legs stomping onto the ground.
+
+Eventually I jumped into my driver side door and slammed it shut, to my relief the car actually started. I threw it violently into reverse and heard tires screech onto the concrete below. I sped away down the driveway, all while I kept hearing more footsteps from behind. Just before i made it onto the road, the sound of the horn blasted down the mountain once more.
+
+**NMMMMMMMMMMMMMMMMMMMMM**
+
+**NMMMMMMMMMMMMMMMMMMMMM**
+
+It was louder than ever and I felt hot liquid pour down from both ears and landed onto my seat. My ears were bleeding. I risked one last look back at the house. What I saw will forever be burned into my mind. Behind the house on an uphill path I saw dozens of more creatures crawling on all fours like spiders sprinting towards the house as the horn blared out. I turned away instantly and I drove down the road as the horn progressively faded.
+
+Until nothing.
+
+I spent the next 3 days I had off work in a miserable terrified state. So many questions rocketed through my mind every second of the day, all of them unanswered. The Airbnb was taken off the site after I had rechecked, so I couldn’t contact the owner of the property. I wish I had remembered the owners name.
+
+I contacted the police and told them everything, but of course not a single officer believed me. I originally should have changed up the story so they would take me more seriously but it’s too late now. Frankly I’m lucky I didn’t get put in a ward.
+
+I’m not going to give out the name of the town, I don’t want anyone to have to experience what I did. I have no idea what happened to Ethan, but I’m forever grateful for him. He came to warn me and died as he did, I don’t think I would be alive to tell my story if it wasn’t for him. I never learned his last name or remember his face very well, so I couldn’t find any record of him. It makes me sad to think there will be no justice for his death.
+
+I’ve never mentally recovered from that night and I question my sanity nearly everyday, but now I’m terrified. Because you see, last night I was awoken. Awoken by the sound of that familiar horn, and nobody else in town heard it.
+
+Nobody except me.

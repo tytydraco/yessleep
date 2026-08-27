@@ -341,3 +341,5 @@ The woman sighed. “Fine. Make it quick.”
 I followed her command and was back before the song on the radio had finished. Presently, an entire vanilla cake sat in my lap, jiggling to the movement of the van. I wasn’t going out sitting down, that was for sure. There was still a way through this nightmare, one where I landed on top, exposed corruption, fixed the system. 
 
 Those people outside would know my name, would want to know my name, be so fascinated by me that they would trample over themselves to meet me. No doubt, if this worked, I would leave the world better off than I’d been born into it. That my life had a meaning and a point would not be in question. It would be as self-evident as the mutual exclusiveness of day and night.
+
+[Part 6](https://www.reddit.com/r/nosleep/s/7rEHJSdgKR)

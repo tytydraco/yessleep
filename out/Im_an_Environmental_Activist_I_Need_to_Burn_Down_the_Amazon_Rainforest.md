@@ -1,0 +1,1026 @@
+I need to burn down the Amazon rainforest.
+
+
+
+I wish I didn't have to say that.
+
+
+
+But it’s the only way to stop him.
+
+
+
+Three months ago, I would have punched anyone who suggested it.
+
+
+
+I’m a full-time environmental activist. I’ve spent my life planting trees and documenting the destruction of the climate, but now I only dream about fire. Not because I hate the forest,
+
+
+
+But because I know what's hiding in it.
+
+
+
+My name is Jess. Two months ago, my crew and I were hired by a nonprofit called GrowNow to document one of their reforestation projects deep in the Amazon.
+
+
+
+Over the last year, we’ve traveled around the globe planting trees and filming. This was supposed to be another routine assignment.
+
+
+
+Ben, my cameraman, and Sara, our sound tech, were exhausted and wanted to go home. I convinced them to come with me anyway.
+
+
+
+I wish I hadn't.
+
+
+
+I was thrilled to go to the Amazon; I hadn’t been there in years, and the last time I was there, we had only been on the outskirts of the forest, but this time we were going deep into the interior. After weeks of planes, jeeps, riverboats, and hiking, we finally made it to a tiny village that sat on the edge of the region where GrowNow was working.
+
+
+
+Exhausted, we pulled ourselves into the makeshift bar that sat in the center of the village. Our packs fell to the floor as we sat at a small table in the corner. Local eyes stared at us with an unbroken boredom; they were neither angry nor excited at our presence. Sara opened the cheap beer the bartender handed her.
+
+
+
+“Haven’t been this far out in years.” She said as she raised the bottle to her lips.
+
+
+
+“Yeah,” Ben replied, “back then people actually watched our stuff.”
+
+
+
+He wasn’t wrong; we did better online when we were independent. Since we started contracting, our docs had lost that ‘young radical’ vibe that had gained us popularity early on. Most nonprofits and companies that hire us aren’t reforesting in the dangerous places. Lately, our work has had more of a newscaster feel than the environmental investigative reporter feel we all dreamed of.
+
+
+
+“Maybe this one will be like the old days.” Sara said with hope, “Maybe this will be like our work in the Yukon.”
+
+
+
+Ben rolled his eyes
+
+
+
+“The Yukon was a one-off; face it, we’re washed up.”
+
+
+
+“I think this could be better than the Yukon,” I responded quickly
+
+
+
+“You say that every time,” Ben smirked
+
+
+
+“Well, this time it's true. I think there’s a story here.”
+
+
+
+Ben chuckled as he worked on his beer.
+
+
+
+“Think about it, whoever is deforesting in this area clearly doesn’t want anyone to know. The last time we were this isolated in the forest was in the Yukon, and what did we learn there? Companies that work that far out have something to hide.”
+
+
+
+Ben shrugged
+
+
+
+“Maybe.” He muttered.
+
+
+
+Finishing her drink, Sara stood up.
+
+
+
+“Well, let’s find some locals to interview.”
+
+
+
+We followed her as she smiled and waved at every old woman and giggling child. Near the outskirts of the village, she turned to us and whispered
+
+
+
+“Let’s try this guy.”
+
+
+
+She walked up to an older man and greeted him in Spanish; he replied, and she asked if we could ask him some questions. He agreed. We quickly set up our equipment, and I stood next to the man and asked my first question.
+
+
+
+“Hello, sir, what is your name?”
+
+
+
+Sara repeated the question to the man in Spanish; he answered.
+
+
+
+“He says his name is Carlos.”
+
+
+
+“Thank you, Carlos. How long have you lived here?”
+
+
+
+A moment later, Sara answered
+
+
+
+“He’s lived here his whole life, he’s never left.”
+
+
+
+I nodded at Carlos to show I understood.
+
+
+
+“What do you do for work?”
+
+
+
+“He’s a fisherman.”
+
+
+
+“And Carlos, who’s responsible for cutting the trees around here down?”
+
+
+
+Sara repeated the question, and Carlos’ answer was short. Sara was silent as she thought for a moment.
+
+
+
+“What did he say?” I asked
+
+
+
+“He said the village did; I’m not sure he understood.”
+
+
+
+“I’ll try again, Carlos. Does it make you sad that the forest is being destroyed?”
+
+
+
+Sara asked Carlos, and he violently shook his head and gave a long response. Sara frowned.
+
+
+
+“What did he say?”
+
+
+
+“he said, ‘Not at all, the trees are evil; openness brings safety.’”
+
+
+
+She thought for a moment
+
+
+
+“I didn’t understand much more. I think he's saying something about the trees and someone who needs them.”
+
+
+
+“This is a bust,” Ben said.
+
+
+
+“Wait!” I said, stopping him from putting the camera down.
+
+
+
+Looking towards Carlos, I asked
+
+
+
+“Who needs these trees?”
+
+
+
+He stared at Sara as she repeated the question; his face was void of expression. Then, without any warning, he walked away as if he hadn’t just been speaking to us. I stared, confused, as he vanished behind the walls of his home. Ben put the camera down, grabbed my shoulder, and said
+
+
+
+“Come on, let’s move on.”
+
+
+
+Word of strangers asking questions spread quickly, and we couldn’t get anyone else to talk with us; instead, they avoided us like the plague. Giving up on interviews, we moved out of the village and headed towards the reforestation camp
+
+.
+
+The camp was roughly five miles from the village. Five miles of desolation; the region was bare. Wide, vast fields of stumps and burn scars were all that remained of ancient trees and habitats. Every step we took, every stump we passed, filled me with anger. How could anyone do this? As we grew closer to the camp, we could see the signs of new life; hand-planted trees of various sizes were scattered among the barren land. It was the start of a new section of forest.
+
+
+
+The GrowNow camp sat outside the edge of the deforestation; a healthy, living rainforest sat around the camp just a short walk away from the dead land we were here to heal. It wasn’t the largest camp we’ve seen; in fact, for a well-funded nonprofit, it was quite small. Just a handful of personnel tents, a kitchen tent, an open-air meeting area, and a showering tent. Best we could tell, there were about a dozen people here, a microscopic amount compared to some of our projects.
+
+
+
+A tall German man greeted us as we entered the bounds of the camp. With a wide smile, he reached a hand out to me.
+
+
+
+“You must be Jessica.”
+
+
+
+I shook his hand.
+
+
+
+“Call me Jess.” Pointing to my friends, I said
+
+
+
+“This is Ben, and Sara, my crew.”
+
+
+
+He gave a warm nod to them.
+
+
+
+“Welcome, my name is Gregory. I’m the camp manager here; we’re pleased to have you with us.”
+
+
+
+He beckoned us to follow as he led us through camp.
+
+
+
+“We’ve made some good progress, but as I’m sure you saw on the trail, we still have a long way to go.”
+
+
+
+I nodded
+
+
+
+“This is impressive, how exactly can we help?”
+
+
+
+“You’re here to help us raise funds. We’ve had a few issues with the locals; a few of our efforts have been burned or destroyed by the surrounding villages; they don’t seem to understand that we’re trying to help.”
+
+
+
+He stopped to greet some volunteers in the camp
+
+
+
+“We’re over budget due to needing to buy new saplings. So we’re hoping that you’ll film a short documentary of the good work we’re doing, something that will encourage people to give.”
+
+
+
+He continued through the camp.
+
+
+
+I spoke up.
+
+
+
+“We talked to some of the locals; they said something about someone needing these trees. Any idea what they’re talking about?”
+
+
+
+Gregory looked back; a quick flash of concern crossed his face before he shrugged and said
+
+
+
+“Just local superstitions, I would guess.”
+
+
+
+Pointing to a large canvas tent standing off by itself he said
+
+
+
+“Here’s where you’ll be staying its not much but hopefully it’ll work for you and you’re gear; get settled and relax. After dark we like to gather around the fire, and you’re welcome to join us.”
+
+
+
+We spent the next hour unpacking our packs and organizing our equipment; the sun was beginning to set as we finished. Ben picked up his camera and said
+
+
+
+“This is good lighting; I’m going to get some b-footage.”
+
+
+
+I nodded
+
+
+
+“Don’t go too far,” I said as I sat down on a log. The rainforest chattered with life all around us
+
+
+
+Sara and I talked about the camp, the size of the deforestation, and what kind of shots we wanted to get the following day. About 10 minutes later, Ben walked back to us; he was frowning and looking around like someone was watching him.
+
+
+
+“Everything ok Ben?” I said as I noticed his concern.
+
+
+
+He looked at us
+
+
+
+“Yeah, I was just filming back in there. When everything got really quiet and still. Then I caught this strange guy in the shot.”
+
+
+
+“What do you mean?”
+
+
+
+“I don’t know, just some strange old dude, about 20 yards from me, just standing and staring at me.”
+
+
+
+Sara rolled her eyes.
+
+
+
+“I’m serious!” Ben cried “Look I got it on tape.”
+
+
+
+He began to rewind the camera as Sara and I came in close to see.
+
+
+
+“Here it is.” He said and pressed play
+
+
+
+We watched as Ben slowly moved the camera through the jungle, swinging the camera back and further, then the shot stopped and froze on a clump of trees and underbrush. We could here Ben’s voice on the recording, muttered
+
+
+
+“What the hell.”
+
+
+
+The camera held still for a few minutes before it dropped to Ben’s side as he tromped back to camp. We didn’t see any old man.
+
+
+
+“Wait, what? That doesn’t make sense.” Ben protested, “He was standing right there.”
+
+
+
+“Nice try, Ben.” Sara laughed
+
+
+
+I smiled at him in sympathy.
+
+
+
+“It’s been a long day; we all need some rest. Come on.”
+
+
+
+Together we walked towards the meal tent.
+
+
+
+We enjoyed the hearty dinner the camp offered; Ben seemed shaken. Darkness came, and with it the warm campfire. One by one, the staff and volunteers gathered by the flickering light. Smiles and laughter filled the night. Soon the liquor came. Then more laughter and dancing. The multicultural group meshed into a vibrant expression of human joy. Dancing and off-key songs rose from the group, and Sara and I watched with smiles on our faces. Ben sat and stared intently into the dancing flames of the fire.
+
+
+
+Gregory led the merry night; he clumsily danced around the fire, and his deep, jolly voice tried its best to sing. After a few rounds of dancing, he grew tired and stumbled his way towards us. With a joyful laugh and slurred words, he sat down next to Ben, wrapping an arm around him.
+
+
+
+“Why so glum, friend? Have some fun while we save the world.” He laughed deeply
+
+
+
+Ben tried to squirm away, but the strong German pulled him in.
+
+
+
+“Don’t worry about him.” Sara said as she watched, amused.
+
+
+
+“He thought he saw someone in the jungle today.”
+
+
+
+“Really?” Gregory looked at Ben, a wide smile on his face, though his eyes and voice sobered up slightly.
+
+
+
+“What did this person look like?”
+
+
+
+Ben shook his head and stared at the ground.
+
+
+
+“Oh come on, we’re all friends here. What did you see?”
+
+
+
+Slowly Ben said
+
+
+
+“It was an old man.”
+
+
+
+“Old man eh?”
+
+
+
+“Yeah, but he looked strange.”
+
+
+
+“How so?”
+
+
+
+“I don’t know, his face seemed wrong, almost like it was AI-generated, almost right but not really.”
+
+
+
+Gregory went silent; it seemed as though he was once again sober, he stared at the fire before speaking.
+
+
+
+“When I was younger.” His voice was clear and calculated “I helped with some humanitarian efforts here in the Amazon, quite close to where we are actually.”
+
+
+
+He cleared his throat.
+
+
+
+“We were helping a village, and they warned us of an old man who would watch you from the jungle.”
+
+
+
+Our eyes were locked on him.
+
+
+
+“The story goes that many years ago an elder of the village and his young grandson got lost while out hunting; they stumbled around for days and weeks. It seemed as though the jungle had been emptied of every animal and edible plant, for they found nothing to satisfy their constant hunger. The elder, a coward at heart, cared only for his life. His hunger consumed all familial love in his heart, and he devoured his grandson.”
+
+
+
+He paused to clear his throat
+
+
+
+“The locals claim the forest spirits found him afterward. Cursing him to be a wandering soul, doomed to roam the jungle forever. Some say he will come to your shelter at night, and if he knocks three times, you must give him an offering, or you risk his wrath.”
+
+
+
+We stared at him in silence; Ben was as white as a sheet. Gregory tried to look serious, but soon a wide smile cracked across his face, and he burst out laughing.
+
+
+
+“Oh man, I really had you going; those local legends are far out there.”
+
+
+
+With that, he stood and grabbed another bottle from the cooler and went back to his awkward dancing. Sara playfully punched Ben’s shoulder
+
+
+
+“Man, he got you good.”
+
+
+
+Ben rolled his eyes, but managed to chuckle a bit. The rest of the time around the campfire was lighthearted and fun; even Ben danced a little once he had a few beers in him. It was nearing midnight when the three of us stumbled off to our tent and collapsed on our cots.
+
+
+
+Around 3 am I woke up. I was thirsty. Glancing around the canvas room of the tent, which was slowly illuminated by the grey light of the moon, I saw my canteen resting beside my backpack across the room. Ben and Sara were sound asleep as I stood up and walked the few steps over to the pack. Walking back to the cot. I took my drink and lay down.
+
+
+
+The lively sounds of the jungle at night were very relaxing: the chirping of distant birds and nearby insects mixed with the howling and cries of various animals made a calming ambience. I was on the verge of sleep when it all stopped. The night became perfectly quiet. The only sound that remained was the low breathing of my friends. I sat up; in all the nights I’ve slept in the woods, I’ve never experienced such an abrupt silence.
+
+
+
+I could feel my heartbeat quicken as a long human-shaped shadow moved its way across the canvas walls. Slowly, methodically, it made its way to the tent door. A cold breeze made its way through the two-inch gap beneath the canvas door. A figure stood unmoved on the other side of the thin fabric. I held my breath and stared intently at the entrance. Nothing happened for what felt like an eternity. I don’t know why, but I slowly left my bed and silently crept to the door. I tightly held a small pocket knife in one of my trembling hands. A few feet and a piece of cloth separated me from whoever stood there.
+
+
+
+“Hello?” A weary, raspy voice broke the silence.
+
+
+
+I swallowed and held the knife tighter.
+
+
+
+“Is anyone in there? I’m lost; may I come in?” The voice was strange; its owner unfamiliar with speech, almost like it hadn’t opened its mouth in a century.
+
+
+
+A breeze lifted the canvas slightly, and for a second I saw bare feet stand at the door, thin and bony.
+
+
+
+A long, uncomfortable moment passed; neither I nor the shape moved, then it said
+
+
+
+“I know you’re there.”
+
+
+
+Almost instinctively, I moved my free hand up to cover my mouth.
+
+
+
+“I can hear your heart beating, why won’t you let me in?”
+
+
+
+Sweat began to form on my forehead.
+
+
+
+“Please let me in.” The voice was firmer now.
+
+
+
+Then the figure raised its hand and slowly knocked three times on the canvas covering, pushing it in towards me with every knock.
+
+
+
+At that, I rolled my eyes and chuckled softly
+
+
+
+“Nice try, Gregory, but you’re not getting us with that story again.” I said with as much courage as I could find.
+
+
+
+At my words, Sara sleepily lifted her head and said
+
+
+
+“What are you doing? Who are you talking to?” she asked in a daze
+
+
+
+“It's Gregory; he’s trying to scare us again.”
+
+
+
+“Tell him to quit it; we’re trying to sleep,” she mumbled and rolled over
+
+
+
+“It’s not going to work, Gregory. Get lost,” I said confidently to the figure.
+
+
+
+I returned to my bed. I don't know how long the shape stood there, but eventually exhaustion won out, and I fell asleep.
+
+
+
+The sun worked as a natural alarm clock. Both Sara and Ben were up and getting ready for the day when I rolled over in my sleeping bag.
+
+
+
+“Hey, sleepyhead,” she said sarcastically.
+
+
+
+“What time is it?” I whined
+
+
+
+“Almost ten; you were out.” She chuckled.
+
+
+
+Ben stood in the corner, preparing his camera equipment.
+
+
+
+With a yawn and a stretch, I swung my feet to the ground and began to lace up my boots. Ben finished packing his kit and, with a grin, said
+
+
+
+“Maybe there’s some breakfast left; see you out there.”
+
+
+
+With that, he pushed aside the canvas door and stepped out of the tent. Mere seconds later, his panicked voice reached our ears.
+
+
+
+“Guys! Get out here!”
+
+
+
+Sara and I burst out of the tent, where we met a wide-eyed Ben.
+
+
+
+“What?” Sara said annoyed
+
+
+
+“Where the hell is everyone?” he yelled.
+
+
+
+Our eyes left Ben and scanned the surrounding jungle. It was dense and wild; the tent that had been just a stone's throw from ours last night was gone. There was no kitchen tent. No fire pit.  
+No personnel tents. No showering tent. No footprints. Nothing.
+
+
+
+The camp was gone.
+
+
+
+Sara and I quickly spun around, confused
+
+
+
+“What is this?” I muttered
+
+
+
+Sara laughed to herself
+
+
+
+“This is a joke, right? They moved the camp and didn’t tell us.”
+
+
+
+“Moved the camp? What are you talking about? Look around! This isn’t the same jungle from last night; we’re the ones who moved,” Ben screamed
+
+
+
+He was right. We looked around; these weren’t the same trees that surrounded the camp. The land was different.
+
+
+
+“I don’t know what’s going on, but we can’t be far from the camp. Let’s just try to find it.” My voice was more confident than I felt.
+
+
+
+My frightened friends stared back at me, but soon both agreed, and picking a direction, the three of us headed off, shouting for help as we went. An hour passed, and we saw no sign of humans. With a sigh, Ben said
+
+
+
+“Face it, we’re lost. Something is really wrong here; let’s head back to the tent.”
+
+
+
+We turned and retraced our steps. Two hours passed and then three; we couldn’t find the tent. Sara whimpered softly to herself; Ben swore under his breath. The situation was getting to me and I snapped
+
+
+
+“Where the hell is the tent!” I kicked a stump and fell to the ground, crying
+
+
+
+Ben stared off blankly into the jungle and shook his head
+
+
+
+“We could have been there now; why aren’t we there?” he whispered continuously to himself
+
+
+
+Sara sat on the ground, her head buried between her knees; low snuffles and sobs shook her frame. The three of us wallowed in our fears; panic overcame reason. The sound of thunder shook me from my despair. I looked up at the dark sky just as it began to rain.
+
+
+
+Slowly, the three of us moved under the shelter of a large tree. When it rains in the rainforest, nothing stays dry. The wind whipped the rain around, drenching us thoroughly. It rained all day and through the night. We huddled together for warmth, but were soaked to the bone.
+
+
+
+Sometime after midnight, both Ben and Sara managed to fall into trouble sleep; I wasn’t so lucky. Sleep evaded me as I stared into the dark, wet jungle. In the distance, I could have sworn I could see the shape of a starved old man wandering between the trees.
+
+
+
+Morning came, but it didn’t bring hope. Most of the morning the three of us sat against the tree in silence. Around noon, Ben spoke for the first time in hours.
+
+
+
+“Have you noticed how quiet it is?”
+
+
+
+We all listened; it was eerily silent. No birds, no bugs, no animals, just the wind in the trees. Sara stared at the ground and said
+
+
+
+“Where are we?”
+
+
+
+“I don’t know.” I blankly answered
+
+
+
+“Somewhere in the jungle.”
+
+
+
+The silence continued. In the afternoon, a loud rumble echoed around us. It was my stomach.
+
+
+
+“I’m hungry,” Ben said
+
+
+
+“We all are,” Sara said
+
+
+
+ A long moment of silence followed before Ben asked
+
+
+
+“Who are we going to get out of here?”
+
+
+
+I thought for a moment before saying.
+
+
+
+“We just need to find the river. There are villages along the banks; if we find the river, we can get out of here.”
+
+
+
+We agreed to search for the river in the morning. Feeling more confident now that we had a plan, we huddled together for the night and fell asleep.
+
+
+
+The next day was a copy of the previous; we wandered aimlessly through thick jungle. Around us, we could hear the rush of a river; it sounded so close, but try as we might, we couldn’t find it. The sun began to set, and we sat down under a tree that looked strangely like the one we slept under the night before.
+
+
+
+“There’s no food.” Sara muttered
+
+
+
+Ben and I looked towards her as she continued
+
+
+
+“I’ve been looking; there are no berries, or fruit or any edible plants that I know.”
+
+
+
+“What about animals? We could try to hunt or catch something?” I weakly asked.
+
+
+
+Sara shook her head
+
+
+
+“I haven’t seen a single ant. There’s nothing.”
+
+
+
+Hunger pains set in as we drifted off to sleep. I don’t know how many days continued just like this; it felt like months, but it couldn’t have been more than a week. When it rained, we drank. But our bodies grew weak from starvation. Our clothes grew loose, and our skin clung tight to our shaking bones. All muscle vanished; only skin and bones remained.
+
+
+
+Slowly we stumbled around all the more. It felt like a task to keep my eyes open. We barely spoke anymore.
+
+
+
+“Look!” Ben slowly raised his arm to point up into the canopy above.
+
+
+
+“Berries.”
+
+
+
+A small bunch of shiny black orbs hung off a vine about 20 ft off the ground. Ben stared at them as if they were made of gold. Sara stared intently at them, too.
+
+
+
+“I can’t tell what kind of berry those are. They might not be food,” she said wearily.
+
+
+
+A flash of anger crossed over Ben’s face.
+
+
+
+“Who cares?! We need to eat.” He stubbornly pushed her aside and began to climb the tree.
+
+
+
+He knocked the clump down and returned to the ground to pick it up. He viciously devoured each berry before stopping and glancing towards us. Breaking off two small bunches, he handed them to us.
+
+
+
+“Here,” he said gruffly
+
+
+
+Sara licked her lips, but refused them. I stared at them; they were darker than night, and smelled rotten. It took everything I had to resist and shake my head no.
+
+
+
+“Suit yourselves,” Ben mumbled as he shoved the berries into his mouth.
+
+
+
+We didn’t last much longer before collapsing for the night beneath an all-too-familiar tree. The last thing I saw was a distant figure staring at us from behind the trees.
+
+
+
+When I woke, Sara was crying. Confused, I looked around before my eyes settled on the crumpled form she cradled in her lap. It was Ben; his skin was a pale greenish shade, and his frail form was rigid and stiff. A thin line of white foam ran from his mouth down his neck.
+
+
+
+“Jess,” Sara whispered through her cries
+
+
+
+I swallowed hard, and trying to be brave, I said
+
+
+
+“I know, but we have to keep going.”
+
+
+
+I pulled her to her feet
+
+
+
+“Come on.”
+
+
+
+We walked away from Ben together.
+
+
+
+We didn’t speak the rest of the day; now and then, Sara snuffled and wiped her eyes before tears fell. The light began to fade as the sun began to set. We stumbled forward; ahead of us, Ben’s dead body rested against the same tree we left this morning. Sara screamed. Though we left the tree and Ben and headed in one direction all day, somehow we were back with Ben. We collapsed to the ground and cried.
+
+
+
+Days passed. The silence was deafening, the hunger unbearable. Every morning we left the grove; we left Ben leaning against the tree. And every night somehow we returned to the same grove, where Ben greeted us. His body changed over the days; it was swelling with decay. He leaked thick, dark fluid onto the ground. Though his flesh was rotting, not a single maggot wiggled its way across his corpse.
+
+
+
+We stumbled into the grove one night; his skin hung loose on his skull. Sara shuffled over at crouched in front of his body. She lifted his arm to her mouth.
+
+
+
+“What are you doing?” I asked in a daze.
+
+
+
+“I’m hungry.”
+
+
+
+“Sara, don’t. He was our friend.”
+
+
+
+“He’d understand.”
+
+
+
+My heart beat faster as I realized she was serious.
+
+
+
+“Well, don’t; he’s rotten. Look at him.”
+
+
+
+She stopped and stared at the corpse.
+
+
+
+“You’re right.” She mumbled.
+
+
+
+She turned and stared at me. A strange fire glowed deep in her eyes. She rose to her full height; she seemed stronger than before. She moved towards me slowly, but with purpose.
+
+
+
+“Sara?” I took a step back.
+
+
+
+“What’s wrong?”
+
+
+
+Her eyes grew darker, her lip began to quiver, and tears ran down her face, but her fists clenched at her sides.
+
+
+
+“Please, I’ll make it quick.” She moved closer.
+
+
+
+“Don’t do this.” I whispered
+
+
+
+A thin smile broke through the tears as she lunged at me. Her tackle knocked me to the ground, and the back of my head bounced off a large rock, knocking me unconscious. I came to a few minutes later; a sharp pain radiated from my right forearm. Slowly, I turned my head to see Sara hunched over my arm; blood covered her clothes and hands, and my flesh was in her mouth. Already, she had chewed a gaping wound in my forearm; my muscle, skin, and tendons stretched and snapped as she pulled it away with her teeth. I screamed.
+
+
+
+Instinctively, I wildly kicked my legs to and fro; one kick landed in Sara’s gut, knocking the wind out of her and giving me the chance to scoot away from her. It didn’t take long for her to recover and scrabble towards me. My left hand reached and found a stone; I swung it and connected with her temple. She limply fell face down in the dirt. I swung the stone again at the back of her head.
+
+
+
+Ben’s rotting eyes stared at me as I wept over Sara's bleeding skull. I wept bitterly, and to my shame, as I stared at Sara through watery eyes, my stomach growled. Her skin looked so delicious and filling; I could feel myself giving way to the temptation. A weak chuckle caused me to turn around. Behind me stood an old, frail man. His frame was weak, but his eyes were dark and powerful. He stared at me, a wide grin on his face.
+
+
+
+“Eat.” His weak voice said
+
+
+
+I stared in disbelief before my gaze returned to Sara.
+
+
+
+“Eat.” His voice was deeper, stronger.
+
+
+
+I looked back at him; fear filled my body. It seemed as though the old, frail shape before me wasn’t a man, but a monster, disguised behind flesh and bones. The jungle darkened where the man had been was replaced by a void of shadow. I backed up slowly.
+
+
+
+“Eat.” His voice echoed and shook the ground.
+
+
+
+I turned and ran. A loud cackle resounded through the jungle. I ran as fast as my starved body could handle; the man was right behind me. I could feel his breath on my neck; his voice laughed and said
+
+
+
+“Eat.”
+
+
+
+“Eat.”
+
+
+
+“Eat.”
+
+
+
+A cold, strong hand wrapped itself around my wrist, but just as it began to pull me back, the ground below me gave way as my body tumbled down the steep side of a mountain. The man’s grip broke as I rolled and toppled down the wooded hillside. Bouncing off the ground and trees. I didn’t stop till I reached the bottom.
+
+
+
+At the bottom, I groaned and slowly rolled myself over to face the sky. Pain and bruises covered me, and it took a moment to realize I wasn’t in the jungle anymore. The tumble down the hill dropped me at the edge of the deforestation area. I struggled to my feet and looked around. The rainforest was a yard or two behind me; just within its bounds stood the old man. He stood perfectly still, watching me.
+
+
+
+I backed up slowly; he made no move. I moved further away; he didn’t follow. He stayed in the jungle. I hobbled my way to the same village that Sara, Ben and I stopped in. At first they were frightened by the skinny, bloodied woman who barely looked human. But eventually they fed me and tended to my wounds before a boat came to take me to civilization. He’s still out there, hiding in the jungle; that’s why it has to burn.
+
+
+
+I'm writing this from a hospital room thousands of miles from that jungle. But I’ll be going back soon. To the same village, the same area, only this time I have a different goal. I’m not writing this as a justification; it's just an explanation. When you see the news of the activist who burned the rainforest.
+
+
+
+Now you’ll know why.

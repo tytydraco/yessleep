@@ -1,12 +1,12 @@
-My grandmother always baked banana bread from Martha Brown's Banana Bread Mix. It was a tradition, and she would bring it to our Christmas get togethers. Christmas is put lightly though, as it is hosted in November, due to my rich, snobby Aunt Susan and Uncle Dean always traveling to some exotic country for an expensive holiday in December. During that month, I always mute my notifications so I don't have to see their boasting images and harsh, vaguely racist captions in the family group chat. They are always away holidaying while my parents are stuck at home with my little sister Leah and Grandmother, struggling to pay their rent. I can barely afford to pay for my own, let alone help my parents as well.
+My grandmother always baked banana bread from Martha Brown's Banana Bread Mix. It was a tradition, and she would bring it to our Christmas get-togethers. Christmas is put lightly though, as it is hosted in November, due to my rich, snobby Aunt Susan and Uncle Dean always traveling to some exotic country for an expensive holiday in December. During that month, I always mute my notifications so I don't have to see their boasting images and harsh, vaguely racist captions in the family group chat. They are always away holidaying while my parents are stuck at home with my little sister Leah and Grandmother, struggling to pay their rent. I can barely afford to pay for my own, let alone help my parents as well.
 
  
 
-This year was different though, as it was the first Christmas without my Grandmother. She passed away from complications with pneumonia in September, a couple weeks before her 87th birthday. That is why this year it was my job to bring the banana bread. When I lived at home, me and her would make it together every year I would do the mixing as I watched her shaky hands, skin like a thin sheet of baking paper, spread the mixture into the burnt, bubbled oven tray. Even though it hasn't been that long since she has passed away, I am starting to forget the loving look her bumpy eyes gave me, the touch of her arm around mine, when I walked her to her chair. It hurts knowing I will forget it all completely. At least for now, I still have the tradition of our banana bread.
+This year was different though, as it was the first Christmas without my Grandmother. She passed away from complications with pneumonia in September, a couple weeks before her 87th birthday. That is why this year it was my job to bring the banana bread. When I lived at home, me and her would make it together every year. I would do the mixing as I watched her shaky hands, skin like a thin sheet of baking paper, spread the mixture into the burnt, bubbled oven tray. Even though it hasn't been that long since she has passed away, I am starting to forget the loving look her bumpy eyes gave me, the touch of her arm around mine, when I walked her to her chair. It hurts knowing I will forget it all completely. At least for now, I still have the tradition of our banana bread.
 
  
 
-I always weighed the box of Martha Brown's Banana Bread Mix in my hand. I jostled my wrist up and down, feeling the flowery substance clump and sift inside it's packet. I slide open the cardboard opening and get hit with an invisible wave of putrid smell. I do not remember it smelling this eye watering, I assume they just altered the recipe since last Christmas. I hope it still gives me the taste of nostalgia upon my tongue when it is fully baked. It takes me forty minutes to put everything together and place it in the oven to bake. I acknowledge this is abnormally long, but for some reason, ever since I poured the mix into my bowl, I had uncontrollable, slobbering sneezing fits. I had to excuse myself from the kitchen multiple times, go to the bathroom, and leak mucus and flehm into the sink. I have seasonal allergies, but I thought they had decreased exponentially since my childhood. The allergies conveniently died down after the bread started baking in the oven, and overall, I forgot about it entirely.
+I always weighed the box of Martha Brown's Banana Bread Mix in my hand. I jostled my wrist up and down, feeling the flowery substance clump and sift inside its packet. I slide open the cardboard opening and get hit with an invisible wave of putrid smell. I do not remember it smelling this eye watering, I assume they just altered the recipe since last Christmas. I hope it still gives me the taste of nostalgia upon my tongue when it is fully baked. It takes me forty minutes to put everything together and place it in the oven to bake. I acknowledge this is abnormally long, but for some reason, ever since I poured the mix into my bowl, I had uncontrollable, slobbering sneezing fits. I had to excuse myself from the kitchen multiple times, go to the bathroom, and leak mucus and flehm into the sink. I have seasonal allergies, but I thought they had decreased exponentially since my childhood. The allergies conveniently died down after the bread started baking in the oven, and overall, I forgot about it entirely.
 
  
 
@@ -16,7 +16,7 @@ Two knocks rhythmically tapped against my front door. I opened it to reveal my g
 
 "Hey beautiful." I respond. She looks into my eyes with love.
 
-"You ready to do go?" She asks.
+"You ready to go?" She asks.
 
 "Almost, just have to get the banana bread out of the oven. Give me a second." I walk off to the kitchen and place the pasta on the bench. Rose dawdles around my living room, looking at the assortment of old, crumpled movie posters that loosely hang from the walls. Rose and I had been dating for five months, and we had been so busy with work and each other I hadn't had time to introduce her to my family. My Aunt and Uncle paid for my grandmother's funeral, and they kept the guest list short and sweet, so I couldn't introduce her then. I know my Mum and Dad will be kind, but I worry about Rose meeting my Aunt and Uncle. What horrible insight are they going to spout from their mouths?
 
@@ -34,7 +34,7 @@ Their home was the wealthiest house I had visited. Three stories. A spa, pool an
 
 "Hi Uncle Dean, my family here yet?" I question with monotone emotion.
 
-"Just sitting in the living room my boy, next to the Banksy." It's not a real Banksy, but he's rich and confident enough to act like it really is, and get away with it to his equally as crude party guests.
+"Just sitting in the living room, my boy, next to the Banksy." It's not a real Banksy, but he's rich and confident enough to act like it really is, and get away with it to his equally as crude party guests.
 
 I push myself past him, holding Rose's hand and guiding her around the rotund man with effort.
 
@@ -42,7 +42,7 @@ I push myself past him, holding Rose's hand and guiding her around the rotund ma
 
  
 
-The heat pump is filtering uncomfortably cold air through it's system, causing the hairs to rise on my neck with the addition of pointed goose bumps. My Uncle's fat always made him warm, forcing every home he entered to feel like an industrial fridge. I notice Rose pat her arm subtly and I drape my jacket around her shoulders. She looks lovingly at me. I love her smile.
+The heat pump is filtering uncomfortably cold air through its system, causing the hairs to rise on my neck with the addition of pointed goose bumps. My Uncle's fat always made him warm, forcing every home he entered to feel like an industrial fridge. I notice Rose pat her arm subtly and I drape my jacket around her shoulders. She looks lovingly at me. I love her smile.
 
  
 
@@ -88,17 +88,17 @@ My Uncle's skin tightens and in his tremors I see his stomach as his shirt lifts
 
  
 
-In unison, with an ear shattering pop, the blisters launch and split from the fat man's gyrating body. They land in a multitude of distances around us, trails of blood and puss streak back towards my Uncle, as his movement slows down and eyes become glassy. My Aunt, covered in the putrid, chunky insides of her husband, holds him, speechlessly, and sobs. A bulb is strung upon her shoulder, but she is too shell shocked to even feel it's wet tissue, as it starts to pulsate. A rhythmic throb bounces the bulb up and down, becoming slightly more rapid. I my eyes were blurry from tears, but I noticed something sharp protruding from the bulb, and then another. They slinked down from the body of the bulb, prancing the points upright on my aunts shoulder. Within a second, it lurches up, balancing on the pointed insect adjacent legs, and splits it's front open, strings of thick liquid breaking as a mouth shaped orifice bellows a grainy, high pitched shriek. It jerks with spider like speed, and launches it's open maw into the veiny, corpse like neck of Aunt Susan. It must have plunged straight into an artery. Bright red, pulpy liquid sprayed all over her shoulder as my Aunt extends her mouth open, only a pained gasp able to escape before she drops to the tiles.
+In unison, with an ear shattering pop, the blisters launch and split from the fat man's gyrating body. They land in a multitude of distances around us, trails of blood and puss streak back towards my Uncle, as his movement slows down and eyes become glassy. My Aunt, covered in the putrid, chunky insides of her husband, holds him, speechlessly, and sobs. A bulb is strung upon her shoulder, but she is too shell shocked to even feel it's wet tissue, as it starts to pulsate. A rhythmic throb bounces the bulb up and down, becoming slightly more rapid. My eyes were blurry from tears, but I noticed something sharp protruding from the bulb, and then another. They slinked down from the body of the bulb, prancing the points upright on my aunt's shoulder. Within a second, it lurches up, balancing on the pointed insect adjacent legs, and splits its front open, strings of thick liquid breaking as a mouth shaped orifice bellows a grainy, high pitched shriek. It jerks with spider-like speed, and launches its open maw into the veiny, corpse-like neck of Aunt Susan. It must have plunged straight into an artery. Bright red, pulpy liquid sprayed all over her shoulder as my Aunt extends her mouth open, only a pained gasp able to escape before she drops to the tiles.
 
  
 
 The small monster continues to gnaw at my Aunt's neck, the sound of meat curling and tearing around itself causing my stomach to churn with sickness. The sound of tapping on tiles breaks my focus and I turn my head to reveal the other pustules starting to rise on pointed legs as well. Chunks of blood and puss drip off as they jerk to a stand. With no anticipation the rotten monsters charge at us. Mum and Leah run to the left as Rose, Dad and I are pushed up against the wall. I grapple for anything to defend us with and my fingers clasp at a thick frame behind me. I pull it off the wall and slam my Uncle's fake Banksy into one of the monsters on the floor. It bursts with the consistency of a rotten banana, specks and chunks of yellow splashing across the tiles and my shoes. Another monster lands near my foot and my father slams his thick workers boot down, crushing it like a cockroach.
 
-I pull the frame back up in front of me just in time to block three of the monsters from flying into my face. The collide with the frame, pointed legs puncturing through the image mere centimetres from my eyes. I fling the three monsters towards a massive glass sliding door. They all exploded in thick splatters like roadkill disintegrating against the grill of a barreling truck.
+I pull the frame back up in front of me just in time to block three of the monsters from flying into my face. They collide with the frame, pointed legs puncturing through the image mere centimetres from my eyes. I fling the three monsters towards a massive glass sliding door. They all exploded in thick splatters like roadkill disintegrating against the grill of a barreling truck.
 
  
 
-Rose, Dad and I tumble towards the kitchen with speed, where Leah and Mum are hiding behind the marble counters. Multiple monsters fly passed our heads, barely missing us and piercing into the walls, like arrows from an ancient booby trap. We duck behind the counter. I smash into the cupboards as my damp, puss covered shoes slip on the tiles.
+Rose, Dad and I tumble towards the kitchen with speed, where Leah and Mum are hiding behind the marble counters. Multiple monsters fly past our heads, barely missing us and piercing into the walls, like arrows from an ancient booby trap. We duck behind the counter. I smash into the cupboards as my damp, puss covered shoes slip on the tiles.
 
  
 
@@ -110,7 +110,7 @@ The monsters propel towards us and we swipe our kitchenware against them. My fat
 
  
 
-Unfortunately my mother and I weren't as skilled. Three monsters blast into my mum's chest, knocking her back into the counter. I hit the monster just too late, and as it flings past my face, one of its talonous legs scrape my eye, blood instantly leaking out like a broken pipe. I drop to the floor grasping at my face. Rose holds Leah back as she tries to grapple towards our mother. My Dad reaches over to try and help my Mum but seven of the monsters jump from the living room and pounce into his back. He screams as a nest of legs puncture his skin and muscles. Blood is pouring into both of my eyes, blurring my vision. The last thing I see before my vision goes a pure, unfocused red, is the image of my mother. Her face rotates towards mine, strung on by a what is left of her neck. Her entire face is missing, and tears drip down my cheek as I see her exposed, ghostly eyes sitting on her gored muscles. Now my only fighting sense is my hearing.
+Unfortunately my mother and I weren't as skilled. Three monsters blast into my mum's chest, knocking her back into the counter. I hit the monster just too late, and as it flings past my face, one of its talonous legs scrapes my eye, blood instantly leaking out like a broken pipe. I drop to the floor grasping at my face. Rose holds Leah back as she tries to grapple towards our mother. My Dad reaches over to try and help my Mum but seven of the monsters jump from the living room and pounce into his back. He screams as a nest of legs puncture his skin and muscles. Blood is pouring into both of my eyes, blurring my vision. The last thing I see before my vision goes a pure, unfocused red, is the image of my mother. Her face rotates towards mine, strung on by what is left of her neck. Her entire face is missing, and tears drip down my cheek as I see her exposed, ghostly eyes sitting on her gored muscles. Now my only fighting sense is my hearing.
 
  
 
@@ -128,8 +128,9 @@ Rose cries out in pain. Sweat pools into my ears, muffling my last fighting sens
 
  
 
-I wake up, what I found out to be four hours later. Leah is asleep, wrapped up in my arms still. The blood has dried around my face, and I wipe my only functional eye open to reveal a puss caked sauna. Around thirty of the monsters sit dead in front of me. Their bodies ravaged and exploded, their insides pouring out like an overcooked burrito in the microwave. My foot brushes against one of them accidentally. The skin has become a bubbled brown, and has a bready texture to the touch. I see the mangled legs of Rose poking out from behind the sauna door, and my heart sinks.
+I wake up, which I found out to be four hours later. Leah is asleep, wrapped up in my arms still. The blood has dried around my face, and I wipe my only functional eye open to reveal a puss caked sauna. Around thirty of the monsters sit dead in front of me. Their bodies ravaged and exploded, their insides pouring out like an overcooked burrito in the microwave. My foot brushes against one of them accidentally. The skin has become a bubbled brown, and has a bready texture to the touch. I see the mangled legs of Rose poking out from behind the sauna door, and my heart sinks.
 
  
 
 I hold Leah in my arms, still in her slumber, and try to raise myself from my seat. I want to see Rose. It was no use. My legs were too weak. I fall back to a sitting position and let my eyes close once again, as I hear sirens slowly grow closer.
+
