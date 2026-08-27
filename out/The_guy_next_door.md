@@ -1,0 +1,57 @@
+Hey guys. Sorry if this is kind of long. So for context, I live on the outskirts of a medium sized city in Arkansas. It’s a beautiful city, the people are really nice, and it’s pretty quiet here. The greenery is absolutely beautiful here. I recently moved here for a job that I got working at a prison as a caseworker.
+
+I’m a young professional, 24 years old, and for a while I lived in a townhouse that I rented. It’s not what I would usually prefer, as having a neighbor literally means I can hear everything going on next door. The walls are paper thin. It was one of the cheaper and nicer options for me though.
+
+For the first few months, I haven’t had a neighbor. So it’s been pretty quiet mostly. But a few weeks ago someone finally moved in. I wasn’t necessarily happy with it, but I guess that’s just part of living in a townhouse.
+
+I was pretty busy with work and life so I didn’t really pay much attention. All I noticed was a moving truck parked in the driveway, but I was extremely exhausted so I just settled in, watched some tv, and fell asleep on my couch.
+
+The next morning, I had the day off, i wanted to sleep in… but I could hear my new neighbor moving furniture around and talking to someone on the phone. He sounded like a man. It was kind of frustrating but I decided to try and meet him and welcome him to the neighborhood.
+
+I got dressed and went to go knock on his door. Though I found it kind of strange that his vehicle wasn’t in the driveway. I guess he doesn’t drive. Anyways, I knocked on his door and just stood there waiting for him to answer. I tried to listen in, but I couldn’t hear anyone in the house at all. Which was kind of strange considering I heard him move his furniture around and everything. It literally woke me up.
+
+So yeah that was pretty weird. But maybe he just didn’t want to talk. Whatever.
+
+The following Monday I went to work and came home. Threw my keys onto the counter, feeling tired as usual. I heard the guy next door throw his keys on his counter too. It was a funny coincidence … guess we both just came home from work. But it’s weird because I didn’t see him outside when I was coming in. But maybe he went inside a little after me.
+
+I spent the rest of the evening in my living rooms chilling, and eating some Kraft Mac and cheese cause I didn’t feel like cooking. and FaceTiming my boyfriend who lives a few hours away. It was a pretty quiet evening.
+
+I went upstairs to get ready for bed. And as I was going up the stairs, I hear my neighbor also go up his stairs. He’s so fucking loud, it’s annoying. I can hear him doing anything. I hop in the shower to shower real quick, and a few minutes later he also takes a shower. I joked with my coworker that my neighbor is like an NPC who copies my routine or something.
+
+The next few evenings I notice he’s copying my routines even more. For example, if I’m making a meal I hear his kitchen cabinets open and close on his side. If I shower, he showers. If I go up or down the stairs he does it too. It’s getting strange.
+
+The moment that caught me off guard is when I was using the toilet, and flushed. I heard a flush on his side too. It made me stop in my tracks. I legit took three steps back from the wall, and that’s when I heard three single steps on his side too. The floors were creaky so I could hear everything. I decided to test this a little bit. So I took another step and heard a step on his side. I lifted my foot up in the air and held it there for 3 seconds and stomped it down. I heard a stomp on his side.
+
+I was freaked out at this point and on the verge of a panic attack. I just bolted down the stairs and fumbled for my phone to call my boyfriend. But strangely enough I didn’t hear the man next door run down the stairs. In fact, I didn’t hear a thing for the rest of the night from his side. My boyfriend tried to calm me down and he told me I was overreacting.  He said “he’s probably just as annoyed as you are by the noises and is fucking with you.”
+
+The next few nights are totally quiet and  normal. Eventually, I hear him making his usual sounds again.
+
+Then one night I accidentally drop one of my wine glasses. I’m so pissed off because I just want to go to bed. I start cleaning it then a few minutes later I hear something glass shatter on  my neighbors side. This can’t be a fucking coincidence. So I test again I tap the counter three times loud enough for the next door neighbor to hear, and it’s just silent for a few seconds… but then I hear him do the same.
+
+So I call my boyfriend again and explain to him that it’s happening again. I put him on speaker to try to show him what was happening. I grab a spoon from my drawer and tap the spoon on the stove 5 times. Making it really loud. Silence for a few seconds, but then I hear it. Metal clanking on a surface 5 times from the other side loud and clear. So I asked my boyfriend if he heard that… he had to have it was really loud. My boyfriend just said, “No. What am I supposed to be hearing?”
+
+I assume maybe it’s a phone speaker quality issue so instead I decide to test it again and record it with my cellphone. I bang the wall 3 times and I hear the guy on the other side do the same thing. Finally I got it loud and clear on recording so I send it to my boyfriend. He says he still doesn’t  hear anything. So I decide to watch the video back for myself. I heard it. So why couldn’t he?
+
+My boyfriend then questions while still on FaceTime, “wait, have you ever even seen this guy?” I told him no, but I saw a moving truck and I’ve been hearing him ever since. I tried to meet the guy but he never answered his door. I was kind of irritated at the question because I don’t really know why that was relevant anymore. This guy was copying me.
+
+Then my boyfriend asks me, “So did you actually ever see him or did you see a moving truck?”  For a moment I paused and thought about it. Yeah I saw the moving truck, no I never saw him. But I’ve heard him. So obviously he exists. I just hung up the phone I was so annoyed and felt like my boyfriend wasn’t taking me seriously.
+
+The next morning I decide to file a formal complaint with the housing manager. The housing manager tells me that apparently the housing unit is vacant and that they don’t even have a record of someone moving in. I thought maybe they were confused so I told them the exact unit number again, and they said it’s been vacant for 2 years. I asked if they could pull up footage from the day I saw the moving truck. They had to go through security to get it and the security guy wasn’t good at using the software the camera footage was on so it took a bit. But eventually he pulled up the footage and there in fact was a moving truck. However as I was walking into my unit I guess it turned around to go somewhere else. I guess I was too exhausted to realize it on that day.
+
+But then why did I hear a guy next door to me after I saw that moving truck? I told the housing manager if it’s truly vacant then can she walk through the house with me to prove it. So she agreed after getting some permissions to do so. We walked into unit next to mine and I was dumbfounded because the unit was completely empty and unfurnished. We walked through the entire unit upstairs and downstairs and no one was there. We even went to the upstairs bathroom where I heard him shower and flush the toilet. But there was no furniture. No toiletries. Nothing was in that unit.
+
+At this point, I felt my stomach drop. Did I just hallucinate everything??
+
+The next day I decided to move back to my parents home and maybe get some help after what just happened.
+
+I wasn’t able to move out completely yet though. I was also on a lease. Thankfully my friend (who I’ll call V) just graduated college and needed a place to stay so she took over my lease.
+
+When I got home I decided to call V and ask her how things were going for her new place.
+
+She was about to go to bed when I called her so she didn’t really say much.
+
+Everything seemed to be going good for her though.
+
+She was about to get off the phone. But then we both heard it… three knocks on her wall and a man’s voice say “hello, new neighbor.”
+
+￼

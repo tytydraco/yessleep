@@ -1,0 +1,105 @@
+Everything happened somewhere around four and a half years ago. Me and my girlfriend of six months were kind of abruptly getting to know my family, at my uncle’s fifth decade on this planet celebration. I just told her I had to really be there, ever since he lost his wife and never actually had any kids… well, let’s say things can get a bit lonely, especially at that age. And, according to popular Romanian tradition, this was an event for the whole extended family, of course! She, in the sweet way that she acts, said it would be a great idea for me to finally introduce her to my family. I admit, I wasn't really planning on doing that, at least not so soon. And you might say that six months is plenty of time, but you don’t know my family…
+
+By the time we got there, the eastern side of the family had already arrived. It wasn’t even that long of a drive, maybe twenty minutes, but they deliberately woke up at 4 AM just to get there and help with the preparations. And yes, 4 AM was deliberate, because any earlier and it might have been within the witching hour and caused a huge fuss at the table if anyone found out. Along with them was my grandma, seemingly a sweet old lady, always disappointed in me and my choices, especially when the horoscope told her to be.
+
+My girlfriend was all smiles, happy to greet everyone, in spite of my reluctance to even look at some of them. I’ve never been the type to really get along with people persons, maybe it’s a flaw on my side, but that made me hesitant to actually be there, around twenty people, with even more to come. I did my fair share of chopping wood for the barbecue, mostly as an excuse to be alone and also maybe get a few looks from my beloved, if I can afford this little bit of honesty in retrospect.
+
+The house was near the woods, I used to spend a lot of time there, especially during summer, so I knew the area pretty well. I even had a sort of special spot, beneath the roots of an old oak, exposed by a landslide that happened before I was born, overlooking the tiny river that flowed north of the house. It wasn’t that far from people, but it was far enough that me and my love could have some time for ourselves, to hold hands, to sit on the soft moss, to look deeply in each other’s eyes. Oh, how I just can’t resist those eyes! I knew ever since that trip that she would be my wife!
+
+Unfortunately, the wooded and almost mountain-like area had the habit of changing weather rather fast. A sudden rain forced us to run back. The thunder was so loud all of the dogs in the village started barking, whimpering or howling as if the world was ending, but I found that rather peculiar, as I’ve had my fair share of bad weather here, and they never did so. One of the lightning bolts even struck the house, frying the improvised electrical cables in the old home.
+
+Grandma was the first to actually bring out a candle and light it up, as if it was something she’d done a million times… well, at this point, she just might have! She gathered everyone around her, gave them other candles and spoke solemnly, telling us that the spirits of the forest are restless, that the dogs heard the rustling of the leaves and felt the anger of the wind. She then proceeded to light a rag on fire, to do some movements with it in the air, making shapes I could not really make out, then extinguishing it with her bare hand. She claimed it would calm the spirits and appease the storm.
+
+While that spectacle was entertaining, especially to the children, I was soggy and cold and wasn’t really in the mood for her antics. There’s no scientific reason why a burning rag could calm the so-called spirits of the forest. Well, there was no such thing as spirits anyway! Just old folk tales, designed to do just that: make the kids behave and stay calm in the storm. I told all of this to myself, believing everything, but a knot in my throat just wouldn’t go down, no matter how much I tried to swallow it.
+
+The fact that the storm actually didn’t let up until maybe forty or fifty minutes after it had started made me more sure of myself, of the fact I was right. But my composure was fragile and all it took was to come face to face with grandma, with a grave look on her face.
+
+“It was you! Bad boy, I know you anger spirits! I knew you were bad omen ever since you were born! None in family was ever born with caul but you! Bad omen! You never listen to elders!” 
+
+I wanted to protest, but that knot in my throat blocked every word I wanted to say.
+
+She filled me with anger, which tried in vain to cover the fear, the exact feeling that I knew was irrational, the one my mind told me was pointless, as everything she said was nothing but superstition. And yeah, she was the oldest in the family, but knowing all the old wives’ tales didn’t mean she was any bit wiser than me!
+
+The party eventually resumed, we made the barbecue in an old shed that had more holes in it than Swiss cheese, perfect place to keep the fire going, dry, and well ventilated. There wasn’t any cake. That kind of celebration was apparently too modern, and nobody wanted to risk angering some spirit twice in a row…
+
+I didn’t feel too well that night. My head was spinning, as if I caught a serious cold, but I didn’t really cough or sneeze, I was just dizzy, and couldn’t sleep. The laughter of my relatives didn’t help too much, either…
+
+As quickly as they had started, the celebrations ended. The next day, around noon, most people had already left. The old house felt eerily quiet, apart from the heavy footsteps of grandma, still prowling around, ready to give someone her undesired heavy remarks. I tried to avoid her, not even telling her goodbye before stepping behind the wheel of my car and driving off, only to spot her disapproving look from one of the windows in the attic. What was she even doing in the attic anyway? How did she even manage to get there at her age?
+
+My head was feeling slightly better, after two pills, but they didn’t manage to fully fix me. I took my girlfriend to her home and went back to mine. I was renting a small studio apartment, decently close to my workplace, near the edge of town. It wasn’t too impressive, but at least I could call it home. It had a good view of the path to my uncle’s house. When I moved there, I lied to myself that if I squinted hard enough, I could probably see the smoke coming from his chimney.
+
+The next night, I just couldn’t sleep either. By then, it must have been at least 48 hours since I last slept, and I was feeling the exhaustion. It was weird. While I did rest in my bed, I just couldn’t fall asleep. I was awake, alert, and very irritable at work. My boss even told me to take the next day off, because I was looking like a walking corpse, in spite of me still being able to do my job properly. Apparently, that was not enough reason to have me scare my colleagues...
+
+And, then again, another night when I couldn’t sleep. The third one in a row. I was getting rest, but not sleep. It was a weird sensation, resting without truly resting. I decided to actually take my boss up on his offer and not go to work that day.
+
+Somewhere around noon, I got a call from my grandma. I wasn’t in the mood for her, especially after what happened a few days prior, which by then felt like weeks! Something compelled me to actually answer her.
+
+“Bad omen! Grandma used chicken bones. The forest, she is still restless. You have harm it. The bones tell me this! You must abolish your sins! Apologise to forest! The more you wait, the more she get angry!”
+
+I snapped at her. I just couldn’t take more of her bullshit! I told her to leave me be and that there’s no such thing as spirits or omens or whatever crap she was spewing, then hung up on her.
+
+I felt like maybe I overreacted, but I was so done with all of that! I told myself that maybe she did have a good point about getting some fresh air. I wasn’t about to apologise to the wind. And for what? What did I do?
+
+I drove my car to the forest nearby, on a trail I often went on to ease my nerves. It was maybe ten minutes away from where I lived, half-way to my uncle’s place. I parked the car and started walking. The fresh air was already calming my nerves, easing that irritation I just couldn’t get rid of.
+
+Maybe around fifteen minutes into my stroll, I heard a voice. There was someone, a woman, or a girl, crying further down the path. I started running, thinking whoever it may be might be in danger. I didn’t have weapons on me, but at the time, I didn’t really think what I would do if there was an actual threat there.
+
+When I got a little closer, the voice was hers… It was definitely hers… Alice… my love… and she was screaming my name, telling me to come quick. I ran as fast as I could, until I found myself at the edge of a clearing, where I stopped to see a young woman, who had the voice of Alice, but was not Alice. She was the most beautiful creature I had ever seen in my life, and flowers seemed to grow towards her. She was naked, apart from moss and lichen that was covering most of her body in strands, gently caressing her form.
+
+She was standing in the tall grass, with some poppy flowers contrasting with her blond hair. She turned around slowly, showing me her eyes, only they were not her eyes, they were Alice’s eyes, a perfect copy of the most enchanting eyes I have ever seen. I felt drawn towards her by a force outside my control, gently pushing me to take just one more step. But, with each step, her beauty faded, her eyes went white, her soft hair became rough, her back arched and her face grew older, but not as old as her voice.
+
+“You have wrong me! You have wrong my children! You pay now!”
+
+Hearing these words made my ears start bleeding, it was as if that angelic voice suddenly became sandpaper and brushed against my ears. I was terrified. I ran, but in my panic, I lost the trail. I had no idea where I was, but she was coming. I felt it in the rustling of leaves, in the wind that came too strong and too sudden. She was always in the corner of my eye, switching between old and young, not giving me an inch.
+
+I ran until I found myself near a very abrupt hill, where I slipped on some rocks hidden below leaves and started tumbling down. I must have hit my head on something, because the next thing I remembered was waking up at the bottom of it, in a cold, torrential rain. I mustn’t have been out long, because the ground was barely starting to get moist. Strangely, it seemed like I was no longer being chased. Did I lose her? Was that all she wanted from me? I wasn't really planning on finding out.
+
+At that point, I finally had time to get my bearings, to see where I could go. The place seemed familiar, I was somewhere with fewer trees, mostly an area with heavy logging, west of my uncle’s place, maybe somewhere around thirty minutes of walking from there. How much did I even run!? I thought that the best thing to do was to just go there, find shelter, find a phone and maybe get someone to take me to my car, preferably in a car, just to be sure… I thought that maybe the fact there were fewer trees actually discouraged her from following me in that place.
+
+I started walking towards my uncle’s house. The storm was starting to slow down. Not long after, to my horror, I saw some footprints. Barefoot. Likely her footprints. And worst of all, they were headed in the same direction I was going. I thought to myself: if she’s going there, that’s the last place I want to be in. I thought of a clever solution: since the footprints were so deep, and clear to spot, I could go the exact opposite way, to follow where she came from. The worst case scenario would be that I end up back near the trail that leads to my car, but I would at least be far away from where she is.
+
+My heart was pounding. I went as fast as I could go through the thick plants and mud, barely looking around, just following those tracks. But then, it hit me: the tracks came from a river. It was the river that flowed north of the house. I was really close! But it didn’t matter, because what, or more exactly who, I saw on the other side of the river shocked me: it was her, and the tracks came out of the water and led to her, which is when I noticed something I had not up until that point: her feet pointed in reverse… I had been going the wrong way this whole time… Instead of running from her, I ran towards her. But then, what was she doing at the house?
+
+I knew she knew I was there. I knew she knew I was too exhausted to outrun her. Hell, I probably couldn’t outrun her even at my peak! I tried to back up slowly, only to feel a root grow and grab my left foot tight, then, while attempting to break it free, my right foot, then moss and lichen came from the canopy of the tree and grabbed my hands. I tried to break free, but it was as if my bonds were steel. I was completely trapped.
+
+She slowly came towards me, seemingly switching between her old form and the new, gradually, constantly, every step a different face. She spoke with an echo, a combination of the old and young selves, both sweet and gentle, and booming and rough.
+
+“You try run from punishment! You make the forest angry again! You pay more!”
+
+I desperately asked what I did to anger her, apologising, trying to explain that I never intended to.
+
+“You only apologise because caught! Like animal desperate in cage! You hurt my child!”
+
+I was shocked. I didn’t understand what she meant by that. What child could she possibly mean? I don’t remember hurting any child, let alone some supernatural forest spirit… She dragged me through the air, still tied by the moss and the lichen, still held by the now-moving roots. We reached the old oak. My special spot. The spot where I engraved the heart with my name and Alice’s name in the bark, declaring our undying love with the spilling of the sap of the tree. That was her child.
+
+I tried to explain that I never knew her tree was sentient, that I would never have hurt it had I known, but she did not want to listen.
+
+“First, you steal  wound that you cut into my child!”
+
+She raised me to the spot where I had carved the heart, tore off my shirt and placed my back exactly on the symbol. I immediately felt a burning sensation more excruciating than any pain I had ever felt in my life, followed by a rapid healing that hurt even more. The carving was gone from the tree and was placed on my back.
+
+“Now, you feel the lashes of anger from the forest!”
+
+Without hesitation, moss and lichen started to whip me hard, leaving bloody marks in each spot. I had to find a way to escape. I knew that if this continued, that is where I would die. It was then that I remembered what grandma told me when I was a child: the forest was protected by spirits that are old and wise, but they are all the children of the Mother. The Mother! That was her! And my grandma also told me that if the Mother ever gets too angry for reason, there’s only one thing that she will accept: a bargain.
+
+I yelled for her to wait with all my breath. She stopped for a second, in which I asked her what she would like for me to bargain with in exchange for my life and forgiveness for what I’d done.
+
+“You finally wiser! Still angry! You keep mark on back! You give me child! First! With Alice! You have sixty full moons to bring child or I take Alice!”
+
+I was completely shocked! I hadn’t even thought about having a child yet, let alone consider giving it to some forest spirit! But I had no choice. I agreed to the bargain. I had sixty full moons to find a way to escape, to get rid of her. And what if me and Alice never had a baby? That would mean she would come for her… But was I actually considering the idea of such a trade? There was no other way… The pain was unbearable…
+
+The whipping stopped abruptly. She did not hesitate for a second. A deal was apparently something sacred to her, more important than punishing a mortal like me.
+
+She set me free. I limped to my uncle’s house. He took care of me, bandaged my wounds, and helped me recover for the next four days. I didn’t really need hospital care, as all the wounds were just superficial and somehow nothing got infected, in spite of the mud that had been in the wounds.
+
+On the last day, just when I was preparing to leave, I started feeling a scent of incense coming from the attic. I was curious what that might have been, especially since my uncle hadn’t ever had incense. I took the ladder from the shed, then used it to climb into the attic. There, to my horror, I found my grandma, or what was left of her, with clear burn marks, along with many signs of charring nearby.
+
+The coroner said that the cause of death was a lightning strike, and she had been dead for about a week or so, which has me questioning things even now. When did the lightning even strike her? And how did she get in the attic? There was no way she could move the ladder from the shed by herself, then put it back where it was… while being dead… My uncle swore he saw her leaving with the eastern cousins, but did find it odd she never said goodbye to him. The cousins swore she said she’d stay with the uncle for six more days, then take a train home.
+
+I could never answer these questions, nor could I ever tell Alice the entire story of what happened, of the bargain I made, of the true cost of my release.
+
+We buried grandma with a stake through her heart, to make sure no evil spirits still inhabited her body. Up to that point, I had always found the practice barbaric.
+
+I moved to a big city, far away from that forest. Alice and I got married. We had never planned to have a baby, but all it took was for protection to fail once and our hearts just couldn’t bear to give up on the little miracle. And now? Well, I’ve been writing all of this from a bar, drinking alone. The scar on my back started burning slightly more every day.
+
+I just can’t let go of the photo of Alice holding our newborn in her arms, the photo I keep in my left shirt pocket all the time.
