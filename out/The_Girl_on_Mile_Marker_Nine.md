@@ -1,0 +1,251 @@
+I need to write this down. I need to put these words somewhere outside of my head because they have been living inside me for three weeks now, rattling around in my skull like stones in a tin can, and I am afraid that if I do not get them out, if I do not pin them to a page where I can look at them and confirm that they are real, they will eat me alive. I am not a writer. I am a truck driver. I have been a truck driver for twenty-eight years. I know engines. I know asphalt. I know the weight of a loaded trailer on a downhill grade and the way a tire sounds when it is about to blow and the particular shade of orange that the sky turns at five in the morning when you have been driving all night and the world is deciding whether or not to exist for another day. I know these things the way I know my own hands. They are solid. They are real. They are the foundation upon which I have built my entire understanding of how the world works.
+
+What happened to me on the night of October fourteenth does not fit on that foundation. It sits on top of it like a stone balanced on the head of a pin, impossible and undeniable, and every time I close my eyes, it tips over and crushes everything beneath it.
+
+I am writing this in a motel room in a town whose name I cannot remember, sixty miles from the mountain I swore I would never drive again. The television is on. I keep it on now, all the time, because the silence has become something I cannot tolerate. Not because the silence is empty. Because it is not. The silence is full. It is full of a voice I heard three weeks ago on a road called La Garganta, and if I let the room go quiet, if I let the noise of the television fade and the hum of the highway outside grow still, I can hear her. I can always hear her. She is patient. She has been patient for forty years. She can wait.
+
+But I am getting ahead of myself. Let me start at the beginning. Let me start with the road.
+
+La Garganta. The Throat. That is what the locals call it, and if you have ever driven it, you understand why. Route 109 on the state highway map, eleven miles of two-lane asphalt connecting Peña Blanca at the top of the mountain to San Cristóbal del Río in the valley below. Eleven miles of blind curves and rusted guardrails and sheer limestone cliffs that drop into a gorge so deep you could stack three apartment buildings at the bottom and still not see the roof of the top one from the road. The asphalt is always wet. Always. Even in July, even in a drought, the road sweats. Moisture seeps from the rock on one side and rises from the river on the other, and the two meet in the middle like old lovers, and the pavement glistens, and your tires hiss, and the sound of your own vehicle moving through space becomes something liquid, something organic, something alive.
+
+And the fog. God, the fog.
+
+I have driven in fog before. Every trucker has. You learn to deal with it the way you learn to deal with rain and snow and ice and all the other ways the sky tries to kill you. You slow down. You turn on your low beams. You grip the wheel and lean forward and trust the road and keep moving. Normal fog is inconvenient. Normal fog is a nuisance.
+
+The fog on La Garganta is not normal.
+
+It does not drift. It does not roll. It appears. One moment the road ahead is clear, the stars are out, the treeline is a sharp black edge against a dark blue sky, and you are driving and breathing and thinking about nothing in particular. And then, between one heartbeat and the next, the world ends. Not goes dark. Ends. The fog comes in like a wall, like a door slamming shut, like a blindfold pulled tight across your eyes, and suddenly there is nothing. Not blackness. Nothing. Your headlights hit the fog and stop, absorbed, swallowed, digested, and beyond the reach of your high beams there is a white void that has no depth, no dimension, no reference point, and you are floating in it, you and your truck and your cargo and your heartbeat, suspended in a white absence that could be ten feet deep or ten thousand miles.
+
+I have driven La Garganta once a week for six years. Every Monday night. Load up in Peña Blanca, drive down to San Cristóbal del Río, make the delivery, sleep in the cab, drive back up Tuesday morning. I know the road the way I know the face of my ex-wife, every line, every curve, every imperfection. I know where the guardrails are missing. I know where the rock face juts out and narrows the lane. I know where the potholes are deep enough to crack an axle. I know the road, and the road knows me, and for six years we have had an understanding, the road and I, a mutual respect born of repetition and caution and the shared acknowledgment that one wrong move from either of us could end in a long fall and a short stop at the bottom of the gorge.
+
+I took over the route from a driver named Héctor. I never met Héctor. He quit before I started. My dispatcher, Rogelio, told me that Héctor had left suddenly, without notice, and moved to the coast. When I asked why, Rogelio gave me a look that I did not understand at the time but understand now, a look that contained equal parts pity and warning, and said, "He told me the road talked to him. He did not like what it had to say."
+
+I laughed. I actually laughed. I was thirty-nine years old, and I had been driving trucks for half my life, and I believed in the things I could see and touch and measure and nothing else. Roads did not talk. Roads were tar and gravel and crushed stone. They were built by men and machines, and they wore down over time, and they were repaired or abandoned, and that was the complete and total story of every road that had ever existed anywhere in the world.
+
+I believed this with my whole heart. I believed it the way some people believe in God.
+
+I stopped believing it at Mile Marker Nine.
+
+October fourteenth. A Monday. I loaded the truck at the warehouse in Peña Blanca at eleven thirty in the evening, three pallets of late-season apples, Fuji and Gala, packed in wooden crates that smelled like autumn and cold earth. The night was clear when I pulled out of the lot. Stars everywhere. A half-moon hanging over the ridge like a crooked smile. The air was cool, that particular October coolness that smells like woodsmoke and dying leaves and the faint metallic tang of approaching winter. A good night for driving. A clean night.
+
+I turned onto La Garganta at eleven forty-seven. I remember the exact time because I checked the dashboard clock as I made the turn, the way I always do, a small ritual, a habit, the kind of meaningless repetitive action that truckers develop over years of driving the same routes and that becomes, over time, a kind of prayer. Eleven forty-seven. The green numerals glowed on the dashboard like the eyes of a small, patient animal.
+
+Mile Marker Eleven. The road entered the tree line and the forest closed around me. The headlights carved two bright tunnels through the dark, and the trees stood on either side like spectators at a parade, their branches arching overhead, their leaves catching the light and throwing it back in fragments, green and gold and black.
+
+Mile Marker Ten. The fog appeared. Not gradually. Not in wisps or tendrils or the slow, creeping advance that normal fog makes. It appeared. One moment the road was clear. The next moment I was inside it, sealed in a white capsule of moisture and silence, my headlights hitting a wall of nothing six feet in front of my bumper and going no further. I slowed down. I shifted my grip on the wheel. I leaned forward. Routine. Habit. The prayer of a man who has done this a hundred times and will do it a hundred more.
+
+Mile Marker Nine.
+
+I need to be very precise about what happened next, because precision is all I have left. The facts are the only things standing between me and a version of reality that I am not equipped to live in. So I will state the facts, one by one, in the order they occurred, and I will not embellish them, and I will not explain them, because I cannot explain them, and any attempt to do so would be a lie.
+
+Fact: I was driving at approximately twenty-five miles per hour, both hands on the wheel, eyes on the road, or on the six feet of road that the fog allowed me to see.
+
+Fact: The shoulder of the road at Mile Marker Nine is gravel, approximately four feet wide, bordered on the left by the rock face of the mountain and on the right by a rusted metal guardrail beyond which the gorge drops approximately three hundred feet to the river below.
+
+Fact: There was no one on the shoulder when my headlights first swept across it. I am certain of this. I was watching the road with the focused, narrow attention of a man driving a forty-ton vehicle through zero-visibility conditions. If someone had been standing on the shoulder, I would have seen them. I would have seen the shape, the silhouette, the disruption of the fog's uniformity. There was no one there.
+
+Fact: I blinked. One blink. A fraction of a second. The involuntary closing and opening of the human eye that occurs thousands of times a day without conscious thought or effort.
+
+Fact: When my eyes opened, she was there.
+
+Standing at the edge of the asphalt. Barefoot. Wearing a dress that was the color of moonlight on water, a color that was not quite white and not quite silver but something in between, something luminous, something that seemed to generate its own light rather than reflecting mine. The dress was soaked. It clung to her body and dripped from the hem in a steady, silent stream, each droplet catching my headlight beam and flashing once, bright as a spark, before disappearing into the gravel at her feet.
+
+Her hair was black and long and wet, hanging in thick ropes past her shoulders, plastered to her arms and her neck and the hollows of her collarbones. It did not move. There was no wind, and the fog hung around her like a veil, and her hair was as motionless as the rest of her, heavy with water, slick and dark as oil.
+
+Her feet were bare. Pale. The toes curled slightly against the gravel, the way toes curl when they are trying to hold onto a surface that is too cold or too rough for bare skin.
+
+And her hands. Her hands were folded in front of her, one on top of the other, at the level of her waist. Calmly. Neatly. The way you fold your hands when you are sitting in church or waiting for a photograph to be taken or standing in line at the bank. Not the way you fold your hands when you are standing barefoot on the side of a mountain road at midnight in the fog, soaking wet, alone.
+
+That was the detail that should have stopped me. That was the detail that should have made me press the accelerator and drive past without slowing, the way my mother told me to, the way every instinct in my body was screaming at me to. Because people who need help do not stand like that. People who need help wave. People who need help step into the road and flag you down with desperate arms and frantic eyes and the universal body language of distress. People who need help look like they need help.
+
+She did not look like she needed help. She looked like she was waiting. Not for me specifically. For anyone. For whoever was going to come. She had the patience of a thing that has been standing in the same spot for a very long time and has learned that eventually, inevitably, someone will stop.
+
+My mother told me once, when I was young enough that her words entered my brain and lodged there like seeds that would not germinate for decades, "If you see someone standing on the road at night, keep driving. Do not stop. Do not slow down. Do not look. Keep your eyes on the road and your hands on the wheel and drive until the sun comes up."
+
+I asked her why.
+
+"Because the ones who stand still," she said, "are not always the ones who need help. Sometimes they are the ones who are waiting."
+
+I was forty-seven years old. I had driven a million miles. I had never once stopped for a stranger on the road at night.
+
+I stopped.
+
+I do not know why. I have spent three weeks in this motel room trying to reconstruct the decision, to trace the chain of cause and effect from my foot on the accelerator to my foot on the brake, and I find nothing. No reason. No thought. No moment of conscious choice. My foot simply moved, as though someone else were controlling it, as though the muscles in my leg were responding to a command that had not originated in my brain. The air brakes engaged with a long, hissing sigh, and the truck came to rest on the shoulder ten feet from where she stood, and the engine idled, and the fog pressed against the windows like a living thing, and I sat behind the wheel and looked at her and felt the bottom drop out of the world.
+
+She was beautiful. I need to say that, because it matters, because the beauty was part of it, part of the mechanism, part of the trap. She was beautiful the way a deep lake is beautiful, the way a cliff edge is beautiful, the way anything is beautiful that makes you want to move toward it even as every cell in your body is telling you to move away. High cheekbones. A narrow nose. Lips slightly parted, as though she were about to speak or had just finished speaking. And eyes. Enormous, dark, liquid eyes that caught my headlights and held them and reflected them back at me with an intensity that was almost physical, a pressure against my face, against my chest, against the part of my brain that is responsible for the decision to flee.
+
+She did not blink. Not once. Not the entire time I looked at her. Her eyes were open and fixed and unblinking, and they were looking at me with an expression I have spent three weeks trying to name and cannot, an expression that contained something like recognition and something like gratitude and something like hunger and something like sorrow and something else beneath all of those, something vast and dark and old, something that had been waiting behind those eyes for forty years.
+
+The passenger door opened.
+
+I need to be very clear about this. The passenger door was locked. I lock both doors every time I get into the cab. Every time. It is not a choice. It is a reflex, a muscle memory so deeply embedded in my routine that I do it without thinking, the way I buckle my seatbelt, the way I check my mirrors, the way I breathe. The passenger door was locked.
+
+It opened. By itself. Smoothly. Quietly. The lock did not click. The handle did not turn. The door simply swung open, as though the mechanism that held it shut had decided, independently and without consultation, to stop working.
+
+She climbed in. Her movements were slow, deliberate, graceful in a way that made me think of someone entering a church, someone approaching an altar, someone performing a ritual that they have performed many times before and will perform many times again. She settled into the seat. The leather creaked beneath her. And the cab filled with a smell.
+
+Green. Wet. Old. The smell of river stones. The smell of moss growing on submerged wood. The smell of water that has been standing in a dark place for a very long time, water that has not seen sunlight, water that has become something other than water, something thicker, something more alive. It filled my nostrils and coated the back of my throat and settled into my lungs like a liquid, and I breathed it in because I had no choice, because the air inside the cab was no longer air, it was her, it was the river, it was the fog, it was whatever she was made of, and I was breathing it, and it was inside me.
+
+"Thank you," she said.
+
+Her voice. God, her voice. It was soft. Not quiet. Soft. There is a difference, and I did not understand the difference until I heard her speak, and now I will never forget it. Quiet is the absence of sound. Soft is the presence of something gentler than sound, something that enters the ear not through volume but through intimacy, through closeness, through the sensation that the speaker is not projecting their voice into a room but placing it directly, gently, precisely into the center of your brain. Her voice did not travel through the air. It appeared inside my head, fully formed, as though it had always been there and I was only now becoming aware of it.
+
+"I need to reach the town at the bottom of the mountain," she said. "I have been walking for a very long time."
+
+"Of course," I said. And I shifted into gear. And I drove. And the fog closed behind us like a mouth.
+
+The drive took forty minutes. Forty minutes that felt like forty hours. Forty minutes that I have replayed in my mind every night for three weeks, lying in this motel bed with the television on and the lights on and the door locked and the curtains drawn, and every time I replay them, I notice something new, some detail I missed the first time, some small, terrible thing that my brain had filtered out in real time because processing it would have meant accepting a version of reality that the human mind is not built to accept.
+
+The dripping. That was the first thing. Water was pooling on the floor mat beneath her bare feet, not the small, manageable amount of water that a person might track in from the rain but a steady, spreading, impossible volume of water that crept across the floor of the cab like something with intention, something with purpose, something that was exploring the space the way a hand explores a surface in the dark. Her dress showed no signs of drying. If anything, it was getting wetter, producing moisture rather than losing it, as though she were not a person who had gotten wet but a vessel that contained water, a container from which the liquid was slowly, steadily, inevitably leaking.
+
+I reached for the heater dial. My hand crossed the space between us. My fingers brushed the back of her hand.
+
+I have touched cold things in my life. I have held ice. I have plunged my hands into snowmelt. I have gripped a metal railing in January with bare fingers and felt the heat leave my skin in an instant. None of those things were cold the way her hand was cold. Her hand was cold the way the bottom of a lake is cold, the way the inside of a coffin is cold, the way the center of the earth must be cold in the places where no light has ever reached and no warmth has ever penetrated and no living thing has ever existed. It was a cold that had depth. It extended inward from the surface of her skin into a darkness that seemed to go on forever, a cold so absolute and so complete that it felt less like a temperature and more like a destination, a place, a country where everything that was warm and living and human had been stripped away and replaced with silence and stone and the slow, patient movement of water through rock.
+
+I pulled my hand back. She turned to look at me. Those eyes. Those enormous, dark, unblinking eyes. She said nothing. She did not need to. Her silence said everything. It said I know what you felt. It said I know what I am. It said I have been this cold for forty years and I will be this cold forever and there is nothing you or I or anyone can do about it. Her silence said all of this, and then it said something else, something I did not understand at the time but understand now, something that was not a warning but an apology.
+
+I am sorry you stopped.
+
+The rearview mirror. I checked it out of habit. The cargo area was dark. The road behind us was invisible, swallowed by the fog. The cab interior was dim, lit by the green glow of the dashboard. I could see my own face in the mirror, pale and tight with a tension I was trying very hard not to acknowledge.
+
+The passenger seat was empty.
+
+I turned my head. She was there. Sitting beside me. Her hands folded in her lap. Her wet hair clinging to her shoulders. Her dark eyes fixed on the windshield. Real. Solid. Present. I could see the way the seatbelt crossed her collarbone. I could see the way her chest rose and fell with the rhythm of breathing, or with something that mimicked breathing the way a puppet mimics life.
+
+I looked back at the mirror. The passenger seat was empty. The leather was depressed, as though something heavy were sitting on it, but the something was invisible, absent, a weight without a body, a presence without a form.
+
+I checked three more times. Three more times I turned my head and saw her sitting beside me, real and solid and dripping with river water, and three more times I looked in the mirror and saw an empty seat. My hands were shaking so badly that the truck drifted toward the center line, and I corrected with a jerk that sent the apple crates sliding in the cargo bed behind me, and she turned to me with those impossible eyes and said, "The road is steep here. You should watch it carefully."
+
+Her voice was gentle. Concerned. The voice of someone who cared about my safety, who did not want me to be harmed, who was, in her own incomprehensible way, looking out for me. And that was worse than any threat. That was worse than any scream or snarl or ghostly howl. Because it meant she was not trying to hurt me. It meant she was grateful. It meant she had been standing on that shoulder for forty years waiting for someone to do what I had done, and now that I had done it, she was thankful, and her thankfulness was a bond, a connection, a thread tied between us that I had not consented to and could not cut.
+
+We drove. The mile markers ticked down. Eight. Seven. Six. Five. The fog shifted in patches, thinning for moments that felt like hallucinations, showing me brief, tantalizing flashes of the world outside the cocoon, a stretch of dark forest, a glint of distant water, a rock formation that looked, in the instant before the fog swallowed it again, like a woman standing with her arms outstretched.
+
+And then she spoke again, and what she said broke something inside me that I do not think will ever heal.
+
+"My mother kept marigolds," she said. Her voice had changed. It was rougher, thicker, dragged up from a deep place where it had been sitting undisturbed for decades. "In the garden of the yellow house on the hill above the river. She kept them blooming all year round. People said it was impossible, marigolds in winter, but she had a way with growing things. She talked to the plants. She whispered to them. She sang to them at night when she thought no one could hear."
+
+She paused. In the pause, something happened to the air inside the cab. It thickened. It grew heavier. It pressed against my eardrums like water pressure at the bottom of a deep pool.
+
+"She waited for me that night," the girl continued. "She stood at the gate with a lantern. I could see the light from the road, a tiny golden point in all that darkness. I was walking toward it. I was almost home."
+
+Her voice cracked. A small crack, barely audible, like a hairline fracture in glass. But it was real. It was the realest sound I had heard since Mile Marker Nine.
+
+"What happened?" I asked. I did not want to ask. The question came out of me the way the braking had come out of me, involuntarily, compulsively, driven by a force I could not control and did not understand.
+
+She turned to look at me. Her eyes were wet. Not with tears. With river water. The same dark, greenish water that soaked her dress and pooled at her feet and dripped from the ends of her hair. It gathered at her lower lashes and spilled down her cheeks in slow, glistening tracks.
+
+"The fog came," she said. "And the road was narrow. And the river was high."
+
+She turned back to the windshield.
+
+"And I never got home."
+
+The fog broke at the edge of town. It did not thin or disperse or lift. It broke. It pulled apart like a curtain being opened by an invisible hand, and suddenly the valley was there, spread out below us like a dark bowl full of light, streetlights and rooftops and the warm amber glow of San Cristóbal del Río nestled at the base of the mountain like a handful of embers in a cupped palm.
+
+I pulled over beside the old stone bridge at the edge of town, the one that arches over the river, and I shifted into park and turned to face her and the words I had prepared, be safe, take care, good luck, all the meaningless, automatic phrases that human beings deploy when they do not know what else to say, dried up in my mouth like water on a hot stone.
+
+She was looking at the bridge. Not at the town. Not at the road. At the bridge itself, at its stones, at its railings, at the dark water moving beneath it with a sound that I had not noticed until that moment, a sound like breathing, like whispering, like the murmur of a voice speaking words just below the threshold of comprehension.
+
+"This bridge," she said, almost to herself. "They rebuilt it. It used to be wooden."
+
+And then she turned to me. She turned her whole body in the seat, and she reached out and placed her hand on top of mine where it rested on the gearshift, and the cold hit me again, that terrible, bottomless, ancient cold, and it radiated up my arm and into my chest and wrapped around my heart like a fist made of ice and darkness and forty years of river water.
+
+"Thank you for stopping," she said.
+
+And she smiled. And the smile was on time. Not late, not delayed, not the slightly wrong, slightly translated expression that had unsettled me throughout the drive. This smile was perfect. It was exactly right. It was the most beautiful and the most heartbreaking thing I have ever seen on a human face, and it was full of gratitude and sorrow and something else, something I cannot name, something that I will spend the rest of my life trying to understand and never will.
+
+She reached for the door handle.
+
+I blinked.
+
+And she was gone.
+
+The seat was soaked. The floor mat was saturated. The seatbelt was dripping. And in the center of the passenger seat, resting in a puddle of dark water like a small white boat in a black harbor, was a single wildflower. Five petals. Pale yellow center. Fresh, green, supple, as though it had been picked moments ago. And it was trembling. A fine, rapid, almost imperceptible vibration, as though it were being touched by a breeze that did not exist.
+
+I sat in the cab for a long time. I do not know how long. Time had become unreliable, a broken instrument, a clock with its hands spinning in both directions at once. Eventually I got out. Eventually I walked across the road to the gas station on the corner, the one with the buzzing Coca-Cola sign and the single fluorescent light and the brass bell above the door that rang when I pushed it open with a sound so cheerful and so normal that I almost laughed, because normal had become a foreign country and I was never going back.
+
+The old man behind the counter listened to everything I said. He listened without interrupting, without laughing, without the look. He listened the way people listen when they already know the story, when they have heard it before, when they have been waiting for someone to come through the door and tell it again.
+
+When I finished, he nodded. One small nod.
+
+"Mile Marker Nine," he said. "Forty years ago, on a night just like this one. A girl. Seventeen. Walking home from the bakery in Peña Blanca. The fog came in. The road was narrow. The river was high."
+
+He told me the rest. The mother. The lantern. The gate. The marigolds. The body in the river at the bottom of the gorge. The sightings, one every few years, a girl in a white dress standing on the shoulder in the fog, barefoot, hands folded, waiting. Drivers seeing her in their headlights, feeling the chill, pressing the accelerator, telling the story later at dinner tables and in bars, shivering, forgetting.
+
+"You are the first one in forty years who actually stopped," the old man said. And his eyes changed. The kindness stayed, but something else moved in beside it, something that looked like pity, and beneath the pity, something that looked like fear.
+
+"You let her in," he whispered. "You opened the door. You let her sit beside you. You carried her down the mountain."
+
+"I was trying to help her," I said, and my voice broke the way her voice had broken on the word home.
+
+"I know," he said. "And maybe you did. Maybe for the first time in forty years, she got to finish the trip. She got to see the town. She got to see the bridge." He leaned forward. His voice dropped. "But the road does not give without taking. That is the rule. That is always been the rule. You opened a door for her, and she walked through it, and now—"
+
+He stopped. His eyes moved upward, past my face, to the top of my head. And his expression completed its transformation, from kindness to pity to fear to something beyond fear, something that lives on the other side of fear where the mind goes quiet and the body goes cold and the world reveals itself to be a much stranger, much darker, much more dangerous place than you ever imagined.
+
+"Why is your hair wet?" he asked.
+
+I reached up. My fingers slid through my hair. It was wet. Soaked. Dripping. Cold, dark water running down my wrists and under my sleeves, smelling of river stones and moss and the deep, patient, lightless bottom of a gorge where a seventeen-year-old girl had been lying for forty years. I brought my hand down and looked at it and the water on my fingers was not clear. It was dark. Greenish. The color of something that has been underground for a very long time.
+
+And from behind me, from the direction of the open door, from the direction of the road, from the direction of the mountain and the fog and the river and the dark, patient, waiting world beyond the reach of every headlight I have ever turned on, I heard her voice.
+
+Soft. Not quiet. Soft.
+
+*Thank you for stopping.*
+
+The fog came in through the door. The old man told me to close it. I did not close it. I stood in the doorway and looked out at the night and I saw her, standing on the bridge, at the highest point of the arch, white dress, dark hair, bare feet, hands folded, looking at me with those enormous, ancient, grateful, sorrowful, hungry, loving eyes, and she raised one hand, not a wave, an acknowledgment, a recognition, a farewell, and the fog rose around her like a curtain drawn by a gentle hand, and when it parted again, she was gone.
+
+I drove back up the mountain at dawn. The fog was gone. The sky was blue. The road was just a road. I stopped at Mile Marker Nine and found wildflowers growing at the base of the post, white, five-petaled, trembling in a breeze I could not feel. I placed the flower from my passenger seat among them and stood there in the early light and said, "You are welcome, Lina."
+
+The air smelled of marigolds. For one moment, one single, perfect, heartbreaking moment, the air smelled of marigolds, and then it did not, and the morning was just a morning, and I was just a man standing on a mountain with a story lodged in my chest like a splinter that I will carry until I die.
+
+That was three weeks ago. I am in the motel now. The television is on. The lights are on. The faucet in the bathroom is dripping and I will not fix it because the dripping reminds me of her and the reminder, as terrible as it is, is also a confirmation that she was real, that it happened, that I am not losing my mind.
+
+But here is the thing I have not told anyone. Here is the thing that keeps me awake at night, that keeps the television on and the lights burning and the curtains drawn tight against the darkness outside.
+
+My hair is still wet.
+
+Three weeks. I have showered. I have toweled off. I have stood in the sun. I have sat in front of a heater with the dial turned up as high as it will go. My hair dries. It dries completely, and it stays dry for an hour, sometimes two, and then the dampness returns. Slowly. Starting at the crown, spreading outward, a cold, creeping wetness that smells of river water and moss and the deep, dark, patient places where things go when they are lost and never found.
+
+I am connected to her. The door I opened on the shoulder of La Garganta was not just the door of my truck. It was a door between her world and mine, between the living and the dead, between the road that exists on maps and the road that exists in the fog, and when she walked through it, she left it open behind her, and the river water is seeping through, and it will never stop, and I will carry this dampness in my hair for the rest of my life the way she carries the river in her dress, the way the road carries the fog, the way the mountain carries the memory of a seventeen-year-old girl who never made it home.
+
+I hear her sometimes. Not every night. But often enough. A whisper in the dark, soft and grateful and patient and eternal. *Thank you for stopping.* And I close my eyes, and I see her on the bridge, her hand raised, her eyes full of that impossible mixture of sorrow and love, and I know that she is still there, that she will always be there, that every foggy night on La Garganta she will stand at Mile Marker Nine with her hands folded and her bare feet on the gravel and her wet dress dripping into the dark, waiting for the next person who is foolish enough or kind enough or human enough to do what I did.
+
+To stop.
+
+I do not regret stopping. That is the most terrifying part of all. Despite everything, despite the wet hair and the voices and the sleepless nights and the knowledge that I have been marked, claimed, touched by something that exists outside the boundaries of the world I thought I knew, I do not regret it. Because she needed to get down the mountain. She needed to see the bridge. She needed, after forty years of standing in the fog, to feel the warmth of a truck cab and hear a human voice and ride the last few miles of the journey she never got to finish.
+
+She needed someone to stop.
+
+And I am glad it was me.
+
+Even now. Even with the water on my hands and the voice in the dark and the fog that I know is waiting for me on La Garganta, patient and faithful and hungry.
+
+Even now.
+
+I would stop again.
+
+*I am leaving this account in the drawer of the nightstand in Room 7 of the motel. I do not know the name of the motel. I do not know the name of the town. I am checking out in the morning and driving south, away from the mountains, away from the fog, away from the road that knows my name and the river that is learning the rhythm of my heartbeat.*
+
+*If you find this, do not look for me. Do not look for the house with the yellow gate and the marigolds. Do not look for the bridge or the gas station or the old man with the oil-stained hands.*
+
+*And if you ever find yourself driving on La Garganta on a foggy night, and you see a girl standing on the shoulder at Mile Marker Nine, barefoot, in a white dress, with her hands folded in front of her and her dark hair hanging in wet ribbons and her enormous eyes reflecting your headlights back at you with the patience of something that has been waiting for forty years and will wait for forty more—*
+
+*Keep driving.*
+
+*Do not stop.*
+
+*Do not slow down.*
+
+*Do not look.*
+
+*Keep your eyes on the road and your hands on the wheel and drive until the sun comes up.*
+
+*Because the ones who stand still are not always the ones who need help.*
+
+*Sometimes they are the ones who are waiting.*
+
+*And if you stop, if you open the door, if you let her in—*
+
+*She will thank you.*
+
+*And you will carry the river with you for the rest of your life.*

@@ -1,0 +1,209 @@
+Heya!
+
+I've managed to find the time to continue writing about my story here, work's been killing me these past few days, sorry!
+
+I'll continue from where i left off. For anyone who hasnt read the first part here's the link.
+
+https://www.reddit.com/r/nosleep/s/xA5QVHSUx6
+
+Also, i've decided i'll call myself Jack, and my brother Mark, to make this easier for me.
+
+These are not our real names, obviously...
+
+Anyways, here we go.
+
+As i stare at the TV talk about that misterious man, my face scrunches up a bit in disgust as they show his closeup shot.
+
+One of his eyes was almost bulging out of his eye socket, his lips were unnaturaly big and barely managed to contain his drool, and to top it all off it looked like he was missing the right side of his skull, leaving only skin to cover everything underneath.
+
+It was disgusting to say the least, but i was unable to look away, until a punch on my shoulder and a high pitched "Hey!" bring me back to reality.
+
+"Oh, right, Gumball.."
+
+A shiver runs down my spine as i look at that man one last time, finally changing the channel.
+
+The rest of the night went as you'd expect. I had dinner, got in my pjs and went to bed, and although i had some trouble falling asleep after what i had seen on TV, after about 30 minutes of whining and a kiss on the forehead from my mother, i had fallen soundly asleep.
+
+But the feeling never really went away, i felt as if i saw something i really didnt wanna see.
+
+Im sure a lot of you have felt that same way before, its like when you're in middle school and that one friend shoves his phone in your face to show you some ramdom gore video he found god knows where as a "joke".
+
+I digress.
+
+about a week later, i was walking around town with a friend, who i'll call William for this.
+
+He was tall for his age, buzzed hair, very upbeat, a bit on the heavier side, but he had watched south park once and always jokingly blamed it on being "big boned" since then.
+
+He was telling me about some girl that had "almost certainly" fallen in love with him, The only problem being that this had already happened 4 times this month with different girls, and he was never right. There is a thin line between being confident and being delusional, and he was standing right on it.
+
+"Dude, im telling you! she totally wanted me! we were like, this close!"
+
+"Uh-huh, and im assuming the reason she didnt kiss you was because she was stunned by your immense charisma."
+
+The sarcasm in my voice was thick enough to be churned and made into butter.
+
+He raised an eyebrow, a delusionally smug smile plastered on his face.
+
+"Duh! What else could it be?! i swear, she must've gotten shy, thats why she didnt engage dude! im willing to bet 5 bucks on it!"
+
+I simply smile and shake my head, lightly patting his back.
+
+"Whatever man, you got it."
+
+Suddenly, the thought came to my head, i wondered if he had seen what i had seen the other day on TV.
+
+"Oh, Dude, have you been watching the news lately?"
+
+William turned to me, seeming a bit caught off guard by the change of topic.
+
+"I mean, when im at the dinner table my parents watch them, so its not like i can do much exept that"
+
+"Why? you got an ad that told you not to be such a pussy with the ladies? oooh!!! burn!!! sick burn!!!"
+
+It was at that moment i realized how much of a punchable face he really had, it was incredible, really.
+
+"Shut up you dipshit, im trying to talk to you seriously for once!"
+
+"Did you not see that guy? the one with the messed up face and bulging eye?"
+
+William raised his eyebrows as he seemed to remember his face just as well as i do.
+
+"Dude! you saw it too?!"
+
+"Haha! he was all messed up! he was scary to look at!"
+
+A smile of relief appears on my face as i now know im not the only one to have seen that man.
+
+"Hey, come on now, thats just rude."
+
+"But... yeah, it did freak me out, too-"
+
+William slaps my arm out of nowhere, startling me a little and making me stumble to the side.
+
+"Ah! Dude! what the hell!"
+
+He looked at his hand, then turned his palm towards me, a small bug squished on it.
+
+"Get mad all you want, i just saved your ass from a nasty looking mosquito."
+
+As i see him wiping his hand on a nearby wall, i groan and scratch my arm where he had slapped it.
+
+"Whatever, dude..."
+
+After another hour of messing around, as the sun began to set, me and my friend parted ways,  going back home to our families.
+
+finally arriving home, i open the door and walk inside, feeling the familiar space of my house engulf me as if it was the embrace of a friend.
+
+Mom? im home.
+
+I shouted from the door, taking my shoes off and walking to the living room, my eyes widening infront of the pleasant surprise that was seeing both mom and dad sitting on the same couch.
+
+"Oh, dad's here!?"
+
+I couldnt help but grin from ear to ear, usually dad was always busy with work and never got to come over in time for dinner. I ran to the couch and hugged the both of them, hearing their short chuckles close to me.
+
+"Welcome back hun! did you have fun with your friend?"
+
+ My dad smiled at me as he leaned back on the couch, the tiredness in his eyes visible from a mile away.
+
+"How's my boy doing? you got up to some trouble with that william guy, huh?"
+
+the tone in his voice was as playful as ever, even after all those hours working, he always found the energy to put on a smile when talking to his son.
+
+"How about we sit at the table together, ey? you two get comfortable, i'll go get your brother."
+
+I simply nod, my smile widening just a little bit more.
+
+"Alright dad!"
+
+With the corner of my eye, i see mom scratching at her leg. when i turned my head to look closer it seemed like some kind of bug bite.
+
+"You ok, mom?"
+
+she stops scratching to answer me, her smile coming back in no time.
+
+"Oh, yes hun, im alright, its just that the mosquitoes really got me good today when i was watering the garden!"
+
+"Must've been a hungry bunch, haha!
+
+I giggle to myself for a second or two, and so does mom.
+
+"Haha, you're probably right hun! Say, how about you go sit down at the table and i go make us some nice steaks for dinner?"
+
+"Alright mom!"
+
+I replied with enthusiasm before walking to the table, taking a seat and bouncing my leg as i waited for both the food and the rest of my family to sit down with me. Sometimes i forget how good i had it. A mom and dad who loved eachother, a brother who i could play and grow together with, and friends outside of home i could always hang out with if i ever wanted to. Life really was simple when you were little.
+
+Dinner went great, we had fun with dad there, and it was a nice change of pace from the usual quiet nights with mom and Mark.
+
+After that, we all went to bed, as usual.
+
+I got in my room and shut my door, going to bed with a full stomach made me really sleepy, and by the time my head hit the pillow i was pretty much gone already.
+
+However, in the middle of the night, my door creaks open, the sound loud enough to make me open an eye out of instinct.
+
+Infront of me, i saw a darkened silhouette of a small child, a faint sobbing deriving from it.
+
+I furrow my brow, raising my head to try and focus better on the figure better.
+
+But when i saw it, i realized, it wasnt a monster.
+
+It was my brother.
+
+Standing at my door, sobbing quietly as if he didnt want to wake up mom and dad.
+
+"Mark?! what the hell! you scared the crap out of me!"
+
+I whisper, sitting at the edge of my bed, squinting my eyes as i turned on the lights.
+
+"What is it? you having trouble sleeping?"
+
+He's barely able to talk in between sobs. He wipes his tears and snot with the sleeve of his pajama.
+
+"M-M...  M-Mom.."
+
+He takes a few shaky breaths and takes a step closer to me, sniffling, trying to compose himself just enough to talk.
+
+"I- I c-cant f-find he- her-uh.."
+
+"What??"
+
+Mark probably had trouble sleeping and walked to mom's room, this was nothing new.
+
+What's new is that now hes in MY room, crying his eyes out and saying he cant find mom.
+
+I get up from the bed, hastly making my way outside of my room, then to my mother's room.
+
+I open the door quietly and see her bed completely empty.
+
+"The hell?.."
+
+In a quiet panic, i look for her in the bathroom, then in dad's room, being careful not to wake him up, but i cant find her anywhere.
+
+And as i walk to the living room, my eyes widen and i feel my heart sink all the way to my stomach.
+
+The front door was wide open.
+
+My mind begins thinking of the worst possible scenarios, had she been kidnapped? did something take her away?
+
+I frantically run to the door, gripping the doorframe and looking around, ready to scream out for her in an attempt to locate her
+
+"MO-!"
+
+Just before i was about to do that, i turn my head to the right and see her standing on the grass, staring directly at the fence, illuminated only by the small lamp in the middle of the garden.
+
+She was whispering something, but it was far too quiet for me to hear anything clearly. For a second i thought she must've been praying, but... to what? we weren't a religious family, not at all, we barely ever even went to church.
+
+I tremble slightly, seeing her right there standing unnaturaly still after almost screaming my lungs out for her.
+
+I let out a shaky breath
+
+"M-Mom?.."
+
+Her head snaps back to me, her eyes wide open, like a deer turning towards the sound of a cracked twig on the ground she stays silent for a full second before talking.
+
+"Oh, hey sweetie..."
+
+Her voice was breathy, sounding almost as if she had forgotten to stop whispering while trying to talk at a normal volume.
+
+"You startled me."

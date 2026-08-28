@@ -1,6 +1,4 @@
-It's almost two and I'm writing this from bed. I can't sleep. Something doesn't add up, and there's something I have to decide.
-
-My mother died in May. She lived alone in Valeggio, sixty kilometers from me. I'm the one who found her. She'd been in there two days before anybody came.
+My mother died in May. She lived alone in Valeggio, sixty kilometers from me. I’m the one who found her. She’d been in there two days before anybody came.
 
 My sister lives ten minutes from that house. She's the one who emptied it. She shut off the gas and the water, took the paperwork to the town hall, sold the furniture. She handled all of it, because she was the only one who could. I couldn't. I wouldn't have gotten through it.
 
