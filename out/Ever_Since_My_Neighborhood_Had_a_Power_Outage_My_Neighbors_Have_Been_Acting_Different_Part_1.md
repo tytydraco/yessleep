@@ -140,9 +140,9 @@ I put on some underwear and jogged up the stairs past the living room, straight 
 
 What met me on the fridge was a note written by no one other than my own dad:
 
-“Good morning sleepy head, I tried working on the motor and ended up messing around with the electrical panel till I realized there’s no power. It probably went out last night around after our phone call. I saw Mr Chesterfield outside and asked him about his place and he said he was dealing with the same thing. 
+“Good morning sleepy head, I tried working on the motor and ended up messing around with the electrical panel till I realized there’s no power. It most likely went out last night around when our phone call ended. I asked Mr.Chesterfield about it as I was on my way out and he said he was dealing with the same thing. 
 
-I guess some lightning hit a light pole last night so there won’t be any power for a couple days. I can’t even drive my own car to work because the construction crew is blocking off the path leading to our neighborhood. 
+I guess some lightning hit a light pole last night so there won’t be any power for a couple days. I had to turn my car around because the construction crew is blocking off the path leading to our neighborhood. 
 
 Try to open the fridge as little as possible. I’ll try to bring you some lukewarm takeout from the food court if I can make it home tonight. Have a good day and please do something productive.”
 

@@ -1,215 +1,189 @@
-I’m reaching out to Reddit to voice my concerns about the witch in Grenwich woods. I can’t find her anymore, and I’ve got a bone to pick with her. I’ll start from the beginning. I guess that only makes sense.
+I’ve had no luck trying to find the witch in Grenwich… I'll find a way to link my [first post](https://www.reddit.com/r/nosleep/comments/1udtmdy/pretty_to_the_teeth_and_bones/) later. Reddit users, please keep your eyes sharp. You can’t miss her. I guess that doesn’t really matter right now. I need to catch you up.
 
-My sister is beautiful. The kind of beauty that commands attention, wanted or unwanted. The kind of beauty that makes jealousy and envy feel more intense than rage. My sister, Colleen, could make a man die if she asked him to.
+My eyes peeled open, straining and burning. My thoughts were muddled; memories were faded. My vision was blurry at first until my eyes adjusted to the dim light. When I was finally able to see, I was staring up at a sparkly purple shell. It fully encased me like a cocoon. It was hard, not fleshy or squishy, and akin to an egg’s fragile shell. I tried to move unsuccessfully, realizing that a sticky substance covered me and prevented me from writhing or wiggling.
 
-“Cara!” Colleen shouted down from the top of the stairs. “Can you get me some more of that lemony-lime lotion stuff that I got from the salon when you go in to work? I let Tara borrow mine, and she won’t give it back. She’s not answering my texts.”
+I thought about screaming. The unsettling and panicked feeling of claustrophobia made me want to die. With a heave, I forced my body up, and a crack etched down the shell. I firmly kicked my legs up, and they ripped through the sticky film over me. My legs burst through the shell. It began to crumble. I could see the ceiling of my bedroom, and I was so grateful. I really was alive.
 
-I took a deep breath, grabbing my keys. “Do you have money to pay me back?”
+Now that my legs were free, I wriggled through the film until I had scooted out of the remaining egg. I slipped on the wooden floor and crawled to the carpet, staring at the cocoon that had once surrounded me.
 
-“Yeah!” she yelled.
+I touched the soft purple shell, and it turned to ash beneath my fingers. It collapsed into a shining dust. My breath came out shakily as I remembered what I had done. The empty and now broken vial lay on the floor. My teeth and blood covered the carpet. It looked like I had been murdered here.
 
-My mom stopped me on my way out. “Try not to be home too late. Your sister’s graduation party is tonight.”
+I nervously rolled up my carpet to hide the mess, hid it in my closet, and picked up my teeth. No one could know what I had gone through.
 
-I nodded and kissed her cheek. I left the house and made my way to the salon downtown in Grenwich. And if you’ve ever been to Grenwich, you know that the salon is the busiest shop on Mainstreet. Girls rush in and out, fussing over the prices but still buying the shit anyway. I’ve worked at the front desk, scheduling hair and nail appointments since April. At this point, I think I’ve been poisoned by hairspray and bleach fumes, but damn, I make great commission. And… I’ve admittedly started to like the chemical smell. If it was a candle, I’d probably buy it.
+I rushed to the mirror and fell back, staring at myself in disbelief. I was naked as a jaybird, free and reborn. I was beautiful…
 
-When I walked through the door, my coworker, Cannon, was restocking the lotion that my sister wanted.
+My hair fell in ringlets, brown and soft. New teeth had grown. They were straight, perfect with pointed canines. My lips were full, and my body… my body was no longer a stick. I had grown perfect breasts and gorgeous curves. I thumbed down my new flesh, fingers trembling. I was pretty to the teeth and bones.
 
-“Toss me one,” I said, laying down my purse and keys. “My sister wants some more of it.”
+The sticky substance left a purple hue on my skin and glowed softly in the dawn. My mouth went dry. I needed to find that woman. I quickly threw on clothes, snuck out of my room, and raced to my car.
 
-“You’ve got to stop buying stuff for your sister, Cara.”
+*What had she done to me?*
 
-I shrugged. “She’s my sister. I love her. She’ll pay me back.”
+I drove quietly, hearing my breath and jumping at the sound of my own heartbeat. When I reached the woman’s cottage in the woods, I parked and stepped out. I stopped as I realized the cottage looked very different from last night. The cottage was glowing. Colorful smoke puffed from the chimney, and creatures that I had never seen before lingered in the fading darkness. Small beings were flying in and out of her window. They were small and porcelain-white like teeth, holding something clasped in their tiny hands. Teeth... they were holding teeth.
 
-“And I’d love to have a full head of hair, but that doesn’t mean it’s gonna happen,” he replied sarcastically, rubbing his gleaming bald head.
+I rushed to the front door, and the porch growled beneath me. I stumbled back down the stairs. Eyes formed between the wooden boards. They were bright yellow eyes, and they looked me up and down before closing and flattening out. I could only assume that meant I was allowed to approach the door.
 
-I smirked. “Just hand me the damn lotion. She’s upset because I think her new friend Tara has caught on.”
+I knocked hurriedly, knuckles cracking onto the wood.
 
-“Caught on to what?” Cannon asked.
+The woman opened the door, and she grinned. “Now that is much better. I see that my potion was… successful.”
 
-“Caught on to the fact that her boyfriend has the hots for my sister.”
+“WHAT DID YOU DO TO ME!” I yelled. “I’m… I’m…”
 
-“You don’t know that,” Cannon retorted.
+“Beautiful…” She laughed. “Oh, dear girl, I didn’t do anything to you. You did this all on your own. I gave you the means to, but it was your choice. I didn’t force it down your throat. I didn’t make you drink it…”
 
-“Yeah, I do. Tara and her boyfriend invited Colleen to the lake yesterday, and my sister wore that barbie pink bikini with the gold chains around her perfect little 25-inch waist. Tara and her boyfriend will no longer be dating in about 2-3 business days. You watch.”
+I stared at her. Despite my desire to blame her, she was right. I drank the potion. I did it all on my own.
 
-Cannon dramatically sighed. “Your sister is beautiful. Goddess level with curves like a peach.”
+“Now come in before you hurt that pretty little head.”
 
-He looked over at me, and I saw a wicked little thought twinkling behind his eyes. *I didn’t look like she did.* At this point, I was used to it.
+I walked inside, inhaling the incredible scents of her home. There wasn’t one to pinpoint. It was a great jumble of smells that explained the colorful smoke. She led me into the den, and she sat down opposite me. She pushed her hair behind her ear, eyes scanning me over. She reached toward me to touch me, but I flinched and moved away from her.
 
-Colleen has tumbles of honey-colored hair, naturally wavy and silken. She never wore braces like I had to, and she’s never had to diet or exercise. Her activities include bronzing herself by the pool and lathering herself in Goddess Gold, a fifty-dollar tanning lotion that smells like vanilla and cashmere. I’m not like her in the slightest. I hide from the sun and heat like a vampire. I’m a stick from the bottom to the top, and if I wear shorts, my ass looks like two pancakes fighting under a blanket. Flat, not curvy. Stick-like, not peachy. I’d like to say that I’m not green with envy, but I am sometimes.
+She scoffed. “I made you who and what you are now. Let me see my work.” She gestured for me to stand up.
 
-The doorbell rang as a customer entered the shop. I greeted her warmly, smiling brightly with the teeth my parents paid good money to straighten. She was a middle-aged woman with bright blue eyes, nearly white. I didn’t recognize her, and I knew everyone in Grenwich. She wore flowy clothing, and her hair was a cape of curls. She walked to the counter. She smelled incredible, like herbs and spices, entwined with fresh mint and clove.
+I rose from the chair, and I turned for her to see me.
 
-“I need a new facial cream,” she said sweetly. “Can you help me find one?”
+A horrifying grin stretched across her face. “Colleen won’t know what to do around you.”
 
-Cannon responded first. “The facial creams are on the right wall. Let me take—”
+“She won’t hardly recognize me, and neither will my parents!” I replied. “What am I going to do?”
 
-She stopped him before he could finish. “I want *her* to help me,” she said, elegantly gesturing toward me. “She has beautiful, clear skin. Don’t you think?”
+The woman rolled her eyes. “You really think I make careless potions and spells. They’ll recognize you. In fact, the old you is dead.”
 
-Cannon’s cheeks burned red; usually, customers preferred his bubbly personality. “She does,” he mumbled, pushing me toward her.
+“What are you? Who are you?” I asked, shakily moving away from her.
 
-I gave him a frightened look because I didn’t sell the facial creams as well as I did the lotions, perfumes, and hair products. My voice shook. “Do you want scented or unscented?”
+She rose from her chair, sauntered around the room, and closed her curtains. She replied quietly, speaking lowly in dulcet tones. “I’m a creature… A witch from the deepest parts of the earth’s heart and mind, Carrigan. I’m a monster to some, but to you, I am Mrs. Delvine. Is that understood?”
 
-“Unscented… the more natural the better,” she whispered. Her voice was low and soothing, gentle like a breeze.
+I nodded.
 
-We reached the wall, and I picked out a few of the facial creams that my sister always used. “My sister likes these,” I chirped, trying to sound more like Cannon. “This one she puts on in the morning. She says that it firms the skin. This one hydrates, and she puts it on at night.”
+“You will now work for me as the tooth sprites do.” She waltzed around me, lighting candles with the touch of her finger. “You will pay for what I have given you.”
 
-The woman didn’t bother to look at the creams. She was looking at me, studying me. I could feel her examining each curve of my cheeks and the pull of my mouth. “You are a small little thing. A wisp in the wind.”
+“Pay?” I asked.
 
-I clenched my teeth, scared to answer.
+“My gifts are always free, but you see, dear, if you do not take care of the new body I’ve given you… Consequences will occur. You must eat well.”
 
-“I’ll be staying here for a few days while I recuperate. I just left a very quaint rest home.” She scoffed. “I practically dug my way out.” She grabbed the firming cream from my hand. “I’m going to pay for this, but I want you to bring it by my house.”
+I swallowed hard, feeling my throat tighten with fear, as if I were trying to swallow a golf ball.
 
-“I don’t think we make deliveries, ma’am.”
+“Eat well?” I asked nervously.
 
-But if I’d been wiser, I’d have noticed my boss, Linda, standing behind me. Linda is a grade-A, bitch. I’d love to say that she embodied a girl’s-girl mentality as the owner, but she was, in fact, not kind in the slightest.
+She looked up at the jar of teeth that sat most conspicuously upon the bookcase. “To stay as young and beautiful as you are, you must consume that which made you. That potion was made from teeth. Beautiful porcelain teeth from some of the most beautiful girls to traipse across my path. I needed a full set to form someone like you.”
 
-“Cara… you can certainly make a delivery in town when you get off today,” Linda said behind me, placing her perfectly manicured hand on my shoulder. “Cara would love to come by. Leave your address at the desk.”
+“You’re a tooth fairy?” I asked.
 
-I thought about arguing or telling her that I can’t be late for my sister’s graduation party. But the words never made it out of my mouth. It turns out I’m a shadow in the wake of a pretentious, egotistical woman named Linda.
+“No, you are… I just make them,” she replied with a laugh. “You must consume the teeth, dear girl. But be warned… do not consume teeth from just anyone.”
 
-The woman smiled, and my body shivered in response. I swallowed hard, feeling my chest tighten in anxiety. The smell of her filled my mind. I couldn’t have looked away or run, even if I wanted to.
+She held up a hand mirror, showing my reflection to me. “It must be the teeth from beautiful girls like you.”
 
-“I’ll see you later, Carrigan.”
+“How many?” I asked.
 
-I flinched. *How did she know my full name? Everyone calls me Cara.*
+“You need three fresh teeth each month. Eat more, and your hunger and power will grow insatiable. Best to stick to three.”
 
-She left the shop after she paid, leaving her address on the counter, but she turned around to look at me one more time. Her eyes… something was wrong with her eyes. They were too bright, glowing in a way that eyes might if something is not quite right. They say that some sociopaths have shark eyes. Hers were similar, but something else lay beneath. Something mercurial and strange.
+“And I’m supposed to just go back to normal life?” I asked, voice growing more shrill.
 
-The rest of the day went by quickly, and soon it was time to leave. We swept the floors, emptied the trash, and washed out the sinks. The salon would reopen tomorrow, and more customers would rush in to nab their favorite products, have their hair cut, or have their nails polished. And I would stand behind the counter like the dutiful little employee, just trying to get my next paycheck.
+“Not necessarily. You will grow urges… things you can’t control. But I can help you. You will study as an apprentice under me until I can let you go on your own. Tonight will be your first night with me. Our work will begin very soon. Now go home… rest… enjoy your gift.”
 
-“BYE CARA!” Cannon shouted as I walked out of the shop, holding the scrap of paper on which the woman had written her address.
+She guided me out of her cottage and handed me the jar of teeth. “These will last you a long time if you take care of yourself.”
 
-I walked to my car in annoyance, mumbling about unfairness and labor laws, but there I was still going anyway. When I reached the place to turn off the main road, I nearly turned around. It was a dirt road with a broken mailbox. The trees curled toward the road, making a tunnel. Their branches stretched down like claws, preparing to snatch an unsuspecting passerby.
+I nearly fell as I walked down the stairs. I got back into my car, and I drove home.
 
-I looked over at the salon gift bag with the face cream tucked gently inside by Linda. I took a deep breath, and I turned into the driveway. It wasn’t a long driveway, but it was enough to keep the woman’s home tucked safely in the woods and away from prying eyes. Once I saw her small cottage, I sat in my car for a second, taking in the incredible surroundings.
+When I walked into my house, all the pictures of me had been changed. The awkward middle-school pictures of me were replaced by a picturesque girl without braces or acne. It must’ve been me. I couldn’t even recognize the girl in the pictures. Without wanting to, I started to miss how I used to look. I missed her more than I thought I would.
 
-Her stone cottage was nestled within the woods, lovingly hugged by willow trees and ancient oaks. The door was dark green, and her porch and steps were stained a dark red. Lit lamps guided the pathway to her door, and I couldn’t help but gaze in disbelief.
+I snuck up the stairs, praying that no one was awake. Of course, I was never lucky. Colleen emerged from the bathroom. She was brushing her teeth, toothpaste sitting on the corners of her mouth.
 
-I stepped out of my car, unable to stop myself. A beautiful garden of flowers grew before me: tulips, roses, bleeding hearts. Their aroma was intoxicating, and the more I inhaled, the less frightened I felt. More plants grew lusciously around the home, vibrant and colorful. Each was as wild and stunning as the last. Fireflies danced in the coming night, flitting from plant to plant. Ferns sprouted up from the ground like fans, dipping and turning as the wind blew. I’d never seen something so incredible and exotic.
+“Where have you been?” she asked.
 
-The woman must’ve heard my car pull up because she stepped out of her house, and a grin stretched across her face. “I wondered when you would come by. Come in, dear.”
+Clearly, she knew who I was, but as I stared at her, I was fixated on her teeth. I watched as they moved up and down while she spoke, her lips curling to reveal the pearly white mountains within her. She continued speaking to me, but her voice was drowned out by the horrible thoughts circulating through my mind.
 
-“I really need to just drop this off and leave. My sister’s graduation party is tonight. It is really important to her.”
+I desired to eat her teeth.
 
-She raised her eyebrow. “Oh… well, that explains it.”
+I imagined myself holding her down, ripping out her molars and bicuspids with pliers. Bathing in the blood that spurted from her gums. More than anything, I wanted to rip them out of her mouth, shove them down my throat, and swallow them whole, letting them clink together in my stomach like gold coins in a purse.
 
-“Explain what?” I asked.
+I imagined them cracking as I tore them out. I got closer to her as she spoke. I lifted my hand to begin prying them out of her, but my obsessive thoughts were crushed as she snapped her fingers in my face.
 
-She laughed. “Explains you… You haven’t fully blossomed yet. Girls your age usually have found something to entertain them.”
+“Hello!” Colleen hissed, waving her hand in front of my eyes. “Are you even listening to me?”
 
-The breath caught in my throat. “I wouldn’t say that. I… I… I like to read and write. I’m good at school.”
+I swallowed the saliva gathering in my mouth. “Yes… Yes… I’m listening,” I replied.
 
-She shook her glossy curls and chuckled. “Why don’t you come inside? I can help you. I can give you purpose.”
+“I asked if you wanted to go with me to get breakfast.”
 
-I looked back at my car, wondering if I should even go in. She seemed harmless enough. Part of me itched to go through her front door, but a little voice in the back of my mind was too loud to ignore. I pushed it back, farther and farther. Her offer felt like an opportunity. What could a woman like her want with someone like me, anyway? But she ushered me inside before I could protest. I walked in like a rabbit entering a fox’s den. I was caught.
+I took a deep breath. “No… I need to go back to bed. I’m still really tired.”
 
-The inside of the cottage smelled amazing. Something was cooking on her stove, and it smelled so delectable that I might eat it with my bare hands, allowing my flesh to melt in the pot.
+“I can tell, you weirdo. I’ll see you later.”
 
-Her home was hand-painted, bright, and unusually colorful. Her furniture and decorations were a mix of ornate rugs, beaded lamps, and comfy plush chairs. Vines traced up the walls, and crystals hung from each curtain. Plants and flowers of every shade and variation rested on the floor in gorgeous terracotta pots. It was comfy and homey. I felt like I was being wooed and connived by the enchanting colors and smells. I sat down, clutching the paper bag with the facial cream, and I watched as the woman weaved through the kitchen.
+But she didn’t see me later. I hid in my room all day, considering the consequences of the choice I’d made. *What if I never learned to control myself? What if I hurt someone?*
 
-She hummed to herself, and somehow it echoed around the room. I could feel her voice thrumming through my ribs.
+But the compulsion to look at more teeth was strong and unyielding. I pulled out my yearbook, selecting the girls in my grade with the best smiles. I could take their teeth. I thought of vile ways to rip out their canines. Part of me desired to shove them into my own gums to make room for more teeth.
 
-Something shiny on the floor caught my eye. I bent down, and I picked it up. It was a single silver coin, and a tooth was carved into the metal. I set it down on the table beside me, noticing how clean her home was. There were no dust or crumbs, cat hair, dog hair, or even human hair. People with long hair usually shed like a husky, so I was surprised. But there, sitting on a bookcase behind me, I saw something I didn’t expect. It was a jar full of teeth. Big teeth, small teeth, old teeth, capped teeth.
+I shook my head and stood up. I was becoming obsessive, and I considered burning my yearbook to stop myself.
 
-Her voice broke my train of thought. “Carrigan,” she said, walking closer to me. “I wonder… Do you know why I wanted you to come here?”
+But just as Mrs. Delvine said, our work began very soon. During my fanatical delusions about stealing others’ teeth, a small note appeared on my dresser. It was an address and the simple words: *Come get some teeth, my pet.*
 
-I shook my head. I hadn’t thought that far into it, but I was also starting to feel woozy. Something in the air was making me float, dulling my senses and clouding my mind.
+By nightfall, I was leaving my house and headed to the address. I don’t know what I expected to see when I reached my destination, but it certainly was not a cemetery. I got out of my car, and I stood silently in the dark. Other cars were parked along the edge of the tall grass, and I wondered why. It is the middle of the night.
 
-She smirked. “I can help you, Carrigan. I specialize in helping the unwanted, unappreciated, and unhappy. You are all those things, dear, and I can make them see you.” She thumbed down my cheek, tracing over my chin and jaw. “I can make you pretty to the teeth and bones.”
+A hand grabbed my arm, and I whipped around to see Mrs. Delvine. She was wearing dark clothing, carrying a satin bag. She handed me the bag, and as soon as my hand touched the fabric handles, my skin began to change. It burned quickly and faded before I could scream. 
 
-I stared at the woman, unsure whether I was afraid or shocked. I didn’t feel like I was unappreciated. I didn’t feel like I was unhappy or unwanted. I don’t think I need her services. She’s barking up the wrong tree.
+I looked down to see that I looked like a tooth sprite. I was larger than the ones who were bringing teeth to the witch through the window, but I was certainly no longer human. My hands were small and nimble, perfect for stealing teeth. Razors now sat inside my mouth; a little bite from me would cause significant pain. Little wings sprouted from my back, but I didn’t know how to use them.
 
-But something she said broke me from my trance, and I stood up. “I really need to get going.” I offered her the bag, but she shook her head.
+The witch chuckled as she gazed at me. “Well, you look quite nice as a tooth sprite. Might leave you this way if you dare to make a fool of yourself. Now be good little one…”
 
-“You take it. Think of it as a gift.”
+“What is this place?” I asked quietly.
 
-“But I don’t need this.”
+She smirked. “Why this is Salem Hill Rest Home. Creatures like myself come here for retirement.”
 
-She laughed. “You’ll find that it is no longer what you think it is.”
+“Retirement?”
 
-My hands shook as I clutched the bag. I had no idea what she meant, but I was also too scared to argue. She led me to the door and guided me down the wooden steps.
+“Haven’t you ever wondered why monsters never truly disappear? They come here in their old age, and they are reborn you could say.”
 
-“Come back, Carrigan,” she whispered, pulling her woven shawl around her. “I’ll be here waiting.”
+She led the way into the cemetery, moving down the path as if she’d walked it a thousand times. The dirt path began to fade the further we walked, and the dazzling night sky was replaced by fluorescent lights and shining tile floors. We had entered some kind of nursing home. The smell of fresh cleaner was overpowering. I walked beside the witch, scared to even wander away.
 
-My skin crawled at the thought. Once I got into my car, I bee-lined back to my house. I was already late, no thanks to Linda. I drove home in silence. When I walked inside, I heard the sounds of clinking glasses and laughter. My parents, some of their friends, and my sister were drinking out of the fancy flute glasses that my mom reserved for special occasions.
+As we reached the East Wing, a nurse was sitting at a large desk. Other nurses sat around her, typing away, filling out paperwork, or preparing medication.
 
-My mom walked out of the dining room. She was tipsy, giggling to herself and barely able to focus on me. “Your sister got into her first choice of college! Isn’t that exciting for her! She got the letter today!”
+The nurse at the main desk looked up with an annoyed expression. “Can I help you?” she asked.
 
-I smiled and ran into the kitchen to hug Colleen. “This is so exciting!”
+Mrs. Delvine’s eyes narrowed. “Salem Hill contacted me. I’m simply following through on my end.”
 
-Colleen jumped up and down with me, and then she let go of me. “Did you get that lotion?”
+I turned to view the nursing home, not really knowing what I was looking at. I spotted various empty wheelchairs, an empty activity room, and a few other nurses. To the average person, this nursing home was practically vacant.
 
-I nodded and pulled it out of my purse. “It was 38 bucks.”
+A heavy wooden door opened, and a woman stepped from within. She wore a crisp white coat, and her eyes were a striking green. Her hair was long and brown, but she did not look human. She had an otherworldly appearance. She approached Mrs. Delvine without hesitation.
 
-“Can I pay you later?” she asked, not even paying attention to the price.
+“Mrs. Delvine… You look quite well since your stay.”
 
-“Yeah, no big deal.” *It came out of my paycheck, but whatever…*
+Mrs. Delvine smiled brightly. “Well, Dr. Carlisle, you know what they say… A good mud bath can cure anything.”
 
-The party ended within the hour, and Colleen and I were left to clean up. I walked to the kitchen table and began collecting the cards that she’d received. I opened one, and a hundred-dollar bill fell out. Inside it read: *Enjoy college, Colleen! We are so proud of you.* I grabbed another, seeing the same variety of messages with money tucked inside. I walked to Colleen and handed her the cards.
+The woman didn’t respond to the playful banter; instead, she gestured for us to follow her.
 
-“Did you open these earlier?” I asked.
+“Where are the residents?” I asked without thinking.
 
-She nodded, putting a pair of flute glasses in the sink to soak.
+Mrs. Delvine shot me a vicious glare for speaking.
 
-“So, you’ve got the money to pay me back for that lotion?” I asked, raising an eyebrow.
+Dr. Carlisle looked down at me coldly, but she responded. “You are new to this place, aren’t you?”
 
-“But that money is for college. It isn’t for frivolous stuff like that dinky lotion.”
+“Yes…” I replied nervously.
 
-“That *dinky lotion* was 38 dollars, Colleen.”
+She smirked and continued walking. “Welcome to Salem Hill Rest Home. You’ll find that we serve an unusual population. Creatures much like yourself come here for safety, care, and peace at the end of their lives.”
 
-She shrugged. “It isn’t a big deal. Can’t you just return it?”
+*Much like yourself…* Everything else she said didn’t register. I was one of them now, merely an eerie creeping noise in the night, a cackle in the woods, a growl in the dark. A creature… a being. No longer human.
 
-“No,” I said, cheeks burning red. “It is nonrefundable.”
+She led us to a resident’s door and stopped outside it. “The tooth that you need is just behind this door.”
 
-My mom heard us beginning to argue, and she walked into the kitchen. “What are you two fussing about?”
+“Anything we should know, doctor?” Mrs. Delvine asked.
 
-“Cara wants me to pay for this stupid lotion with my money for college!” Colleen whined.
+“Mind the tail…”
 
-“No! I want her to pay me back for it! She asked me to get her some more because Tara won’t give hers back!”
+Mrs. Delvine opened the door, and I followed closely behind her. When we entered the room, our feet immediately sank into mud. I gazed up in amazement. The entire room was a jungle of tangled vines, swampy water, lily pads, and duckweed. The air was hot, sticking to our skin, and the water was putrid. It was a mixture of mud, sand, and dare I say, feces. The smell was intolerable. We trudged through it until we reached a sandbar.
 
-“Is that true?” my mom asked, looking toward my sister.
+Resting a few feet from us lay a prehistoric-looking beast. Gills rested on the sides of its head, folding down until they reached its neck. Its eyes were slits, and each hand was webbed like a fin. And there was the long whip-like tail that the doctor had warned us about. But its mouth interested me the most. Despite its appearance, its teeth were perfect, yellowed daggers. I licked my lips… desiring to taste one.
 
-Colleen paused and huffed. “Yeah… Tara and her boyfriend broke up, and she blames me. She won’t answer my texts to give back the lotion.” Tears slipped down my sister’s cheeks. “She told me that she doesn’t want to be my friend anymore.”
+But a rancid smell of decay filled my nostrils. Resting a few feet from me, floating in the shallow, muddy waters, lay a body. It was bloated, skin nearly purple. Half of the man was eaten, and the other half was saved for later, partially buried in sandy mud. His left arm and right leg were gone, torn from the sockets, leaving severed nubs and tattered flesh. The man’s eyes were white, muddled from the vision of death.
 
-I rolled my eyes. “Yeah, whatever… and that’s why you wore your sexiest bikini to the lake… Because you wanted to have a lifelong friend. Bullshit. What did you expect to happen?”
+In that moment, I realized I’d made a terrible mistake. Beauty for pure terror and torture was not a fair trade. I shouldn’t be here. I should be at home. I shouldn’t have even taken the potion, but there was no turning back. I had to follow through, or I’d face terrible consequences.
 
-My dad overheard and shook his head. “Cara... Go up to your room. That was hateful.”
+I moved toward the beast before I could stop myself. I had to.
 
-“She’s just trying to get out of paying me for the lotion!” I shouted. “That came out of my paycheck!”
+The gilled creature opened its eyes. I nearly turned around. Its eyes were yellow orbs resting in darkness. But instead of attacking me, it opened its mouth. I knew exactly which tooth required extraction. I simply reached inside, dug my nails into the flesh, and ripped it out. It popped from the socket like a cork, and the monster angrily yelled in pain, snapping its mouth closed just as I jerked my tiny hand away. I hurriedly threw the tooth into my satin bag as the beast quickly turned on me, reacting on instinct. Mrs. Delvine bolted toward the door, leaving me to fend for myself. I quickly weaved through the water and slipped in the mud.
 
-“Next time, you should manage your money better,” he replied curtly.
+The creature grasped onto my leg and pulled me under the murky depths, but in an extraordinary turn of events, it let me go. I bobbed back to the surface like a fishing lure, taking a deep gasp of breath.
 
-Tears gathered in the corners of my eyes, burning as I refused to let them fall. I strode out of the kitchen and up the stairs to my room. Then… only then could I cry. I flopped onto my bed, and I curled into a little ball.
+It looked at me as if it pitied me. “Be careful…” It croaked through gurgled breaths. “The witch… only likes new toys… not broken ones.”
 
-*Unwanted. Unappreciated. Unhappy.*
+I bolted to the door, and I collapsed in the hallway, grateful to feel solid ground.
 
-Such simple words to describe all the things swirling within me right now. I took a deep breath and looked at the paper bag I’d thrown into my room before joining the party. It lay on its side where I’d tossed it, but instead of facial cream, I saw a tiny vial. It was a glittering purple hue, and it glowed. I wiped the tears from my cheek and got up to pick it up.
+But part of me knew that the gilled freak was right… I was in grave danger.
 
-I had held that bag for the entire time I was inside that woman’s house. I didn’t even know her name. And I’d seen the facial cream get put into this bag. *How did she change it?*
-
-I heard my sister walk up the stairs. And for one split second, I thought she might come in and apologize. I was always the first to apologize… always the first to do whatever she wanted. The more I sat on my bed thinking, the more I realized the woman might know a lot more about me than I anticipated.
-
-My sister got to the top of the stairs, and I made a decision. If she came to the door, I’d put down whatever this weird vial is. I’d forget it.
-
-But that was wishful thinking. Colleen strode past my door without a second thought, walked into her room, and shut the door.
-
-The woman’s words echoed through my mind. *Unwanted. Unappreciated. Unhappy.* Maybe she was right. I untwisted the cap from the vial, and the sweet scent of the flowers outside the woman’s home wafted into the room. I took a deep breath, inhaling the delectable scent. I couldn’t stop myself. The allure of the liquid within the vial was too delicious to ignore. It was warm, inviting, eager to be tasted.
-
-I took a sip and immediately regretted it. The sour taste was overwhelmingly tart and bitter. But I forced myself to swallow it. I sat still for a few seconds. Then, I felt a wave of nausea. My stomach lurched, and I fell onto the floor. I vomited and peed myself, unable to control the heaves that swelled through me. My heart began to pound, and I reached for the door in fear. I needed help. I needed my mom.
-
-My bones cracked. My fingers twisted. And blood dripped from my eyes. I tried to scream, but nothing came out. I was silent; only a feeble groan echoed from me. I stared at my arms. Bubbles were radiating up from my bones, and my skin was peeling off, sloughing onto the floor in gelatinous piles. The muscles beneath my skin writhed and contracted, and a vague shining light glittered beneath my flesh. Blood clouded my vision as my hair began to fall out. My teeth clacked onto the floor, and I covered my mouth, crying out as I swallowed a few and coughed on others.
-
-My body felt like it was melting. Then a frigid cold seethed over me. My heart rate began to slow, and I collapsed on the carpet. The pain was excruciating, and I couldn’t catch my breath. I was dying. I was sure of it. My chest radiated with pain. I tore open my shirt to see a flower tearing through my breast tissue.
-
-In horror, I began to pull at it, hoping to rip it out. I could feel the vines growing within me, the roots curling around my organs. I was dying, or maybe I was growing.
-
-The woman’s words slipped through my fading consciousness, *pretty to the teeth and bones…*
-
-A sharp whistling pulsated through my mind, and I faded into darkness.
-
-*What had I done?*
-
-
-
-Horrifying, isn’t it? There is more to the story, but this is what I can tell you now. I’ll update you again. I’m sorry. Oh, and let me know if you hear from the witch in Grenwich. Hell, let me know if you even see her.
+I'll update you later.
