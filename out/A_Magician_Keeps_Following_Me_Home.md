@@ -132,25 +132,18 @@ I told my boss about it in the  morning when he came in. He seemed worried for 
 
 Fucking talk to him!
 
-“Hey, pal. Sorry, but you can't break into your coworker's house. This is just a warning. Don't make me write you up next time.”  
-  
- That's some bullshit.
+“Hey, pal. Sorry, but you can't break into your coworker's house. This is just a warning. Don't make me write you up next time.”
+
+That's some bullshit.
 
 I've decided to stay with a friend for the time being, an old pal of mine from college.
 
-I'll make another update once I talk to the bastard. Gonna get my lawyer and the police on this as well.  
-  
+I'll make another update once I talk to the bastard. Gonna get my lawyer and the police on this as well.
+
 Let's see if he can disappear out of the jailhouse.
 
 Any other ideas or tips would be real fucking helpful. This is the first time I've made a post like this, but I needed to just talk about it.
 
 Thanks for reading.
 
-  
-  
-  
-  
-  
-  
-
-
+[Part 2](https://www.reddit.com/r/nosleep/s/vsh3xq21EK)
