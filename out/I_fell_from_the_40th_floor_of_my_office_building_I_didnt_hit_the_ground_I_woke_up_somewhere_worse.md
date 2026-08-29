@@ -1,0 +1,179 @@
+I woke up on asphalt.
+
+Not in bed. Not on a couch. My cheek was pressed against cold pavement, grit digging into my skin, and the first thing I registered was the smell — hot rubber, exhaust, the mineral tang of a road that had been baking under sun for hours. I sat up too fast. The world tilted. I didn't recognize a single building around me.
+
+I had maybe two seconds to be confused before the ground itself started shaking.
+
+A horn didn't blare. There was no warning. Just a wall of sound and wind slamming into my back, so loud it wasn't sound anymore — it was pressure, shoving against my eardrums, my chest, the fillings in my teeth. I threw myself sideways without deciding to. My palms hit the curb, tore open, and a semi-truck screamed past close enough that the side mirror clipped the air where my head had been a half-second earlier. It didn't slow down. It didn't honk. It just kept going, taillights shrinking, like I'd never been there at all.
+
+I knelt on the sidewalk coughing diesel smoke out of my lungs, hands stinging, and checked my watch out of pure reflex. 8:14. I was late for work.
+
+That's the part that still gets me — that my brain, faced with something it couldn't explain, reached immediately for something mundane. Late for work. Not "how did I get here." Not "what just happened to me." Late for work. I stood up on legs that didn't feel like mine and I walked, then jogged, then nearly ran the rest of the way downtown, telling myself a story about stress and bad sleep the entire time.
+
+The office was normal. Aggressively, insultingly normal. Cold air, badge scanner, the elevator's soft chime on 28. My boss was by reception with his coffee, already mid-smile, already starting to say good morning —
+
+and then something screamed.
+
+I don't have a better word for it. It came from somewhere behind the drywall, behind the ceiling tiles, behind reality itself, a sound with too many layers to it, wet and cracking at the edges like something enormous trying to speak through a throat never built for language. My boss kept smiling. His mouth kept moving. He didn't hear it.
+
+I turned around.
+
+At the end of the hallway, past the cubicles, something was standing that should not fit in a hallway. Black scales that ate the fluorescent light instead of reflecting it. A skull the size of a car. Eyes the color of a struck match, and they were already on me — not glancing, not passing over — fixed, the way a cat fixes on something it's already decided is dead. Smoke came off it in lazy ribbons, curling up toward the ceiling tiles like it had all the time in the world.
+
+I didn't scream. My throat had simply stopped being mine to control.
+
+I blinked, and the hallway was empty. Beige walls. A stapler on someone's desk. My boss's hand was still hovering near my shoulder.
+
+"You alright?" He wasn't asking politely. There was real worry on his face, and that scared me almost as much as the thing in the hallway — because it meant none of this had shown on the outside. I'd stood there having a stroke, an aneurysm, a break from reality, and to him I'd just gone a little pale.
+
+I told him I hadn't slept. I got coffee I never drank. I found Adam by the windows because Adam is the most boring, rational person I know, and I needed boring and rational standing next to me like a life raft.
+
+"You look like hell," he said.
+
+I opened my mouth to tell him everything — the truck, the sound, the impossible thing made of smoke and teeth — and that's when the glass behind him spiderwebbed from a single point of impact, a sound like a bone snapping at ten times the size it should be.
+
+It was outside. Forty floors up, and it was outside, wings dragging violent gusts against the building, and its eye — one eye, filling half the window — found mine through the cracking glass a half-second before it drove its skull through it.
+
+I don't remember deciding to fall. I remember the temperature change first, the outside air hitting me before the shock did, and then just wind, and the building sliding upward away from me like it was the one leaving, not me.
+
+I had time to think, very clearly and very calmly: this isn't the first time this has happened to someone.
+
+I don't know why I thought that. I just did.
+
+
+
+I opened my eyes and the falling just stopped. No transition, no soft landing — one second I was forty stories into open air, the next my face was pressed into rock hot enough to blister, and the sensation of falling was simply gone, deleted, like it had never been part of my body's memory at all.
+
+The heat hit before anything else did. It came off the ground in waves I could see, warping the air, and it dried the inside of my nose in a single breath. Ash sifted down onto my tongue when I gasped, gritty and chemical, and I gagged and spat and gasped again anyway because my lungs didn't care what was in the air, they just wanted more of it.
+
+I got up on my elbows. The skyline was gone. Downtown, the office, the shattered window — none of it. Above me the sky had the color of a fresh bruise, purples bleeding into a smoke so thick it swallowed whatever sun was supposed to be up there. I was on the crumbling edge of a ravine, and below me the rock split open into rivers of orange-white light, moving slow and thick like something being poured.
+
+That's when I heard the wings.
+
+Not one set. Dozens, maybe more, cutting through the haze high overhead, throwing shapes across the smoke that were too large to be birds and too many to count. The thing that had come through my office window had been terrifying because it was singular, impossible, alone. This was worse. This was an ecosystem.
+
+I tried to stand and my skull cracked open from the inside.
+
+That's the only way I can describe it — not a headache, a fracture, something splitting behind my eyes with a pressure that buckled my knees straight back into the rock. And into that fracture poured memory that wasn't mine. Snow driven sideways across black cliffs. The particular ache of rowing for hours, palms split and healed and split again over calluses built from years of it. A name for a chieftain I had never met sitting in my mouth like I'd said it every day of my life. I knew the footpath from the shore to my village without ever having walked it. I knew we were losing. I knew exactly how many of us were left, and it was not enough.
+
+I am a software engineer. I told myself that like a password, like if I said it enough times it would let me back into my own head. I sit in a chair. I drink bad coffee. I have never held an axe.
+
+The sky screamed before I could finish arguing with myself, and fire came down where my head had been a half-second earlier. I felt it pass — an actual physical push of superheated air — and the fine hair on my neck curled and vanished in it. My shoulders blistered instantly, tight little points of pain that would have doubled me over in any normal circumstance, except normal circumstance had left the building with everything else.
+
+I hit the ground and stayed there, cheek against the shale, not moving, hardly breathing, because some part of my brain that had never spoken a word of Old Norse in its life was screaming at me that stillness was survival. I lifted my head just enough to look for anyone. A face. A shape running the same direction I wanted to run. There was nothing. Just black rock stretching toward the smoke in every direction, empty in a way that felt intentional, like the landscape itself had been cleared of anything worth saving.
+
+I ran anyway. Low, fast, my boots sliding on loose shingle that shifted under every step, aiming for a fold in the rock that might be a gap, a crevice, anything with a roof. I didn't scream even when a strangled sound tried to claw its way out of my throat, because whatever was up there was hunting by sound and I was not going to be the thing that told it where to look.
+
+I came around the last outcrop too fast and a shadow the size of a delivery truck dropped out of the smoke directly into my path.
+
+Its eyes were the same molten color as the thing at the window, except closer now, close enough that I could see them narrow, focusing, recognizing me the way you recognize something you've already decided to eat. Its mouth opened and there was light inside it, a furnace glow behind rows of teeth built for tearing. I threw my arms up on pure animal instinct and fell backward, already certain about what the next second would feel like —
+
+and I landed on something soft.
+
+The heat disappeared so fast it left a kind of vacuum behind it, a wrongness in my lungs where scorched air should have been. Instead there was lavender detergent, and dust, and the particular staleness of a room that's been shut up and revisited only in memory.
+
+I was on a round braided rug I hadn't seen in twenty years. The same posters were taped crooked to the wall, corners curling. The same wooden toy box sat under the window with the same gouge in the lid where I'd dropped a hammer trying to build something out of it. Sun came through the glass soft and yellow, the exact temperature of a Saturday morning that no longer existed.
+
+I turned toward the closet mirror because some instinct told me to check, and what looked back wasn't a grown man. It was a child. Small shoulders drowning in a t-shirt three sizes too big, a face gone pale and slack with a fear too large for its features to hold. I opened my mouth and the sound that came out was thin and cracked and belonged to someone much smaller than the person I thought I was.
+
+Feet pounded down the hallway. My door opened and my mother came through it exactly the way I remembered — apron, flour dust on her forearm, eyes already scanning the room for the danger her son was screaming about. I didn't decide to run to her. My body simply did it, small arms locking around her waist, face buried in fabric that smelled like the actual, specific detergent she used the actual year I was ten.
+
+"Something's wrong with me," I said into her apron, and my voice broke on every other word. "I'm not supposed to be this small. I had a job. I had an office. There was fire, there was — Mom, please, tell me what's happening to my head."
+
+Her hand found the back of my hair. "Bad dream, sweetheart?"
+
+"No. No, listen to me—"
+
+Her arms came around my shoulders, and for one full second it was exactly right, exactly what I needed. Then the second one ended, and her arms kept closing.
+
+I felt my ribs flex before I understood why. Then flex further, past the point ribs are built to bend, and a sound came out of my own chest that I will never be able to un-hear, a wet compressing creak, like a green branch given far more time than it needs to break.
+
+"Mom — you're hurting — let go—"
+
+She didn't. Her grip had the patient, mechanical evenness of something that had never once needed to breathe, tightening in perfect increments, lifting my sneakers a half-inch off the rug.
+
+"This is real, my boy," she said against my ear, and the warmth had already left her voice by the second word. What replaced it was low and layered, a chord of sound instead of a single voice, vibrating up through my molars. "This is entirely real."
+
+Then the hum started — not from her mouth, from somewhere lower, her sternum, her ribs, rising in pitch until it wasn't a hum anymore but a drone that filled the small room wall to wall, pressing into my skull from every direction at once. My eyes streamed without me crying. I tore myself sideways out of her arms with strength I didn't know a ten-year-old body had and hit the toy box hard enough to see white.
+
+She hadn't moved from where she stood, but her face had. Her cheeks stretched past the point skin is supposed to stretch, the bone beneath rearranging itself with an audible shift, her jaw dropping open far past human hinge into a black space with no bottom I could see.
+
+"DID YOU REALLY THINK YOU COULD OUTRUN US BY CHANGING ROOMS?"
+
+The sound wasn't spoken so much as detonated, and it took the room apart around the edges of my vision, static eating the posters, the toy box, the sun through the glass, until there was nothing left to hear or see at all.
+
+Silence arrived so suddenly it felt like its own kind of violence.
+
+I was sitting down. Cold metal under my palms. White walls with no visible seams, curving into a white ceiling with no visible light source, just an even, sourceless glow and the faint sting of rubbing alcohol in the air. My hands on the table in front of me were adult hands again, unbroken, unburned, ordinary.
+
+I didn't move. I didn't think I could.
+
+A section of the wall exhaled and slid open, so smooth it barely made a sound, and a woman stepped through wearing a suit the color of the walls, a silver clipboard held against her chest like a shield.
+
+She crossed the room toward me without hurrying, her heels marking off the distance in even, unbothered clicks, like she had all the time in the world and knew exactly how this was going to go.
+
+
+
+I blinked, and the white room was gone.
+
+The rubbing alcohol smell disappeared so completely it was like it had never existed, replaced by roasted coffee and the low, brushed-drum shuffle of jazz playing from somewhere I couldn't see. I was sitting at a small table with a candle burning in a glass holder, silverware laid out in a pattern too formal for anything I owned. My hand went to my face on reflex, checking for something — I didn't even know what — and found nothing but my own jaw, stubbled, adult, mine.
+
+I dug into my pocket and pulled out a phone that felt wrong in my hand, too thick, too light, the plastic edges of a model I hadn't touched in a decade. The lock screen lit up. The date sitting there in plain digital font was thirteen years old.
+
+I didn't get a full second to sit with that before a hand landed on my shoulder, warm and familiar in a way that reached past thought and straight into muscle memory. I turned and my chest did something complicated and painful at the same time.
+
+Alice.
+
+Not the woman with the clipboard. Alice from before all of that existed — younger, her hair still cut the way she wore it our first year together, sliding into the booth across from me like she'd done it a hundred times, because in this version of things, apparently, she had.
+
+"Beautiful evening, isn't it," she said, and lifted a cocktail glass to her mouth, completely unbothered, completely real.
+
+I couldn't answer. My hands found the edge of the table and gripped it because they wouldn't stop shaking otherwise. Just seeing her sitting there, breathing, blinking, ordering a drink — it hit something in me that hadn't let go since the truck's mirror missed my skull by inches.
+
+"I don't know what's happening to me," I finally managed, and the words came out ragged, faster than I meant them to. "An hour ago I was in my office. Then I was on a volcano being hunted by something with wings. Then I was a kid, and my mother wasn't my mother anymore, and now I'm here, with you, thirteen years ago, and none of it makes any sense."
+
+She didn't laugh it off. She didn't wave for the check. She set her glass down with a precision that felt rehearsed and looked at me with an attention that had nothing casual left in it.
+
+"That actually tracks," she said. Her voice had dropped, flattened into something clinical I'd never once heard her use on a first date. "You're not moving through space. Your mind is shifting between states. Realities, if you want the dramatic word for it."
+
+"What does that mean for me," I said. "Am I asleep. Is any of this a dream."
+
+"Think about capacity," she said, leaning in until the candle threw moving shadows across half her face. "A brain that takes in more than it can hold has to purge something. That's why dreams fall apart the second you wake up — the mind is protecting itself, deleting the overflow. Yours isn't deleting anything. It's just routing around the block. Bouncing."
+
+"Do you believe me?" I asked her, because I needed one person, even a stranger wearing a familiar face, to say yes.
+
+She reached across the table and took my hand. Her grip was warm, solid, entirely convincing — right up until she smiled, and the smile had something sad folded into the corners of it that didn't belong on her face at all.
+
+"I want to," she said. "But there's a hole in your memory. You were never a software engineer. You don't have it in you."
+
+The floor of my stomach dropped out. The restaurant, a second ago pleasantly warm, turned suffocating, and the fracture behind my eyes came back with interest, splitting wider than it had on the volcano.
+
+"Then why can't I remember the real one," I said, barely audible. "The place where my actual body is right now, sleeping, wherever that is."
+
+Her fingers tightened around mine, hard enough to hurt, hard enough that I felt the small bones shift. "Maybe you went too far. Maybe you're too deep in it to find your way back to the surface."
+
+"Then who was wearing my mother," I said. "What was that thing."
+
+Something behind her eyes went flat and empty, like a light switching off two floors down. "I don't know. But it's not staying behind. It's coming with you."
+
+She said the word coming and it doubled in my ears, layered on top of itself, coming, coming, a stutter in reality itself, and the restaurant began breaking apart into gray static at the edges of my vision. I shut my eyes against a wave of red that wasn't light so much as pain given color, and I heard myself scream into whatever was left.
+
+When I opened them again, I was lying on my own mattress.
+
+I recognized the water stain on my ceiling before I recognized anything else, the one shaped vaguely like a continent that I'd meant to get fixed for two years. Cool air came through the window I always left cracked. Morning light lay flat and gold across the blinds. I laughed — an ugly, wet, relieved sound that tore out of my chest before I could stop it — because I was home, because it was over, because whatever had happened to me had finally let go.
+
+I got up too fast, legs unsteady, and went straight for the bathroom, needing cold water on my face more than I'd ever needed anything. I put both hands on the edge of the sink and looked up into the mirror to check that my own face was still my own.
+
+It didn't move.
+
+My hands were flexing on the porcelain, my shoulders rising and falling with my breath, and the reflection stood there doing none of it — arms hanging slack at its sides, utterly still, watching me from a half-second behind whatever I actually did. Then its mouth started to move without any input from mine, the corners dragging up and back, further than a jaw should stretch, until the grin ran nearly to its ears.
+
+Its eyes went black from edge to edge, and it leaned into the glass from the inside.
+
+"Did you really think you were awake?" it said, and the voice didn't come from the mirror at all — it came from behind my own eyes, inside the bone of my skull.
+
+"No — no, please —" I got out, trying to step back, and found my legs had stopped taking instructions from me entirely.
+
+"You've had it backward this whole time," it said, and its grin widened past the point a face should be able to hold. "You're not surfacing. You're only just now going under."
+
+Understanding arrived all at once, whole and complete and far too late to do anything with — the loops, the shifts, the mother, Alice, all of it clicking into a shape I finally recognized — and in the same instant the bathroom, the water stain, the cracked window, all of it began to run like wax held too close to a flame, until there was nothing left around me at all except the dark, and whatever was waiting patiently inside it.
