@@ -1,0 +1,46 @@
+Marcus found it first — somebody's photo on one of those abandoned-mall accounts, Meridian Commons half swallowed by weeds, one anchor-store sign still lit at three in the morning. Priya turned it into plans before I'd finished reading the caption. She used to spend every Saturday there as a kid and wasn't missing the chance to see it before the county finally tore it down. I had the car and the afternoon, so that settled it.
+
+Rain the whole drive over. Priya ran the aux from the passenger seat — a playlist she swore used to be the mall's entire personality, more guitar than anyone under thirty has patience for. Marcus killed it partway through and landed on a news segment instead, something about a lake house upstate, several people never found, still unsolved a year later. Nobody reached to change it back. It just ran under the rest of the drive until I killed the radio pulling into the lot.
+
+The pylon sign out front still had power, which was more than I expected. Whole top half was dead — nothing left but the mall's old name, MERIDIAN, glowing over an empty black rectangle where COMMONS used to be lit up under it. The lot itself was nearly empty even accounting for the weather — a handful of cars scattered far off by the entrance, weeds pushing up through the cracked asphalt near the curb, thick enough in places that nobody bothered steering around them anymore.
+
+None of us bothered with umbrellas. Priya had one of the doors open before I'd even gotten my keys pocketed, and the three of us crossed into the entryway breathing a little hard, shaking off rain, the automatic doors sticking half-closed behind us like they hadn't been serviced in 10 years.
+
+Inside had that specific quiet — half the overhead lights buzzing, the rest dark, air conditioning running for nobody. Two levels, one escalator still stuttering upward with no one on it. A banner sagged over the food court: MERIDIAN PROPERTY SERVICES, LEASING INQUIRIES, a disconnected phone number nobody had bothered to take down.
+
+Priya drifted toward where the arcade used to be, still talking about a game she used to play. Marcus wandered off toward a service door propped open near the dead escalator. I went with him.
+
+We hadn't gone far before the PA cut in mid-sentence — something about a West Atrium, upper level. We walked by a directory, which strangely didn't have anything marked "West Atrium" on it. We kept walking instead of looking for it, and somewhere in the next few minutes I lost Marcus. I turned around and the hallway behind me wasn't the hallway I remembered walking down at all.
+
+I called his name. Nothing came back. My heart was already going too fast for how little had actually happened — a wrong turn, a friend who'd probably just gone around a different corner — but something about how the quiet sat there after I called out told me that explanation wasn't going to hold up for long.
+
+I kept going forward, because going back felt wrong.
+
+An arcade cabinet flickered to life in a side corridor — attract-mode footage of a hallway that looked exactly like the one I was standing in, a figure with Marcus's exact gait walking through it. My stomach dropped before my brain even caught up with why. I walked toward the cabinet and said his name nervously out loud, to see if anything would happen. The footage glitched sideways for half a second and reset, almost as if it had heard me and didn't want me to see anything more. I backed away and kept moving, already trying to talk myself out of what I'd just watched.
+
+The corridor opened into a stretch of vending machines, snacks on one side, sodas on the other, both banks humming low the way they always do. From where I was standing, one of them had a thin blue-white glow leaking out low near the bottom, where it looked like the dispenser flap had been wedged open by something.
+
+Closer up, it was his phone, screen still lit, jammed into the gap. I didn't reach in for it. I don't know why. Something in the back of my mind told me to just keep moving. None of it made any sense — phones don't end up wedged into a vending machine flap on their own, not by accident and not by anything I wanted to spend time imagining — and that was the first moment I let myself actually think the word \**wrong*\* instead of just feeling it.
+
+Just past the vending machines, there was an ATM alcove that caught my eye, a screen glowing and pulsing more brightly than any ATM screen should. I went closer to investigate. The screen showed looping security footage of Marcus, the same few seconds over and over, except the timestamp in the corner kept climbing — well past when he was actually walking through, like the clock hadn't gotten the message that the footage was stuck. I watched from a few feet back instead of touching the screen. My own reflection in the glass ran maybe half a second behind me — catching up instead of matching.
+
+I stood there a second, hands shaking, before I could make myself move again. Three things now, and every one of them was about Marcus specifically — not some vague warning, him. I kept thinking about the last thing he'd said to me. How normal he'd sounded and how I hadn't really been listening. I needed to find him. That was the only thought that still made any sense. Somewhere underneath it I was still watching for Priya too — every open doorway, every gap in a gate — but it was Marcus's name that kept coming out of my mouth.
+
+I kept moving, hurriedly. Past the elevator. Past a gated storefront rattling like something was testing the lock from the inside.
+
+Then the PA said my name. My actual name — first and last — in a building where nobody had any legitimate way of knowing it. It had reacted to everything I'd just done, and so far, it hadn't been unkind about it. It started to say something else — then stopped mid-syllable, and let the silence sit a beat too long. The kind of pause that follows a question.
+
+I answered it, my voice cracking on the first word. "Where is he?" I said. "Where's Marcus?"
+
+I turned to look at the escalators, and that's when I saw him — it was Marcus, standing motionless at the top of the dead escalator, one foot already shifting onto the first step. Something seemed off about this whole situation, about the escalator, and I knew I needed to grab him before he set foot on it. I closed the distance and grabbed his arm before his weight fully committed. He blinked like he was surfacing from underwater, and swore he didn't remember standing there at all.
+
+Relieved to finally have Marcus back by my side, but still unnerved by everything that had happened, together we set out to find Priya. We started moving hurriedly, but with caution, checking every gate and side corridor we passed, keeping our voices low.
+
+We found her, a few minutes later, at the end of a corridor that curved somewhere it shouldn't have. Marcus reached her first and pulled her into a hug. When he tried to let go, her arms didn't loosen — if anything, they tightened. There was something off with Priya, something about the way she kept saying how relieved she was, her voice catching and stuttering on the words. She started shaking, and by the time I understood something was actually really wrong, Marcus had stopped trying to pull away at all.
+
+I made it out alone. I don't know why I ran. I don't even remember deciding to — something about what happened to Priya, what happened to Marcus, in those final moments, just made the decision for me, before I actually had one. I remember the corridor behind me stretching longer than it should have, the same way it had right after I first lost him — like the building was giving me exactly enough room to get out, and not one step more.
+
+I don't know what Meridian Commons actually is. I don't know why the county hasn't torn it down yet, or whether anyone else who's gone in there came out the way I did. I don't know if whatever's running that PA system is still in there, waiting for the next slow afternoon somebody decides to go looking at a dead mall. All I know is I'm the only one who came back, and I still don't understand why.
+
+One piece of advice, if you're the kind of person who'd go exploring a place like this after reading my story: DON'T. I made it out this time — I don't know how — but I lost two of my closest friends in the process, and I'll have to live with that for the rest of my life.
+

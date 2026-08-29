@@ -199,3 +199,6 @@ But it wasn’t right.
 Maybe too loud.  
 I looked back to see if the cabin door still showed the same thing.  
 But the cabin was gone.
+
+———————-  
+[PART 2](https://www.reddit.com/r/nosleep/s/MbuaqhMZvZ)

@@ -1,0 +1,178 @@
+Content Warning: Animal abuse/violence
+
+I don’t like cats.  At least, that’s what I tell people. 
+
+Believe me, I know it’s controversial. Everyone online worships them as furry little messiahs. Just look at the sheer number of subreddits in their honor. And I get it. I put my dogs on a pedestal like every other doting pet owner. I understand the adoration, and I know why it ruffles feathers when the feeling isn't mutual.
+
+I can already hear the cat supremacists: What’s so great about dogs? 
+
+They’re smelly, loud, and leave your house a mess. They can be unpredictable in size and behavior, even capable of fatal harm. Cynophobia is one of the most common fears, so when someone admits they’re afraid of dogs, people usually understand. There are plenty of statistics on dog bites and attacks to back it up. 
+
+Cats, on the other hand, are cleaner, quieter, and lower maintenance. Safer.  
+I couldn’t disagree more. Everyone has their preferences, mine just happen to come with history. Some things you go through as a kid don’t ever really leave you, no matter how much time has passed. So before you write me off as a heartless monster, hear me out.
+
+I have ailurophobia. 
+
+It’s humiliating, being scared of a household pet I outweigh by a hundred pounds. I work at a dog shelter, and I’ve been laughed at for it more times than I care to count. Those who don’t laugh are usually looking for a debate or a way to convince me I’m wrong. Cats are supposed to be harmless. Cute. Cuddly. They’re loved by millions, the punchline in cartoons, and stars of countless viral videos. What could possibly be threatening about that?
+
+And worse than the shame are the inevitable follow-up questions: *Why? How did that happen?* I never know how to answer. I don’t want to revisit the past, and I definitely don’t want to try and explain myself. Even if I did, no one would believe me. They didn’t believe me then.   
+So instead I just say I don’t like them. 
+
+But then I started hearing it again. The caterwauling.
+
+I could be paranoid. I might be going insane. For all I know it’s a long overdue psychotic break. You don’t have to believe me, but I need someone to know. In case it’s not my imagination, and it’s happening again. 
+
+In case I’m in danger.
+
+It started last night when a long, ragged wail tore me from my sleep. For a second, I couldn't place it, my head still clouded with a nightmare of being hunted by something unseen. By the time I was fully awake, the dream had vanished, but the sound remained. It wasn't especially loud, but it was dissonant, a jagged edge against the city's ambient noise.
+
+Then it came again. 
+
+A guttural growl that crescendoed into a high-pitched shriek, like a baby crying through shredded vocal cords. My body went rigid, every muscle tightening as if I'd been plunged into ice water. It wasn’t the first time I’d heard it. Not here, not now. It was a little over a decade ago, on a different street in another city. Back then, the nights were alive with the same serrated noise, piercing through the thin walls of a house that never felt like home. I didn’t want to think about that place. 
+
+We only lived there for a few months when I was twelve, but I remember it with unsettling clarity. It was right after my parents’ contentious divorce, which left my mom penniless when my dad inevitably fell behind on alimony payments. Even with child support, her income from waiting tables was so low that we ended up in the projects. 
+
+I went from a modest cul-de-sac on the city’s edge to the kind of neighborhood I’d always been told to avoid. The friendly dog walkers had been replaced by meth-heads who shambled around like zombies. The chirping of crickets at night was drowned out by police sirens and the couple next door screaming at each other. Sometimes the sirens stopped at a house on my block. Most times, they just passed by.
+
+Our street was cratered by potholes and lined with bungalows in varying states of ruin. They’d once been respectable family homes, but time hadn’t been kind. Roofs shed shingles like scabs, porches sagged on rotting columns, and fences bowed under creeping vines. Many houses were boarded up and abandoned, marked with graffiti, fire damage, or bullet holes. The cracked sidewalks bordered unruly lawns strewn with empty cans and broken glass. Most windows were secured with iron bars and every door was stacked with locks. 
+
+When we moved in, my mom handed me a can of pepper spray and set a strict 6:00 p.m. curfew. She never liked guns and wouldn’t spend what little we had on one, so she put my baseball bat by the door instead. At our old house, I used to stay out as late as possible, playing soccer with the kids next door or hunting for frogs in the neighbor’s pond. After we got to the new place I didn’t want to be out in broad daylight for fear of aggressive panhandlers, let alone after dark.
+
+Among the many adjustments to this new neighborhood was the shift in wildlife. The bright song of goldfinches gave way to the throaty coo of pigeons. Where rabbits once grazed at twilight, bloated rats now skulked through alleyways. Butterflies and ladybugs were replaced by cockroaches that swarmed the sidewalks at night, as if the gum stains baked into the concrete had come to life. Even the squirrels seemed different. Unlike their suburban cousins who nervously darted across lawns, the city squirrels stood their ground. They were scrappier, more territorial, and willing to fight for every crumb. 
+
+Most notably, though, were the cats.
+
+In the suburbs, a few neighbors kept outdoor cats, but those all wore jingling collars, were well-groomed, and often friendly. Here, the cats belonged to no one. Their fur bristled in greasy spikes, riddled with sores from mange and teeming with fleas. Most of them regarded people with arched backs, hisses, or glaring disdain. They were completely feral, part of a sprawling colony sustained by generations of inbreeding.
+
+But at the time, they were the least of our concerns. 
+
+We couldn’t afford movers, and with no family nearby, it ended up being just me, my mom, and a line cook from the restaurant who kindly offered to help. I never met anyone from her side of the family, but as I’ve learned now that I’m older, she’d gone straight from one alcoholic abuser to another. By the time we were living in the motel, she was selling off most of what she’d managed to keep from the divorce—her grandmother’s heirloom necklace, her grandfather’s dictionaries, even her art supplies. All of it went toward paying for that seedy room. Getting us into subsidized housing took months, a drawn-out ordeal of endless phone tag, waiting lists, and stacks of paperwork.
+
+The house itself reflected the neighborhood’s decline. The ceiling was patchy with water damage and leaked every time it rained. Several windows were painted shut, and despite its exertions, the water heater barely managed five minutes of lukewarm showering. Most of the wiring was held together by electrical tape and every time you used an outlet you risked getting shocked. It was obvious a smoker had once lived there; the wallpaper was stained a sickly yellow and the stench of tobacco clung to the carpets and curtains. It could’ve been featured on the front page of Poverty Weekly.
+
+Once we set up the mismatched, shabby furniture she’d scavenged from yard sales and Goodwill, she threw herself into fixing whatever she could. She was constantly on the phone with the public housing agency, trying to figure out how to get laundry machines hooked up and ways to prevent the bathroom lights from flickering when we showered. Nothing ever got resolved. 
+
+We ended up having to schlep our dirty clothes to the laundromat a few streets away, and put a lamp in the bathroom to offset the flickering. We weren’t allowed to paint or nail anything to the walls, but Mom made do with taping up posters and prints from her collaging days. I had vague memories of her artistic ambitions from when I was little, before they were snuffed out by my dad. She tried so hard to make it home. I think she blamed herself for our situation, but I blamed my abusive piece-of-shit father. 
+
+It wasn’t until weeks later, after the dust had settled and Mom had given up on the housing agency’s help, that the cats became impossible to ignore. The first encounter I remember was on a walk home from the bus stop. The clink of cans in a trash bin barely registered as I passed an alley. I assumed it was just a rat, until a sudden prickle of unease told me I was being watched. I spun around, bracing for a gun-toting junkie, and instead met a pair of yellow-green eyes peering out from around the corner. They belonged to a huge street cat.
+
+He was covered in shaggy grey fur, with a broad muzzle and fat cheeks crisscrossed by scars. His ears were notched and torn, and his whiskers jutted outward like bent pipe cleaners. He sat perfectly still, except for the rhythmic flicks of his crooked tail. I knelt down and stretched out my hand, rubbing my fingers together in the universal cat beckoning gesture. 
+
+My only real exposure to cats had been a friend’s fat tabby, Buddha—an affectionate couch potato and a world apart from the scrappy street cat in front of me. I felt sorry for him. To me he was a victim, bred for domestication only to be abandoned in our unforgiving urban landscape. Despite his battered state, I could still make out the ghost of a housecat. I’d have to be heartless not to feel some sympathy.
+
+Just as he seemed ready to step forward, an abrasive voice thick with a Midwestern accent startled him back into the alley’s shadows.  
+“Hey! Kid!” 
+
+I jumped, instinctively reaching for the pepper spray in my pocket and glancing around in a panic. An old man leaned against the banister of the porch on the house beside me, waving a bottle in my direction. His limbs were so skinny he looked like a ball-jointed doll, with knobby knees and elbows protruding under leathery skin. A beer belly stretched out his wife-beater, the contrast between his fat torso and spindly legs giving him a strangely cartoonish appearance.
+
+“Stay the hell ‘way from them damn cats, y’hear me? Don’t be messin’ ‘round ‘em!” 
+
+For a moment, I was frozen in place, feeling like I’d committed some kind of felony. I forced myself to compose my nerves. I lived just across the street and didn’t want to piss off my new neighbor. Despite his obvious intoxication and my growing anxiety, I tried my best to smooth things over.
+
+“Sorry, sir. I—Is he yours?” I asked. I knew it was a stupid question, but I was caught off guard and just wanted to ease the tension. My clumsy attempt at offering an olive branch was met with a reaction like he’d set it on fire.
+
+“Hell *no*! Don’t belong t’nobody, none of ‘em do! You best stay ‘way, boy. Don’t touch ‘em, don’t even *look* at ‘em, ya got that?” 
+
+He jerked around like a marionette on tangled strings, flailing his arms as he rambled. Unsure of exactly what he meant, I gave a polite nod and began to back away. He didn’t register my discomfort and carried on,  
+“They ain’t right… nah… nah, there’s… somethin’ in those eyes. Don’t look at ‘em too long. Don’t let ‘em touch ya, not even a whisker. Not even close. Always watchin’. Always…”
+
+He continued muttering as I edged across the street toward my house. His sunken, toothless face pulled his mouth into a permanent pucker, like he’d been sucking on a lemon for decades. He was wall-eyed with milky cataracts, giving his gaze an unsettling lack of focus, but he watched me as I latched the chain-link gate closed. I fumbled for my keys, the thought gnawing at me that this unhinged drunk now knew where I lived.
+
+“Don’t feed them bastards—*not a scrap*. Don’t give ’em *nothin’*,” he called after me. 
+
+I hurriedly closed the door and bolted all the locks. When I summoned the courage to peek through the blinds, he had shifted his attention to the alley where the cat had been, and was shouting incoherently.
+
+I’d meant to tell my mom about the encounter, but she was working a late shift, and by the time she got home, I’d been glued to my Game Boy for so long that I’d completely forgotten. I eventually learned the old man was called Fridge, from a classmate who lived in the same projects. He earned his name by supposedly drinking a fridge's worth of beer every day, a habit matched only by his notorious tendency to piss on his porch. Suffice it to say, nobody took him seriously. 
+
+I wish I had.
+
+In the days that followed, I crossed paths with the street cat on a semi-regular basis. It was usually in the late afternoon on my way home from the bus stop, or just around nightfall when I took the trash out. He’d linger in alleyways or crouch in the underbrush, watching me in silence. I called him Splinter, after the rodent sensei from *Teenage Mutant Ninja Turtles*, because more often than not, he was joined by the same four companions I’d named after the Turtles. I remembered Fridge’s warning just enough to steer clear of them, but mostly to avoid setting him off than out of any real fear of the cats. 
+
+They usually kept their distance, but one evening when I was hauling the bin to the curb, I spotted all five gathered on our porch. I went closer to see them crowded around a can of tuna, eating voraciously. They didn’t so much as glance at me, shoving and clambering over one another in their race to lap up the shredded fish. I went back inside to ask Mom about it. She explained the diner had a box of tuna nearing its expiration, so she brought some home for the cats. It was a typical move for her, trying to mother anything she could. 
+
+Again, I didn’t bother mentioning Fridge’s advice. She seemed happy to be helping the cats, and I saw no reason to spoil it with some drunk old man’s ravings. 
+
+The next morning, as we stepped outside to get in the car, the cats were there. I’d never seen them around in the morning, but they sat scattered across the lawn, watching us expectantly. Mom guessed they were hungry and asked if I could put out a can when I got back, since I was always home before her. I agreed without much thought, and would have forgotten if they hadn’t still been in the yard when I returned. 
+
+All five pairs of eyes tracked me through slitted pupils as I unlocked the door. None of them moved, but they watched like vultures circling a carcass. I assumed this is what Fridge had been trying to articulate—that if I fed them, they’d keep coming back. Not unexpected, and not unwelcome if it gave Mom some peace.
+
+I went inside, dropped my backpack in my room, and grabbed a can of tuna from the kitchen cabinet. The moment I cracked it open, the briny odor made me grimace, and I held it at arm’s length as I walked back to the front door. The Turtles were there, neatly lined up on the front step, staring at me with the same collective focus. It was almost charming, like a little family at a drive-through. They flicked their tails in sync, blinking slowly as I lowered the can. The second it touched the concrete, their manners went out the window.
+
+They lunged forward in unison, making me jump back as they tangled into a knot of snapping jaws and lashing tails. A pinwheel of orange, black, and white, they clawed at one another with a desperate urgency. It was like a miniature nature documentary unfolding right on my porch. I stared for a second, fascinated by the primal frenzy of it all, before the instinct to go back inside took over. 
+
+I was heading to my room to do some homework when a commotion erupted outside. Deep barking and a chorus of yowls, followed by the sound of claws scraping across the concrete. I looked out the window to find the cats gone, replaced by a huge dog snuffling around the empty tuna can.
+
+I wasn't sure how he’d gotten into the yard, and I wasn't sure what to do with him. Feeding street cats was one thing, but a stray dog felt riskier—especially around here. Most of the dogs I’d seen in this neighborhood were chained up and prone to lunging, which made me wary. The dog must have heard the clatter of the blinds because he looked up, revealing a muzzle streaked with thin red scratches. The Turtles had clearly tried to defend their meal.
+
+I intended to leave him alone and hope he’d wander off, but the moment we made eye contact, I felt a sharp ache of pity. He looked like some kind of mastiff-pit bull cross, built for muscle but so gaunt you could play his ribs like a xylophone. Along with the fresh cuts on his face were old, faded scars, and his ears had been cropped into jagged stubs. He blinked at me, watery brown eyes peeking through wrinkles of sandy fur. 
+
+I cracked the door open, though I kept the security chain locked. The dog watched me, head lowered, his nubbin tail wagging slowly. The moment I stopped moving, he collapsed onto his belly and army-crawled toward me, his head held in a submissive bow. He paused at the doorway, chin resting on his paws and brow furrowed, giving me the most pathetic puppy-dog eyes. I reached out, and after a tentative sniff, he leaned his weight into my hand, nudging me for affection.
+
+I set out a bowl of water and a plate of chicken nuggets, sharing the meal with him on the porch. I was already rehearsing how I’d convince Mom to let me keep him.
+
+As expected, she resisted at first, especially given our financial situation. I don’t know if it was her soft heart, the guilt from my dad never letting me get a dog, or the way he rested his big blocky head in her lap, but she started to consider it. The next day we went to a low-cost pet clinic, got him up to date on his shots, and fitted him with a new collar and tag. I named him Krang after the Turtles’ nemesis. 
+
+I spent every evening in the yard training him with bits of hotdog, and he proved to be a fast learner. Within a few days he had mastered ‘sit’ and ‘down’, and by the end of the week he was responding diligently to his name. Moving out of district had forced me to change schools, and making friends hadn’t come easy, but for the first time I felt like I had one. 
+
+I was so focused on bonding with him that I forgot all about the cats, and for a while, I didn’t see them come around our house. 
+
+Once the novelty of having a dog wore off and life settled back into routine, Mom started leaving tuna out again—this time by the garbage cans, since Krang would go wild if he spotted cats on the porch. They reappeared almost immediately, skirting the edges of our property and only venturing close enough to eat, always wary of the dog. 
+
+It wasn’t just the Turtles anymore, three or four others had joined, all eager for a free meal. Otherwise silent, they transformed at feeding time into a cacophony of growling and wet, frantic chewing. Mom said it was only because they were hungry, and that they showed no signs of aggression otherwise. 
+
+At night, though, the colony came alive with sound. Territorial yowls and raucous mating calls echoed outside. I never saw them when I looked out the window, but I could hear every interaction, like a strange, foreign soap opera. It was unnerving at first, but I eventually learned to sleep through it, just as I did with the rest of the city noise. Mom didn’t seem to notice; she only listened for gunshots.
+
+I tried to desensitize Krang to the cats, but he always locked on, barking so loudly I couldn't hear myself call his name. I knew he wouldn’t hurt a fly—he was terrified of the garden hose, after all—and his barking wasn’t predatory. It was a quick, staccato warning, like he was trying to protect me. He never acted that way toward anything else, not even Fridge. 
+
+I remember one afternoon, while I was playing tug-of-war with him in the front yard, when Fridge hobbled onto his porch, cigarette in mouth and bottle in hand. I caught him squinting at me and called Krang over, not in the mood for another one of his crazed lectures. Then he yelled, ‘Hey!’—snapping Krang’s attention away from me and sending him bounding over to investigate. Fridge continued with his slurred speech as I went to get him,
+
+“I knows you been feedin’ ‘em, boy! That… that damn… *stupid* bitch your ma, she keeps givin’ ‘em tuna, I told ya, I told ya, somethin’ bad’s gonna happen… nah, nah, you gotta stop… if it ain’t too late… stupid… STUPID… dumb bitch… I told ya, I told ya!" 
+
+He flung the empty bottle into the street, where it burst into glittering brown shards. Krang flinched, ducking behind my legs. He was a good boy, but no guard dog. 
+
+  
+Mom, ever the empath, gave Fridge the benefit of the doubt, insisting he was just an unwell man and that addiction was a disease. But he was never outside when she got home, so she didn’t have to endure the verbal assault. To me, he was nothing but a nuisance, and I had little patience for anyone who disrespected my mother.
+
+“Keep that dog back! BACK! …don’t—don’t let ‘im near ‘em, boy… them things, they… they ain’t cats no more, y’hear? Nah… nah, keep ‘im close, real close… She feed ‘em again—I’ll KNOW! I’ll know it was that *bitch*! Don’t roll your eyes at me, DON’T—bad things comin’, real bad… worse than you can dream. Keep ‘im close! Or ELSE!” he said feverishly, his voice seesawing from a hoarse mumble to a violent shout. 
+
+I ignored him and locked the door behind me. When Mom got home, I told her about it, omitting the ‘bitch’ part to spare her feelings. Predictably, it threw her into a tizzy about keeping the peace with our neighbor, never mind that he was a schizo drunk berating a twelve-year-old. She said we were out of tuna anyway, so that would be the end of it, and if I saw him again, I should apologize on her behalf. 
+
+So we stopped feeding them, but the cats didn’t stop coming. Every few days there seemed to be one or two more, until taking out the trash became a tense ritual, as if I were moving through a theater of hungry spectators. The lineup changed constantly from tabbies to calicos to tortoiseshells, but Splinter and the Turtles were always among them. 
+
+They were scattered across the lawn like garden gnomes, crouched beneath cars, perched on the curb, even balanced on the fence. Come nightfall, stepping into my own yard felt like I was a gazelle entering a lion’s den. They didn’t do anything, though—just watched. 
+
+Even mom found it eerie, and said she’d call animal control if they caused trouble. She only hesitated because they’d most likely be trapped and euthanized. As much as they gave me the heebie-jeebies, I was an animal lover like her, and agreed they didn’t deserve to be put down. 
+
+It turned out they hadn’t needed our food after all. I didn’t notice it at first, but the neighborhood wildlife was vanishing. Vermin had always been the backdrop of the streets: rats stirring in trashcans and pigeons perched on telephone wires. Now, all that remained were their eviscerated carcasses.
+
+At first, there were only a few scattered remains, hardly worth noting. But day by day the bodies accumulated until there were too many to count. Even the street cleaners—who rarely bothered with this part of town—made no dent in the mounting corpses. What I could only assume were squirrels, rats, and birds lay reduced to bloody bones and entrails, baking on the pavement or strewn across patches of grass. 
+
+Walking Krang became increasingly unpleasant; he was drawn to every putrid heap of rot, eager to sniff each one. It made our shitty living situation feel even more squalid, but I put on a brave face for my mom. Whenever I complained, I could see the guilt in her eyes, even though I knew she was doing everything she could.
+
+It got to a point where it couldn’t be ignored. I was taking out the trash as usual, but the second I stepped into the backyard, a rancid stench hit me. It was caustic, searing my nostrils and bringing the sharp prickle of tears to my eyes. The sickly, sour sweetness was the same nauseating odor I’d grown used to, but magnified tenfold. The sun had just dipped below the horizon and the streetlights hadn’t yet flickered on, leaving the lawn in a murky twilight. I pressed a hand over my nose and edged forward, my stomach churning, until my eyes finally adjusted beyond the reach of the porch light.
+
+Dozens of disemboweled creatures littered the lawn, mangled beyond recognition. Tufts of fur and feathers, shredded organs, detached limbs, and tiny bones were strewn across the grass like a grotesque meadow of flowers. The garbage bag slipped from my hand, hitting the concrete with a wet thud.
+
+A rustle from the far end of the lawn drew my attention. Two almond-shaped eyes caught the porch light, glinting like lens flares through a veil of leaves. Then another pair appeared. And another. They flickered in and out of sight, vanishing with every blink and reappearing seconds later, slowly emerging from beneath a bush. I thought I recognized Raphael’s yellow eyes. Then Donatello’s green. Michelangelo’s amber. And finally, Leonardo’s blue, staring out from beneath a flap of raw skin. 
+
+It was all of them fused into a monstrous amalgam of gore-matted fur. Pairs of oozing eyes bulged across the face, some stretched and splitting like cells in mitosis. Their pelts had merged into a filthy, overlapping patchwork of tuxedo black, orange tabby stripes, and tortoiseshell brindle. The creature swayed on bouquets of limbs that strained under its unnatural weight, its head hanging lopsided and distorted to the length of four skulls, with mouths that split and rejoined into one gaping maw. The rest of the body was a collision of misplaced parts: hind legs dangled uselessly from the ribs, paws were crowded with vestigial toes, and a crown of ear cartilage sprouted from the heads. The branching architecture of its limbs spasmed, tails lashing like beached eels.
+
+Krang’s sudden barking tore through the quiet. 
+
+I spun toward the window, where he stood rigid, teeth bared and hackles bristling. The creature recoiled into the bush and slipped through a gap in the fence. I snapped out of my fear-induced trance and bolted for the door, but misstepped and tumbled down the back steps, skinning my knee. Scrambling upright, I shoved into the kitchen, blocking Krang with my leg as he snapped and snarled to get outside. I locked the door and sank to the floor. My chest was heaving, every breath shallow and ragged.
+
+Krang leapt back to the window, his furious barks tapering into keening whines. I don’t know how long I sat there, still shaken, trying to make sense of what I’d seen. It was a visceral fear, the kind I hadn't felt since I was a little kid. But this was no boogeyman. This was real, and it had left a massacre in my yard.
+
+Once the adrenaline had subsided, the pain in my knee hit full force. A dirty, splinter-studded scrape wept blood down my leg. I limped to the bathroom, scrubbed the wound with rubbing alcohol, plucked out the splinters, and wrapped it in a bandage. I went through the motions numbly, my mind unable to stop replaying what I’d seen. 
+
+I thought about calling animal control. I even flipped through the phone book for the number, but stopped myself. As the fear ebbed, I started reshaping the memory, bending it into something comprehensible. I kept telling myself it was just a diseased cat. 
+
+I’d read somewhere that the chupacabra was most likely a coyote with mange, and that’s what this had to be. Not some new urban cryptid, just a sick animal looking for food. I still knew animal control should be called, especially with the state of the lawn, but it was best to wait and let Mom handle it. I still got nervous just ordering pizza over the phone, and she would be taken more seriously anyway.
+
+I thought about calling her, but I didn’t want her to worry over what could have just been a deformed stray. Her schedule was already a mess of double shifts and extra hours; having to rush home would only make things worse. She’d likely insist it wasn’t a big deal, but I knew from her complaints how impossible it was to find coverage. Besides, I was safe inside.
+
+I had Krang.
+
+I'll have to leave it there for now. I'm writing this in between shifts and during my lunch breaks, but I hope the detail lends it some legitimacy. It's been so long since I've thought about any of this, and once I started, it all just poured out. I'll try to get to the next part as soon as I can.
+
+Before the caterwauling gets any louder.
