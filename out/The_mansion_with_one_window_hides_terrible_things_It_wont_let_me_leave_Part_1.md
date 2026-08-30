@@ -138,6 +138,8 @@ And somewhere above, miles above my burning body and my narcissistic worry and t
 
 Something noticed me.
 
+\- - - - - 
+
 The heat was suffocating.
 
 Not sure what I expected; it was Nevada in the summer, after all. Death Valley was a proverbial stone’s throw away. Moving this far south meant suffering through some oppressive heat was a guarantee, not a threat.
