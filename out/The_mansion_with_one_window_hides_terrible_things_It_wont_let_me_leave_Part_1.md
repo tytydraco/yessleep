@@ -138,7 +138,7 @@ And somewhere above, miles above my burning body and my narcissistic worry and t
 
 Something noticed me.
 
-\- - - - - 
+\- - - - -
 
 The heat was suffocating.
 
@@ -170,7 +170,7 @@ My bleary eyes drifted above the gas stations and tourist traps of Nye County, f
 
 At some point, I passed out, although it’s unclear to me when.
 
-You see, as far as I can recall, I stared at that spot in the sky for the remainder of the trip, patiently waiting to arrive at my newly purchased home-slash-studio, but that wasn’t actually the case, because, apparently, I’d curled up against the door and fallen asleep a minute after I swallowed the pills. Fallen asleep so deeply that, no matter how loudly the driver said my name, no matter how boisterously he informed me we’d reached the destination, I wouldn’t wake up. With his concern mounting, he resorted to swinging open the rear door My body spilled out. I tumbled to the earth absently, like a marionette with its strings cut, skull thudding as it hit the dirt. 
+You see, as far as I can recall, I stared at that spot in the sky for the remainder of the trip, patiently waiting to arrive at my newly purchased home-slash-studio, but that wasn’t actually the case, because, apparently, I’d curled up against the door and fallen asleep a minute after I swallowed the pills. Fallen asleep so deeply that, no matter how loudly the driver said my name, no matter how boisterously he informed me we’d reached the destination, I wouldn’t wake up. With his concern mounting, he resorted to swinging open the rear door. My body spilled out. I tumbled to the earth absently, like a marionette with its strings cut, skull thudding as it hit the dirt. 
 
 Now *that* woke me up.
 

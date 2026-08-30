@@ -1,0 +1,183 @@
+I remember a time before the urges started.
+
+A time when life felt simple when I didn’t question the things that came naturally to me.
+
+I’ve always been adventurous, though even that word feels too neat for it. There was a pull I couldn’t explain. Sometimes I’d find myself already halfway up something before I realized I’d decided to climb it. I didn’t feel scared. I didn’t feel rushed.
+
+I just felt like I was where I was supposed to be.
+
+My mother used to tell stories about me as a baby. How I’d crawl toward the edges of furniture. How I’d try to stand and lean forward, like I was testing the air. She said she was always pulling me back just in time.
+
+I don’t remember any of it.
+
+But I’ve never doubted her.
+
+My earliest memory comes from when I was around four. One of those memories that feels like the first—the moment when something in your head quietly switches on. When you become aware that you exist.
+
+Colors felt brighter. Sounds felt sharper. Like the world had suddenly been assigned meaning instead of just being noise.
+
+My parents were with me, close enough that I could feel the warmth of them on either side, as we sat on a Ferris wheel at a small carnival just outside town.
+
+The smell of cigarettes hung heavy in the air, sour and thick, mixing with the faint sweetness of fried dough still clinging to my tongue. My small hand was sticky with something I couldn’t identify, pressed against my side.
+
+There was a roof above us.
+
+A small guardrail around the platform.
+
+I remember noticing that.
+
+Floodlights bleached the field below in harsh white patches, making the temporary rides and booths look unfinished—wires and frames scattered like they’d been dropped there by mistake. The whole place already felt halfway gone.
+
+I looked past the carnival, toward the open land and town beyond it.
+
+Nothing between us but distance.
+
+The full moon hung low and bright, turning the darkness into something wide and endless, like an ocean lit from above. I stared at it, feeling something shift inside me.
+
+Not fear.
+
+Recognition.
+
+I looked down and noticed my small white Velcro shoes resting too close to the edge, wedged between the lip of the platform and the railing.
+
+I don’t remember climbing there.
+
+I only remember realizing that I already was.
+
+Before fear could find me, strong hands wrapped around my torso. My father lifted me back without a word. My mother cried out—sharp and sudden.
+
+For just a moment, both of them were looking at me.
+
+That was enough.
+
+Fear should have come next.
+
+It didn’t.
+
+It was replaced by something older.
+
+Something patient.
+
+Something that wanted to know what would happen if no one grabbed me.
+
+My second earliest memory is when my grandmother took me to the hospital to welcome my sister into the world.
+
+There are a few pictures from that day.
+
+I don’t remember holding my sister.
+
+I remember the view.
+
+A small town, seen through the hospital’s high windows, several stories above the ground.
+
+In the photos, you can see it clearly—my head turned toward the glass, away from my family.
+
+Like I was more interested in what waited beyond the window than in the people behind me.
+
+Instead of going away, the urges became stronger and more frequent.
+
+When I was about ten, my mother and her best friend, Jen, took me and Jen’s daughter, Meadow, to a state park known for its massive rock formations.
+
+It was a different time back then—no tablets, no smartphones, no social media, just kids disappearing into the woods for hours, climbing anything that looked climbable.
+
+Meadow was a year older than me, and we were best friends. She was a tomboy at heart, but she always wore bright-colored dresses her mother made for her, paired with a good pair of boots.
+
+We were always doing “boy things.” She hated dolls. Her mother was appalled when Meadow destroyed her dollhouse, kicking in the front door so we could raid the place with my G.I. Joes, searching for Cobra secret agents hiding inside.
+
+We were always getting into trouble.
+
+The park was filled with enormous boulders, some with broad, flat tops, scattered across the landscape in ways that seemed impossible. They had rested there for thousands of years, left behind by glaciers from a forgotten age. They felt less like rocks and more like ancient monuments, remnants of a world buried beneath ice long before anyone could remember. Standing among them, it was easy to believe they had witnessed things no one was ever meant to see.
+
+We spent the day pretending we were the last tribe defending our caves from invading cowboys. We searched for the perfect rocks and turned the landscape into our own little world.
+
+My mother packed an amazing picnic of peanut butter and fluff, and we ate it on top of the tallest boulder. One side had a gentle slope that led up to a flat top, but the other side dropped away nearly forty feet.
+
+I remember sitting there, looking out over everything below us. The view was incredible. The wind, the open space, the feeling of being above the world—it was the kind of moment a child never forgets.
+
+What I didn’t know then was that this would be the last time I would look at heights the same way.
+
+We were packing up to leave when Meadow decided she wasn’t ready for the adventure to end. She had a way of getting what she wanted.
+
+While my mother and Jen were loading everything into the car, Meadow asked if we could go collect rocks one last time.
+
+“We’ll only be two minutes,” she promised.
+
+Like any good tomboy, Meadow had a watch. Jen looked at her and said, “Okay, as long as it’s only two minutes.”
+
+Meadow started the timer, and we took off.
+
+We climbed up the largest rock we could find. It was tall enough that the rock blocked my mother’s view of us. She couldn’t see what we were doing.
+
+Meadow stopped at the edge and swung back around, grabbing my arm. She looked into my eyes, her deep blue eyes seeming to look straight into my soul.
+
+I heard her voice ask, “Johnny, do you trust me?”
+
+I voluntarily muttered, “Yes.”
+
+She then grabbed my other arm with a death grip.
+
+Then she leaned toward the edge.
+
+What happened next felt like something impossible.
+
+My heart skipped.
+
+Meadow went over first, still staring at me and holding onto my hand with a death grip, and I went second.
+
+It couldn’t have been more than a few seconds, but it felt like we had lived an entire lifetime in that moment. There was a rush of something I still can’t explain—something between fear and wonder.
+
+Then everything went black.
+
+The next thing I knew, we were back at the edge of the rock. Meadow still had my hand, and we were both standing there smiling.
+
+We ran hand in hand back to the car like nothing had happened.
+
+We dropped Meadow and her mother off at her parents’ house, which was only a few minutes’ walk from my house.
+
+Before she left, Meadow squeezed my hand and thanked my mother for taking us to the park.
+
+Then I heard her voice in my head.
+
+*Don’t tell anyone what happened today, okay?*
+
+I tried to say okay with my mind.
+
+It must have worked because her smile changed a little.
+
+I was lying in my small bed, the same one that still had Star Wars sheets on it. I kept thinking about sneaking out, walking to Meadow’s house, and throwing little rocks at her bedroom window until she came outside.
+
+I wanted to ask her how she knew that would work. I wanted to know if she felt the same way I did around edges.
+
+But more than anything, I wanted to know why it felt like I was meant to do that with her.
+
+It was like scratching an itch I’d had my whole life without ever realizing it was there.
+
+Then I heard her voice as clearly as if she were lying in the bed beside me.
+
+“Johnny… are you awake?”
+
+I was stunned.
+
+I thought the word *yes*, and then I heard Meadow giggle inside my head.
+
+I couldn’t help but laugh.
+
+“Meadow,” I thought, “how are you doing this?”
+
+“I don’t know,” she giggled back. “I’ve been having the same dream for the last few months. Us standing on that rock… over and over again.”
+
+I just lay there in my bed, completely shocked, trying to make sense of what was happening.
+
+After a long moment of silence, Meadow finally whispered,
+
+“Goodnight, Johnny.”
+
+That night, a boy two grades below me vanished from his own bed.
+
+No one saw him leave. No doors were opened. No windows were broken.
+
+His parents said he had been asleep when they went to bed.
+
+When they woke up, the blankets were still pulled back like someone had just climbed out.
+
+But their son was gone.

@@ -1,0 +1,147 @@
+I am a man of history, so don’t sing me false.  
+
+And I do love where I live.  They say if it rains long enough here, the blood of Revolutionary soldiers rises up from the muck.
+
+Whether there is salt to that, I cannot tell you, but these are the Yorktown Battlefields and it is where the final shots of that Great War were waged, so there is endless fruit for those of us historically inclined.
+
+Now, there are the stories you read about in the history books, and then there are the stories that just get passed around from one beatnik to one redneck to one wisenheimer and on it goes growing in lore.
+
+Those are the ones I normally shake sticks at and the Legend of the Bridge on Crawford road is a fine example.
+
+I still remember my Aunt Abernathy reciting it to me when I was…let’s just say too young to hear it.
+
+“That bridge run right along Clark Plantation, and that Mr. Clark was a man of gumption, but he was also flawed in moral candor.  Whenever someone disagreed with him, or disobeyed him or looked at him the least bit crooked…he’d find them in a moment of weakness, or get’em liquored up or what have you…and he’d string them by the neck from that bridge. Slaves, townsfolk, British soldiers all found a noose from Crawford Bridge…and now, if you drive down Crawford Road at night and you stop under that bridge that connects them damned plantation, you gonna get put right by the **souls that linger**…”
+
+….
+
+I filled up my Ford at the 7-Eleven last night when I saw them walk by…
+
+“Thank you for your service!” I shouted at a couple of re-enactors from Historic Yorktown.  It was around the time they normally get off and we were close by, so I put two and two together.
+
+One, who was an actual blonde beauty that I figured was probably a butter-churner or mid-wife of some sort, **stopped while the others continued on.**
+
+She walked over to me, still dirty from the days work, but again a real daisy if you do…
+
+BUT she just stared at me strangely for a moment.  
+
+I am not what one would call a ladies’ man, so I struggled to find words to break the silence.
+
+Suddenly she smiled…
+
+“Would you take me for a frolic in yer machine?”
+
+I blushed.  
+
+“Unless you’re fishy?” She continued.
+
+“Oh no…no…no ma’am. I ain’t been drinking’.  Happy to take you for a ride about if that’s what you’re after?”
+
+“Crackerjack”, she said through another smile that nearly knocked me down.
+
+Just like that we were in my truck and we were off.
+
+She was quiet for the first bit, as I nervously explained how much I love how her and her coworkers keep the history alive down in Historic Yorktown…
+
+UNTIL…
+
+“STOP!” She shouted.
+
+I slammed on the brakes, luckily on the back highway with very little to-do.
+
+She suddenly looked….I guess I would say glum.  She raised her hand and pointed.
+
+“Down there…”
+
+She pointed right to CRAWFORD ROAD.
+
+“There?  There ain’t nothing down…”
+
+She grabbed my arm and was suddenly filled with a joy…
+
+“DOWN THERE…”
+
+So I did.
+
+It’s about a mile from the start of that road to the bridge and I nervously started to yap again…this time about the V6 engine underneath my hood.  I’d say it was nerves — half being with this beauty, half a little uneasy being on this dark light-less road of lore…even if I believed it to be hooey.
+
+Then I saw it…
+
+Up ahead, just starting to come into sight was the bridge.  I think I raised my volume a little just from the unease of seeing it.
+
+“…AND THAT’S WHEN I REPLACED THE POWER STEERING BELT..” 
+
+I happened to glance at the her…
+
+A tear rolled down her face.
+
+“Don’t linger…”
+
+“What…”, I said….
+
+WHEN….
+
+My car shut off.
+
+It coasted to a stop, directly underneath the bridge…Pitch dark, my vehicle lifeless.  
+
+The moon cast the smallest of lights through the trees.  I could just see her silhouette, her heaving chest and the breath coming out of her mouth.
+
+“He said don’t linger…”
+
+I could tell now she was crying…
+
+“What..who?  We’re fine…seemed to have shorted switch of something here…maybe I’ll just go pop the hood…”
+
+“He cut my face up the first time I didn’t give him a boy…” She now properly sobbed.
+
+I kept trying to find some reason, but I was properly terrified, “Ma’am…I…”
+
+“He said one more chance, or he’d hang me from the bridge…”
+
+WHEN…
+
+**The horrific sound of a man screaming ripped through the dark.**
+
+“I named her Bonnie…and he drowned her in the well the moment he saw her…”
+
+I spun, I looked all around in a panic from the screaming and from what she was spouting…I kept trying to turn the truck back on even though it was clearly all for naught.
+
+She GRABBED my arm.
+
+“HELP ME! HIDE ME! MR. CLARK WILL HANG ME TILL I’M GONE!”
+
+Her face leaned into mine and it was finally lit by the moonlight.
+
+**Blood poured from the slashes all across her face.**
+
+**Mr. Clark’s voice still echoing through the night.**
+
+**I burst from my truck...**
+
+**THEN LOOKED AT THE BRIDGE…**
+
+**Bodies swayed from ropes…Thirty, maybe forty, all hung from the neck.** 
+
+There were men in military uniforms, slaves in slashed clothing and women…
+
+Whatever one might call a blood curdling holler, that is what I let loose as I tore through the woods as fast as my feet could carry me. 
+
+I ran…and ran…and ran and just as it seemed there was nothing else I could hear, but my breath…I realized the sun was coming up.
+
+I came to a stop and looked all around.  A few birds chirped and I heard the sound of cars, which I followed to a highway.
+
+A friendly man picked me up and took me to the police station.
+
+I guarantee you that Officer Dickey and his blowhard partner are still spitting out their beers, laughing about me and what I told them happened.
+
+It didn’t help that when we went back out to my truck there was no sign of anything except a deserted vehicle and dead possum on the road.
+
+Would you believe it, that truck started right up.
+
+I went straight to Historic Yorktown to find out they’ve been closed for the week, which did not help out my predicament. 
+
+I am a man of history…
+
+…
+
+…but I will tell everyone who will listen — I beg of you, please do not linger under the Bridge on Crawford Road.
