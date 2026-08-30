@@ -1,0 +1,121 @@
+I’m not sure how much time I have. Our hospital computers don’t really let us get on “off limits” websites but I don’t know what’s happening and I need someone to know.
+
+I’m a nurse. I work at a hospital on the critical care floor. If you know anything about the medical field, critical care patients are some of the most important. They really cannot do anything without us and need constant care. I love my patients, I love what I do. But tonight… something happened. 
+
+I was at the nurses station with my coworker Liz. We had 3 new admissions and it was only us on staff for the night. It was about 2AM. We are both charting in silence. But that’s when I heard it. Something outside sounded like it exploded. I nearly jumped out of my skin. Liz and I stared at each other, faces white as sheets of paper. 
+
+“What was that!?” Liz whispered. 
+
+“I don’t know. I don’t hear any monitors going off.” I said, checking the telemetry screen. 
+
+Just as we both stood up to check the 4 huge windows that look out to the town in front of the hospital every single alarm in the hospital exploded. 
+
+It sounded like the entire hospital was a symphony of beeps, screams, and sirens. 
+
+Liz and I shoved our hands over our ears trying to cut the sound. I staggered back to the desk and tried to grab the phone but that’s when everything went black. 
+
+The lights were out. 
+
+Panic covered me, We have patients who rely on these machines and now, we have no power. 
+
+Liz and I began running down the hallway. It’s a smaller hospital so we had 6 patients in total. 3 for me, 3 for Liz. We frantically ran into the rooms and both of us were in shock. 
+
+Every machine was running, perfectly. It seemed like Liz and I were the only ones hearing these alarms and staggering around in the dark. 
+
+I ran to the hallway in fear. 
+
+“Liz!? Where are you?!” I screamed
+
+I heard Liz feeling down the hallway trying to get to me. 
+
+“Jules, something is wrong.” She said as she reached me and grabbed my hand. 
+
+“We have to get to the phone.” I screamed, trying to cut my voice over the alarms going off. 
+
+I felt my way to the nurses station and grabbed my cell phone. 
+
+I dialed 911 and there was no connection. Not that the phone was down, it was something else. The phone wouldn’t allow me to dial 911. 
+
+Something did not want us getting help. 
+
+That’s when we heard the “ding” of the elevator. We both looked at each other through the darkness. Something was coming up from the morgue. 
+
+It’s midnight, our doctor in the morgue does not work nights. 
+
+Whatever was in that elevator was banging on the walls. Our floor started to shake. 
+
+Liz started to cry. I couldn’t move. I kept my eyes locked on what I saw outside. 
+
+The city was covered in smoke. Every building was in flames. 
+
+There were no trees any more. No grass. Just ash. 
+
+The elevator reached our floor and the doors opened.
+
+Bracing myself for whatever would come. I closed my eyes. But nothing happened. Nothing left the elevator. 
+
+The walls and the door were covered in blood. And you could just see fist prints in the metal. something was in there. I know what I heard. 
+
+My ears started ringing. I was sure I was about to pass out. I couldn’t make sense of what was happening. Why was the world on fire. Why were all the alarms going off but no one was leaving the hospital. It was like this was only happening on our floor. And what was protecting the machines? 
+
+“Jules”
+
+“Jules”
+
+I could faintly hear someone calling my name. 
+
+I couldn’t speak. I couldn’t move. 
+
+“Julie!”
+
+“Julie!” 
+
+Something started shaking me back and forth. I glanced back at the windows just as an exposure erupted in the parking garage. 
+
+“Julie James!” 
+
+My eyes snapped open. 
+
+It’s not possible. 
+
+I was at the nurses station. Lights on. Elevator normal. Liz calm beside me with her eyes wide, staring at me. 
+
+How long had I been out? Did I pass out? Why is everything normal? Why isn’t Liz more panicked?
+
+“Liz. We have to call 911. if the phones are back on we can reach them.” i said frantically. 
+
+She looked at me like I had 5 heads.
+
+“Jules. Nothing was wrong. You passed out.” She said reaching to hold my hand. 
+
+“You have been out for 2 hours.” 
+
+2 HOURS!? What happened to me? How was I out for that long without waking up? What was that dream? What the hell is wrong with this place?
+
+“Liz. The power was out. There were so many alarms. There were fires and explosions. Something was in the elevator.” 
+
+She looked at me with care in her eyes, “it was a dream, Julie. It had to be. Nothing has happened, other than you passing out.” 
+
+I stood to my feet. That similar ringing back in my eyes now. Maybe it was a dream. Maybe I just fell asleep? I don’t usually fall asleep at work. But maybe? I hadn’t had dinner that day. 
+
+I looked at the clock and it was 4AM. I had been out for 2 hours. Whatever, I think I need to get something to eat. Maybe a cup of coffee to finish my shift, get home, and rest. 
+
+“Liz, I’m so sorry. I think my blood sugar must have dropped.”
+
+“Take a break. The patients are asleep. the next checks aren’t for another 45 minutes.” 
+
+I staggered over to the elevator. checking outside the window the entire time i waited for it to reach our floor. 
+
+That’s when I noticed, it was coming from the morgue. 
+
+“It was a dream. Relax.” I told myself. 
+
+The elevator door opened. I stepped inside. I pressed the “L” button to get to the lobby so I could make my way to the employee lounge. 
+
+As the doors closed, my throat went dry. 
+
+There were fist indentions. 
+
+Blood covered the door. 
+
+The last thing I remember hearing was the “ding” of the elevator, before it all went black again.
