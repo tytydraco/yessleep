@@ -1,0 +1,44 @@
+It was almost two in the morning, and the only light in my second-floor bedroom came from the glowing screen of my phone. The room was pitch-black otherwise, sealed off from the quiet suburbs outside by thick, drawn curtains. I was lying on my back, scrolling aimlessly, my face bathed in that faint, blueish aura we all get trapped in right before sleep.  
+Then I heard the sound.
+
+It wasn't a thump or a scrape. It was a precise, rhythmic tapping against the glass of my window.
+
+*Tipp. Tipp. Tipp.*
+
+I froze, the phone still hovering inches above my face. My initial thought was a night moth or maybe an overhanging branch from the oak tree in the front yard. But my window was on the second floor, a good fifteen feet above the ground. And the oak tree had been cut down three weeks ago.  
+The tapping stopped.
+
+I held my breath, waiting in the silence. The house was dead quiet, save for the hum of the refrigerator downstairs. I slowly rolled off the bed, keeping the phone screen pressed against my chest so the light wouldn't spill into the room.
+
+I crept toward the window, the cold wooden floorboards silent beneath my bare feet. Reaching out, I pulled the corner of the heavy curtain back just an inch to peer into the dark yard below.  
+At first, I saw nothing. Just the empty driveway, the dim streetlamp down the road, and the shadowy outlines of the neighbor's hedge.
+
+Then the light from the streetlamp caught a motion.  
+Two impossibly long, bone-white limbs were planted in the middle of my front lawn. They were as thin as telegraph poles, verknöchert and segmented like the legs of a praying mantis, but stretching straight up past the first floor. They didn't have knees that bent forward; the joints were inverted, angling backward in sharp, unnatural V-shapes.
+
+My breath hitched. My eyes tracked the poles upward, following the towering wooden-like limbs as they reached the level of my second-story window.  
+Sitting atop those two meter-long stilts was a heavy, thorax-like torso. It had no face. No eyes, no nose, no mouth. Just a pale, chitinous plate that vibrated with a sickening, sub-audible hum.
+
+It was hovering right outside my glass.  
+I shrank back behind the curtain, my heart hammering against my ribs like a trapped bird. My hands were shaking violently, and in my panic, my thumb slipped across the phone screen.  
+The display flared to maximum brightness.  
+Outside, the vibrating hum stopped instantly.  
+Through the tiny gap in the curtain, I watched the creature react. It didn't move like a human. It moved in horrific, sudden bursts of jerky acceleration—like a spider on a fast-forward tape. One of its long, needle-thin legs lifted from the grass with a wet *thwack*, re-anchoring itself right against the brickwork of the house.
+
+The pale, faceless head swung toward my window.  
+It wasn't hunting for heat, and it wasn't hunting for sound. It was drawn to the blue light of the screen.  
+The flat, chitinous plate pressed directly against the glass. The force of it made the windowpane flex inward with a terrifying, high-pitched groan. I saw dozens of tiny, hair-like cilia squirming along the edge of its head, frantically absorbing the light spilling through the gap in my curtains.
+
+*Tipp. Tipp. Tipp-tipp-tipp.*
+
+The tapping wasn't a signal. It was the creature's sharp, needle-like mandibles scraping against the double-paned glass, testing its strength. A thin hairline crack spiderwebbed across the center of the window.
+
+Panicking, I shoved the phone under my mattress, plunging the room into absolute, pitch-black darkness.
+
+The silence that followed was suffocating.  
+I crouched on the floor, pressing my hands over my mouth to muffle my ragged breathing. Outside, I could hear the heavy, mechanical creaking of those towering stilts adjusting their weight on the lawn below. The creature was searching. It was waiting for the blue glow to return.
+
+Slowly, the crackling pressure on the glass eased. The long, segmented limbs shifted, taking slow, deliberate steps backward into the darkness of the yard, their tips piercing deep into the damp earth with a soft *squelch*.
+
+I stayed frozen on the floor for what felt like hours, staring blindly into the dark room.  
+I haven't picked up my phone since. I won't turn on the TV. I won't even flip the light switch. Because as I sit here in the dark writing this by hand on a notepad, I can hear it moving down the street—its meter-long legs clicking softly against the asphalt, searching for the next glowing window.

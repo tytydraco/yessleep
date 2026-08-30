@@ -1,0 +1,70 @@
+I got into this business about three years ago, almost by accident. I sell real estate, but a specific kind of real estate, the kind where the seller tells you the house is haunted and wants out fast. I had a client early on, an older woman selling her late husband's place, who wouldn't stop telling everyone the house was haunted, lights flickering, cold spots, all of it. Most agents would've told her to keep quiet about that because it kills a listing. I did the opposite. I leaned into it. 
+
+Turns out there's a real market for that, people who want a haunted house, whether they actually believe in it or just want a good story to tell at parties. That house sold in eleven days, twenty thousand over asking, and I basically built my whole business around it after that.
+
+Here's the thing though, it’s all fake. You can call me an asshole or a scam artist or whatever you want. It’s not as if I don’t check the houses before selling them. I have a process.
+
+Before it ever goes on the market, every house gets a real investigation. Actual team, real equipment, EMF meters, thermal cameras, audio recorders, two nights minimum, sometimes more if the seller pays for the "premium" package, which honestly is mostly just extra cameras and a longer PDF at the end. And in three years, across forty-two houses, they have never once found anything. Not a single piece of real evidence. Every cold spot turns out to be a bad window. Every weird noise on the recorder turns out to be a pipe or a fridge compressor kicking on. I've read a couple hundred pages of investigator notes at this point and the most exciting thing anyone ever flagged was a drafty window that made a recorder pick up something that sounded, if you really tried to hear it, kind of like a whisper.
+
+I still market every one of them as haunted anyway. Not proud of that part, but it's the job. People aren't paying for evidence, they're paying for the story, and I'm good at telling it. I've got the language down at this point, "reported history of unexplained phenomena," "previous residents describe a persistent presence," phrases that are technically just repeating what the seller told me and not anything my team actually found. Nobody ever asks to see the investigation report, and if they do they blame it on the day or time. 
+
+They want the goosebumps, something to talk about at the closing dinner. I’ve sold houses this way to true believers, to skeptics who just thought it'd be a funny story, to one guy who runs a ghost hunting channel with like four thousand subscribers who wanted "content." Every single one of them moved into a house that, as far as any equipment on earth has ever proven, is about as haunted as a Chili's.
+
+So I want that on the record. I am, professionally, about the least superstitious person you'll ever meet. I've been alone in more "haunted" houses at night than almost anyone I have ever met and none of them have ever done a single thing to me. Until three weeks ago.
+
+The house this time belonged to a family who'd already moved out before I even got the listing, which almost never happens. Usually people white-knuckle it until closing. The wife told me on the phone that she was not setting foot back in that house, that whatever had been going on the last few months had gotten to be "too much," and that I could handle the rest of it without her. She wouldn't say what "too much" meant and I didn't push, I never push, people who've actually scared themselves don't usually want to talk about it more than they have to.
+
+I sent my team in like always. Two nights, full equipment. Nothing, same as every other time. Wrote up the listing with my usual language, "previous owners reported persistent activity in the primary bedroom and basement," which isn't technically a lie, it's just not the whole picture either.
+
+The seller had left a folder behind in a kitchen drawer, home repair records and warranty paperwork, boring shit that buyers ask about anyway, roof age, HVAC service dates. She had zero interest in coming back for it so it fell on me. I had a showing the next morning, figured I'd swing by after dinner, grab it, lock up, fifteen minutes tops.
+
+I was not scared going into that house. I want to be clear about that. I've done this so many times. It's Tuesday to me. Let myself in with the lockbox code, used my phone flashlight since the power was already off, went straight back to the kitchen. Had that empty house scent, not bad exactly, just still, carpet and dust and nobody breathing the air in a couple weeks.
+
+They'd left a fair amount of furniture, actually, couch, dining table, some prints still hanging on the walls. Gave it that half-lived-in feeling, like they didn’t even care to finish moving everything out. I didn't think anything of it. People leave stuff behind all the time for boring reasons that have nothing to do with ghosts.
+
+The folder wasn't where she said it'd be. Took me a few minutes going through cabinets before I found it shoved behind some old takeout menus in a different drawer. Grabbed it, started walking back toward the front.
+
+And that's when I noticed the basement door was open.
+
+I've replayed this part a lot since. Every door in that house was closed when I walked in, I know that for a fact, because I close doors behind me in houses out of habit, even ones that aren't mine, even when nobody's ever going to know or care. I remember walking past the basement door on the way to the kitchen. It was shut.
+
+On the way out it was open, maybe eight inches, dark down the stairwell. Not thrown open dramatically or anything, just open.
+
+Old houses settle, latches don't always catch, I know this, I've said some version of that sentence to clients probably thirty times over the years while pointing at a slightly cracked window causing a draft in the home. So I looked at it, thought "huh, weird," and closed it again on my way past. Genuinely didn't think much of it. Locked up, drove home, dropped the folder on my desk, forgot about it. 
+
+Had a showing the next morning that went fine, the couple specifically asked about the basement. When giving them a tour they actually said it was their favorite room. The young husband wanted to put his gaming setup down there, turn it into a real mancave.
+
+Three or four days after that showing I got home and found my hallway closet door standing open, the one that's usually shut because my cat likes getting in there and destroying the coats. I could've sworn I closed it that morning. Said something out loud to the cat like "did you do this," which, obviously, he did not answer. Didn't think much of it.
+
+A couple days after that a picture frame in my living room was crooked. Nothing important, just a photo from a trip a few years back. It hadn’t fallen and it wasn’t broken. It was just tilted like someone bumped it, except nobody had been in my house but me. I straightened it and went about my night.
+
+Around that same time there was other stuff too, small enough I couldn't even really call it anything on its own. A kitchen chair not pushed in the way I was sure I'd left it. A bathroom light on when I got home that I always, always turn off, same habit as the doors. A throw blanket on the couch folded a different way than I fold it, which I only even noticed because I'm apparently the kind of person who folds a blanket a very specific way apparently.  None of it dramatic.
+
+I want to say I noticed a pattern here but honestly I didn't, and that's the embarrassing part. I've spent three years training myself to explain this exact category of stuff away and apparently that training works just as well on me as it does on my clients. A door left open, picture frame knocked crooked, a light left on, that's not a haunting, that's just little quirks that happen; could be a draft or you just thought you did something you didn’t actually do. I've said as much to sellers a hundred times, usually right before handing them a report saying the same thing in a much nicer language.
+
+The sound stuff is what actually got me paying attention.
+
+Started with footsteps. Not every night, maybe every other one, always after I'd already gone to bed. Slow, even steps, coming from directly above my bedroom, which is a problem because I live in a single story house. There is nothing above my bedroom except the roof.
+
+First time it happened I told myself it was the house settling, temperature stuff, whatever. The second time I actually got up, checked the attic access with a flashlight, found nothing, went back to bed feeling like an idiot. By the fourth or fifth time I'd stopped checking, because checking never found anything, and some dumb, hopeful part of me figured if I didn't look into it, it'd just be the kind of noise every older house makes, the same thing I've built a career telling people to ignore.
+
+I actually caught myself one night lying there listening to it pace back and forth over my ceiling, running through my own sales pitch in my head, settling, pipes, temperature differential, all the stuff I say to talk clients down. Didn't make me feel better. Just made me realize how much of my life I've spent handing people an explanation I never had to actually believe myself.
+
+Other sounds too, smaller, easier to shrug off one at a time but harder once they started stacking up. One knock on the wall by my bed, same spot, almost the same time two nights in a row. My kitchen faucet running for a couple seconds while I was sitting right there in the living room, and it was already off by the time I got up to check. Something from the hallway that could've been a voice, could've been nothing, one syllable, gone before I could be sure I'd even heard it. My cat started sleeping pressed up against my legs instead of at the foot of the bed like normal, which I didn't think much of at the time, but looking back on it now I think he probably knew something before I ever did.
+
+Then about a week ago I woke up to my name.
+
+Not yelled or anything. Quiet and close, like someone leaning right over the bed and saying it next to my ear. I sat up, heart going, house dead silent, cat staring at me from the foot of the bed. I told myself I must have dreamed it.
+
+Two nights ago is why I'm writing this at midnight instead of sleeping.
+
+I was in the kitchen, hadn't even gone to bed yet, just doing the normal end of night stuff, dishes, a little light cleaning, starting checking my phone. Every cabinet door in my kitchen opened at once. Not one at a time working down the row, all of them, at the same time, hard enough that a glass sitting near the edge of a shelf rocked forward and smashed on the floor.
+
+No footsteps first, no warning, nothing. I was standing maybe six feet away and watched it happen in real time and I don't have an explanation for it, not one that doesn't sound insane coming out of my mouth. I've got my own equipment sitting on the kitchen counter right now, same stuff the teams I have hired use. Haven't turned it on. Keep telling myself I will tomorrow.
+
+Here's what's actually keeping me up more than the explosion of kitchen cabinets, more than the footsteps, even more than something whispering my name directly above my bed. In the last three years  my team has never once found real evidence of anything. I built an entire business, kind of my whole identity honestly, around the idea that none of this is real, that it's just marketing, that people want a story and I'm the guy who tells it well. Never once had to actually consider that one of those houses might've been the real thing, because none of them ever gave me a reason to.
+
+Except I keep thinking about that basement door. Out of every house I've ever walked through alone at night, completely unafraid, that was the one where something followed me home.
+
+I don't really know what I'm looking for by posting this. Not looking for anyone to tell me it's nothing, I've spent three years being the guy who tells people that, and I don't believe myself anymore. Guess I just needed it written down somewhere that isn't my own head.
+
