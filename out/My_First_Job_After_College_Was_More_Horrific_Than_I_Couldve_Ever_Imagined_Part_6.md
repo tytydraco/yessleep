@@ -68,7 +68,7 @@ I climbed atop the table, and as loud as I could, yelled, “Birthday party in t
 
 I was ignored completely, people not even glancing up at me apart from a few curious onlookers.
 
-“That’s right! Kingsley decided to come down and celebrate his birthday with little old us!” Everyone stopped dead in their tracks, as if a director had yelled cut. A murmur waved through them. 
+“That’s right! Kingsley decided to come down and celebrate his birthday with little old us!” Everyone stopped, as if a director had yelled cut. A murmur waved through them. 
 
 “Isn’t that the executive?” a man said to his friend.
 
@@ -221,3 +221,5 @@ I rushed to the door, still cracked open, and on it there was a message: 
 *Warning* *Please Keep The Door Closed at All Times. Changes in Temperature Will Agitate Specimens.*
 
 My jaw just about dropped to the floor. Why would they put that on the inside, where you could easily miss it! Another crash. I slowly turned. The grown man was on the floor, picking himself up. He was burly and muscular, had four arms and three dangling penises. Atop his neck, he was affixing the fetus, his own head on the ground. It stared at me with black, beady eyes, and let out a gurgled cry. Its throat must have melded with the man's, as it had a deep roughness, yet a baby's pitch. *I had really done it now, hadn’t I?*
+
+[Part 7](https://www.reddit.com/r/nosleep/s/IMEKiMBXcq)

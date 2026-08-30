@@ -138,7 +138,7 @@ That I needed help was indisputable. I looked towards Emma, still sat at the des
 
 “Patty?” I asked.
 
-“What … who?” She startled,  stopped dead in her tracks, saw me and her eyes widened. 
+“What … who?” She startled, saw me and her eyes widened. 
 
 “Do you know where the *Archive and Files* room is?”
 
@@ -332,7 +332,7 @@ He hobbled away, his breath raspy from getting worked up. I looked at Patty, who
 
 “This heat is totally messing with my *je-ne-sais-quoi*,” I proclaimed to ease the tension.
 
-Patty stopped dead in her tracks. 
+Patty stopped in her tracks.
 
 “All sweaty and gross, we gotta find this place,” I said.
 

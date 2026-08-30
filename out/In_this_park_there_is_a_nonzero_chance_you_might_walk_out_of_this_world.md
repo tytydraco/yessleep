@@ -28,7 +28,7 @@ It was a popular spot. An easy to reach path that circled a hillside clearing be
 
 I was paired with this older twenty-something-year-old girl I’m going to call Sara. She was way more excited about being here on a morning summer day collecting cigarette buds and chewed up gums than I was. She was the kind of person that could keep up a whole conversation on her own. In the couple of hours I knew her, I learned a whole lot about her grandparent’s lovely home here in the countryside and her passion for riding on horseback. She loved her first year in college but she often felt homesick and hoped to catch up with her high school buddies over the summer.
 
-What I gathered from all of that is that she was a shallow rich girl who liked to talk to herself. To be fair, I was the kind of seventeen years old who took himself way too seriously. Which is a gracious way to say I was a jerk. Thinking back, I’m sure Sara was nice enough, if not a bit too extroverted.
+What I gathered from all of that is that she was a shallow rich girl who liked to talk to herself. To be fair, I was the kind of seventeen-year-old who took himself way too seriously. Which is a gracious way to say I was a jerk. Thinking back, I’m sure Sara was nice enough, if not a bit too extroverted.
 
 At some point I started to tune her out, which came back to bite me in the ass when I realized she was asking *me* a question now.
 
@@ -128,7 +128,7 @@ But it wasn’t there anymore. All that was left in the place it was parked, hal
 
 Looking at it, I squinted at something. It was in the rear view mirror, hardly visible due to the white light. I could vaguely see the camera. What caught my attention were the fingers holding it. So many fingers. Long and curled around it like the legs of a spider. Some of them bent in the air and crowned the camera like the petals of a flower.
 
-Despite my obsession. My drive to all the creepy things going on in these woods, I couldn’t stomach keeping the picture with me for even a moment. I crumbled it and threw it as far as I could. Trash for somebody else to gather.
+Despite my obsession. My drive to all the creepy things going on in these woods, I couldn’t stomach keeping the picture with me for even a moment. I crumpled it and threw it as far as I could. Trash for somebody else to gather.
 
 Well, this wraps it up I think. The sun is rising right now here, that is my cue to get to bed. Oh, I did not mention it. My name's Alex. 
 
