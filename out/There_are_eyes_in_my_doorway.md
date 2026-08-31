@@ -1,0 +1,60 @@
+Everybody has their own fears deep inside them. One of mine is people in doorways.
+
+Well, not just that, of course. More like people blocking doorways, barricading me in by cutting off the only route of escape. So you can imagine my panic when I awoke that night to a man in my doorway.
+
+It had been a rough day. Work was absolutely horrible, and though it always is, that day was especially bad. I was exhausted and very much looking forward to a hot shower and the sweet embrace of sleep. However, as I drifted off, I couldn’t seem to shake an uneasy feeling, like the feeling you get when there is another presence near you. One that doesn’t belong. Despite my body’s clear feeling of distress, I somehow managed to fall asleep.
+
+I awoke three hours later to that very same feeling, only this time amplified. Danger was near. All my senses were telling me so. My eyes darted around my room for a sign, any kind of signal that would suggest something wasn’t right. My eyes eventually landed on my doorway.
+
+As my sight adjusted to the darkness, I began to notice something. A silhouette…...
+
+I said before it was a man, but this was no human. It seemed to be formless. But no, I could clearly make out its shape. Or could I? My mind raced back and forth with these questions until I noticed them.
+
+The eyes.
+
+The eyes staring directly into my own.
+
+I froze, trying to convince myself this wasn’t real. Just a bad dream. But it wasn’t. It was real. There were eyes, eyes in my doorway.
+
+My heart began to pound out of my chest, my lungs soon followed, heaving air in and out at a speed I had never experienced before. I would have tried to calm myself down if it was just a silhouette, but no, there were eyes. Staring at me. It was aware of me, of my presence, of my sentience, and worst of all, it knew I saw it too.
+
+I stayed there staring back for hours, or days, or weeks. I’m not sure. It’s as if staring into those eyes made me lose all sense of time.
+
+Finally, my mind began to catch up to my body, my primal instincts emerging from the depths of my soul.
+
+Survival.
+
+I jumped from my bed, lunging for the baseball bat I kept in the corner of my room. I turned back to the eyes. They had not moved. Still they sat there, just observing. They almost looked… curious.
+
+I sprinted to the doorway, swung the bat to hit them, and they were gone.
+
+I didn’t sleep again that night. I didn’t even move from in front of the doorway until 4 p.m. Any ounce of sleepiness or fatigue I had from the previous day was now gone, replaced by this new, raw fear. It felt kind of good, if I’m being honest. A feeling like adrenaline, like I could protect myself if I had to.  
+But I knew I couldn’t.
+
+That’s why I had to leave.
+
+I stayed at my mother’s for a few days. It wasn’t great. I found myself remembering very quickly all the reasons I moved out in the first place. But it was at least company, which was all I needed.
+
+I had the police check my house for some peace of mind. To my surprise, they found absolutely nothing. No signs of entry, not even any footprints. Almost as if it had just appeared in my doorway.
+
+After the police search, I finally gained the courage to go back home. The first night was hard, but it went by fairly normally. So did the second, and the third. After the fourth night, I began to question if the eyes were even there. Of course they were. I saw them. But I was better off not believing it, and so I didn’t.
+
+As I lay in my bed the fifth night, I told myself that everything was going to be alright. They weren’t real. No matter how much I thought they were, it was my imagination. Finally, I began to drift off.
+
+I woke up at 2 a.m.
+
+The first thing I noticed was the fear.
+
+The second was the eyes.
+
+I began to cry, hard, harder than I had in a long time.  
+“WHY?” I cried. “WHAT DO YOU WANT?”  
+The eyes didn’t answer my questions. Then I saw it, something I hadn’t noticed before, because it wasn’t there.  
+A mouth. Right below the eyes. 
+
+As my confusion grew, the mouth opened, and it began to sing.
+
+It was a melody unlike anything I’d ever heard. Peaceful, beautiful, secure. My tears dried, my heart stopped pounding, my lungs sank back into my chest. I fell asleep sounder than I ever had in my life.
+
+The eyes have not left my doorway since, but I do not fret.  
+For they sing me to sleep every night.

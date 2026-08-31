@@ -1,0 +1,169 @@
+From Newark, I arrived at the Salem train station and caught a cab. When I asked the driver if he knew the way to Melgior Manor, his smile dropped; he took a moment to respond, rummaging through his wallet, before glancing at me in the mirror and, without a single word, driving on. I tried to be pleasant, making small talk during the ride, and even bid the driver farewell. 
+
+Yet, he could barely look in my direction as I stood by the passenger seat window, with an outstretched arm holding out my payment. His hands gripped the steering wheel before taking my money with haste and driving away.
+
+The gatekeeper led me toward the four-storey manor; it stood imposing in the middle of the kept lot. How beautiful the garden appeared felt like a direct contrast to the grand structure of the house—the shrubs sprouting lush peonies and lavender looked jarring to be placed by the dark grey concrete near the steps to the front door. In the foyer, I could practically hear my own short heels on the marble floor; the mountainous high ceiling held a glass chandelier adorned with hundreds of diamond-cut shards reflecting sunshine from above the skylight.
+
+“Are you Miss Timmons”
+
+A soft voice spoke from below me, catching my attention. The small girl in a cream-coloured sundress glanced up at me, with a baby doll in hand. I got down on one knee, adjusting my dress to meet her gaze, smiling. “Yes, I am. How did you know my name?” I asked; she glanced towards the archway leading into the dining hall, where another young girl and an older boy stood behind, peeking their heads in. 
+
+“Calin and Simon heard Mommy and Daddy.”
+
+Just as she spoke, a woman in a blue velvet beret called out from the top of the stairs. “Adelaide Timmons. How lovely to finally meet you in person.” Her heels clacked with each step down the staircase, followed by a man holding luggage.  “I see you’ve met my youngest, Clara.”
+
+“Mrs. Melgior, it’s a pleasure.” We shook hands; I felt her satin gloves on my bare skin. “And Mr. Melgior?”
+
+“Unfortunately, he had left earlier this morning, so now I have to go to the airport on my own.” The woman sighed, briefly glancing at the man holding her luggage. “You remember what we’ve agreed on the phone, correct? The basics, making sure everything is aligned with their routines?”
+
+I hummed as she continued. “You’ll have Browley here to assist with errands and in-house duties; Edna comes with her sister Ethel—they cook and clean but leave after dinner.” I nodded at every word she said.
+
+“Perfect. Now if you’ll excuse me, I have a flight to catch—children.” She said, as the boy and the girl from behind the archway walked towards her. “Be good. Your father and I will be back sooner than later.”
+
+She gave each of the children a kiss on the forehead before they watched her leave from the porch, waving at her as the black town car drove away.
+
+“Calin, Simon, this is Miss Timmons.” Clara broke the silence as the two older siblings looked at me. Simon was blonde, while Calin and Clara shared the same brunette hair as their mother.
+
+“Aren’t you three precious. I’m Miss Timmons; I will be taking good care of you three as long as you need me to.” I could only smile as the three looked at me with mixed expressions. Calin and Clara smiled, but the boy looked weary; he seemed to have noticed my attention on him as he spoke first.
+
+“How do we know you won’t just leave?”
+
+“It takes a lot to shoo me away, Simon,” I said, cheekily.
+
+My first night in the Melgior manor was quite mundane; Edna and Ethel were kind, and I was amused to find out that the sisters were twins. They cooked a nice meal for everyone in the house. They were curious what it was like to live in Jersey and shared a fondness for being able to travel around the country one day. I expressed that they were more than free to do so, but they laughed, stating they were ‘too old for backpacking.’ And that they truly had no reason to leave, other than self-fulfillment;
+
+“Our lives belong in Massachusetts—in Salem,” Ethel said, before taking a sip of her tea.
+
+Edna smiled; her eyes stared at the swirling mint from her steaming cup. “Always have, always will.”
+
+The silence felt deafening for a moment, somber and melancholic, as though life in the room drained along with the soap bubbles in the sink. “I must check on the children; will you two be leaving soon? Mrs. Melgior informed me you lived outside of the manor.”
+
+Edna gulped down the drink, the tea trickling from the corners of her lips. I let out a bated breath, turning to Ethel, who sipped on her cup with a raised pinky. “We will be, dearie; you tuck those critters to bed now.”
+
+She spoke as I nodded; although slightly unsettled, I thought nothing much of it. After all, some people gulp down mugs of coffee like water. Parting from the kitchen island to make my way upstairs, but not without fetching my own luggage in the foyer.
+
+I was a bit lost at first; the manor was quite vast and had more dark corners than lights on the walls, if it weren’t for Simon rushing through the hall from my peripheral vision. “Simon, it’s bedtime!” I spoke out, walking down the hall only to see an end table at the end, where a painted portrait of a woman in a Victorian gown was situated above the surface. Her waxy eyes stared daggers into mine, gleaming beneath the light of the moon peaking from the sheer curtains.
+
+A cold chill ran down my spine.
+
+“You’re in the wrong hall. Only our parents and guests sleep here.”
+
+Jolting back, I almost stumbled off my feet, turning to Calin, who was already in her long-sleeved nightdress. “Where’s your-” I was about to ask where her brother was, until I spotted him at the end of the hall, by the archway leading to the other wing, the hall I had already walked past.
+
+How the boy reached the other end without passing through me was beyond me, but I no longer wanted to ponder, especially not in the middle of the empty east hall.
+
+I made sure Calin and Simon were in their rooms, tucked and safe, before I visited Clara’s room. The little girl was seated by a square table, in her floral nightdress, pouring imaginary tea into empty cups for her stuffed animals and an empty seat. The soft, humming twinkle wasn’t lost on me; the melody played from a baby blue box in front of the vacant chair; the ceramic mermaid poised with dainty arms like a ballerina while the tail remained a permanent curve, rotating slowly as the music played.
+
+“Clara, it’s time for bed.”
+
+“Aw, is it really, Miss Timmons? May I please finish my tea party with my friends?”
+
+The brown bear with a navy scarf slumped, while the toy dog leaned closer towards the table. I sighed, knowing well I wouldn’t be able to sleep, disappointing the sweet girl. 
+
+“Only for one more round of tea; after that you and your friends will take to bed.”
+
+Clara smiled, clapping her small hands together, although her joy was short-lived as I attempted to sit on the vacant chair in front of her. She stopped me immediately, standing from her seat to pull me away. 
+
+“You can’t sit on a guest’s chair!”
+
+“Oh goodness, I’m not that heavy, sweetheart.” I chuckled, but her brows stayed furrowed, and her frown deepened.
+
+“You can’t sit on someone else’s chair; it’s impolite.” She walked near her dollhouse, taking the spare seat to place it beside her own. “I’ll get you your own.”
+
+I no longer felt the need to sit; I spoke. “Clara, it’s okay, sweetie. No one’s—”
+
+The music stopped as the mermaid froze, and the box clamped shut with a resounding thump.
+
+Clara took the toy into her hands. With her back turned away from me, she walked towards the nearby windowsill; her small fingers gripped the golden key before turning it repeatedly, followed by the soft twinkle of music again; Clara began to sing.
+
+“Round and round we go,”
+
+“Round and round we go,”
+
+“Around the tree—the Salem *three*,”
+
+“As red covered the snow.”
+
+She repeated, as I followed her gaze, narrowing towards Edna and Ethel; the two sisters surrounded the big tree in the middle of the garden, with their mouths moving in sync, both their hands resting on the base of the tree.
+
+“Bye-bye, Miss Edna, bye-bye, Miss Ethel. See you tomorrow.” The girl said, going back to the small table to continue her tea party, with the music box placed right where it belonged. “Come join us, Miss Timmons.”
+
+I merely shook my head, letting the girl proceed, as I waited for her to finish; sitting on the windowsill, I glanced back at the tree once more, but the sisters were already gone.
+
+After putting Clara to bed, I realized the butler had already arrived—Mr. Jameson; he guided me to my room on the first floor of the manor. The maid’s room wasn’t as big as the children’s rooms of the children, probably about half the size, but it was bigger than the room I shared with my siblings in Newark, and to have my own space for the first time, I could only bask in the moment.
+
+I hadn’t realized the man was still standing by the doorway as I practically sprawled myself on the bed. Flustered, I apologized after getting back on my feet, before he left me in my own privacy. “My room is down the hall if you need assistance.” He said, as I thanked him.
+
+The room was completely quiet—*the manor was completely quiet*. Although I kept the windows closed and had myself wrapped within layers of blankets and a comforter, I still felt cold. I shuffled on the bed, turning from one side to the other. I felt more comfortable facing the wall than looking at the empty shadows within the four walls of the room. I looked at my own shadow; the moon provided a source of light through the sheer curtains.
+
+Finding comfort within the soft glow, I slowly drifted to sleep, with my eyes closed, but I began to hear this… *creak* from behind; the sound of a tight groan, as though a sack of potatoes were strung up on the ceiling, swaying with the fibers of its taut rope grinding against wood, tighter by the second.
+
+Tiredness overtook my body; I hadn’t realized how exhausted I had been from the trip until my body was unable to turn, even look at where the source of the sound had come from—I fell asleep.
+
+During the evening, the tree was barely visible in the dark, but during the day, it towered high, spanning across three floors in length, while the base of its trunk would take three adults with arms outstretched to be able to wrap around the tree completely. I presumed it was old, but what I thought strange was… the fixation behind it.
+
+The children were fond of spending time outdoors, which should bring relief, but the three never did anything outside, except sit by the tree with a book or lean against the trunk for a nap. They didn’t play out in the grass or run around in the wide space of the garden. 
+
+It took me an odd amount of courage to ask about the tree; at first I thought of asking Calin or Simon, but they weren’t very fond of talking, especially to me—which I understood; being a new nanny, I figured as much they’d take a bit to warm up to. Edna and Ether were… not an option.
+
+I had asked Clara once, but she gave a vague answer, or an answer she only knew to articulate in her own imaginative way.
+
+As for Mister Jameson, he mostly kept to himself; he walked with one arm on the front and the other on the back—I rarely ever saw him throughout the day, but if so, it would be mingling with the gardener and gatekeeper of the lot.
+
+One afternoon he had tasked me with grocery shopping for the house; he drove out into the town as I sat in the backseat, while he went through the specifics of what to buy. Although I tried to pay attention, all I could think was how light my chest began to feel the further away we were from the Melgior Manor; it almost overwhelmed me, the thought of a weight lifting off of my sternum all because of distancing away from the gloomy house on a hill.
+
+“Am I going crazy…” I said, unintentionally.
+
+Mr. Jameson had stayed quiet; his talk about the kinds of butter I was allowed to buy ceased as our eyes met through the mirror.
+
+“Your work requires more of you than you’d think, Miss. Timmons, caring for three children is no easy task.”
+
+“I… I’m not referring to the work.”
+
+“Is there something wrong?”
+
+“No… I don’t know… there’s nothing wrong, I just…” I paused, finding it difficult to form the right words. “Nothing has been feeling right either.”
+
+“It’s interesting how the human mind works, how easy belief to congregate thoughts that create problems that never existed, until the belief itself manifested the ‘problem,’ turning it into validation of correctness.” He paused, stopping the car, before shifting in the driver’s seat to look me in the eyes. “Do you seek the truth, or validation, Miss Timmons?”
+
+We sat in silence; I couldn’t respond, as I didn’t quite understand what he meant. He broke the quiet, speaking once more. “I’ll be waiting here; check the road before crossing the street.” Handing me a black card from his coat pocket.
+
+Rushing into the grocery store, I felt the cool breeze waft through the sterilized air; other shoppers moved about from the cashier line to the exit, as I grabbed the nearest vacant cart. Walking around the tile floors of the grocery store half-minded was the reprieve I never knew I needed for the past week; being able to clear my head as I placed items into the cart reminded me of home.
+
+*Perhaps I wasn’t ready for the job, but I needed it. Badly.*
+
+By the time I was next for checkout, I managed to convince myself that I was overthinking—homesickness, probably? The children were quiet but sweet; the sisters had done nothing but be accommodating to me for the past week, and Mr. Jameson just seemed like an old man with words of wisdom I couldn’t completely fathom.
+
+As I placed the groceries on the conveyor, the woman behind the register eyed me; she’d been occasionally glancing since I began to line up, but by then she didn’t bother being subtle anymore.
+
+“You’re not from here.” She said,
+
+I smiled, shaking my head. “I’m from Newark; I just moved here for work.”
+
+“Work where?”
+
+“Up at the hill, I’m nannying for the Melgiors,” I said, setting the cart aside, but as I turned to her, she had stopped scanning the items. “Uh…is something—”
+
+“The devil’s house. You’re staying at the devil’s house.”
+
+“Excuse me?”
+
+“You must leave; you must pray and leave. That house is the home of the wretched. It will eat you up and spit you back out before you even realize you’ve been changed.”
+
+I backed away as she held onto my arms. I tried to push her back, but she kept repeating the same message. I cried out for help as the security began to separate her from me, dragging her away. I felt the pitiful stares and curious eyes of other shoppers as another cashier finished scanning the groceries.
+
+Still shaken up, my walk back to the car felt like an impending march. With the groceries back in the trunk, the sinking feeling returned the closer the butler drove back up the hill. “What is in the house, Mr. Jameson?”
+
+His eyes focused on the road as he let out a quiet hum. *“The gallows.”*
+
+Upon arriving back at the home around late afternoon, Jameson took the groceries into the kitchen, while I looked for the children. The siblings lounged by the big tree in the backyard, but no longer were they lying by or reading; they played, running around the tree. I felt a smile creep onto my lips seeing them tease each other and laugh, 
+
+I was walking towards the back door, with my hand on the knob, when my smile dropped. A figure hung from above the playing children—a woman with her head glancing down at the siblings. Her skin appeared sickly pale, with crossed, bloodshot eyes and lips blue as the dormant veins around her neck; she wore a dirty nightgown, the white fabric stained with dirt and blood, matching the wounds on her ankles and wrists, the decaying skin a forceful tug away from ripping straight off the bone.
+
+I screamed, running out into the open field. As I ran towards the three, they looked puzzled, seeing me as I gathered them to leave. “Get inside, get inside right now!”
+
+Their scared faces looked up at me. “What’s wrong, Miss Timmons? We’re just playing.” Calin asked, as Simon crossed his arms with an upset scowl. I pulled all three into my arms before I finally glanced up at the tree. 
+
+The figure was gone, except for an empty noose that moved with the wind.
+
+With the three in my arms, their blank stares looking into my panicked eyes, I knew in that moment, in the very spot I knelt, on the grass prickling my knees—the gallows loomed above; the gallows was the *tree*.
