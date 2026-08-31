@@ -186,8 +186,6 @@ Maybe I can both start to exercise and make a friend on the same day. 
 
 I put on some old beaters and was out the door.
 
-
-
 The Chesterfields were playing in their backyard. Bob was on his front lawn. And Mr. and Mrs. Ultra were in their house as usual.
 
 My feet shuffled against the sidewalk, making just as much noise, if not more, than the Chesterfields. They looked to be playing catch in almost complete silence. 
@@ -210,11 +208,11 @@ He was standing there with his arm still waving, perfect posture and all. 
 
 His children just stood there with their arms by their side, the wind blowing against their short sleeves and shorts.
 
-The breeze picked up and I brushed my hair from my face and broke the awkward silence. 
+A slight breeze picked up and I brushed my hair from my face, deciding to break the awkward silence. 
 
 “Well have a nice day!” I waved back at them one more time before going on my way.
 
-I don’t know how my dad interacts with people like that. 
+I don’t know how my dad interacts with people like that.
 
 As I approached Bob’s front lawn, the smell of expensive cologne and musk filled the air. 
 

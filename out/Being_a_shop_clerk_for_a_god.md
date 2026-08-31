@@ -103,3 +103,4 @@ The cashier gaze met the old man, his head steadily and stiffly turns to him. "I
 I can hear the old man swallow hard spit before asking "How to get out of here? How to exist again?!" 
 
 "To get out is simple, keep moving forward. The longer you stay in the moment the less likely you are to escape. Once you escape, you'll exist" 
+

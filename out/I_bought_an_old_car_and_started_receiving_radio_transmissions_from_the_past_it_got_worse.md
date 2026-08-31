@@ -326,3 +326,5 @@ I don't know who to trust.
 I don't even know if I can trust myself.
 
 What do I do?
+
+[Part3](https://www.reddit.com/r/nosleep/s/jSyH9mEZ5W)

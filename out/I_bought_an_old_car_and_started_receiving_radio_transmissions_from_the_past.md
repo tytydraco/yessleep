@@ -317,3 +317,5 @@ My eyes naturally drifted to the main article: “A young girl was found decease
 I stopped reading after that. The radio was not lying.
 
 I don’t know what to do, how is this possible?? Do you guys have any suggestions?? Could this be some elaborate joke??
+
+[Part2](https://www.reddit.com/r/nosleep/s/DV4Jjawm9u)

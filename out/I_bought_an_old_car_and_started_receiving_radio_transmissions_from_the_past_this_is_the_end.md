@@ -1,0 +1,291 @@
+If you don't know what is going on, here are the previous posts: \[[Part1](https://www.reddit.com/r/nosleep/s/sG9YrFRknc)\] and \[[Part2](https://www.reddit.com/r/nosleep/s/hqrehWBfy3)\]
+
+Thomas is dead.
+
+He couldn’t pull through his injuries from the crash and just…never woke up again.
+
+It’s been about a week now and I’ve had time to mourn and figure out what to do next.
+
+Gabrielle has been quiet ever since, I tried to see if she was there, hoping she would give me counsel on what to do.
+
+I even hoped Thomas would start talking to me through the radio…
+
+But no, radio silence.                             
+
+For this reason, I’m taking matters into my own hands.
+
+The police wrapped up the case, gave some bullshit reason for the crash, “the driver was distracted”; “Missed a stop sign”; “Swerved off the road”. It’s all bullshit.
+
+They covered it all up and kept the sensitive information Thomas found, likely to protect Briggs who can definitely pull a few strings.
+
+He can’t stop me, however.
+
+“Going somewhere?”
+
+Briggs almost jumped out of his skin, the suitcases he was holding dropping on the ground, echoing in the calm night air.
+
+“I don’t think so, get in the house.”
+
+My .45 at my waist, pointed at his head.
+
+We got in and I locked the door behind me.
+
+“This is a lot bigger than you can imagine, kid.”
+
+His voice shaky.
+
+“Shut the fuck up – I know what you did.”
+
+“Whatever you think I did, it’s not real, friend.”
+
+“I know you killed Gabrielle, I know you killed Thomas and I’m not your friend.”
+
+He dropped down on the sofa, laughing all the way.
+
+“That’s what you think I did? Boy are you gullible.”
+
+I sat on the armchair opposite of him, weapon still drawn.
+
+“Give me one good reason why I shouldn’t blow your brains out right now.”
+
+He stopped laughing.
+
+“Because if you do, you’ll open Pandora’s box – you know, I thought you were smarter than this, I thought you would be able to see through all the lies and the smoke and the bullshit that they fed you…I know Thomas did, that’s why he was taken out, that’s why he wa—“
+
+“YOU took him out, YOU killed him you fucking bastard!”
+
+“Easy now…I did not kill Thomas, that’s what they want you to think.”
+
+“Who the fuck is they?”
+
+“Do you really think you were talking to the ghost of Gabrielle?”
+
+“W-what…how did you kn—“
+
+“Yeah, I know buddy, I know everything and you don’t know a hill of beans about what is really going on here.”
+
+“No-No, I won’t…I won’t fall for this, I know exactly what is going on and you won’t get away with this, not again.”
+
+“You don’t want to trust me? Fine, I get it. Trust Thomas then, he got a lot closer to the truth than a lot o—“
+
+“Yeah, he did, and that’s why you killed him.”
+
+“Look…why don’t you put the gun down and you come with me? I’ll expla—“
+
+“WHAT DID THOMAS FIND? WHAT DID YOU TAKE FROM HIM?”
+
+Something inside was bubbling up, I couldn’t hold it back any longer. The rage, the grief, the sleepless nights…they were all coming together.
+
+ “I’ll show you, I’ll tell you everything there is to know about this situation just…put the gun down and loosen up, pal.”
+
+“I fucking told you already I’m not your fucking friend or pal or anything. You either explain to me right fucking now or I’ll paint the wall red.”
+
+I was standing up right in front of him now, the barrel of the gun almost pressed against his forehead.
+
+“Okay…Okay, easy…Gabrielle was just like you…”Chosen” as she said…we made a mistake back then, couldn’t protect her well enough and she paid for it…it is happening again and this time it’s you Steven…I figured it out too late which is why you NEED to come with me okay? It’s not just for your own safety but for us all, the Gabrielle you talked to isn’t her…Just plea—“
+
+“What the fuck are you talking about old man?”
+
+“Just, trust me please, I swear I didn’t do anything bad, you just…you won’t believe me until I’ll show you.”
+
+“Is that why you were leaving in the middle of the night? Alone? That was to protect me? To protect us all? You’re so full of shit and I’m just about done talking to you.”
+
+There was a moment of silence.
+
+“Then you leave me no choice, buddy.”
+
+In that moment Briggs slapped the .45 right out of my hand, a shot ringing out in the dark.
+
+He immediately tackled me to the ground, he may have been an old man but he was as big as they come and wasn’t exactly a lightweight.
+
+He repeatedly punched me in the face, I was seeing stars but the adrenaline in my veins shielded me from the pain.
+
+“I really didn’t want to do this.”
+
+I didn’t hold back any longer.
+
+I kicked him off of me with such force that he stumbled back and hit the wall, screaming in pain.
+
+I got up and wiped the blood off my face, I looked for the .45 but it was too dark to see, the moonlight filtering through the windows only illuminated part of the room.
+
+Briggs didn’t skip a beat, he went right back to it, putting his fist up and staring me down.
+
+“You’re a fucking idiot Steven, you’re as dumb as they come and you’ll be the death of all of us.”
+
+“Only one of us is dying tonight and it ain’t me.”
+
+He charged me and another struggle began as we fell on the floor, I had never been in a fight before and Briggs clearly did but he was old and fragile, I was young and fast.
+
+I managed to land a few blows to his ribs, I heard them cracking and his groans of pain filling the air along with the smell of iron.
+
+I got up above him.
+
+“Why…why did you kill Thomas…” I asked, catching my breath.
+
+“I-I told you…I didn’t do it…You did.”
+
+“…What…”
+
+Briggs took advantage of my confusion and shock at hearing those words and he pushed me back off of him.
+
+I fell on the floor once more, this time hitting the back of my head hard.
+
+Mist enveloped my vision and a strong whistle in my ears deafened me.
+
+I saw Briggs slowly get up.
+
+I panicked, I started crawling away from him, desperate.
+
+His steps were steady, calm and collected, those of a killer.
+
+I got right up to the wall, nowhere else to go.
+
+I looked around for an escape route but darkness shrouded everything.
+
+That’s when I saw something shine in the dark.
+
+I reached for it.
+
+It was the .45.
+
+I picked it up and shakily aimed it at Briggs.
+
+The moment he realized what he was looking at, he sprinted towards me to stop me.
+
+I closed my eyes and pulled the trigger hearing a loud bang.
+
+When I opened them back up, Briggs was staring at me with his eyes open right next to me on the floor.
+
+The .45 in my hands… jammed.
+
+I hadn’t shot Briggs, in his race towards me, he lost his balance and hit the wall head first…his neck snapping under his own weight.
+
+It was over.
+
+I had avenged Gabrielle but more importantly, I had avenged my friend.
+
+I knew it was only a matter of time before the cops swarmed the house, that whole ruckus we made must have been heard.
+
+I licked my wounds and headed back out to the 54 that was waiting for me.
+
+I knew I was eventually gonna get caught but I didn’t care. Justice was served.
+
+As soon as I drove away the radio lit up.
+
+“**BZZZ**…**BZZZ**…Steven!...Steven!...you saved me!”
+
+It wasn’t the usual voices from the ‘50s mashed together.
+
+This time it was this angelic, heavenly voice that came through clear as day.
+
+“G-Gabrielle? Is-Is that you?”
+
+“…Yes it’s me! Oh, my hero you did it!”
+
+Tears were running down my face, I couldn’t believe it.
+
+I knew I had done the right thing, I knew all the pain and suffering was for a good cause. For a good reason.
+
+“Gabrielle…I-I can’t believe it.” I said sobbing.
+
+“…I am so proud of you Steve! I’ll be forever grateful to you but…It’s not over yet…”
+
+“…W-what?”
+
+“…I need you to do one last thing for me…for Thomas…”
+
+“T-Thomas? Is-Is he there with you? Is he fine?”
+
+“…He is, Steve…you saved him as well!...but to be tru—“
+
+“Oh-oh my God…I-I’m so sorry Thomas…”
+
+I was inconsolable, my tears being carried away by the night wind that enveloped the cockpit, I was going 70 mph and I didn’t even realize.
+
+“…To be truly free, we need you to go to the woods…where I was killed.”
+
+“What…why?” I snapped out of it.
+
+“…My soul can’t rest until you find the one thing keeping me here…my mother’s bracelet…”
+
+She then gave me some coordinates, the place wasn’t far from where I was cruising but it was, as she said, in the woods.
+
+I was gonna get the bracelet.
+
+My last act as a free man was to set another one free.
+
+It only seemed right.
+
+One man’s freedom for that of two.
+
+It’s a good deal.
+
+I stopped the 54 just on the edge of the woods and continued on foot.
+
+Gabrielle had instructed me to start digging once I got to the coordinates.
+
+I didn’t have a shovel but she said I didn’t need one.
+
+I was in the middle of the woods, at night, alone.
+
+There was an eerie silence all around me.
+
+Nothing was moving, no crickets, no wind, nothing.
+
+The moonlight was barely shining through the many trees and branches, made it all the more difficult to see.
+
+When I got there, I did what she asked me.
+
+Got down on my knees and started digging through the leaves and the dirt and the ground.
+
+It didn’t take long to find the bracelet.
+
+Once more she was right, she was right about everything.
+
+About Briggs, Thomas and now the bracelet.
+
+I knew I did the right thing.
+
+I knew trusting her was the right call.
+
+But the truth is that it wasn’t.
+
+The bracelet was not what I expected.
+
+It was made of thick grey metal and weighed a ton.
+
+On it, a blinking red light.
+
+As I picked it up to get a better look at it, the red light stopped.
+
+It suddenly turned green.
+
+A piercing loud screech emanated from it.
+
+Then silence.
+
+“…**bzz**…**bzz**…”
+
+A steady white noise filled the air.
+
+“…**bzz**…Thank you Steven, for doing the right thing.”
+
+It was coming from the bracelet, from Gabrielle.
+
+“What? Gabrielle? Hello?”
+
+“We will not forget what you did for us Steven. We’ll make sure to spare you and your loved ones when we arrive. See you soon.”
+
+I am writing this to let you all know.
+
+The end is near.
+
+I don’t know what I did, I don’t know what will happen. I don’t know how long we have left.
+
+I suggest you live your life to the fullest now that you can…before it’s too late.
+
+I know that’s what I’ll be doing.
+
+I am so sorry.
+
+I am so, so, sorry.

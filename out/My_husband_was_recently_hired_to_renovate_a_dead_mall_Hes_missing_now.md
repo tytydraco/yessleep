@@ -1,3 +1,5 @@
+[Part 1: ](https://www.reddit.com/r/nosleep/comments/1sz6g0q/i_was_paid_to_be_a_fake_customer_at_a_dying_mall/)
+
 I’ve wasted a lot of time trying to figure out a good way to approach this, so I’ve decided that I should just start typing. Just get a bunch of words onto the page and maybe when I read them back, something will finally click and I’ll be able to begin making sense of things. Might be wishful thinking but it’s still worth trying. I’m not sure what else I can do.
 
 So my husband, Oliver, went missing last week.
