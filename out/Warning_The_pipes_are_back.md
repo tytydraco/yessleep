@@ -1,0 +1,185 @@
+My name is Searlait. As a child, me and my best friend saw and heard things that, I had hoped, was simply a symptom of small city boredom and an overactive imagination. I am posting this now here in the hopes of reaching out to the next generation in warning: I’ve heard the pipes again.
+
+But I’m getting ahead of myself. This all started in the middle of the night one Spring day, around 1997. A few months before, the previous winter, I had the unfortunate luck of seeing a burglar right outside my bedroom window as I was heading to sleep. That led to a nighttime phobia of windows that persisted years after I had forgotten the man’s face. An immediate result of said unlucky encounter was me refusing to sleep in my bedroom, with its large windows that practically screamed “doorway for burglars” in my mind, in favor of the living room, with a much smaller and sturdy window.
+
+I had awoken with the need to pee so, after braving the dark hallway and doing my business, I had wandered back into the living room and lay down on the mattress my mom had put on the ground. The electric alarm clock, with its faux wooden furniture and electric red display, showed it was 2:35 AM. I had only closed my eyes for a moment when I thought I had heard the ringing of a bell and a cow mooing. Being a child, I had figured that if Mother Goose could be friends with cows and chickens and the like, then surely a cow could live in a small city. Immediately thereafter, however, I heard bagpipes playing in the far distance.
+
+The pipes played slowly, like what I recognize now as a dirge or funeral march. The music approached closer and closer. I was frozen in place, scared that the piper would come to my home and see me and take me away like the kids the Pied Piper of Hamelin took away when he wasn’t paid for his rat extermination. Despite the growing noise, no one else in the house woke up. The piping got close enough that I thought I could hear his footsteps. Just as my ears thought he had gotten on the driveway, the music stopped.
+
+2:36 AM. That was the longest minute of my life up to that point. I had wanted to tell my mom about this, but stern words from my father about how waking them up about “horse hockey” in the night would result in a spanking floated to the front of my mind. Caught between the fading fear of the piping, and the current fear of potential spanking, I eventually went back to sleep.
+
+The next morning I tried telling my mom about the piper, but she brushed it off as a bad dream. Frustrated, I pet my cat Marc Antony as I was heading to the front door. “You believe me, right Marc?” I asked as if I expected a proper answer, He pondered this question as serious as any cat could, before responding with bonking his head on my hand to ask for more pets. Accepting this fuzzy answer, I hopped on the bus and headed for school.
+
+During lunch, I sat with my best friend at the time: lets call her Rachel. We talked about how one of the older kids slipped and fell right down the sliding pole during recess, which Sailor Scout was the best, and what we’d do with a million dollars. I had said something like “getting an Olympic sized pool full of ramen noodles is my dream,” which caused Rachel to respond 
+
+“Oh yeah, I had a weird dream last night. I woke up, and it felt like I had really woken up, because I heard some music playing outside. It kept getting louder and louder, and I guess my daddy was right when he told me it was just a bad dream, because it scared me a lot.”
+
+“I heard the music too!” I exclaimed, “it was bagpipes or something right?”
+
+“Something like that,” she replied, “it was really slow and sad.”
+
+We discussed whether it was possible for two people to have the same dream until the bell rang. By the time school let out, I had accepted it was just a dream. I went home and thought of more important things, like whether Inspector Gadget would finally get Dr Claw, or what dinner was going to be. The evening passed like normal so, with my belly full of meatloaf, I took a bath then went to sleep like always.
+
+I hadn’t heard hide nor hair of the piper for two weeks after that, and I had more or less forgotten about the incident.
+
+My mom, kind and patient as she was, was done with me sleeping in the living room. She put my mattress back into the waiting bed frame in my bedroom, not without some level of protest on my part. My kid logic had deduced that, since no burglar had come to any windows since I began sleeping in the living room, it must have meant that sleeping in the living room kept burglars and all manner of scary things away. The fact that I had encountered the piper in there was dismissed for, as previously mentioned, I had decided the piper incident was just a nightmare. My mother, who was much more carrot than stick, noted that I could go back to watching the old black and white Zorro TV show in bed as I’m heading to sleep like I did before moving out of my bedroom. I had missed that old masked swashbuckler, so I was delighted when she had reminded me of this fact. That very night I was lulled into sleep by the sounds of foils clashing and horses neighing.
+
+2:35 AM. I woke up bolt upright like I had accidentally fallen asleep. I blinked at the unexpected light hitting my eyes.
+
+The television was left on.
+
+Usually I’d either turn it off myself after Zorro or, if I fell asleep during the episode like last night, usually my mom would turn it off after watching the local news at night. Not thinking much of it, I got out of bed and walked to the TV, which was quietly playing one of those infomercials that start with some family in a black and white world where dinners don’t turn out right and cluttered closets spill onto floors.
+
+The TV was one of those cheap models that combined the volume and power into one spinning dial. I had reached for the dial when, at least twice as loud as the infomercial, a drone note from a bagpipe began to play. The infomercial family was gone, replaced with increasing levels of white static. I thought I had accidentally turned the volume up, so I jumped, looked around to see if I woke anyone, and was about to twist it off again when-
+
+The sound completely stopped. On the screen was an enlarged and poorly done scan of some tropical beach, done in shades of purple and orange. It stayed there, almost silent, but with the slightest hint of waves washing ashore. Suddenly, the top center of the screen had white text on it in the same font you’d see camcorders note the time and day in. The text read “Tower Level 369.” Being a massive gaming nerd, I had thought I was about to see some game called Tower, but instead I got a voice that reminded me of the Microsoft Sam voice I played with on the computer. It was higher pitched, like a woman, and she was listing off a bunch of numbers. Knowing what I know now about (“encrypted”) numbers stations, I wish I could remember what the numbers (“Cryptographers”) were; While unlikely, I would like to think I could make some sense out of them (“Do not”) even without the one time pad. After two minutes of repeated numbers, the text was wiped off the screen and new text was added, along with a single staring eye. Centered within the screen, it simply read 
+
+“I’m watching you. Tell no one you saw this or I’ll skin your cat alive.”
+
+At that point I had burst into tears and ran back into bed.
+
+By the time my father came into the room half awake to check on me, the TV was back to playing regular programming for that time of night. Some man in a three-piece suit covered in dollar signs was touting his get rich quick book with exaggerated gestures and lots of facial closeups. My father quietly assumed that the closeups of this man’s face had spooked me, so he turned off the TV and told me to go back to sleep.
+
+I didn’t see Rachel the next day at school, nor the day after. By day three, I was getting worried that somehow I had done something to Rachel by seeing that weird show on the TV that I wasn’t supposed to. When I got home, I was so worried that I asked my mother to call Rachel’s mother and ask if she was OK. I waited with wide eyed worry as I looked up and watched her pick up the phone.
+
+“Hey Sandra, this is Bridget, how are you? ...Yeah, I’m fine too!...Yeah, I was calling because Searlait...yes, you met her at the bowling alley, I was calling because Searlait was worried about Rachel being gone from school....Uh huh...Oh...Oh dear...”
+
+My therapist, as an adult, would help me work out my tendency to “catastrophize,” to make a mountain out of a molehill in terms of potentially bad situations. Looking back, I wonder if this was the first time I had experienced this particular symptom of mental illness? All of that to say, I assumed the absolute worst when I heard my mom say that worried phrase. My mind began racing “She must be dead its all my fault I shouldn’t have seen it I must have told somebody by mistake its all my fault she’s dead she’s skinned alive its all my fault its all my fault its all my fault-”
+
+“...Well, I hope she gets better soon! Want me to bring some chicken noodle soup?...Ok, well talk to you later! Bye.” She hung up the phone and looked down, opening her mouth to tell me what actually happened, but quickly turning that sentence into a “Oh honey” as she crouched down and hugged my shaking and silently sobbing mess. “What’s wrong?” 
+
+“She’s dead, and its my fa-ha-hault..” I sobbed. 
+
+“No, no, sweetie, her mom said she just caught a cold! She should be back next Monday!”
+
+Dinnertime came. I sat in the living room floor (being a particular child, I preferred sitting on the floor) with my bowl of clam chowder as my father told my mother about his day at Sabretooth Pipe Inc and the Friday evening news played on the TV. I had put half of the bowl into my stomach, eyes and ears locked on the weather forecast, when my mother had asked “Why did you think Rachel was dead, sweetie?”
+
+I started sweating. My obedience to my mother urged me to tell, but my mind kept racing to what the TV told me. As if to remind me of the stakes, my cat Marc Antony came over to sniff my bowl of chowder. I kept looking at my cat, and my mom, back and forth for a few seconds until the inner turmoil erupted out of my mouth. The half bowl of clam chowder I had eaten spilled everywhere.
+
+My mother gasped then started rubbing my back. She yelled back at my father, who was farther off retrieving paper towels from the kitchen, “She must have gotten the cold from her friend!” Before I knew it, I was in bed with a wet cloth on my head and orders to take it easy.
+
+Time passed slowly, but my mind raced. Anxious vomiting did not solve the question that caused it, it only added to my woes. I was stuck inside myself trying to solve this with all of the mental strength I had. I was still making mental ruts in the road when my cat jumped onto my chest, cat loafed, and started to purr.
+
+This brought me out of my spiral, dragging me further into reality with every pet of his furry head. This clarity gave me an idea. I called for my dad and I asked him “Dad, would you protect Marc from anyone wanting to hurt him?” 
+
+He responded by petting my head and saying “Of course sweetheart!”
+
+ Thinking of a game I heard the 5th graders talk about, Streets of Rage, I added “Would you use one of your pipes from work?” 
+
+He gave a confused smile and added “Sure, anything for you.” I was so relieved that I fell asleep right after.
+
+2:35 AM
+
+I woke up again with a start. The TV was on again, with that dreaded bagpipe drone. The image on screen was a photo of an alley downtown at night, where the roads were made of brick. The darkness was so strong that you could only see a foot or two into the alley before pitch black devoured it. Suddenly, the droning stopped, replaced with the familiar electronic BUZZ! BUZZ! BUZZ! of the Emergency Alert System. Just as the long note following the three buzzes started, an eye a foot long opened within the alley, the very same I saw on the TV before. A crunchy electronic voice began to speak as a scrolling black horizontal bar near the bottom of the screen produced text that read “Within the dead city of Louran, the illusionist weaves.”
+
+“Attention residents of \[pause\] Shawnee: The following warning has been issued for all counties at 7:35 AM Coordinated Standard Time. Do not leave your houses. Do not use your telephone. Avoid all radio stations and television broadcasts besides the one sending this message. The Nightmare of Cryptographers walks the streets. His pipes transmit forbidden knowledge through the air via SSTV and number-based encryption; His messages can be picked up and decoded by the aforementioned electronics, and, to a lesser degree, are dangerous when heard by the naked ear. The National Theological Service advises all within the affected area to barricade themselves away from windows and all electronics. Do not listen to the pipes. Do not listen to the pipes. Do not listen to the pipes.”
+
+The message began to repeat itself as my eyes were drawn like magnets to the eye in the center of the screen. My eyes and brain felt how they did when looking at one of those magic dot stereogram pictures. The eye seemed to take a life of its own, floating closer and closer to the front of the screen. Just as it seemed to be touching the glass itself, it blinked, and when it opened its eye again-
+
+7:30 AM, Saturday
+
+The tv was playing The New Adventures of Winnie the Pooh with its familiar theme song starting with “I’ve got to get up, got to get going, gonna see a friend of mine.” In the kitchen, I could smell my dad frying up bologna as my mom walked into my room.
+
+“Good morning Searlait, how are you feeling?” she asked as she put her hand on my forehead. To my surprise, I was feeling as fit as a fiddle. 
+
+“Better”, I responded.
+
+“Well good!” she beamed as she thought to herself “She must have just been worried about Rachel; the poor girl’s so sensitive.” “After Winnie the Pooh, get ready for breakfast and then get dressed, we’re going grocery shopping.”
+
+Its amazing, in retrospect, how resilient kids can be sometimes. I transitioned from waking nightmare to regular morning in the blink of an eye, and I hardly gave it any thought once my routine got started. Given the creepy voice had talked about a nightmare, I assumed that this time it must have just been one. My mind was on much more important things at the moment; the electronics section of the store.
+
+Although I was told beforehand we were only there so my parents could get a couple of pagers, I couldn’t help but hold onto some hope that I might get a video game. At the very least, my parents let me strain my neck as I looked up at the mounted TV to play a demo of the upcoming Star Fox 64. I was doing barrel rolls and shooting lasers while my parents discussed the merits of one-way and two-way pagers. I beat the demo, short as it was, and looked at the locked away N64 games with awe.
+
+But even looking at video games could only hold my attention for so long. It had been ten minutes, and my parents were still discussing the best option for our budget (I would learn when I was older that we were on a much tighter budget than I had realized). I wandered out of the video game aisle to look at the large selection of TVs they had on display. All of the TVs were displaying a preset collection of movie trailers. I went to one that was easily twice the size of the TV I had in my room and watched.
+
+Back then, if it wasn’t animated, I didn’t much care for it, so I got bored of the TVs much quicker than I had hoped. I was just about to wander off somewhere else, when all of the TVs went silent as they switched to a poorly scanned still image of an alpine meadow. My blood froze as I recognized the style from the first message I saw.
+
+“Tower Level 369.” it read. I assume the numbers were being read by that Microsoft Sam sounding lady, but as all of the display TVs were muted, I could not hear them. After a couple of minutes, the text was wiped from the screen and typed in live. It said:
+
+“The Lion will devour the Lamb. The trapped Dolphin will drown. Every locked attic and basement in lonely abandoned homes shall burst wide open, spilling out decades of monstrous resentment and hatred. Babylon summoned me and Babylon will be my throne.”
+
+I stood there stunned, taking in the message, when the eye opened again. Accompanying it was what sounded like Rachel screaming from the inside of my head.
+
+I screamed and ran towards my parents yelling “MAMA! DADDY! THE EYE! THE EYE! IT-” I was quickly embraced as I started crying. My father looked towards the TV and saw a trailer for Event Horizon was playing. They both tried in vain to comfort me, reassuring me it was just a movie and it couldn’t hurt me. After some minutes, I calmed down just enough for them to finish purchasing the pagers, not without some complaint from them towards the staff how they let R rated horror movies play in a public place like this.
+
+Not even the resiliency of childhood could protect me this time. I began to fear the TV like I did the windows at night, and I just KNEW something had happened to Rachel. I was a complete wreck, and my parents were powerless to help. Not only was I afraid of the consequences of telling the truth, but everything my parents had seen up to this point told a story of how I was just a scaredycat kid who had a bad run of luck when it comes to seeing things on the TV.
+
+I tried to nap my problems away, but I was never more awake in my life. I was perfectly still and facing away from the living room, however, so I heard my parents, who thought I was asleep, quietly discuss sending me to talk to someone about all this. I couldn’t talk no matter how much I wanted to, and besides, what if it was a test by the Eye? If I Talked To Someone, I figured, then the Piper would know instantly, maybe even be the person I Talked To. God knew everything, Santa knew everything, so it was purely logical to my kid brain that this equally as powerful Nightmare would know.
+
+Sunday came, but after some discussion, my parents decided my mood was too unstable to go to church that day. 
+
+“You remember in Sunday school how God made Sunday the day of rest?” my mother explained “That’s what we’re gonna do today.”
+
+In between passive chores like the dishwasher and loads of laundry, my mother called all of her friends and was giving out her and my fathers’ pager numbers in case something came up. Just five minutes after her last call, she got her first page. The pagers had very basic text messaging capabilities, mostly canned messages, but with an option of 16 character custom messages. She got up, gathered her things, and then told me she was gonna take a quick walk. She kissed her husband, whispered something to him, then walked out the door.
+
+As an adult, I would later find out that the message she got was from Sandra, Rachel’s mom. It read “CALL ON PAYPHONE.”
+
+She came home with the blood drained from her face. I asked what was wrong. and, like a flipped switch, her face brightened up. 
+
+“Oh don’t worry honey, I just saw a dead bird and it made me sad.”
+
+Time can be a funny thing. That Sunday was one of the longest days of my life, and yet before I knew it, it was Monday morning and I was back to school.
+
+As soon as I walked in the doors, however, I was ushered into the office by the school secretary. She told me Mrs. Ikande wanted to talk to me. Mrs.Ikande, I knew, was the school counselor. I had only seen her once before, when she came to my class a few months ago and taught the whole class how to get along on the playground.
+
+I was brought into a room filled with a myriad of kid-friendly mental health posters, like one showing a cat hanging onto the top of a fence with its front paws that was captioned “Hang in there!” and others like “Shoot for the moon; even if you miss, you’ll be among the stars.” Stress balls, kid sized punching bags that bounced back and forth, and other toys were scattered around. Mrs. Ikande sat at her desk, smiling a comforting smile that was framed by her two-strand twists of black hair.
+
+“Good morning Searlait!” she beamed. 
+
+“Good morning Mrs. Ikande” I responded quietly.
+
+ “Sit down please, I wanna have a little chat with you.” I did as she asked, and started to fidget with a stress ball as I looked down. “So your mama called and told me you’ve been really scared these past few days. Could you tell me about it?”
+
+I sat there in silence, staring down at the ball I was now vigorously squeezing. My mind repeated “this is a test don’t say anything” repeatedly as the silence grew. Mistaking my worry for embarrassment, Mrs. Ikande added:
+
+ “Its OK to be scared. Even grown ups get scared. I was in my garden yesterday when a big old spider came crawling right up the mint plant I was watering, and for just a little bit, I was scared. But do you know what helped me?”
+
+ “.....what?” I responded, curiosity and the embers of hope glowing inside of me.
+
+ “I remembered when I was your age and I told my mama I was scared of spiders. She told me ‘Now Amaka, you just leave those spiders alone, and they’ll leave you alone.’ I wouldn’t have known that if I kept my fear inside me. I talked to someone, and it was all better.”
+
+I was so tired of being afraid. Her million dollar smile untwisted the knot deep in my chest. Slowly, like a car starting up in the winter, I began to speak.
+
+“...I love my cat. ...I don’t want anything bad to happen to him. I was told, ‘if you talk, I’ll skin your cat alive.” 
+
+Mrs. Ikande leaned over her desk and asked “Who told you that?” 
+
+“The eye on the TV.”
+
+ “The TV told you this? When?” 
+
+“A few nights ago, at 2:35 AM.” 
+
+“Well Searlait, if it was at night, then are you sure it wasn’t a dre-”
+
+ my frustration exploded as I threw the soft stress ball against the wall and yelled “IT WASN’T A DREAM! I SAW IT AGAIN THE NEXT NIGHT AND THE DAY AFTER AT THE STORE!” I began sobbing again as she calmed me down. “Everytime it plays the bagpipes, then something scary happens! My mama and daddy think its just a dream like you do!” 
+
+“Well hold on Searlait, if you say its real, then I believe you. Take some deep breaths and tell me what’s going on.”
+
+I told her all that I could remember, the grainy images, the alert that sounded like the tornado warnings, how Rachel heard the pipes the very first time before anything with the TV started. She flinched a little when I mentioned Rachel.
+
+If my relief was a power source, then all of Shawnee could have kept the lights on for a year. I wasn’t exactly happy, but I wasn’t actively suffering anymore.
+
+Mrs. Ikande sighed, sat back in her chair, and began to ask “Searlait, do you know what happened to Rachel?” 
+
+“Huh? She got sick, right?” 
+
+“Well yes, but then she-”
+
+Terrible yowls of feline pain boomed from outside in the playground.
+
+“MARC ANTONY!” I screamed as I rushed out of the office and outside to the playground. I saw nothing and no one, but I heard the yowl again, a little muffled but with a slight echo. A busy road ran parallel to the school on the western side where the playground was. To facilitate safe crossings for the kids who lived across the street, a tunnel was built that deposited the kids safely across. The entrance was in the playground, but it was normally locked up until school was over for the day and the janitor unlocked it. Here however, the chain-link gate was swinging wide open. The yowling was coming from inside the tunnel. I ran down into the darkness, determined to save my cat. The gate slammed shut behind me, and an unholy darkness oozed its way towards me from the end of the tunnel. Numbers etched into the concrete walls briefly glowed and were snuffed out as the darkness approached.
+
+It stopped just a foot in front of me and opened its familiar eye. Thousands more followed. I screamed with all of my might, but I couldn’t hear myself over the incessant piping. Each and every eye of the horrid thing stared straight into my soul, and I felt it trying to pry into my mind. I felt its psychic tentacles touching every inch of my insides, trying to infect me with its rage and insanity. I vomited mid-scream, and yet the scream kept coming. The competing pressures of my lungs drawing air in and my stomach pushing out knocked me to the floor, and I lay there in a fetal position.
+
+I was there for what felt like ages, as the thing kept trying to get inside of me, when I was found. In a flash, the unholy darkness was gone, replaced with the usual dim light of the tunnel. I was all alone, screaming on the ground at what the adults thought was nothing. I was lifted from the floor like an egg stuck to a frying pan, and taken to the principal’s office, and from there, the hospital.
+
+I never saw Rachel, or my cat, again. I learned later that Rachel’s mother called mine to tell her to keep an eye out for Rachel, as she had been missing for two days now. I was given a quick check over by the small psychiatric ward the local hospital maintained, but they had no idea what to do with me, so they referred my case to some specialists in the capital city, and sent me home. Once home, my mom told me Marc Antony was killed when a car came barreling down the road at twice the speed limit shortly after I left for school.
+
+That was the last time I heard or saw the piper, until recently. It took me years and money my parents didn’t have to get over the trauma. We were always just one missed paycheck from homelessness until high school. The numerophobia I picked up as a result of all of this kept me well behind the other kids math-wise until I got some special education in my freshman year of high school. After that, I not only caught up, but I developed a minor interest in cryptography. By my senior year, I was known as a code cracker.
+
+I am 35 now, and far away from where all of this took place. In all of these years, I still have no idea what the Nightmare of Cryptographers wanted with me, Rachel, or anyone. I don’t even definitively know if it actually exists. What I do know is, I’m hearing the piping again. And I’m not alone. A couple of coworkers of mine have reported hearing the same pipes at the same time of night despite us living in two different cities.
+
+Most of you will probably brush this off as the ramblings of a crazy lady, but please, heed my warning:
+
+Do NOT listen to the pipes.

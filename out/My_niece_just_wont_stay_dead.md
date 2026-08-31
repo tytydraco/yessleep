@@ -76,7 +76,7 @@ Drawing the curtain back, I nearly screamed, but it died inside my throat before
 
 My niece stood with her hand pointing toward the mirror, ribbons of blood flowing down from her finger. They dripped from her outstretched hand as a steady stream began to fall.
 
-It was all-encompassing. The floor was slick with a puddle of the sanguine pool.
+It was all-encompassing. The floor was slick with a puddle sanguine it pooled with a viscosity that reminded me of soup. 
 
 Jerking my eyes from the floor, I looked toward the mirror, a sinking feeling of dread bubbling up in my stomach.
 

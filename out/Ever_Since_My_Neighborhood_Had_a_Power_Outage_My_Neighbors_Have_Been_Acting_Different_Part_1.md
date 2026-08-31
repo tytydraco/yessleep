@@ -186,17 +186,7 @@ Maybe I can both start to exercise and make a friend on the same day. 
 
 I put on some old beaters and was out the door.
 
-I don’t know why everyone’s dressed for the summer. 
 
-It looked like 90 degrees but it felt like 30, heat haze shimmering in the distance.
-
-Despite all that, a cold gust of wind swirled around me, spreading goosebumps across my skin.
-
-Weird. I guess that’s how the weather works out here.
-
-I stepped back inside the house and grabbed a plain-black hoodie, the only thing hanging from the coat rack that I set up the day we moved here.  
-
-I pulled it over my head and was on my way.
 
 The Chesterfields were playing in their backyard. Bob was on his front lawn. And Mr. and Mrs. Ultra were in their house as usual.
 
@@ -224,7 +214,7 @@ The breeze picked up and I brushed my hair from my face and broke the awkward si
 
 “Well have a nice day!” I waved back at them one more time before going on my way.
 
-I don’t know how my dad interacts with people like that. They’re dressed like extras from ‘Grease’.
+I don’t know how my dad interacts with people like that. 
 
 As I approached Bob’s front lawn, the smell of expensive cologne and musk filled the air. 
 
@@ -252,7 +242,7 @@ I gave him a confused look that probably looked more constipated than confused.
 
 It’s true.
 
- I’m surprised he noticed me though. I’m barely outside.
+I’m surprised he noticed me though. I’m barely outside.
 
 “You’ve seen me? I mean you’re always outside.” I stammered. 
 
@@ -290,7 +280,7 @@ I sat down, swaying my body left and right as we got to talking.
 
 “Oh yeah?” He started to shake the bottle at a rapid pace.
 
-“Your dad told me all about how much he loves it. How’s he been? I haven’t talked to him in weeks.” He pulled out a mug from the dishwasher with the letters ‘A.C.E’ and poured out half of the protein shake before sliding it across the granite countertop towards me. 
+“Your dad told me all about how much he loves it. How’s he been? I haven’t talked to him in weeks.” He pulled out a mug from the dishwasher and poured out half of the protein shake before sliding it across the granite countertop towards me. 
 
 “Ehh good I guess. I never really know how he feels to be honest. He’s always at work.” I took a long sip, trying to find my words.
 
