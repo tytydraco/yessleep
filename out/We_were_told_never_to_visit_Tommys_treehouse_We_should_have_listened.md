@@ -1,0 +1,711 @@
+I was five years old when little Tommy went missing. I had never met him. In fact, another five years would pass before I first heard about Tommy’s treehouse and what supposedly took place there.
+
+What follows is my account of what happened to me and some of my childhood friends. These are not exaggerations. I will tell this story exactly as I remember it. It is up to you to accept my testimony as truth or wave it aside as another hoax or campfire story.
+
+This is the story of Tommy’s treehouse, and what happened to us there.
+
+ONE
+
+“Come on, Mark! What are you waiting for?”
+
+Julie stood at the top of the hill, her yellow, mud-stained dress blowing in the soft breeze. It was late August. Soon, the yellow dresses and bare knees would have to make way for raincoats and jeans.
+
+“I’m trying! You know I don’t run that fast.”
+
+I tried to keep up with the group, my cheeks flushed from running. When I finally did make it to the top of the hill, the surrounding fields and woods stretched out before us, glowing orange in the setting sun.
+
+“Are we really sure this is a good idea? I mean, we are supposed to be home soon.”
+
+“Oh, does poor little Marky need to be home soon?”
+
+She pretended to suck her thumb and rubbed her eyes like a baby. This made me blush even more. Julie noticed, as usual.
+
+“Where are Jackson and Lucas anyway?” I cupped my hands around my eyes and used them as makeshift binoculars to scan the fields, but I could not see them anywhere.
+
+“They went to the treehouse.”
+
+“No, they didn’t.” I lowered my hands and stared straight into Julie’s grey eyes.
+
+“They did!”
+
+“Julie, you know our parents don’t allow us there!”
+
+“Come on, Mark! It’s the end of the summer, and we all wanted to do something special, remember? This is it!”
+
+“We all agreed to bike to the lake tomorrow,” I tried to convince her, but I already knew that ship had sailed.
+
+“Lucas! Jackson!” I called for them a couple of times, but a reply never came. I couldn’t tell if they couldn’t hear me because of the wind or if they were simply ignoring me.
+
+The woods started at the bottom of the hill, where the tall grass suddenly gave way to bushes and tightly packed trees. From where we stood, I could only see a few feet past the edge before everything disappeared behind branches and leaves.
+
+“Seems like we will have to go find them after all.”
+
+Julie started for the woods, and I had to follow her to hear what she said next.
+
+“If we can start school next week and tell all our classmates we visited the treehouse this summer, everyone will think we are cool!”
+
+I couldn’t argue with that. Some other kids claimed to have visited the year before, and everyone thought they were the coolest kids in school. Rumors even spread that they had gone inside, though I wasn’t sure if that part was true.
+
+Julie turned her head and smiled when she saw me thinking about it.
+
+“We can’t let Jackson and Lucas take all the credit now, can we?”
+
+Again, I couldn’t argue with that.
+
+We didn’t understand back then why our parents did not want us to visit Tommy’s old treehouse. We knew we would get in trouble if someone caught us, but we were young. And young kids do stupid things. It’s one of the unwritten laws of the universe.
+
+So, in our ignorance, Julie and I chased after my friends and towards the woods.
+
+TWO
+
+Julie and I found the others at the entrance to the forest. A locked metal gate blocked the trail, and a large PRIVATE PROPERTY DO NOT ENTER sign hung from the rusted metal. It was clear we were not allowed to be there, but few things are more stubborn than a child’s pride.
+
+“Like I told you, I have been here before!” Lucas crawled underneath the gate in an attempt to prove his point.
+
+“Like hell you have!”
+
+Lucas had a tendency to make things up, so Jackson was right to question him.
+
+“If you have been here before, then why have you never told us about it?”
+
+“Because I promised Yoshua I would never tell anyone!”
+
+“Yeah right.” I pushed my glasses back along my nose. “We all know your brother thinks you’re a dork. He wouldn’t take you anywhere.”
+
+“You’re the dork, Mark!”
+
+“You’re all dorks,” Jackson said while pretending to sound like our math teacher.
+
+At this, we all laughed.
+
+Jackson pulled up his tube socks and climbed over the gate instead of crawling underneath, then immediately turned around and looked at an unimpressed Julie.
+
+Lucas and I noticed this and fought hard not to burst into laughter again.
+
+Jackson always tried a little harder whenever Julie was watching. Back then, none of us ever said anything about it.
+
+The woods provided us all with some welcome shade. After spending the last twenty-five minutes crossing open fields, we were all more tired than we liked to admit. I licked my lips and wished we hadn’t forgotten to bring drinks.
+
+“So Mark, what do you think really happened to Tommy?”
+
+Julie tried to sound ominous, and I could already feel the hairs on my arms starting to rise.
+
+“Uh, I don’t know. My parents always told me he fell from the treehouse because one of the ladder rungs broke.”
+
+“And do you believe that?”
+
+I had no reason not to.
+
+“I was told they never found a body,” Jackson said.
+
+We continued along the narrow trail. Dry branches cracked beneath our shoes, and every so often one of us had to duck underneath a low-hanging branch.
+
+Lucas turned around and hesitated for a couple of seconds.
+
+“My brother told me a different story. One that explains why no body was ever found.”
+
+“Tell us, tell us!” Julie seemed eager to learn about this version of the story Lucas was about to either invent or blow out of proportion.
+
+“Fine, I will tell you, but only if you promise me you won’t go crying to your parents tonight.”
+
+I shrugged. “Come on, man. It can’t be that bad.”
+
+“Oh, but it is.”
+
+Lucas stepped over a thick root stretching across the trail and waited for the rest of us to catch up.
+
+“Fine,” Jackson said. “As long as we keep walking in the meantime.”
+
+“From what my brother told me, Tommy was a loner. He didn’t have any friends, and when his parents noticed, his dad decided to build him a treehouse. He thought it might help Tommy make friends if he had the coolest treehouse in the neighborhood.”
+
+“Get to the scary part,” Jackson said.
+
+“I’m getting there!”
+
+Lucas walked a little faster, forcing us to follow.
+
+“So Tommy’s dad spent weeks working on it, making sure everything was sturdy and cool-looking. But when he finally showed the treehouse to Tommy, he ran away screaming.”
+
+“Why?” Julie asked.
+
+It was the first time I had ever seen her look nervous.
+
+“That’s what his dad wanted to know too. He chased Tommy all the way back to the edge of the woods. When he finally caught up with him, Tommy told him what he had seen.”
+
+Lucas stopped walking.
+
+“There was something standing in the treehouse window, staring down at them. Something tall and shadow-like. Even from a distance, Tommy could see its white teeth and the big holes where its eyes should have been.”
+
+Lucas covered his eyes with his hands and grinned from ear to ear, rising onto the tips of his toes.
+
+“Stop it, man, you’re not funny,” I said, feeling the heat radiate from my cheeks.
+
+“But I can’t stop now, Marky-boy. We haven’t even gotten to the good part yet.”
+
+I wanted to ask him again to quit, but Jackson and Julie seemed eager to hear the rest of the story. So instead I stared at the brown patches on Julie’s dress and said nothing.
+
+“Please continue, Sir Lucas.” Julie curtsied, much to Lucas’s liking.
+
+“Naturally, Tommy’s dad didn’t believe him. So they climbed the sturdy ladder together. And indeed, nothing was there. Slowly but surely, Tommy started to like his new treehouse. He would spend hours there every day, but he never invited anyone over.”
+
+“So he was just by himself all the time?” Jackson asked, scratching his arm.
+
+“No. He was not.”
+
+“What do you mean?” I asked, hoping this story would take a somewhat positive turn.
+
+“There was something there with him.”
+
+We all stopped walking and stared at Lucas in anticipation.
+
+“You see, Tommy had been right all along. Something was there inside the treehouse. But it would only show itself to Tommy.”
+
+“You’re making stuff up!” Jackson shouted. He looked genuinely scared now.
+
+“I’m not! Tommy’s dad said that himself. He heard Tommy talking to someone inside the treehouse multiple times, but every time he climbed the ladder, the talking would stop and only Tommy would be there.”
+
+“So what did the thing want?” Julie asked.
+
+“Your guess is as good as mine. But my brother says Tommy eventually made some kind of deal with it. It promised him he would never be lonely again.”
+
+“I heard that he was snatched by a killer,” Jackson said.
+
+“What if the monster was the killer?” Julie asked, looking from one face to another.
+
+“You all know this is a load of crap!” I yelled, annoyed by their attempts to scare each other. “My parents said Tommy fell from the tree and broke his neck. That’s what happened and you all know it!”
+
+The group started snickering at my outburst, and it wasn’t long before they were all laughing again.
+
+“It’s not funny, guys! It’s getting dark and we have to get home.”
+
+“But why would you want to leave now?” Lucas asked.
+
+He pointed between the trees ahead.
+
+At first, I didn’t understand what he was pointing at. All I could see were branches and leaves. Then I noticed the straight edges of something hidden between them.
+
+A small square window.
+
+And beneath it, a ladder stretching down toward the forest floor.
+
+I stopped walking.
+
+Tommy’s treehouse.
+
+Lucas smiled.
+
+“We just got here.”
+
+THREE
+
+I still remember how quiet we became when we first saw the dilapidated treehouse. None of us wanted to admit it, but after everything Lucas had told us, standing beneath the real thing felt different.
+
+“It’s way smaller than how I remember it,” Lucas said, looking up at the treehouse.
+
+“Dude, shut up. We all know you haven’t been here before. Enough with the jokes.”
+
+Jackson was right. There was a time and a place for Lucas’s lies and jokes, but now was neither.
+
+“So, are we going up?” Julie asked, staring at the opening underneath the treehouse.
+
+“You’re joking, right? Look at the rot on those rungs.” I pointed at the ladder. Several rungs were missing, and the ones that remained looked ready to snap.
+
+“Oh come on, I’m sure they’ve got some life left in them.” Lucas put his weight on the bottom rung, which creaked beneath his shoe.
+
+“We saw what we came for. Let’s head back home before our parents get too worried.”
+
+“Come on, Mark. Why do you always have to be such a goody-two-shoes?”
+
+Julie grabbed the ladder and slowly began working her way up.
+
+“If I see any of you looking underneath my dress, I’m telling everyone at school about that one time you all decided to eat worms.”
+
+The three of us immediately looked away.
+
+“Please, just be careful,” Lucas said, all bravado leaving his voice.
+
+We heard the ladder creak and groan under Julie’s weight. But Lucas was right. None of the rungs came loose, and Julie made it inside in one piece.
+
+“Wow, you guys have to see this!”
+
+“What is it?” I asked.
+
+No response came.
+
+“J-Julie?”
+
+I could hear the worry in my own voice, but judging by Jackson and Lucas’s faces, they felt it too.
+
+“Come on, Jules, it’s not funny.” Jackson tugged at the first rung to check if it would hold his weight.
+
+“Maybe Mark should go. You know, if it can hold his weight, it can hold all of us.”
+
+“Screw you.” I pushed Jackson aside and started climbing the decaying ladder.
+
+More than once during the climb, I was convinced one of the rungs would snap and I would fall to my death, just like Tommy supposedly had. But eventually, I made it to the top.
+
+Julie stood inside the treehouse, motionless.
+
+“Hey, Julie, you had us all worried. Why didn’t you respond?”
+
+“What do you mean, goofball? I did respond. I even looked down the hole and waved at you guys. You were just too busy deciding who was climbing up next. Look what I found, though.”
+
+For a moment, I just stared at her. I was certain none of us had heard her.
+
+The inside of the treehouse was littered with old books, toys, comics and children’s drawings.
+
+“Do you think these are Tommy’s things?” I asked, grabbing one of the comics and wiping the dust from its cover.
+
+“I mean, they have to be, right? Who else would leave stuff here for this long?”
+
+The comic book was yanked from my hands, and I turned around to find Lucas staring at the cover in surprise.
+
+“No way! This is, like, so cool!”
+
+“Leave it, Lucas. It’s not ours.”
+
+Lucas threw the comic back onto the old floor, but something told me it would soon find its way into his backpack, which he would, of course, know nothing about.
+
+Hands appeared over the edge of the opening. I grabbed Jackson by the wrist and helped him inside. Despite his fear of heights, he had apparently decided the treehouse was worth seeing for himself. He stayed away from the opening once he was inside.
+
+“I told you!” Lucas yelled, holding up a piece of paper.
+
+We gathered around him, careful of where we placed our feet.
+
+In his hand was a child’s drawing of the treehouse. A small figure stood beneath it, drawn with little more than a circle for a head and lines for its arms and legs. But Lucas was pointing toward the window.
+
+There was another figure inside.
+
+Someone had scribbled over its face again and again in black crayon until the paper had nearly torn through.
+
+“See? That’s him, The Grinner!”
+
+“The what?”
+
+“The Grinner. I figured every monster needs a name.”
+
+Julie snatched the drawing from him, crushed it into a ball and threw it into the corner.
+
+“I don’t want to hear about this Grinner anymore, Lucas. Enough.”
+
+“Oooh, little Julie’s getting scared!” He raised his hands over his eyes again.
+
+Julie punched him in the shoulder so hard that he was still rubbing it minutes later.
+
+The treehouse truly looked as if no one had touched it for five years. Even I had to fight the urge to take some of the toys and comics with us. It just felt like a waste to leave them there to rot, but at the same time, we all knew it would be disrespectful to take something from a child who was no longer here.
+
+There were some other drawings, but none were as disturbing as the one Lucas had found. Some of them showed Tommy’s dad working on the treehouse. Others showed Tommy inside, pretending to be a knight defending his castle.
+
+Julie picked up one of these and smiled.
+
+“This one’s actually kind of cute.”
+
+It showed Tommy standing in the window with what looked like a cardboard sword in his hand. A badly drawn crown sat crooked on his head.
+
+“King Tommy,” Jackson said.
+
+“More like Sir Tommy,” Lucas corrected him.
+
+For a moment, we almost forgot why we were there.
+
+The longer we spent inside, however, the more it felt as if we were invading a private space. These had been Tommy’s things. His drawings. His comics. His toys. We were going through the remains of someone else’s childhood simply because we were curious.
+
+“Hey, guys, why is there no dust in this corner?”
+
+We turned towards Jackson.
+
+He was crouched beside one of the walls, staring at the floor.
+
+We had not noticed it when we first entered the treehouse, but now that Jackson had pointed it out, the difference was obvious. Dust covered almost every inch of the old wooden floor except for one small patch in the corner.
+
+I crouched beside him and ran my finger across one of the dusty boards. It came away almost completely grey.
+
+The boards inside the small patch were clean.
+
+“Uh, perhaps Tommy’s dad comes up here sometimes?” I said.
+
+“No.” Lucas moved closer. “This spot is way too small to be an adult.”
+
+None of us wanted to admit it, but he was right.
+
+The clean section wasn't much bigger than the space one of us would take up sitting with our knees against our chest.
+
+Jackson stood again.
+
+“Maybe an animal sleeps here.”
+
+That explanation made me feel slightly better.
+
+“Yeah,” I said. “Probably.”
+
+Julie hadn't said anything.
+
+She was staring at the floor beside the clean patch.
+
+“What?”
+
+She pointed.
+
+Footprints.
+
+Small, bare footprints led away from the corner.
+
+For a few seconds, nobody spoke.
+
+“They could be old,” Lucas finally said.
+
+I looked at him.
+
+“There's no dust inside them.”
+
+Lucas stopped smiling.
+
+We followed the prints across the floor until they reached the wall. At least, that’s what I thought at first.
+
+Julie stepped closer.
+
+“No.”
+
+“What?”
+
+She pointed again.
+
+“They don't stop.”
+
+I followed her finger.
+
+There was another footprint several inches above the floor.
+
+Then another.
+
+They weren't leading towards the wall. They were leading onto it.
+
+The four of us stood completely still as we followed the trail upwards. Small footprints climbed the wooden boards one after another, as if whoever had made them had simply walked up the wall.
+
+Jackson backed away.
+
+“That’s not possible.”
+
+Nobody answered him.
+
+The footprints reached the ceiling and continued across it.
+
+Something creaked above us.
+
+Julie grabbed my arm so suddenly that I almost shouted.
+
+“I think we should leave, guys.”
+
+Tears welled in her eyes. For once, nobody made fun of her.
+
+“Yeah,” Jackson said. “I think we’ve seen enough.”
+
+Even Lucas nodded.
+
+I started towards the opening.
+
+Before I could reach the ladder, something cracked beneath us.
+
+We froze.
+
+Another crack followed.
+
+I dropped onto my knees and looked through the opening just in time to see one of the ladder rungs tumble towards the dirt below.
+
+“What the hell?”
+
+Another tore loose.
+
+Then another.
+
+“Get back!” Jackson yelled.
+
+Within seconds, the remaining rungs had fallen away, leaving nothing but two rotten lengths of wood hanging uselessly beneath the treehouse.
+
+We all screamed.
+
+Me, Julie, Lucas, Jackson, and whatever had its hand wrapped around Jackson’s arm.
+
+FOUR
+
+We all screamed as the treehouse shook around us, sending dirt and dust raining down from the ceiling. Something pale had its hand wrapped around Jackson’s arm, and he frantically tried to claw himself free. He punched and flailed his free arm, desperately trying to strike whoever had grabbed him. His fist connected. The treehouse filled with a shriek, followed by sobs.
+
+“Stop, it’s a boy!” Julie yelled.
+
+The rest of us stopped screaming. Lucas continued for another second. We stared. A small child was clutching Jackson’s arm. The boy was crying, but he refused to let go. Jackson finally managed to tear the hand away and fell backwards onto the wooden floor, sending freshly fallen dust into the air.
+
+“Tommy, is that you?” I asked, struggling to maintain my composure.
+
+“I-I don’t know. Tommy. Who is Tommy?” The child looked confused, and he rubbed the tears in his eyes. “Am I Tommy?”
+
+“This can’t be happening!” Lucas looked shaken. We all were, but as usual, he was the first person to actually say it.
+
+Julie was the first of us to recover. She slowly crouched beside the little boy. He could not have been more than five years old. His dark hair was unevenly cut, as if he had tried maintaining it himself. He was not wearing a shirt, and cuts and bruises covered his emaciated body. Up until that point, I didn’t know humans could be that skinny. His pants were torn in several places, and he wasn’t wearing any shoes. At least that explained the footprints. It did not explain how they had ended up on the walls and ceiling.
+
+“Are you lost, Tommy? Do you know where you are?”
+
+“T-tr-treehouse,” the little boy managed to whisper.
+
+I found some courage and moved a little closer. He seemed more nervous the closer I got, so I decided to keep some distance.
+
+“Hi. My name is Mark. I’m sorry we walked into your treehouse. But the stories. We thought you were... gone.”
+
+Julie shot me an angry look. The boy replied.
+
+“G-gone?”
+
+“What Mark is trying to say is that everyone in Stamford has been looking for you for a very long time, Tommy. How long have you been here?”
+
+The boy thought for a couple of seconds.
+
+“I don’t know.”
+
+Jackson opened the little window from the drawing, and started screaming for help.
+
+“Stop it already, Jackson,” Lucas said. He seemed to have regained his composure, but tears still rolled down his cheeks.
+
+“Come on man, we need to like, make a rope or something.”
+
+“Make a rope from what?” Lucas shrugged and sat on the floor. “From scraps of paper and toys?”
+
+Jackson sighed and joined him.
+
+“Hey Tommy,” Julie said, reaching for the boy's cheek with the back of her hand, slowly caressing it. “Is there any way we can get down, or maybe get your parents to come over here?”
+
+“Parents?”
+
+“Yes,” she said. “Your mommy and daddy.”
+
+“Mommy and daddy are with me,” the boy replied.
+
+“What do you mean?”
+
+“I can whisper it to you.”
+
+The boy looked Julie in the eyes. There was something strange about the way he said it. We all felt it, but he was just a child, and Julie seemed to know how to talk to him better than any of us did.
+
+She leaned closer.
+
+The boy lifted his face towards her ear.
+
+I turned to look at Jackson and Lucas. Both still looked shaken, but for the first time since finding Tommy, I felt something close to relief.
+
+We had found him.
+
+Whatever had happened here, Tommy was alive.
+
+A scream filled the treehouse.
+
+I spun around.
+
+Blood covered the side of Julie’s face and ran down Tommy’s chin.
+
+He had leaned in as if to whisper something.
+
+Instead, he had bitten Julie’s ear clean off.
+
+Jackson and Lucas started to scream again, and I fell to my knees, vomiting all over the wooden floor.
+
+Julie screamed too, but her scream quickly turned into a wet gargle. It wasn’t until I looked up from the floor that I understood why.
+
+Tommy stared at the blood running down his chin. Cracks appeared across his face and skull. Black roots moved beneath his skin. Then they forced their way out. They squirmed and expanded as they pulled his face apart from the inside. For one terrible moment, I could still see the little boy underneath it all.
+
+Then the roots found Julie.
+
+They wrapped around her before any of us could move. Julie kicked and clawed at them as they lifted her from the floor, but more kept coming. They disappeared beneath her dress and twisted around her face until I could barely see her anymore.
+
+“Julie!”
+
+I don’t know if she heard me.
+
+The roots tightened.
+
+Her screaming stopped.
+
+Blood splattered across the wooden boards, followed by a long, wet tearing sound that I still hear in my dreams.
+
+When the roots finally pulled away, Julie fell to the floor.
+
+I looked at her once.
+
+That was enough.
+
+I vomited again.
+
+Through watering eyes, I tried desperately to get back to my feet before whatever had been living inside Tommy decided I was next.
+
+The entire treehouse shook. A deep rumbling came from somewhere beneath us.
+
+I tried to stand, but something slammed into the outside wall and knocked me down again. Once. Twice. On the third impact, part of the wall splintered inward. A root thicker than my leg forced its way through the broken wood. Whatever was inside Tommy was not the only part of this thing.
+
+Tommy had become unrecognizable. He was tall now, almost touching the ceiling. Several hands and feet were visible within the tangle of roots and dirt, gripping uselessly at the air around them. They almost seemed panicked. Patches of white skin remained between the roots. Tommy’s mouth was still there too, stretched wider than it should have been. I scrambled to my feet and turned towards Jackson and Lucas. They stood above the opening in the floor, staring at where the ladder used to be.
+
+None of us spoke. There was nothing to say. There was only survival.
+
+The thing behind me groaned like a giant oak tree and slowly dragged itself towards us. Thick hands made of dark roots scraped across the boards. At the ends of its fingers, I could still see human fingernails. Several were broken.
+
+“We have to jump!” Jackson yelled. “It’s the only way down.”
+
+I shook my head.
+
+“It’s too high, Jackson. We’ll die.”
+
+“We’ll die anyway if we stay here, Mark!” Lucas interrupted.
+
+Something slammed into the side of the treehouse again.
+
+Jackson had been afraid of heights for as long as I could remember. The last time I saw him alive, that fear was gone. There was only this primal look in his eyes as he lowered himself through the opening and hung from the edge.
+
+Then he let go.
+
+It seemed to take forever before Jackson hit the ground. All Lucas and I could do was watch.
+
+He landed hard.
+
+Even through all the noise inside the treehouse, we heard his bones break.
+
+Jackson never moved again.
+
+He just lay at the base of the tree, with his neck in his lap.
+
+The walls of the treehouse finally gave way as more roots forced themselves through the wood.
+
+“There!”
+
+I pointed towards the opening.
+
+Through the broken wall, we could see the branches of a neighboring tree swaying wildly between the roots. It wasn't close enough to climb across, but it was close enough to jump.
+
+Lucas saw it too.
+
+If we wanted to get out of the treehouse, we would have to get past whatever Tommy had become and somehow reach those branches. It was the only way out.
+
+The thing was close now.
+
+More roots twisted around its body, pulling themselves into knots and making it larger with every passing second. Pieces of Tommy's pale skin were still visible between them. Several hands clawed uselessly at the air from somewhere inside the mass.
+
+The treehouse groaned beneath its weight.
+
+It wouldn't hold much longer.
+
+Lucas pushed me aside, shaking me out of my terror.
+
+“Come on, Mark, please! We have to go now!”
+
+He was right.
+
+We ran.
+
+Tommy swung a massive arm of roots towards us. Broken fingernails scraped across my legs, and I fell hard against the wooden floor.
+
+By the time I looked up, Lucas had reached the opening.
+
+He didn't look back.
+
+He jumped.
+
+For a second, I thought he had missed. Then the branches bent beneath his weight and disappeared from view.
+
+I don’t blame him for not looking back. We were young, and I would have done the same.
+
+The roots came for me again.
+
+This time, they caught me across the face.
+
+Blood filled my eye. The pain was unlike anything I had ever felt, but somehow I stayed on my feet.
+
+Tommy was strong.
+
+He was heavy.
+
+But he was slow.
+
+In the end, I think that is what saved me.
+
+I ran for the hole in the wall.
+
+And jumped.
+
+FIVE
+
+Branches and leaves tore at my face as they broke my fall.
+
+I couldn’t see.
+
+Everything was red.
+
+I tasted copper, and I was afraid it would be the last thing I ever tasted.
+
+Poor Julie.
+
+Poor innocent Julie.
+
+And Jackson, who had spent the entire afternoon pretending he wasn’t afraid of anything.
+
+I still think about you both.
+
+We never should have visited that treehouse.
+
+A branch snapped beneath me.
+
+I crashed through the last layer of leaves and hit the forest floor hard enough to knock the air from my lungs. For several seconds, I couldn’t breathe. I lay there gasping, convinced something inside me had broken. Then hands grabbed my shoulders. I screamed and tried to crawl away. “Mark! Mark, it’s me!” Lucas. He turned me around. “Get up. We need to go.” He was alive.
+
+His face was scratched and bleeding from the branches, and he could barely put weight on one of his feet, but he was alive. “I-I can’t see, Lucas. You have to help me.” “Hold still.” Lucas wiped at the blood around my eye with the sleeve of his shirt. It helped for all of two seconds before fresh blood ran down my cheek. Above us, the treehouse groaned. We both looked up.
+
+Something dark pushed through what remained of the roof.
+
+More roots wrapped around the trunk and walls, bending the entire structure under their weight. Then the treehouse gave way. It crashed through the branches and slammed into the forest floor. Dust and splintered wood exploded around the base of the tree. Lucas and I stood frozen.
+
+Something moved on top of the wreckage. Tommy, or whatever had been using what was left of him. Long arms of roots reached down until they touched the forest floor. The hands trapped inside the mass opened and closed. Searching. “Run,” Lucas whispered. We ran.
+
+Or at least, we tried to. Lucas limped badly, and I could only see clearly through one eye. Branches whipped across our faces. Roots caught our shoes. More than once, I tripped over rocks I couldn’t see and felt Lucas grab the back of my shirt to keep me upright. Behind us, something heavy moved through the forest. We heard wood cracking. Trees shaking. A rumbling beneath the soil. I didn’t look back, and neither did Lucas. At one point, his injured foot gave way and he fell. I stopped. For half a second, every part of me told me to keep running, but I went back. I grabbed him underneath the arm and pulled.
+
+“Come on!”
+
+“I’m trying!”
+
+Something moved beneath the leaves behind us. The ground lifted in a straight line heading towards us. Lucas saw it too. He got back on his feet, and we ran harder. Eventually, the tightly packed trees ahead began to thin. For the first time since entering the woods, I could see the orange evening sky again. Then I saw the gate.
+
+“There!” I don’t remember which one of us shouted it. Maybe both. We stumbled towards it. Lucas dropped onto his stomach first and dragged himself underneath. I followed.
+
+The rusted metal caught the back of my shirt and tore through the fabric. For one horrible second, I thought something had grabbed me.
+
+Then I pulled free and rolled into the grass on the other side. Something crashed through the undergrowth behind us, and Lucas and I scrambled backwards. We waited, expecting the thing to burst through the trees after us, but nothing came.
+
+The rumbling continued somewhere inside the forest. Branches shook, and something large moved in the darkness beyond the gate, but it did not follow. I still don’t know why. Maybe the gate marked the edge of whatever territory the thing had claimed, or maybe it simply chose to let us go. I have spent most of my life trying not to think about the difference.
+
+Lucas and I stumbled across the fields without speaking. There were no jokes left, no arguing, no Julie mocking me for being afraid and no Jackson trying to impress her. There was only Lucas and me. We walked until the fields gave way to a road, where a passing driver stopped after seeing two blood-covered children stumble out of the grass.
+
+After that, my memories become less clear. There were police and an ambulance. I remember my mother crying while people asked where Julie and Jackson were and what had happened to my face. They separated Lucas and me before questioning us, and I remember being terrified by that. I thought they believed we had done something to Julie and Jackson.
+
+But Lucas told them the same story I did. Every impossible detail was there. Tommy. The footprints. The roots. Julie. Jackson. The treehouse collapsing. When they finally let us see each other again, Lucas asked me if I thought they believed us. I told him I didn’t know.
+
+Search parties entered the woods that same night. The following morning, they found the treehouse standing exactly where it had always stood.
+
+When my father told me, I thought I had misunderstood him.
+
+“What do you mean, standing?”
+
+He didn’t answer.
+
+“What do you mean the treehouse is still there?”
+
+They searched inside and found old toys, comics, drawings and dust. There was no blood, no broken wall and no hole beneath the clean patch in the corner. There was no Tommy, no Julie, and no Jackson beneath the tree.
+
+I told them that was impossible. Lucas did too. We had watched the treehouse collapse. I had watched Julie die inside it and Jackson hit the ground beneath it. There should have been blood everywhere. There should have been pieces of Julie on the floor. Jackson should have been lying beneath the tree with his neck broken.
+
+They found nothing.
+
+For months, people searched those woods. Eventually, Julie and Jackson were added to the same list as Tommy. They were no longer presumed to be hiding somewhere or waiting to be found. They were simply missing children.
+
+Lucas and I remained friends for a while after that. In some ways, we were the only people either of us could stand being around because nobody else knew what we knew. But talking to him also meant remembering. Eventually, we stopped spending time together. We went to different schools, then different towns, and years passed without us seeing each other.
+
+Neither of us ever stopped believing the other. That mattered more than I understood at the time.
+
+Lucas and I know what happened. We know something lives inside those woods, and years later, when we were both old enough to convince ourselves that returning was a good idea, we went back.
+
+The treehouse was still there. Through the branches, we could just make out the small square window, and someone was standing behind it.
+
+A little girl in a yellow dress.
+
+Julie waved at us. She had no eyes, and when she smiled, her mouth stretched from ear to ear.

@@ -1,0 +1,47 @@
+Hello there, the following story happened way back before the pandemic hit, somewhere around 2013, I was like 20 at the time, I always dreamed for a vacation,all my life was always spent here in Belgium with almost nothing important to do, a vacation was a desire for me since I was a child but my parents always said no (I still have no idea why) however....
+
+It was November,last month of fall, you see I'm not the kind that thrives for the beach or for the sea, I was always obsessed with the forests, the cold, the fresh air, no one to interrupt me, I was looking thru online then I came across an oddly interesting ad, "Need some space? Want some fresh air? Come to Alaska! Cold fresh and refreshing nature, Book a cabin now!!" Huh...  Aggressive but...... Incredibly promising,why not give Alaska a try!! 
+
+I did it, I booked a cabin somewhere remote, well.... Not really remote... Just like 12 kilometers from the nearest town, promising enough,I enjoy some time to myself, I also got tickets for the flight, I first needed to arrive to Canada then another one to Alaska
+
+After hours and hours that felt like forever, I arrived in Anchorage Alaska, now all I needed was to drive 160 kilometers (yes I don't care I'm in the US I'll still use kilometers) till I reach the cabin, there's also mountains nearby Wich is more than great, it's amazing, I can't wait to get there
+
+*Some hours later...* 
+
+I'm here, finally here, eager I wanted to enter in, the owner of the cabin welcomed me and told me everything I have to do
+
+\-Every corner of the house
+
+\-where the fire is
+
+\-the best places to relax nearby
+
+\-what to do in case the power went out
+
+I took every advice and instruction like a list printed in my mind
+
+Just when he was about to leave he turned back and told me one phrase 
+
+"Do not stay outside the cabin after the sunset"
+
+He said it in a cold tone, a manner that felt like a warning rather than a advice, weird but hey the cabin is good, it has also floor to ceiling glass so I can see the nature without needing the bastards from national geographic 
+
+The day was beautiful due to being very close to the mountains it was also full of snow,way better than Belgium what can I say,however the sunset started showing up, I needed to go back to the cabin, whatever the owner meant when he said that one warning must be something,once I reached the cabin I not just closed, but locked all the entrances, I was relieved that now nothing bad could happen to me, right? Well I set myself comfy on the couch and started looking for something entertaining at the tv,I started giving up and let it on one channel, I was watching the tv till like 11pm when suddenly, one of the lights outside turned on, by itself, weird.... The lights cannot turn on when detecting movement or something like that,you had to go outside and turn them on manually, I was thinking maybe the owner was outside so I called him, when he responded I asked him if he came to check something
+
+My blood ran cold when he replied to me with "No? I wouldn't be anywhere outside my house at this hour, why are you asking?" I replied in a almost completely freezing state with nothing and I closed the call now I got a confirmation that whatever turn it on its someone or something else 
+
+I tried leaving this freezing state and try to check from the windows, no one.... Nobody is there.... Not anymore, I went back to my couch, the lights inside are all off except the one of the fridge,I tried looking outside from the floor to ceiling windows nothing.... I got back to my couch.... I later went up again to go to the kitchen to get a snack... When I thought this night wouldn't be worse it just got... Outside, some bushes started moving, the snow drifting off, and from there a wolf head showed up, then following with the body, that's when I realized, it's bipedal, he's not on all fours like a normal wolf, he's walking on 2 feet like a human being, that is not a wolf, he took a few steps then stoped right in the light, he looked directly at me... Then a expression creeped into his muzzle, a smile, a human one, he was smiling at me like a human being
+
+I could feel my pulse dropping along with my body temperature, and then it got worse, he got one of these unsettling muscular hands and started To hit the window, he started hitting the window now his intentions clear, he wants to break it and get in, I ran into my room locked and barricaded the door, took the phone with me when I got everything set I could've heard the glass shattering, he broke it, hes in, I can hear him walking around the cabin checking the kitchen for food, checking the other rooms, as if he's searching for me
+
+I forced myself under the bed in the complete darkness not trying to make any move or to breathe too loudly,he got to the bedroom door, de tried to open but seems he noticed it's locked and barricaded, the wolf creature got mad, started shattering the door trying to make a hole..... However to my luck that I'll still remember, he gave up, he left the cabin but not before taking all the food with him.... I was relieved it was over, now even tho I didn't wanted to derange the owner I had to call him and so I did, instead of a wolf creature I explained him someone broke into my house and to come here urgently, after 20 minutes he arrived however after checking some details he asked me "Are you sure it was a thief? Whatever invaded the cabin was strong" then I replied "yeah it was a thief" he responded "Lies, a thief can't scratch a door" he knew,he knew what it was "that's why I warned you to not wander after the sunset"
+
+So that's why he warned me that's why he told me not to stay this late... "I warned you" he said like a father to his child after he did something he told him to not
+
+I felt embarassed then he noticed and tried to cheer me up "Do not worry kid,I can cover up for the damage" I felt relieved even tho I gave him money anyway as a way to thank him for atleast one good day on here, the separation hurt, I have to admit, he was a nice guy, something rare, I was surprised 
+
+Despite that I will never step in on that cabin ever again and for sure not go anywhere in the wilderness especially camping in my life.this experience alone made me rethink my desires for nature at all, it's not worth risking my life, that night I was almost going to get killed by something that pretended to be a wolf...
+
+Anyways few hours later finally home sweet home, didn't knew I'll miss my house like this before,now after like a decade I still think about this thing wherever I get an ad about booking a room or a cabin, I told this story to many, but almost nobody believed me ever,and therefore I don't think anyone will
+
+If theres an advice I could give to anyone camping or renting a cabin in the remote forests, never wander late at night neither outside or in the living room,sometimes it's better to go to sleep early 
