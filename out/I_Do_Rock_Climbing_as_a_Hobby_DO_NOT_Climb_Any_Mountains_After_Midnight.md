@@ -1,0 +1,273 @@
+Hey everyone, my name is Chris and, well, like it’s obvious I go mount climbing.
+
+Well, as a pastime. At least I used to.
+
+I came here with a warning. I might post this in every forum and social media site I can find. I don’t really care if you believe it or not, but I’m telling you anyways.
+
+If you’re a rock climber and even if you’re not and you’re considering doing it. I beg you, don’t do what I did.
+
+Don’t climb the mountain at night.
+
+And what mountain, you might ask? Well, I’m not going to say where I live. I don’t want to dox myself or get some wise guy to think of this as a challenge and come here.
+
+I don’t know if it’s just the mountain near my house, or some of them, or all of them. Maybe I’m unlucky. Maybe I’m lucky I’m still alive.
+
+God.
+
+Regardless of why and how this happened, I’m asking if you value your life and have common sense, heed my warning.
+
+Let me tell you about the worst night of my life, and the most excruciating five hours I’ve ever experienced.
+
+Jesus, I guess I should give some background.
+
+So, before I met my girlfriend and moved near the mountains, I already was a hobbyist mountain climber, so it seemed obvious.
+
+Rock-climbing is fun. It’s therapeutic, it’s relaxing. It makes a good break from putting numbers on Excel sheets all day. Since I work from home, where I can live is flexible. And when my girlfriend suggested we move near the mountains and closer to Nature, I had no reason to say no.
+
+I had no reason, but now I do.
+
+One day I was stupidly challenged by one of my friends to go rock climbing, but at night. That guy is an idiot, but it was the weekend and he says I’m turning into an old fart that doesn’t do anything exciting anymore.
+
+It was a challenge and I stupidly accepted.
+
+That night, I packed up my bags and decided to spend my Saturday night and Sunday morning, climbing the mountain near my house.
+
+I’ve climbed that mountain more times than I can count. But that night, it wasn’t the same mountain. Something was… different.
+
+It’s supposed to take an hour to climb. So, I started the journey, leaving bolts behind while I climbed. Same old, same old. I never expected what I experienced.
+
+Twenty-five minutes in, I noticed I couldn’t spot the top yet, which was weird. At that point I should be able to see the top of the mountain. But there was like this fog? I can’t really explain it.
+
+Then it started.
+
+It began as a low rumbling. Like a really low earthquake, or something shaking the rock wall. First, I thought it was my imagination, but then it began rumbling louder.
+
+I didn’t understand how anything could shake the entire side of the mountain. But it didn’t feel like an earthquake. It felt like… footsteps.
+
+But like, a lot of them. Like an army was marching on the walls somehow. I didn’t understand what was going on, but I hung on, expecting the worst until it went away.
+
+It took roughly five minutes for it to finally stop. I couldn’t see what was happening around me because of the fog, but I felt something…
+
+Once the rumbling stopped, I continued, just focused on getting to the top and then going back home.
+
+I… screwed up. I should have just gone home.
+
+After one hour passed, I began getting nervous. I should have reached the top by now; it should be at least within sight.
+
+But I saw nothing. Just the fog. Just the night breeze passing by my ears.
+
+And then I heard something.
+
+Try blowing air from your mouth and saying “Fuu” at the same time.
+
+During the next ten minutes, every so often I would hear that, right up to my ear, like a whisper. The first time I heard it, I flinched as a reaction. Threw my arm back and cringed at how close to my ear it felt.
+
+It was like a man whispering in my ear.
+
+I was lost, confused and now having auditory hallucinations. Every so often, just:
+
+*“Fuuu”*
+
+With nothing behind me.
+
+I have to admit at this point I started panicking a little. So, I decided to climb for five more minutes and if I couldn’t reach the top, just screw it, I’d go down and go home.
+
+I thought I was sick, I thought there was something wrong with me.
+
+As I struggled to climb just a few more feet, I started feeling like… lighter? It was an extremely weird sensation.
+
+The feeling of weightlessness slowly shifted to become an extreme pressure on my head. Like I was being picked up by my feet.
+
+It didn’t take long for me to understand what was going on.
+
+I don’t know how, I can’t comprehend whether I was losing my mind at this point or not, but somehow, in some way, gravity got twisted.
+
+My up became down and my down became up.
+
+That mountain, that fucking mountain, that I was climbing for close to two hours at this point, suddenly flipped on its head.
+
+I turned myself around and almost wanted to throw up when I saw the bolts that I had been laying down stood now above me.
+
+Like a trail that someone else made.
+
+God. I genuinely started freaking out at this point.
+
+This shit happened FIVE MORE times. I fucking couldn’t do anything.
+
+Climb up? Climb down? I didn’t know what to do.
+
+Just thinking about it makes my chest feel tight.
+
+I just gave up at one point. I started climbing up again away from the bolts. It was random honestly, but I didn’t know when the world was going to flip upside down again. I was desperate, I was tired. I just wanted to go home.
+
+I don’t want to describe what happened at 3:00 A.M. I… still have nightmares about what happened.
+
+But I’m going to, so that you never do it.
+
+Fuck. So, eventually I just picked a direction and went up and climbed for a while.
+
+At 3:00 A.M. I saw what I thought was black moss up above me, or at least some sort of dark vegetation.
+
+But it wasn’t a plant or fungus. It… it was moving.
+
+It was… It was fucking bugs. Hundreds if not thousands of them, crawling away from the temporary top of the mountain.
+
+I... I didn’t have any time. They were so, fucking, fast. All I had time to do was to crouch down against the wall.
+
+I don’t think I’ll ever forget that feeling. I wish I could.
+
+Feeling centipedes and spiders enter your clothes and pass through every inch of skin you have is not something your brain is equipped to do. I spasmed, I struggled, I cringed so much my stomach started hurting.
+
+Once they started passing too close to my eyes and nose is when I decided to make myself as closed off as possible.
+
+Hands in my mouth and nose and I shrank as much as I could.
+
+They just went through me. Like I was nothing. Over my clothes, under them. Every hair that could be a potential nest, every last one of their legs touching my skin.
+
+They would bite occasionally and move on. Scan every orifice I had to see what was inside. I screamed, my mouth covered. But they just kept coming, from the top of the mountain.
+
+It’s funny… I’ve never seen a bug on the top of the mountain. I don’t think I ever want to see one again for the rest of my life.
+
+It felt like an eternity, but eventually they all passed, and disappeared as quickly as they appeared. My body, God… It was just tingling all over. Every part of it sending signals of disgust to my brain.
+
+I wanted to scratch my skin off.
+
+I gave up at this point, and I started going down. Whatever down was. Towards the bolts and hopefully I’d have enough strength to make it back in one piece.
+
+I would like to say that that was it. That nothing else happened. Maybe I was drunk and got attacked by bugs. That wouldn’t be impossible.
+
+But something else happened that night. Something that made me want to explain this online instead of drinking this experience away.
+
+At exactly 3:30 A.M., I heard it again, that rumbling.
+
+The low humming against the wall, that grew louder and louder.
+
+At this point, I was dehydrated, scared and so, so tired. I almost didn’t care.
+
+I should have, I should have cared.
+
+I saw… something. Sprinting past me, something fast. Something coming from the top of the mountain. It passed probably five feet away from me. It was larger than me, and faster than anything should be vertically.
+
+And then I looked up.
+
+There were dozens of them. These things that I can’t even describe. Torsos that are mismatched, heads that were large and spherical. Limbs that are like claws. I could only tell you what they almost looked like.
+
+People.
+
+They almost looked like people. Deformed, monstrous people.
+
+They were sprinting.
+
+Sprinting down the mountain, in my direction.
+
+They were using their “legs” and “arms” as some sort of piercing climbers. God, they were so fast.
+
+I’m not going to lie and say I kept my pride.
+
+They weren’t like the bugs; they would dodge around me for the most part. But when they didn’t, I would get cut by their sharp ends. They were so strong, and I was stuck.
+
+Eventually one of them stabbed me in the leg and continued going forward.
+
+I yelled. I was crying out from the excruciating pain, urinated myself and almost fell.
+
+But they just kept going.
+
+I hung on, with as much strength as I could, just trying to survive. Every agonizing minute taking forever. I tried to make myself as small as possible so I wouldn’t get hit again.
+
+One unlucky step on my head, that’s all it would take. These things were piercing the mountain like it was nothing, my body was like soft jelly to them.
+
+It took… so fucking long. So long, for it end. I looked at them, it felt like there were hundreds of them...
+
+I noticed something. Every single one of them had two red marks in their limbs, almost like a birth mark.
+
+I didn’t know where to look, my brain was just trying to find something normal to cling on to.
+
+They kept going and I kept yelling. Yelling, crying and begging for a miracle.
+
+And then eventually, the last one passed, and I was alone again.
+
+I… I cried. I was so Goddamn tired. I just wanted to go home. The pain in my leg reminded me that it wasn’t over yet.
+
+I couldn’t climb.
+
+I couldn’t go down or up or anywhere. How could I? I didn’t know it but my leg was broken.
+
+My hands were shaking from everything, breath shallow, I felt like I was almost to pass out.
+
+Maybe that’s why that happened… Maybe that’s why I let go.
+
+I fell.
+
+I fell into the mist.
+
+I was so high up; I was going to die.
+
+I’d been climbing for hours. There was no chance I would survive.
+
+So that was it. I was going to die. I made peace with it, and accepted my fate.
+
+And so, I did. I fell.
+
+For a few seconds, before I landed on my ass on solid ground.
+
+I didn’t understand what the fuck happened.
+
+I fell about five feet. Hurt my ass and I was back at the base of the mountain. Just like that.
+
+I was safe, I could go home.
+
+I never saw any of those things again.
+
+This was five days ago. I got back home crying and thanking whatever Gods are out there. My girlfriend was out for a walk so she saw me. Picked me up and took me to the hospital.
+
+Now I’m sitting here, on my couch, writing this for anyone who has any good sense. Anyone that wants to believe the warnings of an old fart who’s never going out mountain climbing again.
+
+You can believe it or not. I don’t really care, but you should.
+
+Don’t go rock-climbing at night. The mountain doesn’t want you there.
+
+But this story is also a warning. A warning about those things I saw. Those things that were coming down the mountain, the ones that looked human.
+
+I have a theory that the first rumbling I heard was them climbing up the mountain, at the very start of the night.
+
+It’s creepy to think about, but I’m not crazy. I’m sure they’re out there.
+
+I didn’t want to say this, but one of those creatures that I saw looked almost exactly human.
+
+Like not a hair’s difference. Exactly like a human.
+
+I think they’re out there. I think they look like people, with two red marks on their limbs.
+
+Some sort of creature that climbs the mountain every night. I don’t know why, but I don’t care to know.
+
+They probably like to live near the mountains. I get sick thinking about it.
+
+It could be your neighbor; it could be your friend. It could honestly be anyone.
+
+I’m never going rock-climbing again. I refuse to. I think if I do my girlfriend is going to kill me.
+
+After I got home, she grabbed me. She was serious. Stern. She was even stronger, than what I expected.
+
+“Don’t go up the mountain anymore. Okay?”
+
+She doesn’t have to tell me twice. She worries too much.
+
+I guess it makes sense. I did break my leg, but I could have lost my life.
+
+So yeah, that’s my warning. Unless you want to end up like me, I can’t even move. My girlfriend is making me sandwiches as I write this.
+
+I’m never climbing the mountain again and you shouldn’t either.
+
+She’s wearing a tank top… I
+
+Oh right, the warning. I don’t know if it’s this one specifically, or only some of them.
+
+Regardless don’t do it at night.
+
+I…I… Am I getting paranoid? I’m looking at my girlfriend and I don’t think I’ve ever noticed it.
+
+I must be seeing things, it can’t be.
+
+It must be the medication or something. This can’t be right.
+
+She has two red birthmarks on the back of her arm.
