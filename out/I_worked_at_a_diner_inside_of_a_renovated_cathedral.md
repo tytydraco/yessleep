@@ -1,0 +1,45 @@
+Enclosed are my mother’s journal entries as a young writer transcribed word for word straight from the year 1998. I found the notebooks in the back of a closet a week ago and I have to upload this to show someone or I’ll just about explode.
+
+Part 1  
+The first day of autumn brought with it the first snow fall of the year. I stepped out onto the balcony to find the fresh white blanket over the familiar shapes of my yard, turning the plants I had grown myself into a homogenous landscape alien to me. Still groggy, I woke up quickly as my face hit the wall of cold air outside. I clutched the hot black coffee a little tighter as I took my usual seat and pulled the lighter and pack of Malboros from my pocket. Enjoying the stinging mountain air, I faced east to admire the brilliant orange clouds that foreshadowed the coming sunrise. The silence shattered with the metallic shriek of a raven’s cry as it took flight from its nest on my roof and cut a black silhouette against the sky. Pulling a cigarette from the pack, I squeezed it between my lips while flicking open my chunky old phone to check the notifications.   
+One missed call from work. Shit.   
+Holding the phone up to my ear, I lit the cigarette with the other hand and took a long drag as the ringtone played. Ever the conscientious employee, Randy picked up almost instantly.  
+“Hey Lori! How ya doin?” His chipper customer service voice was always over bright, but this early in the morning it seemed all the more grating.  
+“I’ve got big news,” he continued without waiting for an answer. “The higher ups think you’ve been toiling away behind a desk for too long and I’ve finally convinced them to put you out in the field, give you your first real assignment! They’ve set aside a case just for you.”  
+His tone was proud and slightly paternal. I could tell he was excited for me, and I couldn’t suppress my own thrill at his words. I’d been editing articles for a paranormal magazine for almost a year now. It was my dream position, but I didn’t know how long my pride could handle just fixing grammatical errors for my high-school-drop-out colleagues (all 5 years my junior) when I had graduated with a master’s degree in journalism.   
+There were so many people with stories to tell, folk tales to explore, and urban legends to investigate. Unfortunately, I’d quickly learned that in this field, advertisers were only interested in the audience reaction, and the audience was only interested in the kind of pulpy campfire stories they could digest easily alongside a cheesy slasher movie.  
+“Talk to me Randy, what’s the story?”  
+“Well…” he said, cheery tone beginning to falter, “you know, it being your first assignment and all, we thought we’d give you something a bit lower risk.”  
+*Fucker*  
+I tried to match his tone, but it came out forced. I knew that he knew I was suspicious.   
+“Where are they sending me?”  
+“It’s a diner, ‘The Highway House’. About 7 hours drive away on the side of the Hartford highway- figures I guess,” he chuckled awkwardly.  
+I closed my eyes and exhaled a puff of smoke slowly into the clear air.   
+“We’ve received multiple calls about the place, and it's freaky. Get this- a cheesy diner built onto the front of an old cathedral! You know how the people are, we all want a fun, spooky occult story to tide us over until Eddie finishes his cryptid-hunting tour up north. They’ve just put up a ‘waitress wanted’ ad, so you'll be working there undercover to get the full scoop.”  
+Only then did I understand why I was finally being chosen. They didn’t recognise my potential at all, I was just best suited for the job as the only woman on staff. Resisting the urge to snap the phone shut, I pictured the stack of manuscripts on my desk in the office that would be waiting for me if I didn’t take this case. This was my chance to strike out on my own, and if I proved myself here, it could be the big break I needed. Finally ending the long uncomfortable silence, I asked him when I’d be leaving and if I’d still have to complete my week’s editing.   
+“Oh Lori, that’s the work ethic we love to see, but the new hire- I think his name is Zach- can take them”  
+I put out my cigarette right on the metal arm of my chair, leaving behind a small, brown burn mark. Sure, I was relieved that I wouldn’t have to do the extra tasks but frustrated at the value they saw in my work.  
+*Zach couldn’t recite the alphabet if you laid it out in front of him. The fuck do you mean you think he can cover for me?*  
+\*“\*In other words, start packing, you have your first shift tomorrow morning so we want you there by tonight.”  
+Slightly stunned, I thanked him. I had no weekend plans to speak of, so I couldn’t help regaining a little excitement at the prospect of escaping another empty day so soon. I packed light, unsure how long the agency would have me staying, and with no idea the conditions I should prepare for. Into the duffel bag went a spare pair of jeans, alongside a few flannels and a thick woolen sweater. A wad of cash, plastic water bottle, my phone, and several large, digital cameras followed, and I was lugging my belongings down the stairs with the bag slung over my shoulder. In my arms was cradled my prized possession, the bulky blue typewriter bought for me by my mother. I locked the empty house and stood looking up at it for a few seconds. I didn’t dislike it, but carrying all my belongings out of it and leaving made the already lonely house feel even more like a sad shell. I turned my back on it and hurried away to the car.   
+In the end, I was pulling out of the driveway, heading west and away from the sun before it had fully breached the mountain tops.   
+After the nauseating drive down twisting mountain roads, the trip mellowed out on the long highway that stood between me and my destination. The straight, flat road stretched out to the horizon and was surrounded by rolling green and yellow fields on all sides. The only remarkable features were the powerlines that stood monstrous and imposing, miniature towers of Babel as testaments to the conquering of even this empty land by electricity and modernity. As the day drew on, the chill cleared enough for me to feel the warm light on my outstretched forearms.   
+Randy assured me that he had secured the offer for me over email, pretending to be my father. He reminded me that my investigative motives for the position were to be kept strictly confidential, and this advice I intended to follow, but that didn’t mean I couldn’t improvise. Groping around the passenger seat for my phone, I dialed the number and held it to my ear. A breathy, high-pitched voice greeted me from the tiny speakers.  
+“Goodmorning, this is The Highway House, Sylvia speaking”   
+“Hi Sylvia, this is Lorraine Cicero, I was recently hired-” I was cut off quickly by a noise in the background, it sounded like bird calls. And it seemed to be getting louder.   
+“I’m sorry, am I interrupting something?”  
+“Ahh, Lorraine! No, not at all. I’ve heard so much … Val…, the other girls are … meet you.”  
+The background noise was only getting louder, a bitter choir of screeches and wails interfering with the already static ridden audio until I could only make out a few words. “Oh, I’m sorry Sylvia, you're dropping out.”  
+I bit my lip. I was suddenly very eager to get off this call.   
+It was impossible to hear anything intelligible on the other end, and I tried to wrap up the conversation as politely as I could.   
+“I’m so sorry for the interference, I’ll see you tomorrow morning for my first shift I guess.”  
+Just as I was about to hang up, the noise stopped and another woman’s voice came through- very calmly and very clearly over the noise.   
+“That sounds wonderful Lorraine. Do come in before dawn for some coffee to get acquainted. We’ll be expecting you.”  
+The line went dead.   
+My mouth had gone unexplainably dry over the course of the phone call, and I swallowed hard, trying to regain my composure. Placing both hands firmly on the wheel, I pressed my back against the driver's seat and let my gaze drift from the road.   
+Whatever. The connection was probably dodgy out here, and it could have been interfering with some broadcasting signal? (can you tell I have no idea how a phone works?) Or maybe it was the distorted sound of whatever they were playing at the diner. There were a million normal explanations for that call.  
+Still, the hope for something more unusual jumped in my throat- whatever awaited me at the end of this road, the investigation had already begun. 
+
+Update 2:
+
+https://www.reddit.com/r/nosleep/s/fq6S9bDQCl

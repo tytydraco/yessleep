@@ -1,0 +1,134 @@
+I’m not really sure where to start with this because even writing it down makes me feel like I’m being paranoid. I’ve lived in the same flat for almost three years and I’ve never had any problems before. It’s not a particularly nice place, but it’s quiet and I’ve always felt safe there. I live alone, although my sister stays over occasionally.  
+About two weeks ago, I started noticing little things being out of place.  
+Nothing dramatic. That’s why I didn’t think anything of it at first. The first thing was a kitchen cupboard. I always keep my mugs in the cupboard above the kettle, and one morning I noticed one of them was sitting on the draining board. I assumed I’d made tea before bed and forgotten about it.  
+A few days later, I noticed my bathroom door was open when I woke up. I normally sleep with it closed because the light from the hallway comes through the gap underneath and annoys me. Again, I didn’t think much of it. I figured I’d forgotten to close it.  
+Then my bedroom window was open one morning.  
+That one bothered me slightly because it had been raining overnight. The windowsill was wet and there were a few drops of water on the floor underneath it. I was annoyed with myself because I thought I’d left it open before going to bed.  
+I started paying more attention after that.  
+Nothing else happened for several days, so I stopped worrying about it. Then last Thursday I came home from work and noticed that one of my dining chairs was pulled away from the table.  
+I live alone.  
+I know that sounds ridiculous, but I remember putting the chair underneath the table before I left because I’d been cleaning that morning. I actually stood there for a while trying to remember if I’d done something else before leaving.  
+I even checked my phone to see if I’d spoken to anyone about coming over.  
+Nobody had.  
+I eventually shrugged it off because, realistically, there were about a thousand explanations for a chair being slightly out of place.  
+That night I went to bed around midnight.  
+I woke up at about 3:40am because I heard something in the kitchen.  
+It sounded like a cupboard closing.  
+I lay there for a few seconds listening. I didn’t hear anything else, so I assumed it was the building settling or something falling over.  
+Then I heard the sound of a drawer opening.  
+That woke me up properly.  
+I grabbed my phone and turned the screen on. I remember thinking about calling the police, but I felt stupid because I had no actual reason to think someone was inside. There was no banging, no shouting, nothing being smashed.  
+I got out of bed and slowly walked towards my bedroom door.  
+As I reached for the handle, I heard the kitchen tap turn on.  
+I froze.  
+There was definitely someone in my flat.  
+I didn’t know what to do. My first thought was that I’d somehow left the front door unlocked and someone had come in, which made absolutely no sense because I always lock it.  
+I called my sister instead of the police because I was panicking and didn’t really know what else to do.  
+While I was waiting for her to answer, everything went silent.  
+The tap stopped.  
+The drawers stopped.  
+Nothing.  
+I opened my bedroom door and looked into the hallway.  
+Nobody was there.  
+I checked the kitchen and the entire flat. There was nobody inside. The front door was locked from the inside and all the windows were closed.  
+I was shaking by this point.  
+My sister came over and spent about half an hour checking everything with me. We couldn’t find anything. She told me I was probably half asleep and that noises travel strangely through the building.  
+I wanted to believe her.  
+The next morning, I found a wet glass sitting on the kitchen counter.  
+I hadn’t put it there.  
+I asked my sister if she’d used it and she said no.  
+That’s when I finally started getting genuinely uncomfortable.  
+I bought a cheap camera the following day and put it in the living room facing the hallway. I didn’t tell anyone about it because I didn’t want people telling me I was being paranoid.  
+For the next three nights, nothing happened.  
+On the fourth night, I woke up at 3:41am.  
+I don’t know why.  
+I reached for my phone and noticed I had a notification from the camera app.  
+Motion detected.  
+I opened it expecting to see myself walking around.  
+Instead, the camera showed my living room.  
+The timestamp said 3:38am.  
+There was nobody visible.  
+I watched the clip again.  
+Nothing.  
+I thought maybe the camera had detected a shadow or something outside the window, so I went back to sleep.  
+The next morning I checked the recording properly.  
+There was something strange about it.  
+At 3:38am, the camera detected movement.  
+The image didn’t show anyone walking into the room.  
+It showed the hallway light turning on.  
+Then, about ten seconds later, it turned off.  
+That was it.  
+I checked the rest of the recording and noticed something I hadn’t seen before.  
+At 3:41am, just before the recording ended, the camera moved slightly.  
+Not much.  
+It looked like someone had touched it.  
+I stared at that clip for ages.  
+Then I noticed something behind the camera.  
+A tiny gap in the wall.  
+I’d never seen it before.  
+I moved the camera and looked closer.  
+There was a loose panel behind the skirting board.  
+I honestly thought it was some kind of maintenance access until I pulled it slightly and realised there was a dark space behind it.  
+I didn’t open it any further.  
+I called my landlord.  
+He came over later that afternoon and looked at it.  
+He seemed surprised.  
+He said there shouldn’t be any access there.  
+That was the first time I really started feeling sick.  
+He removed the panel completely.  
+Behind it was a narrow space between the walls.  
+It wasn’t big enough for a normal room, but it was big enough for someone to crawl through.  
+And there was something inside.  
+A blanket.  
+A bottle of water.  
+Two empty food wrappers.  
+And a phone charger.  
+My landlord immediately called the police.  
+I don’t know how long someone had been using that space.  
+The police searched the flat and the adjoining areas but couldn’t find anyone.  
+They also told me something that made everything worse.  
+The space behind the wall connected to an old service passage that ran underneath part of the building.  
+Apparently it had been sealed off years ago.  
+Except it obviously wasn’t sealed anymore.  
+They couldn’t tell me how long it had been open.  
+I’ve moved out now.  
+I haven’t stayed there since they found the space.  
+My sister keeps telling me that at least we found out what was happening and that I’m safe now.  
+I’m trying to believe her.  
+But there’s one thing I can’t explain.  
+The police gave me the phone they found behind the wall because there was nothing they could do with it unless someone claimed it.  
+It had no SIM card.  
+No passcode.  
+But there was one video saved on it.  
+I shouldn’t have watched it.  
+I know that.  
+But I did.  
+It was recorded from inside my flat.  
+The video showed my bedroom door from the hallway.  
+It was taken at 3:41am.  
+The date was three months before I ever noticed anything missing.  
+In the video, I’m asleep in my bed.  
+And someone is standing outside my bedroom door watching me.  
+I couldn’t see their face.  
+They were just standing there.  
+Completely still.  
+I watched it three times because I couldn’t understand what I was looking at.  
+Then I noticed something in the corner of the screen.  
+The person wasn’t standing in the hallway.  
+They were standing INSIDE MY FLAT.  
+The camera was positioned behind them.  
+Which means whoever recorded the video wasn’t the person standing outside my bedroom.  
+There were two people.  
+I haven’t told the police about that part yet.  
+I’m not even sure why.  
+Maybe because I don’t want them to tell me there are two explanations for everything and make me feel stupid again.  
+Or maybe because I keep thinking about something my sister said when I showed her the video.  
+She asked me why the person in the hallway looked familiar.  
+I laughed and told her they couldn’t possibly be someone we knew.  
+Then she pointed at the screen.  
+She said, “That’s you.”  
+I haven’t slept properly since.  
+Because I don’t know who the person in that video was.  
+But I know one thing.  
+I wasn’t awake that night.  
+And I was definitely alone when I went to bed.

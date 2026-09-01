@@ -1,0 +1,69 @@
+Hello. I suppose I should introduce myself first.
+
+I was born in a small town in Utah, and I have lived there for 27 years. I currently run a corn farm, and I am also an amateur photographer.
+
+Normally, I would have spent this summer vacationing in Florida with some fine cocktails, but this summer was little different. I was invited by my cousin, who works as a fisherman in South Korea. His name is Cal. He is a relative on my mother's side, and he moved to Korea when he was about six years old.
+
+We were close until then, and even after he immigrated, he would occasionally send me letters saying that he was doing well. At first, he wrote that he had trouble getting close to people, and that even when he got close to them, it didn't really feel like he had become close to them. As time went on, though, he seemed to be adjusting well to life in Korea.
+
+The neighborhood where he lives is a small harbor village in a city in southeastern South Korea. The city center is filled with tall buildings and department stores, but he lives in a complicated yet friendly neighborhood where small houses stand tightly against one another, forming narrow alleys. If you make your way through those maze-like streets, you eventually reach a small harbor. Various kinds of boats are docked there, and sometimes you can see old men in straw hats fishing.
+
+The neighborhood looks different when viewed from the harbor. The houses packed tightly along the sloping hills, like the roots of a mountain, look almost like castles from another world during the day. At night, they look like high-rise buildings built up in gentle layers.
+
+I've gone on long enough about the setting. Let's get back to the point.
+
+Cal's house is halfway up the hill, and from his windows, you can see the harbor and the horizon. Once, I asked him why he had chosen this house. He told me that he was worried someone might steal his boat, so he chose a place where he could see the harbor. I still don't know whether he was joking or serious.
+
+Anyway, the sea isn't the only thing you can see from Cal's house.
+
+Between the narrow gaps of the houses directly across from his house, there is a gray concrete structure.
+
+At first, I didn't think much of it. But as I spent the summer with him and explored every corner of the neighborhood, I realized that the only thing I knew about the structure was that it was a gray rectangular block.
+
+More importantly, there was absolutely no way to approach it.
+
+I could see its surfaces and corners through the narrow gaps between the alleys, but there was nowhere I could actually stand in front of its walls.
+
+About a week after I arrived in Korea, I was having coffee with him—ha ha, we aren't Mormons—and I asked him about the strange box.
+
+He said he didn't know anything about it either. He did, however, think that it might have been a structure built during the Korean War.
+
+And one more thing.
+
+He said that the building couldn't be seen from the sea.
+
+From that day on, whenever Cal went out for his early-morning fishing trips, I started taking photographs of the structure as it appeared through the gaps between the houses.
+
+Eventually, I found a house that seemed to be located closest to the walls of the structure.
+
+It was some kind of small neighborhood general store. The owner appeared to run the store on the first floor and live on the second.
+
+That day, I went back to the store with my cousin and asked him to ask the owner if he knew anything about the structure.
+
+According to Cal—or Min-su, which is his Korean name—the owner of the store, an old man named Kim, said this:
+
+"I've lived here since around the end of the Korean War. You can only see that place through the gaps between the buildings, and that's all. There ain't even a window on that side, so how would I know what's there? The folks around here don't really know what it is either. Some say those damn Japanese built it as a hangar, but I wouldn't know."
+
+That was all.
+
+During the rest of my stay, I found out that I couldn't even squeeze my body or arm through the gaps between the buildings, and that I couldn't find the stupid box on Google Maps either.
+
+The arrangement of the buildings was subtly different from what it looked like from the ground, so on Google Maps, the houses on opposite sides of the structure appeared to be connected to each other.
+
+Damn it.
+
+
+
+Ah, I'm doing fine now.
+
+I'm spending a peaceful harvest season here in Utah, driving my combine harvester.
+
+I thought about calling Cal, but for some reason, I felt like he wouldn't answer, so I didn't.
+
+One day, I realized that the structure had disappeared from the photographs I had developed of the Korean scenery.
+
+Since then, I sometimes see the structure through the morning fog and the cornfields.
+
+There are no buildings blocking my way anymore, but I still find myself turning the steering wheel in the opposite direction.
+
+Everything has a reason.

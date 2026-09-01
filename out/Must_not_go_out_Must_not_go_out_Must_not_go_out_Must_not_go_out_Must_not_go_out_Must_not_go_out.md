@@ -1,0 +1,43 @@
+My cousin told me it happened in a very small village in Mexico, the one our grandfather grew up in.
+
+Late one night, a young man was leaving a friend's home. Despite the late hour, he insisted that he could walk home. After all, his own abode was only a mile away. Stepping out into the quiet streets, he started his journey. Breathing in the humid summer air, listening to the buzz of the street lamps mixed with the crickets and his own footsteps on the gravel ground.
+
+Soon, however, a second pair of footsteps could be heard. The young man turned around to see a little old lady a short distance behind him. Despite the off-color light of the street lamps making it hard to tell, he noticed she was holding a candle. It was not uncommon for people to be walking in this rural town, but an old lady at night was rare.
+
+Now, being the kindhearted young man that he was, he decided to slow down so that the old woman would have some company for a while. He gave her a gentle smile and a nod, but the old woman seemed to pay him no mind. The man simply shrugged it off, and the two walked. Soon, however, he noticed a strange habit of the elderly woman. While she carried her candle, if it should ever burn down to the nub, she would reach into the folds of her sleeves and pull out another candle and relight it with the flame before it faded.
+
+To him, it was very odd. Yes, it was a dark night, and yes, a few of the street lamps were dull, but there was still enough light to see where one was walking. But he was raised to respect his elders and didn't mock or even question the woman on the matter. And the two continued to walk in silence. The only sounds were their footsteps walking in unison on the loose ground or the occasional shuffling of the woman's sleeves. In fact, those were the only noises; the night had gone quiet, even the humming of the street lamps sounded muffled.
+
+The journey began to feel heavy, his legs becoming sore. The young man started to wonder, with a nervous tic, if his house was really this far away in the night as it was in the day.
+
+*Step, Step, Step, Shuffle, Step, Step, Step, Shuffle, Step, Step, Step-*
+
+Then, a sudden patch of darkness covered them. One of the street lamps was dark. This almost made the man freeze up, a small hitch in his step. It was dark, but only for a moment until they once again reached the next lamp. But for a short while, the only light was the candle. The young man wondered for a moment if the light had gone out or if it had always been out. He looked over at the old woman to see if she reacted as well, hoping she would break the tension by making a comment, but she said nothing. In fact, she wasn't even looking at him. Her eyes focused somewhere else off into the distance, hands cradling that candle. It must have been the 10th or 11th now, already half gone.
+
+Now the young man began to notice that there was nothing beyond the light. A wall of darkness held at bay with the yellow flicker of the street lamps. He blinked and turned his head away, staring at his feet as they moved, wondering why all of a sudden, it felt as if the darkness was staring at him. Hungry.
+
+*Step, Step, Step, Shuffle, Step, Step, Step, Shuffle, Step, Step, Step*
+
+His eyes glanced at the woman. Her wrinkled face, like wet leather, was calm, her eyes staring off into the distance. Finally, the question burned in the young man’s throat for too long, and he finally asked, "Why do you keep relighting that candle?”
+
+It was as if a switch had been flicked and the woman turned her head slowly to the young man. Her eyes are boring into him. She looked…surprised. It was as if he had not been walking alongside her all this time. Then she spoke slowly, her mouth opening with the sound of something that was wet and crusty being peeled away. Her voice was hushed.
+
+“The light must not go out," she said, and then her head turned back, eyes forward. The young man just looked at her. Another street lamp passed overhead, casting darkness on them both, the candle light gathering into the cracks of the old woman's face. The darkness was longer this time before a working lamp found them. But it did not last. The broken lights become more frequent. And something deep and twisted in the man was almost relieved to be in the darkness rather than the dim yellow light. Because when he could see clearly, he saw nothing but the abyss. Darkness. The houses are gone; even the gravel road seems to disappear. 
+
+*Step, Step, Step, Shuffle, Step, Step, Step,* ***Darkness****, Step, Step, Step, Light, Step, Step, Step, Step, Shuffle, Step, Step, Step,* ***Darkness****, Step, Step, Step, Step, Shuffle, Light, Step, Step,* ***Darkness, Darkness, Darkness.***
+
+They were swallowed again, the candlelight their only guide. The young man swallowed and forced his legs to stop. But the woman continued, taking a few more steps ahead before the man spoke.
+
+“What happens if the light goes out?”
+
+She stopped; her body didn't even move or shake like those in old age would normally do. Then her body turned, except it was just her spine. It turned, while her legs stayed planted where they were. She was smiling at the young man, a gummy smile. The candle was held close to her chest.
+
+“Let's see, shall we?" and then she blew the candle out.
+
+My cousin told me the man had gone missing for days. His friend who had seen him last that night (the one whose home he had walked from) had grown worried the next day when the young man had not shown up for work. He had tried to call but no luck. He hesitantly shrugged it off, thinking perhaps he was ill. The next day the worry grew; others hadn't seen nor heard from him either. On the third day, a group had gone to the man's house, knocking at first before breaking the door down. It wasn't locked; it was just stuck. Piles upon piles of melted wax from hundreds of burning candles had melted against the door. The house was covered in wax and little flickering flames. 
+
+They found the young man's body on a chair, his body covered in a second layer of yellow waxy skin, half his face was left untouched and one droopy eye could be seen. Looking at nothing. There was no sign of a struggle, it was as if someone had placed candles on him, and he let the wax melt over it.  Then his uncovered eye gave a twitch, causing one of the men in the group to let out a shriek. The young man was still alive beneath it all, if only barely.
+
+They took him to the hospital; he suffered greatly from a lack of oxygen and was in a coma for a week or so. When he woke, his speech slurred and his eyes were wide and confused. But he told his story of the old woman and her candle. When asked if she had been the one that covered him in wax, he told them no. He had done it all himself, and when asked why, he simply said.
+
+“The light must not go out."
