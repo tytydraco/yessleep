@@ -1,0 +1,153 @@
+There’s something wrong with Kenny \[part 1\]
+
+People ask me a lot of questions about my time in prison and I guess that’s why I’m here. I need to tell someone what happened. I need to tell all of those people asking so I never have to say it again, so I can forget about the riot and forget about Kenny— No, about whatever Kenny was.
+
+I’ll start simple, explain just how I was involved in the riot by telling you why I was in prison to begin with.
+
+I got someone killed.
+
+If you do want gory details— I did time in the army when I was eighteen and got tossed out after a few years of what— at the time— was pretty normal. Mess with things they later find out cause cancer. 
+
+Give young grunts with underdeveloped brains rifles and put them in an environment where abuse runs rampant without consequence.
+
+ You got put through hell and then you put others through hell. That’s how it worked back then.
+
+I left with asthma from those chemicals I’m sure will give me that cancer one of these days, guilt and a pretty nasty brain injury. I wouldn’t say it turned me into a drooling idiot but I had trouble doing some basic things and the military prefers when you can hold a gun in your hand without doing it backwards.
+
+So I was in my early twenties without any prospects and I was mad. I’d always had a bit of a quick fuse but all of that frustration piled up high and I decided I wanted to do those jobs where I can hit things to soothe my wounded pride. 
+
+You know, to feel big and tough after a boot to the head left me a wheezing moron who forgets how to use a spoon.
+
+So, a friend of mine hooked me up with a job as a debt collector, loan shark, lowlife scumbag— whatever you want to call it, it’s still beating the shit out of folks for money. 
+
+My partner was a mean one, if I had a quick fuse then that guy had no fuse at all. 
+
+He preferred action over threat. 
+
+I expected that he’d do the usual and break a few fingers, something I’d hate. It's difficult for the sorry bastard to pay if they can’t use their hands— assuming it’s required for whatever gruelling jobs they’re doing to scrape together the cruel interest rates.
+
+ I’d been kicked in the head but I didn’t know a punch could have a gambler with a gut bigger than his debt dropping like an anvil and cracking his skull on the floor.  
+   
+I ran my damn ass off but I just couldn’t stop myself, I ran straight into a phone booth and called an ambulance for the guy. Guess it was nearly his lucky day and my unluckiest because he was dead and I was taking an arrest. I did what I do best, followed orders and nodded like I understand. 
+
+My initial prison sentence was harsh but extensions for volatile behaviour is what doubled it. My choice in friends and jobs didn’t improve much after that, extortion, racketeering, various assault charges and robbery is what ends with spending half of my life behind bars. Honestly, I’d spent more of my life incarcerated.
+
+Secondly, assuming the mention of second degree murder isn’t enough to scare someone off— they ask what prison was like. They expect some sort of movie answer, something brutal with prison gangs and abusive prison guards— and yes, those are true, but it’s when they factor in my age most picture something more along the lines of jailhouse rock and assume everyone was planning a big prison break. 
+
+The thing is, you just kept your head down and didn’t cause much trouble with the guards. You'd just fall into the routine, play cards and do your time. For me at least, the army made routines comfortable and taking a rare beating when you earned it wasn’t too big a price.
+
+When the monotony of prison life disappoints they start asking specifics.
+
+“ What’s the craziest thing you've ever seen?”
+
+“ Was there ever a jailbreak?”
+
+“ Did you join a prison gang?”
+
+“ Did that riot really… You know, did all of that stuff really happen?”
+
+I can’t say it’s the craziest thing to ever happen, a lot of things happened but the worst wasn’t any particular incident, it’s something that happened over the course of one year and ended with the riot. The thing is, no one ever asks why it happened. So I tell them.
+
+What happened was Kenny.
+
+Everyone always asks about Kenny.
+
+\-
+
+I was in my late forties when Kenny happened and I still had a good nine years left to go. I think the miserable look of pity is what kept that from becoming a life sentence after the riot. 
+
+Gangs and all that were a younger man’s game but I had yet to join the ranks of the elderly within the prisons I’d been passed around to. None of my later stays were cramped and cutthroat big city joints. We’d call mine a countryside stay— of course this  meant it was a miserable fortress of cold concrete, strict rules and armed guards already grouchy from patrolling in the snow.
+
+ All kept isolated by endless forests and mountains so dangerous it’d take a real madman to even think of escaping.
+
+I’d already been in what I will refer to as Y prison, for eleven years and for lack of a better word, it was home. 
+
+My cell block wasn’t considered noisy but it was large, heavily secured with just a little more slack due to the better behaviour— less younger prisoners around, all lifers who aren’t too interested in causing trouble when this was as good as it gets for the general population inside of a maximum security prison. 
+
+Granted, no one was in there for light offenses but you weren’t going to see fights break out daily and the guards would rather turn their backs to most things unless you forced their hand— That’ll end with someone in the hospital ward and another in solitary for god knows how long.
+
+I felt the need to explain a few things about my cell block so you’ll understand how Kenny’s arrival flipped the place on its head and took away any small semblance of peace prison life really had to offer.
+
+I lived in a two person cell with an old timer serving a life sentence— he was the quiet type with no real habits I’d consider overly annoying, he had the bladder of a toddler and pinch small things and hide them under the poor excuse for a mattress, had a habit of losing his socks but he was fine until he started sundowning. 
+
+I didn’t know exactly what dementia was but his unusual behaviour at night got him moved to wherever they whisk the elderly prisoners away to.
+
+A night in the solitude of a small cell full of complete and total emptiness and the unsettling feeling of being entirely alone without the ambient sounds of snoring or thumping heartbeats reminding me that anyone was there, it felt unnatural to face the nothingness normally filled by another person and after so many years of having any sort of life beside my own I realised there wasn’t even the squeak of a rat or scuttle of a bug. It was just silence. 
+
+The next day Kenny moved in and Kenny was nothing like the old timer.
+
+Kenny was barely eighteen, skinny as a twig and thick as concrete. His face was splattered with freckles, a chipped tooth, a wide grin and a buzz cut like a wide eyed young recruit waiting to get his head kicked in by his commanding officer. One of the CO’s I’d known for a good five years— a guy we all called Elvis— He said they were tossing the kid in with me to keep him out of trouble and because that quick fuse of mine had fizzled out since I got older. 
+
+I figured they were worried about the kid getting himself killed but I realised very quickly that I got picked because they thought I could tolerate the kid— not protect him— just tolerate him.
+
+Kenny could talk.
+
+A lot.
+
+I spent the first day playing cards with a few of the oldies and while some of the younger ones preferred to start their day tormenting and scaring the shit out of the newcomer through the small barred window. 
+
+Kenny had been stuck in the cell all day getting acclimated so I was treated to a puddle of piss dripping down onto the kid’s meal tray. It rattled and sloshed over the edges when Elvis kicked it, unlocking the door and sending me inside— of course he left me to clean the mess up and dump the soggy untouched meal in the toilet.
+
+Kenny didn’t seem worried, he was up on his new bunk snooping through my books.
+
+“ Next time clean up your own mess, kid. No one is gonna do it for you.” I warned, walking over to snatch up my books and toss them on the concrete slab that serves as a counter, desk and everything else in the cramped cell. 
+
+“ The top shelf is yours. The plastic tub on the left is yours. Top bunk is yours. Don’t touch what’s in the others.” I thought being firm would be a good way to both tell him I wasn’t a pushover without threatening a new cellmate who might fly off the handle over the smallest thing, though Kenny looked like he’d be snapped in half if he tried— I decided using one of those lighter versions of stick and carrot was the best option.
+
+“ How long’ve you been here, Mister?” Kenny said, perking up like he hadn’t heard a damn thing. “ I was lookin’ frough ya stuff and I figured you gotta be old. You got a bible and all those old type’a books. You aren’t as old as I fought. Fifties?”
+
+“ Forties.” I use the stick and then with a frown back on the thick metal door I decide I should do as Elvis asked and throw the kid a carrot. “ There’s a chocolate bar down in my tub. Eat it and sleep. If you gotta clean up, use one of the rags by the basin. They won’t be giving you any form of shower today.”.
+
+“ Chocolate? Thanks,” he hops down rummages through the blue plastic tub to find the snack, “ Your stuff is all so neat ‘n tidy. You must’ve been in the military, yeah? You look like you been in the military. Like Vietnam or somefin’ like that. You don’t got that shell shock stuff right? I hear lots of vets have these crazy nightmares and scream in their sleep or attack folks,” he climbs back up on his bunk like a monkey and sits with his eyes fixated on the chocolate bar he has yet to open. 
+
+“ I never been given gifts before. If you freak out at night I’ll slap ya so you wake up and don’t mistake me for Vietcong.” For the first time since I’ve been in the cell he finally makes eye contact and I can’t explain why but a chill crawls up my spine like cold metal had been dragged up my back. “ Lots of bad types in this place, Mister. Makin’ sounds all night can really get to some folks”.
+
+I can’t say Kenny’s words were a threat exactly, in a strange way it could be seen as considerate if you squint, it’s just the phrasing that leaves an unsettling feeling in my gut. “ I wasn’t in Vietnam but… Thanks, kid.” I try to give a somewhat friendly smile but my lip twitches in discomfort. 
+
+“ You don’t have to worry about waking me up.” Honestly, he isn’t wrong about that shock, after my time in the military I wasn’t a stranger to nightmares but those nights were long over. I hadn’t even thought about that time until Kenny mentioned it.
+
+ “ I’m Jones, Wilson Jones. You don’t need to call me boss or sir or anything else.”
+
+“ Kenny. Not Kenneth or nothin’, just Kenny. You seem like ya been here forever. I figured they just put me in this box ‘cuz you’re not gonna try nothin’ while I’m sleepin’ which is pretty good. No one’s gonna try anyfin’ shady in the showers, yeah? I bit a guard's ear off once. Maybe that’s why they put me in here. He wasn’t tryin’ nothin’ weird but I didn’t like him. Sometimes people just rub you the wrong way, yeah?”
+
+That feeling slices up my spine again like a knife is trying to take off the skin and I don’t know how to respond to both his question and the statement he so freely offered. Kenny’s unblinking gaze doesn’t leave my eyes even when the usual booming sound of “ Lights out!” And the lights abruptly turning off makes me jump. I can still see the unflinching orbs glint in the corner of my eye and stick like glue even with my back turned. 
+
+The eyes finally retreats with the kid lying down on his bunk. I stay up reading but each time I try to read a sentence with what little light the commissary has given me my eyes keep drawing up to the concrete slab above me. Worn old photos and bible verses that always look down on me when I rest my head on my pillow at night, except tonight it’s not on Romans 10:9 or Colossians 1:13 but the concrete itself where my unfamiliar cellmate sleeps.
+
+I can’t say I was particularly religious before coming to prison, I remember having my hands hit by penguins with rulers when I’d act out in my school days, the church nestled behind it like a shed and the uneven crucified Jesus that always hung just a little too far to the left but all of those things in my youth had turned any thoughts of a higher power into bitter hatred when I thought I’d grown up. 
+
+I hadn’t grown wise. 
+
+I guess you could say I still believed but who wants to pray to what had a hand in making your life shit? I was fucking pissed. 
+
+Nowadays it isn’t because I’ve been trying to weasel my way into God’s good graces or I expect a good outcome like I’m owed something. Heaven can fuck off for all I care. Still, I know what I did was bad and I know I feel ashamed, now that I’m old enough to give up on all that anger I have the sense to own up to being a scumbag and accept the bad shit I’ve done without it being just to get somewhere I don’t belong. 
+
+When I’m dead I expect to just be dead.
+
+I think you can see it in some people’s eyes, that want for forgiveness or shame for their actions or that unsettling glint saying they’ll never change. I couldn’t see anything bright or naive in Kenny’s eyes. Kenny’s eyes were empty. As dead as old steel buffed until it's shiny pretending it isn’t just cold old metal wrapped around these deep black wells of nothing.
+
+One night and this kid was already giving me a migraine so bad I couldn’t sleep even if I’d planned on it. You don’t sleep on that first night with a new cellmate. 
+
+If you’re smart at least. 
+
+My migraine had my eyes swimming with black flecks spotting my vision and melting away the words on those verses until they were empty, my head pounding like a jackhammer behind my eyes and when I squeezed them shut to correct the moving words I had given in to sleep before I knew it.
+
+I dreamt of those eyes crawling out from the darkness on stretched limbs snaking under paper grey skin I can't see so much as sense. It stalked like a silent predator made of long steel and bone that could bend and bow and move like an impossible liquid dripping onto my bunk. 
+
+Its emaciated frame craned forward on a worming spine that scraped along the concrete ceiling above me. Perched over my face in the quiet and watching through milky orbs barely held in its deep sockets, studying my paralysed face with no breath to alert me to the danger hanging over me— I just knew it was there. 
+
+My eyelids refused to open but the cold radiating off of the unseen voyeur made every hair on my body prickle with the sense of what my mind knew was lurking in the dark. The smell of pine and rot assaulted my senses as cold strings of saliva dribbled down in icy globs of acid stinging my cheek. 
+
+I didn’t need to open my eyes with the thousand rows of sharp teeth so close I could feel the sharp pins grazing my skin from the hungry maw of a beast deciding whether or not it wants to swallow down a fresh meal or wait until the meat is sweetened with fear.
+
+“ Saaa…Rgh…”
+
+“ Sar…gh..”
+
+“ Sarge.”
+
+“ Why’d you do that, Sarge?”
+
+That was my first night with Kenny and the first night I noticed it.
+
+Something was wrong with Kenny.

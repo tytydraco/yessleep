@@ -362,4 +362,4 @@ It was a photo of me. 
 
 Not me from years ago. Not even me from a few months ago. 
 
-It was a photo of me last night. It was taken from my open window.
+It was a photo of me last night. It was taken from my [open window.](https://www.reddit.com/u/Deep_Warning_8086/s/Rg9XyAclkY)
