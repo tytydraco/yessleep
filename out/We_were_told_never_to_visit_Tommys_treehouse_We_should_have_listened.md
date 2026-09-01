@@ -1,10 +1,6 @@
 I was five years old when little Tommy went missing. I had never met him. In fact, another five years would pass before I first heard about Tommy’s treehouse and what supposedly took place there.
 
-What follows is my account of what happened to me and some of my childhood friends. These are not exaggerations. I will tell this story exactly as I remember it. It is up to you to accept my testimony as truth or wave it aside as another hoax or campfire story.
-
-This is the story of Tommy’s treehouse, and what happened to us there.
-
-ONE
+I was ten when my friends and I finally went looking for it. I still remember exactly what happened that evening.
 
 “Come on, Mark! What are you waiting for?”
 
@@ -55,8 +51,6 @@ Again, I couldn’t argue with that.
 We didn’t understand back then why our parents did not want us to visit Tommy’s old treehouse. We knew we would get in trouble if someone caught us, but we were young. And young kids do stupid things. It’s one of the unwritten laws of the universe.
 
 So, in our ignorance, Julie and I chased after my friends and towards the woods.
-
-TWO
 
 Julie and I found the others at the entrance to the forest. A locked metal gate blocked the trail, and a large PRIVATE PROPERTY DO NOT ENTER sign hung from the rusted metal. It was clear we were not allowed to be there, but few things are more stubborn than a child’s pride.
 
@@ -195,8 +189,6 @@ Tommy’s treehouse.
 Lucas smiled.
 
 “We just got here.”
-
-THREE
 
 I still remember how quiet we became when we first saw the dilapidated treehouse. None of us wanted to admit it, but after everything Lucas had told us, standing beneath the real thing felt different.
 
@@ -426,8 +418,6 @@ We all screamed.
 
 Me, Julie, Lucas, Jackson, and whatever had its hand wrapped around Jackson’s arm.
 
-FOUR
-
 We all screamed as the treehouse shook around us, sending dirt and dust raining down from the ceiling. Something pale had its hand wrapped around Jackson’s arm, and he frantically tried to claw himself free. He punched and flailed his free arm, desperately trying to strike whoever had grabbed him. His fist connected. The treehouse filled with a shriek, followed by sobs.
 
 “Stop, it’s a boy!” Julie yelled.
@@ -625,8 +615,6 @@ In the end, I think that is what saved me.
 I ran for the hole in the wall.
 
 And jumped.
-
-FIVE
 
 Branches and leaves tore at my face as they broke my fall.
 

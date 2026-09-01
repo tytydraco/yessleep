@@ -112,7 +112,9 @@ He nodded, satisfied. “Speaking of which, I need to go to the bathroom. I’ll
 
 He patted me on the shoulder, then scurried out of the kitchen. He vanished around the corner with the bottle still in his hand. I heard the bathroom door close and I was left alone—alone with the fridge and its contents.
 
-His fridge was cleaner than an operating room, the little flasks perfectly aligned. The sterile light cast a huge shadow of my obese figure, engulfing the entire room. I looked down at my gut. I could barely see the tips of my shoes poking out. I looked back into the fridge and picked up another jar, examining the eel inside. The more I looked at it, the less intimidating it became. I was becoming more fascinated; I had never seen anything like it. But imagining myself trying to swallow it made my stomach turn.
+I looked around, even in the dark I could see just how filthy his kitchen was. Wreaking dirty dishes filled the sink and the garbage overflowed with rotting garbage and leftovers.
+
+But his fridge was cleaner than an operating room, the little flasks perfectly aligned. The sterile light cast a huge shadow of my obese figure, engulfing the entire room. I looked down at my gut. I could barely see the tips of my shoes poking out. I looked back into the fridge and picked up another jar, examining the eel inside. The more I looked at it, the less intimidating it became. I was becoming more fascinated; I had never seen anything like it. But imagining myself trying to swallow it made my stomach turn.
 
 Why was I putting in all this work when Mike was cheating? Why should I have to suffer? I didn’t think he would mind, or notice, if I took just a single sample. No, no that was wrong. I wasn’t a thief. But lying to me. Making me think there was something wrong with me. For months. That was so much worse. Was I really going to steal from my friend? Hearing the toilet flush, I had to make my decision quickly.
 
