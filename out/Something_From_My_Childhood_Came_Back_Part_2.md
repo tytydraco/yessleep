@@ -1,0 +1,801 @@
+I still don’t understand what happened in my bedroom, where the things that disappeared actually went, or why I suddenly seem capable of seeing things that everyone else walks past without noticing. The only thing I know for certain is that Mr. Crooked was telling the truth.
+
+They’re everywhere.
+
+I found that out this morning when I finally went outside and started looking.
+
+I also learned something much more important.
+
+Seeing things doesn't mean that I understand what I'm seeing.
+
+I didn't sleep.
+
+Couldn't sleep. Every time I closed my eyes I saw that finger reaching through the glass, saw the mattress collapse into nothing, saw the walls of my bedroom dissolving like they'd never been solid at all.
+
+So I sat on the floor with my back against the one remaining intact wall and waited for morning.
+
+Mr. Crooked stayed.
+
+He didn't sit. Didn't pace. Just stood near the window, perfectly still, watching something I couldn't see. Or maybe watching for something. I didn't ask. Didn't want to know what could make something like him stay on guard.
+
+Around four-thirty, someone knocked on my door.
+
+Not the bedroom door. The apartment door.
+
+I looked at Mr. Crooked. He didn't react.
+
+The knock came again. Harder this time.
+
+"Daniel?" A woman's voice. Mrs. Chen from 3B. "Daniel, are you okay? I heard noises."
+
+I tried to stand. My legs didn't want to cooperate. Everything hurt. My palms where I'd cut them. My shoulder where I'd hit the floor. My ribs. My head.
+
+"I'm fine," I called out.
+
+My voice sounded wrong. Too thin. Too shaky.
+
+"Are you sure? It sounded like something fell. Like maybe your bookshelf—"
+
+"I'm fine," I said again, louder this time. "Just knocked some things over. Sorry for waking you."
+
+Silence from the hallway.
+
+Then: "Okay. If you're sure."
+
+"I'm sure."
+
+I listened to her footsteps retreat down the hall. Listened to her apartment door open and close.
+
+"She didn't hear it," I said quietly.
+
+Mr. Crooked finally looked at me.
+
+"Hear what?"
+
+"The thing. The sound it made. That wasn't a normal sound, was it?"
+
+"No."
+
+"So she just heard... what? Me falling? Furniture moving?"
+
+"She heard what made sense to hear," Mr. Crooked said.
+
+I looked at the holes in my walls. At the gap in the ceiling where I could see exposed beams and insulation and a slice of pre-dawn sky.
+
+"How am I going to explain this?"
+
+Mr. Crooked tilted his head slightly. The movement made something in his neck crack.
+
+"You won't," he said.
+
+"I have to explain it. My landlord—"
+
+"Won't see it."
+
+I stared at him.
+
+"What do you mean he won't see it?"
+
+"I mean he won't see it."
+
+"There are holes in my fucking walls—"
+
+"Are there?"
+
+I looked at the walls again.
+
+They were still damaged. Still full of gaps where the fingers had punched through. I could still see into my neighbor's apartment, could still see their darkened living room, their couch, their television.
+
+"Yes," I said. "There are."
+
+"To you."
+
+The words settled over me like cold water.
+
+"You're saying other people won't see the damage."
+
+"I'm saying other people will see what they expect to see."
+
+"That's insane."
+
+"That's how it works."
+
+I pressed my palms against my eyes. The cuts stung.
+
+"I don't understand any of this."
+
+"I know."
+
+"Are you going to explain it?"
+
+"No."
+
+"Why not?"
+
+"Because you're not ready," Mr. Crooked said. "And because some things are better learned than taught."
+
+I wanted to argue. Wanted to demand answers. But I was too tired. Too hurt. Too overwhelmed by the fact that my bedroom had been partially erased by something that shouldn't exist and apparently no one else would even notice.
+
+"What happens now?" I asked.
+
+Mr. Crooked looked toward the window again.
+
+"Now you see," he said.
+
+I waited until six to leave the apartment.
+
+The sun was coming up. I could see it through the gap in my ceiling, turning the sky from black to gray to pale orange. Normal sunrise. Normal sky.
+
+I'd managed to find clothes that hadn't been destroyed. Jeans. A t-shirt. My jacket. My shoes were gone—erased along with the floor they'd been sitting on—so I wore an old pair of sneakers I'd been meaning to throw away.
+
+Mr. Crooked was gone.
+
+I hadn't seen him leave. Hadn't heard him move. I'd looked away for a moment and when I looked back he simply wasn't there anymore.
+
+Part of me wondered if I'd imagined the whole thing.
+
+Then I looked at my bedroom and knew I hadn't.
+
+I grabbed my keys and my phone and left.
+
+The hallway looked normal. Beige carpet. Beige walls. Fluorescent lights that flickered slightly and had been flickering since I moved in four years ago. I could hear someone's television through their door. Could smell coffee brewing somewhere.
+
+Everything was exactly the way it always was.
+
+I took the stairs instead of the elevator. Didn't trust enclosed spaces right now. Didn't trust anything I couldn't see all the exits from.
+
+The stairwell was empty. Three flights down. My footsteps echoed off the concrete walls.
+
+I pushed open the door to the lobby.
+
+Mrs. Chen was there, checking her mailbox.
+
+She looked up when I came in. Smiled.
+
+"Morning, Daniel. Feeling better?"
+
+"Yeah," I said. "Sorry again about the noise."
+
+"Oh, don't worry about it. I'm a light sleeper anyway." She pulled a handful of envelopes from her box. "You look tired though. Are you sure you're okay?"
+
+"Just didn't sleep well."
+
+"I know the feeling." She closed her mailbox. "Have a good day."
+
+"You too."
+
+She headed for the elevator. I watched her go. Watched her press the button. Watched the doors open and close.
+
+Normal. Everything was completely normal.
+
+I pushed open the front door and stepped outside.
+
+The morning air was cold. Sharp. It made my lungs ache.
+
+I stood on the front steps of my building and looked at the street.
+
+Maple Avenue. Four lanes. Parked cars on both sides. The coffee shop on the corner was just opening. I could see someone inside flipping the sign from CLOSED to OPEN. Across the street, the dry cleaner's neon sign buzzed faintly.
+
+I'd walked this street a thousand times.
+
+I'd never really looked at it.
+
+Now I couldn't stop looking.
+
+Because there was something standing next to the mailbox.
+
+Not a person. Not exactly. It was roughly person-shaped, but wrong. Too tall. Too narrow. Its proportions didn't make sense. And it was translucent, like someone had taken a photograph of a shadow and projected it onto the air.
+
+It wasn't moving.
+
+Just standing there. Next to the mailbox. On the sidewalk where people walked every day.
+
+I looked away. Looked at the coffee shop. At the dry cleaner. At the cars parked along the street.
+
+There was something sitting on the roof of the Honda Civic three spaces down.
+
+Small. Maybe the size of a cat. But it wasn't a cat. It was too angular. Too geometric. Like someone had folded something into a shape that suggested an animal without actually being one.
+
+It was grooming itself.
+
+Or doing something that looked like grooming. Running appendages over its surface in a repetitive pattern.
+
+I looked away again.
+
+Looked at the coffee shop.
+
+There was something inside.
+
+Behind the counter. Next to the person flipping the sign. It was darker than the translucent thing by the mailbox. More solid. More present. And it was doing something to the espresso machine.
+
+Not touching it. Not exactly. But its attention was focused on the machine in a way that made me think of someone performing maintenance. Or maybe worship.
+
+I closed my eyes.
+
+Counted to ten.
+
+Opened them.
+
+Everything was still there.
+
+The translucent figure by the mailbox.
+
+The geometric thing on the car.
+
+The dark shape in the coffee shop.
+
+And now that I was looking—really looking—I could see more.
+
+Something moving in the storm drain at the corner.
+
+Something perched on the traffic light.
+
+Something that might have been following a woman walking her dog, staying exactly three feet behind her, matching her pace perfectly.
+
+The street was full of them.
+
+Not crowded. Not packed. But present. Layered over the ordinary morning scene like a second photograph exposed over the first.
+
+And no one else saw them.
+
+The woman with the dog walked right past the translucent figure by the mailbox. Didn't react. Didn't even glance at it.
+
+A man jogging past didn't notice the thing on the traffic light.
+
+The person in the coffee shop didn't see the dark shape standing next to them.
+
+I was the only one who could see.
+
+My phone buzzed.
+
+I pulled it out. Text from my boss.
+
+\*Running late?\*
+
+I looked at the time. 6:47. I was supposed to be at work by eight. Normally I'd leave around seven-fifteen. Take the bus. Thirty-minute commute.
+
+I looked at the bus stop half a block down.
+
+There was something waiting there.
+
+Sitting on the bench. Huge. Easily seven feet tall even sitting down. Its shape was difficult to focus on, like my eyes kept sliding off it, refusing to process what they were seeing.
+
+A woman was sitting next to it.
+
+She was looking at her phone. Completely unaware that something massive and impossible was sitting less than two feet away from her.
+
+I couldn't get on that bus.
+
+Couldn't walk past that thing.
+
+Couldn't pretend I didn't see it.
+
+I texted back: \*Not feeling well. Taking a sick day.\*
+
+My boss replied immediately: \*Feel better. See you tomorrow.\*
+
+I put my phone away.
+
+Looked at the street again.
+
+The geometric thing on the car had stopped grooming itself. It had gone completely still. And it was looking at me.
+
+I could feel its attention. The same way I'd felt the thing outside my window looking at me. That weight. That focus.
+
+I'd made eye contact.
+
+Fuck.
+
+The thing stood up.
+
+It didn't unfold or rise or do anything that made physical sense. It was sitting one moment and standing the next, and now I could see that it was much larger than I'd thought. Not cat-sized. Dog-sized. Maybe bigger.
+
+It took a step toward me.
+
+Not on the car. On the air. It walked off the roof of the Honda and onto nothing, and the nothing held its weight.
+
+Another step.
+
+It was crossing the street.
+
+Coming toward me.
+
+I backed up. Hit the door of my building. Grabbed the handle.
+
+The thing stopped.
+
+Tilted what might have been its head.
+
+We looked at each other.
+
+I didn't move. Didn't breathe.
+
+Then it turned around and walked back to the car. Climbed onto the roof. Sat down. Resumed grooming itself.
+
+Like nothing had happened.
+
+I stood there for a long time. Hand on the door handle. Heart hammering.
+
+Eventually I let go of the door.
+
+Took a step forward.
+
+The thing didn't react.
+
+I took another step. Then another.
+
+Started walking down the sidewalk.
+
+Away from the bus stop. Away from the thing on the bench. Toward the corner where the coffee shop was.
+
+I kept my eyes forward. Didn't look directly at anything. Tried to use my peripheral vision. Tried to see without looking.
+
+It didn't work.
+
+The more I tried not to look, the more I saw.
+
+Something flowing through the gutter like water, except it was moving uphill.
+
+Something pressed flat against the side of the dry cleaner's building, so thin it was almost two-dimensional.
+
+Something that might have been a tree, except trees don't breathe.
+
+I made it to the corner.
+
+Stopped.
+
+Looked back at my building.
+
+From here I could see my apartment. Third floor. Corner unit. The window to my bedroom.
+
+There was something on the fire escape.
+
+Sitting on the railing outside my window. Exactly where it would have been sitting if it had been watching me sleep.
+
+It was small. Child-sized. And it was looking directly at me.
+
+Even from half a block away, I could feel its attention.
+
+I'd been seeing them for days.
+
+The thing between the trees. The shape under the overpass. The creature on the neighboring rooftop.
+
+They'd all been watching me.
+
+Waiting.
+
+For what?
+
+I stood there for I don’t know how long.
+
+People kept moving around me. A guy bumped my shoulder and muttered something without looking back. Cars rolled through the intersection. Someone laughed outside a coffee shop. A delivery driver was arguing with a woman about where he’d parked.
+
+And mixed in with all of it were things that shouldn’t exist.
+
+They were everywhere.
+
+On rooftops. Between buildings. Clinging to walls. Moving through crowds. Hanging from structures above the street. Some were small enough that I might have mistaken them for animals if I hadn’t looked closely. Others were so large that I couldn’t understand how I’d spent years walking these same streets without seeing them.
+
+One enormous thing moved slowly behind the buildings across from me. I couldn’t see all of it at once. Parts of its body appeared in the spaces between buildings, vanished behind brick and glass, then appeared again farther down the block.
+
+Nobody reacted.
+
+That was the part I couldn’t get past.
+
+Nobody fucking reacted.
+
+A woman stood at the crosswalk less than twenty feet from something crouched beside a newspaper box. She checked her phone. A man walked underneath a pale creature hanging from a traffic light. Two teenagers passed something with a cluster of thin limbs folded against its body without breaking their conversation.
+
+The city hadn’t become a nightmare.
+
+The city was exactly what it had always been.
+
+I was the one seeing more of it.
+
+Then I noticed something else.
+
+Not everything here was horrible.
+
+Some of the things were certainly horrifying to look at, but they weren’t hunting anyone. They weren’t even paying attention to us.
+
+One creature was curled around the upper floors of an office building, apparently asleep.
+
+A group of tiny things moved together beneath a parked car.
+
+Something almost beautiful drifted between two buildings high above the street, its enormous translucent body rippling through the air while sunlight passed through it.
+
+For a few seconds, I forgot to be afraid.
+
+I just stared.
+
+There was an entire world around me that I’d somehow stopped seeing.
+
+That's when I saw her.
+
+She was walking up the street toward me, maybe thirty years old, wearing scrubs—probably heading home from a night shift at the hospital. Dark hair pulled back in a ponytail. Carrying a bag that looked too heavy for her frame. Normal. Completely normal.
+
+Except for the thing following her.
+
+It was ten feet behind her. Exactly ten feet. When she slowed to check her phone, it slowed. When she crossed to avoid construction scaffolding, it crossed. When she stopped at the corner to wait for the light, it stopped.
+
+The thing was tall—maybe seven feet—but it didn't stand straight. Its spine curved in a way that made it look perpetually hunched, though not from age or injury. More like its body had been designed wrong. Its arms were too long, hanging almost to the pavement, and its hands... Christ, its hands were huge. The fingers alone had to be a foot long.
+
+Its head hung at an angle that should have snapped its neck. And where its face should have been, there was just a vertical seam. Not quite a mouth. Not quite anything. Just a line that ran from what might have been its forehead to what might have been its chin.
+
+Everything about it screamed predator.
+
+The woman turned left. The creature turned left.
+
+She picked up her pace slightly—maybe she'd remembered something she needed to do. The creature matched her speed perfectly.
+
+A jogger passed between them. The creature shifted closer to the woman. Not much. Maybe eight feet instead of ten. When the jogger was gone, it drifted back to its original distance.
+
+I followed them for three blocks.
+
+The woman stopped at a food cart to buy coffee. The creature waited. She chatted with the vendor about the weather. The creature remained motionless. She laughed at something the vendor said. The creature's head tilted slightly, as if listening.
+
+When she started walking again, it followed.
+
+Every instinct I had told me this thing was stalking her. The way it moved. The way it watched. The way it maintained that precise distance like a hunter who didn't want to spook its prey.
+
+I thought about the thing outside my window. How looking at it had drawn its attention. How that attention had nearly destroyed my apartment.
+
+But I couldn't just watch this happen.
+
+I stopped walking. Took a breath. Then I stared directly at the creature.
+
+Nothing happened at first. It kept following the woman. Kept maintaining that ten-foot gap.
+
+Then its head turned.
+
+Not toward me. Just turned. Like it was checking if something had changed in its environment.
+
+I kept staring.
+
+Its pace faltered slightly. The woman pulled ahead to eleven feet. Twelve.
+
+The creature's head swiveled toward me.
+
+We made eye contact. Or what passed for eye contact when one party didn't have visible eyes.
+
+The woman kept walking, now fifteen feet ahead.
+
+The creature stopped.
+
+I stepped off the curb. Walked into the street. Put myself between the creature and the woman.
+
+"I can see you," I said quietly.
+
+The vertical seam in its face twitched.
+
+The woman was twenty feet away now. Twenty-five. Still walking. Still unaware.
+
+The creature took a step toward me.
+
+No—not toward me. Toward her. Trying to go around me.
+
+I moved to block it.
+
+"I said I can see you."
+
+It stopped again. The seam twitched more violently. And for the first time, it made a sound. Not with its mouth—if that's what the seam was. The sound came from somewhere inside it. A low vibration that I felt more than heard.
+
+It was frustrated.
+
+It tried to go around me again. I blocked it again.
+
+The woman turned a corner. Disappeared from view.
+
+The creature's whole body shuddered. It took a step toward the corner, then back toward me, then toward the corner again. Like it was torn between two imperatives.
+
+"Go," I said. "Find someone else to follow."
+
+It went still.
+
+Then it moved. Not toward the corner. Not toward me. It slipped between two parked cars and vanished into the narrow space between buildings.
+
+I stood there, heart pounding, waiting for it to circle back.
+
+It didn't.
+
+I'd done it. I'd actually helped someone. Saved that woman from whatever that thing had planned.
+
+I started walking in the direction she'd gone. Not following her—I just needed to keep moving. Needed to burn off the adrenaline.
+
+I made it two blocks before I noticed something was wrong.
+
+The smaller creatures were acting different.
+
+A thing that looked like a bundle of wet sticks beneath a delivery truck raised what might have been its head. It was looking in the direction the woman had gone.
+
+Something perched on a fire escape turned that way too.
+
+Another creature—this one almost smoke-like—began drifting in that direction.
+
+They were all looking at her. Or where she'd gone.
+
+My stomach dropped.
+
+I picked up my pace. Turned the corner.
+
+The woman was half a block ahead, walking toward the entrance of a parking garage.
+
+And following her—not ten feet behind but closer, maybe five feet—was something else.
+
+This creature was nothing like the tall, skeletal thing I'd driven away. This one moved low to the ground despite being the size of a large dog. Maybe bigger. It had too many joints in its legs, giving it a spider-like gait, and its head... I couldn't make sense of its head. It kept shifting, like it was cycling through different configurations.
+
+But I understood its body language perfectly.
+
+It was hunting.
+
+The smaller creatures I'd noticed—the stick-thing, the smoke-thing, the others—they were all backing away from it. Getting out of its path.
+
+The woman reached the garage entrance. Walked inside.
+
+The hunter followed.
+
+I ran.
+
+Into the garage. Up the ramp. The woman was already on the second level, heading higher. The hunter was maybe twenty feet behind her. I looked around desperately for the original creature—the tall thing with the vertical mouth—but it was gone.
+
+Third level. The woman walked toward a blue Subaru. Keys in her hand.
+
+The hunter got closer.
+
+I was out of time.
+
+"Hey!" I shouted.
+
+Not at the woman. At the thing.
+
+It stopped. Turned.
+
+Up close, I could see its eyes. All six of them. They were arranged in a circle around what I'd thought was its shifting head but now realized was its mouth. The mouth was opening and closing rhythmically, showing rows of teeth that looked like broken glass.
+
+"Yeah, you," I said. "I can see you."
+
+The woman unlocked her car. Opened the door. Completely unaware of what was happening ten feet away.
+
+The hunter took a step toward me.
+
+"That's right. I'm much more interesting than her."
+
+Another step.
+
+The woman starting getting into her car.
+
+The hunter charged.
+
+I ran deeper into the garage. Heard its claws—or whatever it had instead of claws—scratching against the concrete behind me. Found a stairwell. Yanked the door open. Slammed it behind me.
+
+The door exploded inward before I'd made it down three steps.
+
+I jumped, trying to clear as many steps as possible. Landed hard. Kept going.
+
+The thing was fast. Faster than its spider-like gait suggested. It caught me on the landing between the second and first floor.
+
+Pain erupted across my back as it slammed me into the wall. I felt something in my shoulder give way—dislocated or fractured, I couldn't tell. My head hit concrete. Blood ran into my eyes.
+
+I tried to push myself up. Couldn't. My shoulder wouldn't work right.
+
+The hunter circled me. Playing with its food.
+
+I thought about Mr. Crooked. About the way he'd stood in my bedroom, completely unafraid of the thing that had torn through my wall. About how he'd made it leave just by being there.
+
+"I have a protector," I said. Blood ran into my mouth. "Something watches over me."
+
+The hunter made a sound like grinding metal.
+
+It didn't care.
+
+It moved closer. Its mouth opened wider. The teeth caught the stairwell's fluorescent light.
+
+Then the door above us opened.
+
+The hunter paused.
+
+Something entered the stairwell. I heard it more than saw it—my vision was going dark around the edges. Long footsteps. The sound of something dragging.
+
+The tall creature with the vertical mouth descended the stairs.
+
+For a moment, I thought I was about to be caught between two monsters. That I'd traded one death for another.
+
+But the tall creature walked past me like I wasn't there.
+
+It positioned itself between me and the hunter.
+
+They stared at each other.
+
+Then the vertical seam in the tall creature's face began to open.
+
+It wasn't like a mouth opening. It was like reality splitting apart.
+
+The seam widened vertically, revealing not teeth or a throat, but something else. Something that hurt to look at. Not darkness—darkness would have been a mercy. This was an absence that somehow contained too much. I saw depth that shouldn't exist in a three-dimensional space and from that impossible space came... things.
+
+Not creatures. Not entities. Just things. Pieces of something that might have been the tall creature's true form, or might have been something it kept inside itself, or might have been wounds in reality that it could somehow weaponize.
+
+They reached for the hunter.
+
+The hunter tried to run. Its six eyes went wide. Its glass-teeth mouth made a sound like a scream played backward I guess it must have been.
+
+The things that came from the vertical mouth didn't grab it. They didn't need to. They just existed near it, and the hunter began to come apart. Not torn or shredded. It unraveled. Like it was made of invisible thread and something was pulling each strand in a different direction.
+
+The hunter tried to attack. Lunged forward with those spider-legs and that mouth full of broken glass.
+
+The tall creature didn't move. Didn't dodge. The hunter passed through the space where it stood and came out... wrong. Parts of it were missing. Other parts were doubled. One leg bent into a dimension I couldn't see.
+
+The hunter fled. Scrambled up the stairs on legs that no longer worked right, leaving pieces of itself behind—not blood or flesh, but fragments of existence that faded like smoke.
+
+The tall creature's vertical mouth closed.
+
+It stood there for a moment. Not looking at me. Not acknowledging what had just happened.
+
+The creature that had been following the woman slowly turned away from where the spider had vanished and looked down at me.
+
+Every bit of relief I’d felt disappeared.
+
+It walked toward me.
+
+I tried to push myself backward, but my arm gave out and I nearly blacked out from the pain. The thing stopped directly over me, those impossibly long limbs folding as it lowered itself into a crouch. Its face came down until it was inches from mine.
+
+I could smell it. Something dry and earthy, like leaves that had been buried under snow all winter.
+
+“Okay,” I whispered. “I get it. I fucked up.”
+
+It leaned closer.
+
+Then it raised one of its hands.
+
+I saw those long fingers coming toward my face and squeezed my eyes shut.
+
+This was it. I’d chased it away from the person it had apparently been protecting, nearly gotten her killed, and now it was going to finish whatever the spider hadn’t.
+
+Something touched the side of my head.
+
+Tap. Tap.
+
+I opened my eyes.
+
+One long finger rested against my temple.
+
+The creature stared at me for another second.
+
+Then it tapped my temple twice again.
+
+Tap. Tap.
+
+I just stared at it.
+
+It slowly straightened.
+
+And somehow, despite the fact that it didn’t have anything resembling a human expression, I knew exactly what it meant.
+
+Think.
+
+Or maybe, more accurately:
+
+Use your fucking brain.
+
+Then it turned around and walked away.
+
+I lay there bleeding on the concrete, watching the most horrifying thing I’d seen all day leave the garage to go find the woman I’d nearly gotten killed because I’d decided it looked too frightening to be standing behind her.
+
+I couldn’t even be offended.
+
+The bastard had a point.
+
+I pulled myself up, cradling my ruined shoulder. Blood was still running into my eyes. My vision swam. But I had to know.
+
+I dragged myself up the stairs. Through the door. Back onto the parking level.
+
+The woman's blue Subaru was still there. She was at the trunk, putting grocery bags inside. Just normal shopping. Milk. Eggs. The mundane shit that made up a life lived without seeing what surrounded us.
+
+And walking toward her, that same measured pace, that same careful distance, was the tall creature.
+
+It took up position behind her.
+
+Ten feet.
+
+Exactly ten feet.
+
+She closed the trunk. Walked to the driver's door.
+
+It followed.
+
+And that's when I saw them—the other creatures. The stick-thing under the truck. The smoke-thing near the ceiling. Others I hadn't noticed before. They'd been creeping closer to the woman while the tall creature was saving my stupid ass.
+
+Now they scattered.
+
+The stick-thing retreated so fast it left scratches on the concrete. The smoke-thing dissipated into nothing. Something I hadn't even seen properly abandoned whatever hiding spot it had found and disappeared down the exit ramp.
+
+They were terrified of the tall creature.
+
+The woman got in her car. Started the engine. Began backing out.
+
+The tall creature followed her car at that same precise distance. Ten feet. When she turned, it turned. When she accelerated down the ramp, it matched her speed with a loping gait that should have been impossible for something built so wrong.
+
+I watched them disappear into the street. The woman in her blue Subaru, probably thinking about dinner or what show she'd watch tonight. And her guardian—because that's what it was, what it had always been—maintaining its vigil.
+
+I never saw either of them again.
+
+I never found out why it protected her. What made her special. What ancient debt or cosmic accident or inexplicable affection bound that thing to her safety.
+
+Some questions don't get answered.
+
+I made it to the emergency room eventually. Told them I'd fallen down a parking garage stairwell like an idiot. The doctor said I was lucky—just a dislocation and some nasty cuts. Nothing broken. Nothing that wouldn't heal.
+
+They kept me overnight for observation. Concussion protocol.
+
+I lay there in the dark, listening to machines beep, and thought about what had happened.
+
+I'd seen something monstrous following someone. Made assumptions based on appearance. Based on the way it moved. Based on my own fear.
+
+I'd nearly gotten her killed.
+
+The real predator had been waiting for the guardian to be distracted. Had probably been waiting for days. Weeks. And I'd given it the opening it needed.
+
+If the guardian hadn't come back...
+
+That's when the memory hit me.
+
+I was seven. Maybe eight. Walking home from somewhere—I couldn't remember where. But I remembered the fear. The absolute certainty that something was following me.
+
+I kept looking back.
+
+Mr. Crooked was there. Twenty feet behind me. His impossible height. His bent spine. His head hanging at that unnatural angle.
+
+Following me.
+
+For thirty years, that fragment of memory had meant one thing: Mr. Crooked had stalked me as a child. Had hunted me. Had been the source of all those nightmares.
+
+But lying in that hospital bed, I thought about the woman.
+
+About her guardian maintaining that precise distance.
+
+About how every other creature had fled when it was near.
+
+About the way it had torn reality apart to save me from my own stupidity, then returned to its post without a word.
+
+And I asked myself the question I should have asked decades ago:
+
+What if Mr. Crooked wasn't the thing I was running from?
+
+What if he was the reason I made it home alive?
+
+What if there had been something else that day? Something that wanted to hurt a seven-year-old boy walking alone? Something that saw easy prey?
+
+Until it saw what was following me.
+
+I closed my eyes and tried to pull more from that memory.
+
+There had been something else.
+
+I was sure of it now.
+
+Something ahead of me on that long-ago walk home.
+
+Something that had made me start running.
+
+Something that had made me look back for help.
+
+And found Mr. Crooked there.
+
+Always there.
+
+Always exactly twenty feet behind.
+
+The doctors say I’ll be fine, which is apparently a flexible definition of fine when breathing hurts and one of your arms is strapped against your chest. I’ve had a few hours to think about what happened, though, and I keep coming back to the same uncomfortable realization.
+
+Yesterday, I was afraid because I could see these things.
+
+Today, I learned there might be something worse than seeing them.
+
+Thinking that I understand them.
+
+And now I can’t stop thinking about Mr. Crooked.
+
+Because when I was a kid, I remember him following me.
+
+I always thought I knew why.
+
+For the first time, I’m wondering if I had it completely backward.

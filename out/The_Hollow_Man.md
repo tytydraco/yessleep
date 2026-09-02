@@ -662,3 +662,4 @@ Because he knew the voice had never belonged to anyone else.
 
 And somewhere inside him, in that quiet room he had spent years building without meaning to, another brick settled into place.
 
+----
