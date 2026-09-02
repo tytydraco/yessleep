@@ -1,0 +1,17 @@
+My hands shook as I stared at the letter.  I couldn't believe it Easther was fine after being gone for 8 years proof she was fine I wasn't crazy! As I read on my smile dropped as I started reading "dear violet , I am fine I want to see you but, they don't want me  wandering alone so please pick me up. I am at the old garden . Love your big sis Easther." 
+
+ I was confused who is they? What old garden? Something felt off I shook it off I was going to find her . I wish I didn't. As I searched the envelope for any clues I saw the return address and froze . The address was from our mother's old house the one I last saw Easther in . 
+
+ I decided then I was going to go no matter the memories in that house and by association the town . I called off work and when I told my boss he sighed "Robin your sister is dead" She isn't I got a letter I will find her ! I will give you a week off just if you don't find her I am getting you help. Yes sir . As I hung up I felt a pit in my stomach what if I didn't find her. I shook it off I will find her . 
+
+As I got in the car it took 4 tries to get it to turn on . I sighed I would have to get it checked soon . Over the next 4  hours I thought about Easther . How she always shared her day how she made fun of me before braiding my hair how she called me carrot head even though I am blond and how my mother disowned her how they fought constantly. About the day she didn't come home and how mother didn't care till Esther's girlfriend came to look for her. About the police saying she was dead. The tears I shed .
+
+   As I remembered I saw I was in the town.It looked worse than I remembered. The houses were falling apart the lawns overgrown . The stores all had closed signs no one was around. I felt unease as I arrived in front of my childhood home it was like the others . I went inside shouting for Easther . It looked the same as the day I left the pictures on the fridge the ugly rug in the bathroom  . No Easther in sight. As I stepped outside I saw the old community garden. The gate was opened this was definitely the one Easther said she was at. Though why is she in there it had been shut down for no reason the summer before Easther disappeared. 
+
+I pushed away the though as I stepped inside.
+
+ Unlike the rest of the town it was in perfect condition. Rows of corn,lettuce,and other fruits and vegetables. On the other side was the flower beds . Pansies and daisies waving in the breeze . As I looked around I saw no sign of her and saw the sun was setting and as I turned to leave I heard a rustle. And I turned and saw a flower growing as it formed I nearly cried when the flower grew arms and legs . The middle of the flower turned to yellow sharp teeth the leaf arm things grew vine finger like things . Eyes formed on the top two petals human eyes. 
+
+As I stood frozen the creature spoke crystal clear "Hello little sister" I screamed and tried to run but the creature who was apparently my sister lunged and grabbed me and whispered "shhhhh you are fine are lilies still your favorite flower they are aren't they I smell your perfume very nice." As it spoke the other plants transformed I felt genuine terror for the first time. I broke free and tried to run but a corn creature grabbed me and bit me I didn't care and ran inside my mother's house 
+
+I now sit here typing this i am transforming my hair is turning to petals my fingers to leaves . Easther was right lilies are my favorite flowers. 

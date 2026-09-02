@@ -1,4 +1,8 @@
-I still don’t understand what happened in my bedroom, where the things that disappeared actually went, or why I suddenly seem capable of seeing things that everyone else walks past without noticing. The only thing I know for certain is that Mr. Crooked was telling the truth.
+I still don’t understand what happened in my bedroom
+
+https://www.reddit.com/r/nosleep/s/0KRIpaZo1t
+
+where the things that disappeared actually went, or why I suddenly seem capable of seeing things that everyone else walks past without noticing. The only thing I know for certain is that Mr. Crooked was telling the truth.
 
 They’re everywhere.
 
