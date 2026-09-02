@@ -1,0 +1,81 @@
+Some time has passed since I saw Mr Johnson outside that door. Here’s the link to part one if you don’t know what’s been happening.   
+https://www.reddit.com/r/nosleep/s/AgfigHLTvu  
+I haven’t seen him in a while but I see that damn door every day since.
+
+I want to look at it, I want to walk over and open it just to see what’s inside of it but something inside me is telling me no. My mind wants to know so bad, it craves it but my body seems to know better, or maybe something that I don’t. I think I'm gonna talk to Jen about it 
+
+I find her outside that afternoon smoking as always.   
+“Hey” I say. She gestures me over with a kind wave “How have you been?” I sit down beside her, “Honestly, I’m not too sure” 
+
+“Why’s that?” She says furrowing her eyebrows in confusion. “Can I ask you something weird?”   
+She laughs, “That depends”.
+
+I glance towards the apartments. “That door.” Her smile immediately disappears and her demeanor feels ice cold. “Yeah.”
+
+“Have you ever wondered where it goes?” Jen stares at me for a second. Then looks at the door. “No.”  
+
+“What do you mean no?” I say letting a little frustration slip out in my tone. “It means I’ve lived here for years. I’ve never seen anyone build it. I’ve never seen anyone open it. I’ve never seen anyone go near it.” She says matching my tone. “So?” I snap back quickly. “So look at it” 
+
+I do. I’ve seen that door every day ever since I noticed it that night but I’ve never really looked at it. It’s wedged between two apartments so tightly, there should be no room for it. It makes no sense. There’s no hallway behind it. No extra room. Nothing. It’s just there? 
+
+“That’s impossible”. Jen doesn’t seem amused by my comment, “Maybe.” 
+
+I look at the doorknob. For some reason I suddenly noticed how old it is. The metal has a haunting patina. Like a brass statue carelessly and abrasively touched by hundreds over time. 
+
+“Have you ever considered opening it?” I say more excited than I would like to admit. “No.” She speaks briefly. “Why not?” 
+
+She looks at me, “I try not to worry about what’s behind it.” 
+
+I stare at her, “Jen, it’s a door?”. She shakes her head, “No. It’s a door because that’s what we call it.”, her voice barely breaking above a whisper. 
+
+I don’t know what she means. I don’t understand. I need to figure out what’s behind it, what she’s talking about.   
+I look back at it. I start to stand up. Jen grabs my wrist. “Don’t.” She says it so quickly it startles me a bit she looks hurt by the idea of me opening it.
+
+I look at her defeated. “I won’t. I promise.” I couldn’t do that to her, her care means more to me than I would like to explain. It’s more than I could ask for from anyone.   
+I end up going back into my apartment, with more questions than I had answers. 
+
+I can’t stop thinking about what she said.   
+*It’s a door because that’s what we call it*  
+What else could it possibly be? A portal? That’s ridiculous. A door is a door. They have to lead somewhere. At least they’re supposed to.
+
+Later that night I find myself standing in front of my door. I don’t know why. I need to look just one more time. I open my front door slowly and look around.
+
+It’s pitch black. No porch lights are on, and there aren’t any street lights close enough to reach this part of the complex. I squint trying to focus my eyes on where the door would be.
+
+Nothing. I can’t see it. That’s when I stare harder, forcing my eyes to adjust. Nothing. I relax my gaze. 
+
+There he is.   
+Mr Johnson.
+
+He’s standing where the door should be. Staring directly at me. My blood runs cold. My heart in my ass. His face is different. What was once a kind old man was replaced. He was furious. 
+
+His jaw clenched. Then he starts running. Full sprint. His arms hanging stiffly at his sides. His legs move too rigidly like a machine like his body is trying to remember how running works.
+
+“OPEN THE DOOR!” he roars, his voice ripping through the darkness.
+
+I slam my door shut. Locking it, my hands shaking, fumbling with the deadbolt before it finally catches. I drop to the floor, pressing my back against the door with all my weight.
+
+The pounding starts.    
+***BANG BANG BANG BANG***  
+His fists like hammers on the other side of the door, so violent I can feel the door shake beneath me. I cover my ears. I don’t know how long it lasts. Minutes. Maybe even longer. 
+
+Silence. 
+
+I remove my hands. I don’t move. I wait and start to stand back up praying to god that he is gone. And that’s when I hear it. 
+
+Sobbing. An old man directly outside my door sobbing and wailing in the darkness. “I’m sorry, please forgive me please”. I freeze, stunned into silence. “I didn’t want to scare you”, his crying gradually dies down. For a moment there is nothing. Then he speaks again. “I just really need you to open the door” 
+
+My stomach twists. Something about his voice is wrong. It’s throaty and gruff. Like someone else’s voice coming through a throat that wasn’t made for it. Like someone is borrowing him. 
+
+I don’t answer, and from somewhere behind him, in the darkness outside, I hear something whisper. “Please”   
+Then another voice “Please” 
+
+Then another. Until the darkness outside my door is filled with people begging me to open it.
+
+Still frozen, I stand listening until the voices trail off into the distance until it’s just Mr Johnson’s again. “That’s okay.”  
+   
+A pause.  
+   
+“You don’t have to open it tonight.” I squeeze my eyes shut, hoping I’m imagining it.  
+   
+I never told him I was thinking about opening the door. 
