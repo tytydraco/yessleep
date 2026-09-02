@@ -1,0 +1,237 @@
+CW: contains a very small gore element.
+
+The road to the cabin was long and exhausting. We had rented it two days before the trip, hoping to spend the weekend away from the stress of work. Sarah, Daniel, and I really needed a few days in the woods, surrounded by nature and away from the busy streets of the city.
+
+Neither Sarah nor I had a car, so we took Daniel's SUV. The road seemed to go on forever as we passed rows of forest trees on both sides of the narrow road. After a while, I found myself staring out the window without really paying attention to anything. "Shit." Daniel's sudden curse snapped me out of it. I turned toward him. "Is something wrong?"  
+
+"Yeah, what seems to be the problem, Dan?" Sarah asked from the passenger seat. She had been focused on polishing her fingernails and only looked up after hearing him. "We're about to run out of gas," Daniel said, sounding irritated. 
+
+He took one hand off the steering wheel and rested his arm against the open window. "And I have no clue if there's a gas station nearby."I frowned. "Didn't you say you had a gas container?" I remembered Daniel mentioning that he kept an extra container of gasoline in the SUV. "Oh, yeah. About that..." Daniel rubbed his eyes. "When we were packing, I found out the container was empty." Sarah turned toward him. "Why didn't you tell us?" Dan grumbled before giving awah an answer.
+
+"I-I was just too lazy to refill it," he admitted. "Besides, we were already running late." I snorted and leaned back against the seat, crossing my arms. "It's pretty ironic that you were the one rushing us, and now look at us. Our gas tank is almost empty because someone was careless." Daniel sighed. "Evy, you're not helping—" He suddenly cut himself off. His eyes had shifted toward something ahead. 
+
+A few seconds later, his expression changed completely. "Fuck, yeah!" I looked ahead. A gas station stood a couple of miles down the road. "See?" Daniel said, his confidence returning instantly. "I knew there would be a gas station around here." Sarah chuckled and rolled her eyes. "More like we got lucky." It didn't take us long to reach it. Daniel pulled the SUV into the station and immediately got out to fill the tank. "Evy, go pay for the gas."
+
+I stared at him. "What? Why me?" "Don't worry. I'll pay you back. I promise." I sighed. "Fine." I glanced toward Sarah. She was still sitting in the passenger seat, casually leaning one foot out of the open window. "Hey, Sarah. Wanna come with me?" She gave an exaggerated yawn. "Nah, I'm good, Evy."
+
+ I shook my head and left them behind. The gas station looked old. Not abandoned, but old enough to seem out of place beside the road. The small shop attached to it had faded paint around the windows, and an old sign above the entrance flickered occasionally despite the daylight.
+
+I pushed the door open and stepped inside. An old man sat behind the counter with his eyes closed. A small radio rested beside him, playing old classical music through a speaker that occasionally crackled. His arms were crossed over his chest, and for a moment, I wondered if he was asleep. 
+
+I ignored him and walked toward one of the refrigerators. I grabbed a soda, then picked up a chocolate bar from one of the shelves before returning to the counter. The old man opened his eyes. He leaned forward slowly. "Will that be all?"
+
+His voice was deep and rough. He coughed afterward, covering his mouth with one hand. "Sixty-six on pump two," I said. The old man nodded and placed my items into a small bag. "You folks heading out to camp?" "Kinda. We're heading to a cabin we rented." "Hmm." He paused. "Is that so?" He handed me the bag, then looked past me toward the window where the SUV was parked. "Take some advice from an old man, young lady." I looked at him. "Tell your friend not to take the Misty Bridge route." 
+
+My expression changed. "Misty Bridge?" The name sounded familiar. I had heard about that place a long time ago, although I couldn't remember where. "Isn't that the bridge they closed off seven years ago?" The old man nodded. "Hmm... no one knows why. Or how." He leaned back in his chair and folded his arms.
+
+"But I'll give you the same warning I've given everyone else. Don't take the Misty Bridge turn." He stared at me for a moment. "People go there and never come back." I rubbed the back of my neck. "Sure. Thanks for the advice. Have a nice day." I took the bag and pushed open the door. The little bell above it gave a soft chime as I stepped outside. The old man was still watching me through the window.
+
+ As I walked back toward the SUV, I found myself zoning out, thinking about what he'd said. The warning about the Misty Bridge and its history of disappearances had creeped me out more than I wanted to admit.I didn't even notice Daniel calling my name until he touched my left shoulder."Whoa, Evy. You okay? You've been zoned out for a while."
+
+I snapped back to reality and slipped one hand into my hoodie pocket."I'm fine, Dan. It's nothing."Daniel didn't seem convinced, but he knew I wasn't going to open up about it, so he shrugged."Alright, let's go, then."I nodded and climbed into the back of the SUV. Daniel returned to the driver's seat and started the engine."Alright!" he said. "Let's get back on the road and finish this trip."
+
+He glanced toward Sarah. "Can you check the GPS for me?"Sarah sighed and picked up her phone."Sure. Give me a second."Daniel pulled out of the gas station while Sarah checked our location.
+
+ I watched through the window as the gas station slowly disappeared behind us.I still couldn't shake the feeling that something was about to happen."Alright, there are two routes," Sarah said. "One takes about two hours, and the other is a shortcut."She narrowed her eyes at her phone."The second route to the left is the shortcut, but..." She paused. "Uh, the name isn't showing."
+
+I leaned forward."What do you mean?"Sarah looked at Daniel, then at me."That's strange. Why isn't it showing on the GPS?" I asked, leaning by Sarah seat."I have no idea."She handed me her phone.I looked at the map and searched for the route myself. Then I searched specifically for the name I'd heard at the gas station.
+
+Misty Bridge.
+
+Nothing.
+
+Izoomed out.
+
+Still nothing.
+
+I zoomed in again.
+
+The road was there.
+
+The name wasn't.
+
+"Strange..." I muttered. "It was supposed to show the name Misty Bridge."I handed Sarah her phone back."Misty Bridge?" she asked. "How do you know the name of the route?"
+
+"I've heard a lot about it in the past. A lot of people disappeared on that bridge. Nobody knew how, so they closed it off seven years ago."I sat back. "Also, the old dude at the gas station warned me about it."Daniel laughed. "Oh yeah, more superstition stories made up by some old fart. Evy, you can't seriously believe any of this shit. It's obviously fake.People make up stories to cover the truth about the place."
+
+I raised one eyebrow."Truth? What truth?"Daniel sighed."Well... there has to be some kind of bad-business shit that—"Sarah burst out laughing.
+
+"Dan, I'm sorry, but just shut the fuck up. You just yapped out words without even knowing what the truth is."Daniel gritted his teeth in embarrassment.I couldn't hide my smile."It's okay, Daniel. It happens to all of us."Daniel looked at me through the rearview mirror."Thanks, Evy. At least you didn't make fun of me."
+
+Sarah rolled her eyes."Oh, don't be a crybaby, Daniel. You know I was joking."She crossed her arms and looked out the window."Yeah, Daniel. You know she was only joking."I brought my legs up and crossed them.
+
+Daniel's eyes remained on me through the rearview mirror.Something about the way he was looking made me tense. Like as if he was eyeing something he wanted."Daniel?"He didn't answer.A few seconds passed.Sarah suddenly shoved his arm."Dan! You idiot, eyes on the road!"Daniel snapped his attention forward."I-I am sorry, guys. 
+
+I zoned out. It won't happen again."Sarah pulled her feet back onto the floorboard."Honestly, what was wrong with you, dude? Geez. Get your shit together, and stop ogling Evy."Daniel's cheeks flushed."What?! N-no, no, it wasn't like that."I rubbed the back of my neck as the mood suddenly became awkward."Sure, buddy.
+
+ Just get us to the cabin in one piece."Sarah went back to scrolling on her phone.I sighed and lay down across the bench seat, hoping to rest for a while. Hour's passed since this awkward moment.
+
+Sarah was shaking my shoulder."Evy. Evy, wake up. We reached the bridge." I sat up, yawning as I stretched my arms. "Really?" I looked toward the front. Daniel wasn't in his seat. "Wait. Where's Dan?" Sarah pointed outside. "He's removing the shit blocking the entrance." I turned toward the window. 
+
+Daniel was standing beside the entrance, dragging the barrier away from the road. "Come on. We're wasting time," he called. Sarah ran around to the front passenger seat while I sat up fully in the back. Daniel started the engine and drove through the entrance of Misty Walk.
+
+At first, it looked like a big, old bridge. It was surprisingly clean for something that had supposedly been closed for seven years. A thin layer of mist covered the road ahead, but we could still see the outside world on both sides. Trees stretched along the landscape. 
+
+The sky was still visible above us. For the first ten minutes, nothing seemed unusual. The only thing bothering me was the awful music Daniel had playing through the radio. Sarah reached forward and abruptly switched it off."That's one hell of an ass song, Dan." Daniel looked at her, clearly offended."Hey! You can't be serious, Sarah. You're just too shy to admit it's good."
+
+He had a smug grin on his face.Sarah narrowed her eyes."Shy? First of all, I'm not shy. Second of all, who the hell is the singer?"Daniel gasped dramatically."Wow, you don't know Emperor Gooberball? It's literally the best rapper in history."I immediately laughed at the name.Daniel glanced at me through the rearview mirror."Something funny, Evy?"Sarah snorted."Can't blame her, to be honest, Dan. 
+
+You are a goofball. God, I can't believe Evy, and I even befriended your ass." I didn't like how both lacked completely any chemistry. I had to step and try to calm things down."Sarah, there is no need to be that harsh on Dan..." I said. "But, to be honest, Sarah has a point, Daniel."Daniel opened his mouth to respond.The SUV suddenly jolted.
+
+The engine began buzzing loudly before the vehicle came to a stop."Fuck!"Daniel gripped the steering wheel."The engine must've overheated. I'll go check it out. Stay here, girls."He opened the door and stepped outside.
+
+Sarah rolled her eyes.The moment Daniel was out of sight, she climbed into the back and sat beside me."Evy, listen. I'm not even joking. I genuinely think Daniel is a loser, and after this trip, we need to just end our friendship with him."She sounded genuinely annoyed.I felt cold and rubbed my arms beneath my hoodie. 
+
+I picked up the bag containing my soda and chocolate and shoved it onto the floor so I could lean against the window."I get your point, really, but don't you think you're being too—" didn't even get the chance to finish as Sarah knew what I was about to say."Harsh?" Sarah, cut me off. "Oh, don't be naive, Evy. Seriously, take a close look at this goober outside. 
+
+He's clearly also into you. I'm one hundred percent sure you aren't into his ass." I looked through the window at Daniel, standing in front of the SUV with the hood raised.
+
+Before I could answer, he called out."Ummm, guys?"Sarah and I looked toward him."You should come out really quick and have a look outside."
+
+We both stepped outside.As soon as my feet touched the ground, I noticed how completely clean the pavement was. 
+
+There wasn't a single piece of dirt, leaf, or piece of trash anywhere around us.A cold wind carried the mist toward the south, behind us, while the fog slowly parted around my legs as I stepped forward.I still didn't understand why it was so cold.I looked farther along the side of the bridge.
+
+There was nothing beyond it.It was just a massive wall of mist stretching as far as I could see. It moved gently with the wind, almost dancing in the air.It looked haunting.And at the same time, strangely beautiful.Sarah came up behind me, gripping her shoulders."Fuck, why is it so cold?"She clicked her tongue and walked toward Daniel."DAN, WHY DID YOU CALL US OUTSIDE—"Her voice stopped.
+
+I followed her.Then I saw what Daniel had been looking at.A huge row of cars sat ahead of us.Not just a few.Dozens.They were clustered together across part of the bridge. Some were parked neatly while others sat at strange angles, as though their drivers had simply stopped wherever they happened to be.There were all kinds of vehicles.
+
+Modern cars.
+
+Old trucks.
+
+SUVs.
+
+And some models that looked like they belonged in the 1990s."I think those are the cars of the people who came here and never came back," I said.I walked closer to one of them.It was an old black Jeep with a broken window. I leaned toward the opening and looked inside.The seats were empty.
+
+There wasn't much left except for a single photograph lying near the center console.I reached through the broken window and picked it up.It was a family photograph.
+
+A man, a woman, and two children stood together, smiling at whoever had taken the picture.I stared at it for a few seconds.I recognized them."The Wallystones..."Sarah looked at me."What?" As she shifted around from the cold wind next to Dan."This is the Wallystone family. I remember reading about them. They were one of the families reported missing in 2014."I looked around at the other vehicles.Something didn't make sense."Wait.
+
+ If there are old models from the nineties, why did the news specifically say the disappearances started in 2014?"Daniel frowned."Maybe the reports were wrong?" Then Dan started to cough hard dramatically, which was ignored."They said it started in 2014. That's what I remember."
+
+Neither Daniel nor Sarah had an answer.Sarah shook her head."No clue, Evy. All I want is to just get the fuck out of this creepy place."That's when we heard something behind us.A motorcycle.The sound came from the south, from the direction we'd entered the bridge.
+
+All three of us turned.At first, there was nothing but mist.Then a dark silhouette slowly emerged.A motorcycle rolled toward us, its headlight cutting through the white fog. The rider wore a black helmet and a dark jacket.He slowed down near the abandoned cars, parked, and stepped off.
+
+Daniel moved forward, putting himself slightly ahead of Sarah and me.I stayed where I was, tense.We had no idea who this person was.Daniel called out."Hello? Who are you?"A deep male voice answered."Hi. I didn't mean to scare you guys."The stranger reached up and removed his helmet.My heart skipped a beat.
+
+He was handsome.Really handsome.He had shoulder-length brown, wavy hair that fell around his face as he shook it loose.Sarah glanced at me.She noticed.A small smile appeared on her face before she turned back toward him."Nah, you're good. You got lost, too?"There was a tone of interest in her voice that she'd never shown Daniel.The man nodded."Yeah. This place is too misty. Can't even see what's ahead of me."He smiled."
+
+Oh, right. My name is Evren."He extended his hand toward Daniel.Daniel crossed his arms, trying his best to look tough."No handshakes, buddy."Evren's smile slowly faded into an awkward expression."Sorry, bud. Didn't know you were allergic to handshakes."I stepped in immediately."Sorry, Dan's a little introverted around people. 
+
+My name is Evy. Nice to meet you, Evren."I held out my hand with a smile.Evren took it.His hand was warm. Much warmer than it should have been considering how cold the bridge was."Nice to meet you, Evy. No worries. I've got a cousin like your friend there. Not very good socially around strangers."
+
+I glanced toward the SUV.Sarah was trying to hold back her laughter at Daniel's angry, embarrassed expression."What is this?" Evren asked as he walked past me toward the SUV, where the engine was still smoking.Daniel snorted."The engine overheated. All it needs is some time to cool down, and it'll be fine."Sarah quietly rolled her eyes."Ugh... Dan, just shut up, please." Sarah whispered as she scolded Dan.Evren was already standing in front of the open hood, inspecting the engine. 
+
+He rubbed the back of his neck and sighed before walking back toward us."I'll have to disagree with you, Dan. It isn't only because the engine overheated. It could be a clogged air filter, or there could be an issue with a stuck fuel injector."Daniel narrowed his eyes skeptically."What makes you so sure?"Evren blinked twice."To put it simply, it's usually one of those two things when an engine starts blowing out black smoke."
+
+Sarah and I looked at Daniel.He clearly didn't have a comeback.He scoffed and went back to leaning against the SUV."So, you can't fix it by chance?" Sarah asked.Evren shook his head."No, unfortunately. I don't have the tools. And even if I did, you guys still wouldn't be able to drive forward because of that row of cars."He pointed toward the cluster.
+
+He had a point.We stood there without knowing what to do.After a few seconds, Evren broke the silence."I have an idea. I can take one of you on my motorcycle and ride between the cars. We can try to find someone who can help with the SUV, or at least find some useful tools."Sarah and I looked at each other."That's a great idea, Evren."
+
+Daniel pushed himself away from the SUV."Absolutely not."I looked at him."Why, Dan?"He waved toward Evren in frustration."Evy, we literally just met the dude. We can't just immediately trust him."Sarah sighed."Dan, Evren is fine. 
+
+He looks like a genuine good man who's trying to help us. Do you have any better ideas?"Evren stepped in."What's your name?"Sarah looked at him."Oh, I totally forgot. Sorry. I'm Sarah."Evren smiled."Okay, Sarah. Your buddy does have a good point.
+
+ You can't immediately trust me as a stranger. And as a good friend, he's probably worried about you two."He looked at Daniel."So how about you and I go on a little trip and see if we can find help or useful tools?" I remember now how daniel hesitated pathetically, which was odd to me.
+
+I was getting tired of arguing."Alright, Evren. I'll ride with you. Dan, you stay here and look after Sarah."Daniel immediately opened his mouth."But—" Dan snapped his head towards me. Ready to argue back."No, Dan. Just stop bickering and listen to us. You stay here, and I'll go."Sarah smiled."You heard her, Dan."
+
+Daniel shook his head and walked into the SUV like an angry child. Evren sighed."I don't know what his deal is."Sarah chuckled tiredly."Even we don't know. Anyway, you guys head out.
+
+ I'll stay here and wait." Evren nodded and walked toward his motorcycle.He looked back at me and motioned toward the bike."You coming?"I nodded."I think this will fit your head."He picked up his helmet and handed it to me.
+
+I looked at it for a moment."What about you?"Evren grabbed a pair of goggles."Don't worry. I won't be riding through the cold wind with nothing to cover my eyes."I smiled and put the helmet on.We climbed onto the motorcycle.I wrapped my arms around Evren's abdomen.The area ahead was completely empty.
+
+Too quiet.
+
+It felt like we were riding through a sea of mist. The motorcycle pushed through it as the fog parted around us, only to close behind us again. The ride took about 5 minutes until evren found something strange ahead."Evy, look. There's a gas station ahead of us."I lifted my head.A gas station?I was baffled.
+
+ Sure, the bridge was wide and enormous, but who in their right mind would build an entire gas station on it?"Who do you think built it?"Evren replied immediately."No idea. Probably someone on a crack pipe."I chuckled."Yeah, that fits this place's vibe."A few minutes passed before we finally reached the gas station.Evren parked the motorcycle and took off his goggles.
+
+ I climbed off, removed the helmet, and placed it on the back of the motorcycle.I walked toward the gas station, taking a closer look at its exterior.Something about it looked familiar.Too familiar."Evren, look. There's a garage."I pointed toward the building beside the gas station.Evren walked over and looked at it."Yeah, I see it. Let's go inside, grab whatever we find useful, and head back quickly."I nodded.We walked toward the entrance and pushed the door open. The inside was empty.
+
+No cashier.
+
+No customers.
+
+No movement.
+
+The only sound came from a radio sitting on the counter.Classical music was playing from it.The same classical music I had heard at the gas station where the old man warned me about Misty Walk.I stopped walking.
+
+Evren continued toward the garage, but noticed that I wasn't following."You good, Evy?"I blinked several times."Uhh... yeah, I'm fine. I just got distracted."Evren nodded."Don't worry. I'll be close by if anything happens."That calmed me down a little."Thanks, Evren."He walked into the garage.
+
+I went behind the counter and grabbed a bag before looking around the shelves.I picked up a few snacks, some chocolate bars, and several bottles of water.As I walked past the bathroom, I took a couple of steps back.There was a mirror on the wall.I looked at my reflection for a moment.Then I looked down at the water bottle in my hand and sighed.
+
+I was too embarrassed to admit my feelings directly to Evren.He had blue eyes, a handsome face, long brown hair, a tall and muscular build...He was completely my type."Evren?"I heard him moving things around inside the garage."Yeah? Is something wrong?"I walked closer to the open garage door."No, all good. 
+
+I just wanted to ask... how old are you?"The shuffling stopped.There was a short pause."I'm twenty-eight. Why?"I looked around the shelves and crossed my arms. "Nothing. Just curious, you know? I'm trying to get to know you more." I stopped just outside the garage entrance. "Is that so? Well, how old are you, Evy?"I smiled. "I'm eighteen." He laughed. "Yeah." A brief silence followed.
+
+ Then I asked another question. "What kind of job do you have?" Something fell inside the garage. "Fuck." I tried not to laugh. "I work for the military." 
+
+"Cool." I decided to leave him alone for a while. I walked back toward the shop and looked through the glass door. That's when I saw something outside. My body froze. A skeleton was standing upright in the mist. It was wearing a classy black outfit with a black tie and a black hat. Both of its hands were held behind its back.
+
+It stood completely still. Then it waved at me. My heart started beating faster. "E-EVREN!" My voice echoed through the empty station. "COME HERE, QUICKLY!" Evren came out of the garage carrying a box of tools. "Found the toolbox. What is wrong?" I pointed toward the glass door. 
+
+The skeleton had turned its head toward him. Evren froze. His expression changed immediately. He placed the toolbox on the counter and slowly reached toward the revolver at his side. "Stay here, Evy." I wanted to stop him from going outside. But what choice did I have? I grabbed the toolbox and followed him to the entrance.
+
+ Evren pushed the door open and stepped outside, raising the revolver toward the skeleton. I stayed just behind him. The skeleton didn't react to the weapon. It simply looked at us. Then it spoke. "I'm not your enemy, human. I'm just here to warn you."
+
+ Evren remained skeptical. "Then explain yourself right away. I'm all ears." His arms were shaking slightly as he kept the revolver trained on the skeleton. I could see him trying to control his breathing. The skeleton stood calmly in the mist. "You shouldn't stay any longer in that place. Your friends back there are in danger. You have little to no time to prepare yourself. 
+
+Heed my words andlefte right away." My stomach tightened when he mentioned our friends. "Evren, we need to go back. Immediately. Please." The skeleton didn't answer. 
+
+It simply turned away and began walking into the mist. Within seconds, its silhouette disappeared. Evren kept staring at the spot where it had vanished. Then he lowered the revolver and put it away. "Yeah. Let's go." We hurried back toward the motorcycle.
+
+I left the bag behind and took only the toolbox. Those were the only things we needed. I climbed onto the motorcycle and put the helmet back on. Evren put his goggles over his eyes. He started the engine. The motorcycle roared to life. Without wasting another second, he turned south toward where we'd come from and accelerated into the mist. 
+
+I didn't know if we'd make it back in time. Evren drove as fast as he could through the mist until we reached the row of cars. 
+
+He didn't try to drive through them. Instead, he noticed something and pulled the motorcycle to a stop on the other side of the cluster. "Evren? Why did you stop—" evren didn't even let me finish,"Evy..." His voice was different. "We should leave." I stared at him in confusion. "What? Why? Sarah and Daniel are—" My words died in my throat. I looked ahead. Sarah was dead.
+
+Her body had been brutally dismembered. Both of her arms were gone, and she was hanging against the side of the SUV, held up by a metal bar that had been driven through her forehead. I screamed. My legs gave out beneath me, and I fell onto my knees. "No..." I couldn't believe what I was seeing. Sarah was dead. My friend was dead. 
+
+A voice suddenly came from behind the SUV. "Guys!" I looked up through my tears. "Oh, thank God you came back." Daniel stepped around the back of the SUV. His face was covered in blood, and his shirt was ripped apart. "Sarah and I were attacked by some kind of creature." He started walking toward us. For a moment, I believed him. Then, from the corner of my eye, I saw Evren raising his revolver. A deafening gunshot rang through the bridge.
+
+I flinched. Daniel's body dropped. I stood up in shock and turned toward Evren. "EVREN! What the fuck is wrong with you?!" I smacked his chest. He grabbed me by the shoulder. "Evy! That wasn't Daniel!" He pointed toward the SUV. "Look behind it!" I stared at him, confused and shaking. Then I looked. Daniel's actual body was lying beneath the SUV. He was dead. His clothes had been torn away. 
+
+I slowly turned back toward the figure Evren had shot. It began to move. The thing stood upright. It was far too tall and unnaturally thin, its pale skin almost disappearing into the mist surrounding it. Then I saw its face. Its mouth was filled with large, human-like teeth that stretched far beyond where a normal mouth should have ended. There was no cheek flesh covering the sides of them.
+
+Its eyes were completely black. Only two tiny white points remained in their centers. Its expression was furious. Tall black hair rose from its head and disappeared into the mist. The creature opened its jaw far wider than any human mouth could possibly open. Then it spoke. 
+
+In Sarah's voice. "Evy..." Its voice cracked as it mimicked her. "Please..." It tilted its head. "Come h-help me..." I felt sick. That was Sarah's voice. But it wasn't Sarah. Evren stepped in front of me. "Back up." I stumbled backward. He raised his revolver and fired. One shot. Then another. Five more shots tore through the creature. The Pale Mimic staggered and collapsed onto the pavement. Evren grabbed the toolbox and threw it aside. "Evy, let's go. NOW." I nodded.
+
+My whole body was still shaking. I climbed onto the motorcycle and put the helmet back on. Evren got on in front of me and started the engine. The motorcycle roared. We drove away from the cars. Neither of us spoke.
+
+ For the next five minutes, the only sound was the motorcycle cutting through the mist. Then something rumbled beneath us. I felt it through the bridge. A deep vibration. The sound of enormous waves followed. Water crashed upward somewhere below the bridge. Evren suddenly spoke. "Evy, close your eyes." I looked at the back of his head. "What?" 
+
+"Don't look anywhere. No matter what happens." I didn't understand. But something in his voice made me obey. I closed my eyes. 
+
+The next sound I heard was something I will never forget. A roar. It wasn't an animal. It wasn't anything I could compare to a living creature. It sounded like an enormous being beneath the ocean, roaring from somewhere so deep that the sound seemed to shake the entire bridge. My body went rigid.
+
+ I felt as though something was trying to pull the air out of my lungs. Another roar followed. The motorcycle continued moving. Evren didn't stop.
+
+I could hear enormous waves crashing against the bridge. Water began climbing onto the road beneath us. It splashed against my legs. Then something struck the bridge. The entire motorcycle shook. I kept my eyes closed. I didn't know what was happening around me. All I could hear was the ocean. The roaring. The crashing water. And something enormous moving beneath us. Then, suddenly, I felt warmth against my helmet. Sunlight.
+
+ I opened my eyes. The mist was gone. We were outside Misty Walk. Evren stopped the motorcycle. He climbed off and immediately collapsed onto the ground, breathing heavily. I remained on the motorcycle for a few seconds, staring back at the ordinary road behind us. There was no mist.
+
+No bridge.
+
+No ocean. 
+
+Nothing. 
+
+Just the road. And Evren lying beside the motorcycle, struggling to catch his breath. 
+
+Years have passed since Evren and I escaped. The police never found the bridge. 
+
+They searched the area where Evren and I said we'd come out. They found nothing except the road and the motorcycle tracks.
+
+ Daniel and Sarah are still listed as missing. Evren and I went our separate ways afterward. We never really talked about what happened. I think neither of us knew how. I still have the photograph I took from the Wallystone family's Jeep. I keep it in a box. I don't look at it anymore. But sometimes, when I'm driving at night, I see mist gathering beside the road.
+
+And whenever I do, I slow down.
+
+I don't care how much longer the trip takes.
+
+I'll take the long way home.
