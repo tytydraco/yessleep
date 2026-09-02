@@ -6,7 +6,7 @@ Neither Sarah nor I had a car, so we took Daniel's SUV. The road seemed to go on
 
 "Yeah, what seems to be the problem, Dan?" Sarah asked from the passenger seat. She had been focused on polishing her fingernails and only looked up after hearing him. "We're about to run out of gas," Daniel said, sounding irritated. 
 
-He took one hand off the steering wheel and rested his arm against the open window. "And I have no clue if there's a gas station nearby."I frowned. "Didn't you say you had a gas container?" I remembered Daniel mentioning that he kept an extra container of gasoline in the SUV. "Oh, yeah. About that..." Daniel rubbed his eyes. "When we were packing, I found out the container was empty." Sarah turned toward him. "Why didn't you tell us?" Dan grumbled before giving awah an answer.
+He took one hand off the steering wheel and rested his arm against the open window. "And I have no clue if there's a gas station nearby."I frowned. "Didn't you say you had a gas container?" I remembered Daniel mentioning that he kept an extra container of gasoline in the SUV. "Oh, yeah. About that..." Daniel rubbed his eyes. "When we were packing, I found out the container was empty." Sarah turned toward him. "Why didn't you tell us?" Dan grumbled before giving away an answer.
 
 "I-I was just too lazy to refill it," he admitted. "Besides, we were already running late." I snorted and leaned back against the seat, crossing my arms. "It's pretty ironic that you were the one rushing us, and now look at us. Our gas tank is almost empty because someone was careless." Daniel sighed. "Evy, you're not helping—" He suddenly cut himself off. His eyes had shifted toward something ahead. 
 

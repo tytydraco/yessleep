@@ -1,0 +1,1923 @@
+&#x200B;
+
+When we finally reached Wal-Lots, I immediately noticed something.
+
+Cars.
+
+Hundreds of them.
+
+They filled the parking lot.
+
+Some were abandoned in the middle of the road. Others were parked sideways, as if their drivers had simply jumped out and run.
+
+It looked like everyone had the same idea.
+
+Get supplies.
+
+Survive.
+
+Find somewhere safe.
+
+Then I saw them.
+
+Our group's cars.
+
+"They made it," I whispered.
+
+For the first time in hours, I felt something that almost resembled hope.
+
+I jumped out of the bus.
+
+"Wait!" Sean shouted.
+
+But I was already running.
+
+I sprinted toward the front entrance of the store.
+
+Then I stopped.
+
+My excitement vanished.
+
+Blood covered the glass doors.
+
+There was blood on the floor.
+
+Blood on the walls.
+
+Blood everywhere.
+
+I stared through the glass.
+
+Please don't let it be theirs.
+
+Please.
+
+I slowly reached for the door.
+
+My hand trembled as I pulled my sword from its sheath.
+
+I pushed the door open.
+
+It creaked.
+
+The sound seemed impossibly loud inside the silent store.
+
+I stepped through.
+
+Gary, Sean, and Charlie followed closely behind.
+
+The store looked like a battlefield.
+
+Shelves had been knocked over.
+
+Shopping carts were scattered everywhere.
+
+Most of the food was gone.
+
+Whatever remained wasn't enough to help us for long.
+
+"Pharmacy," Sean whispered.
+
+We moved carefully through the aisles.
+
+Then we saw it.
+
+The pharmacy.
+
+The shelves inside were still completely stocked.
+
+Medicine.
+
+Bandages.
+
+Antibiotics.
+
+Everything we needed.
+
+It looked untouched.
+
+Almost too untouched.
+
+I reached for the door.
+
+Locked.
+
+I grabbed the handle and pulled.
+
+Nothing.
+
+Then—
+
+RATTLE.
+
+I froze.
+
+Something had moved inside.
+
+I looked at Sean.
+
+He looked at me.
+
+"Did you hear that?" I whispered.
+
+Another rattle.
+
+This time, harder.
+
+Something slammed against the other side of the door.
+
+I stepped back.
+
+Then the thing lunged against the glass.
+
+I nearly screamed.
+
+It was Katrina.
+
+Or what was left of her.
+
+Her face looked like something had eaten it away. Patches of skin hung from her jaw, and her eyes were clouded and lifeless.
+
+"Katrina..."
+
+She slammed herself against the door again.
+
+Behind her, I saw movement.
+
+One shape.
+
+Then another.
+
+Then another.
+
+They began shambling out from the pharmacy.
+
+Too many.
+
+"We need to go!" Gary whispered.
+
+Then—
+
+"Up here!"
+
+We spun around.
+
+A voice.
+
+Someone was alive.
+
+"Up here!" the voice shouted again.
+
+I looked toward the office above us.
+
+A short, red-haired man stood in the doorway.
+
+"Move!" he yelled.
+
+We didn't need to be told twice.
+
+Gary, Sean, and I sprinted toward the office.
+
+Charlie was right behind us.
+
+We reached the stairs.
+
+Footsteps echoed somewhere behind us.
+
+Fast.
+
+Getting closer.
+
+"Where's Charlie?" Gary shouted.
+
+I turned.
+
+Charlie wasn't there.
+
+Then we heard it.
+
+A scream from the back of the store.
+
+"CHARLIE!"
+
+I started running back.
+
+Sean grabbed me.
+
+"No!"
+
+"Let me go!"
+
+"Anthony, we can't!"
+
+Gary grabbed my other arm.
+
+We pulled against each other for a moment.
+
+Then the creatures appeared at the end of the aisle.
+
+Charlie wasn't among them.
+
+"Anthony, MOVE!"
+
+They dragged me into the office.
+
+The red-haired man slammed the door shut.
+
+He locked it.
+
+Then he and Gary shoved a heavy cabinet against it.
+
+The creatures reached the stairs.
+
+BOOM!
+
+The door shook.
+
+Everyone froze.
+
+BOOM!
+
+The cabinet moved an inch.
+
+"They're coming through," Gary whispered.
+
+"Not if we keep this door shut," the red-haired man said.
+
+Another impact.
+
+BOOM!
+
+The door shook again.
+
+"Who are you?" Sean asked.
+
+The man finally turned toward us.
+
+"Did you come here for supplies?"
+
+"Yes," I answered.
+
+The man gave a bitter laugh.
+
+"So did everyone else."
+
+He pointed toward the parking lot.
+
+"There were over a hundred cars here when we arrived."
+
+I stared at him.
+
+"Who are you?"
+
+He took a breath.
+
+"I guess I better introduce myself. I'm Drayke."
+
+He pointed toward a blonde woman sitting quietly in the corner.
+
+"This is Brook."
+
+Then he pointed toward the others.
+
+"That's John. Fergus. And Fay."
+
+Fergus looked exhausted.
+
+Fay was crying silently.
+
+John kept his eyes on the door.
+
+"We're the only ones left."
+
+"Only ones left from what?" I asked.
+
+Drayke looked at me.
+
+"The attack."
+
+I felt my stomach drop.
+
+"What attack?"
+
+Drayke shook his head.
+
+"When we first got here, we thought this place was safe. Strong doors. Plenty of supplies. Not many entrances."
+
+He paused.
+
+"But we made one mistake."
+
+"What?"
+
+"The outside doors were unlocked."
+
+Another BOOM echoed through the office.
+
+Nobody spoke.
+
+Drayke continued.
+
+"Those things got inside before we realized what was happening."
+
+I swallowed.
+
+"People panicked. Some ran outside. They left the front doors open."
+
+He looked toward the pharmacy.
+
+"Others hid in there."
+
+My heart began pounding.
+
+"I tried to get them to come with us," Drayke continued. "But they refused."
+
+"Why?"
+
+"They said they were waiting for the other half of their group."
+
+My chest tightened.
+
+"The others wouldn't trust us. They said we might be infected."
+
+Drayke looked down.
+
+"I guess that didn't work out too well for them."
+
+I stared at him.
+
+The words echoed inside my head.
+
+Waiting for the other half of their group.
+
+I looked toward the pharmacy.
+
+My family's cars.
+
+The blood.
+
+Katrina.
+
+The people hiding inside.
+
+My mind put everything together.
+
+"No..."
+
+Drayke looked at me.
+
+I could barely breathe.
+
+"The people in the pharmacy..."
+
+He didn't answer.
+
+I already knew.
+
+My family was in there.
+
+My girlfriend was in there.
+
+And Drayke had known they were there the entire time.
+
+I looked at him.
+
+My hands began to shake.
+
+"You knew."
+
+Drayke's expression changed.
+
+"What?"
+
+"You knew they were in there."
+
+He didn't say anything.
+
+"You knew!"
+
+Everyone in the room turned toward me.
+
+I stepped closer to him.
+
+"You knew my family was in there."
+
+Drayke opened his mouth.
+
+But no words came out.
+
+I looked past him toward the barricaded door.
+
+Behind that door were the creatures.
+
+And somewhere beyond them was the pharmacy.
+
+My family.
+
+My girlfriend.
+
+The people I'd spent the entire day trying to find.
+
+They had been here.
+
+They had been alive.
+
+And now...
+
+They were gone.
+
+I slowly looked back at Drayke.
+
+The fear I'd felt when we first entered the store was gone.
+
+Something much darker had taken its place.
+
+Anger.
+
+Chapter Six
+
+When they finally reached Wal-Lots, it was around five o'clock in the evening.
+
+The world outside had gone strangely quiet.
+
+There were no cars moving through the streets. No people calling for help. No distant sirens.
+
+Nothing.
+
+Just the occasional sound of something moving somewhere beyond the walls.
+
+They had barricaded themselves inside one of the store offices, using desks, filing cabinets, and anything else they could find to block the door.
+
+It had been two hours.
+
+It was now 7:00 p.m.
+
+But to Anthony, it felt like days.
+
+He sat on the floor with his back against the wall, staring at nothing.
+
+Every time he closed his eyes, he saw his family.
+
+His mother.
+
+His father.
+
+The people he had grown up with.
+
+Dead.
+
+And there was nothing he could do to change it.
+
+Then there was Charlie.
+
+He didn't know where she was.
+
+He didn't know if she had made it out.
+
+He didn't even know if she was still alive.
+
+The thought ate away at him.
+
+Across the room, Fergus finally stood.
+
+"Does anyone have any idea how we're getting out of here?"
+
+No one answered.
+
+Fergus looked around the room.
+
+"Are we just going to sit here until we starve to death?"
+
+Still nothing.
+
+The silence became almost unbearable.
+
+Fergus pointed toward Anthony.
+
+"You said you have a bow and a sword."
+
+Anthony didn't respond.
+
+"Let's fight our way out."
+
+Nothing.
+
+Fergus's patience finally snapped.
+
+"Well, give me the damn thing, and I'll get us out of here!"
+
+"Fergus, sit down!" Fay snapped. "The tension is high enough without you making things worse."
+
+Fergus slowly turned toward her.
+
+"Making things worse?"
+
+He laughed bitterly.
+
+"The dead are trying to break through that door and eat us, Fay. There is no making this worse."
+
+He pointed toward the barricaded entrance.
+
+"We're living in a nightmare. The only difference is..."
+
+His voice became quieter.
+
+"I can't wake up from this one."
+
+Nobody spoke.
+
+Fergus looked around the room.
+
+"Think about your brother. Your mother. Your father. They're all dead for all we know."
+
+He shook his head.
+
+"Everyone's family could be dead."
+
+"Shut your fucking mouth before I shut it for you," Sean said.
+
+Fergus looked at him.
+
+"I'd like to see you try."
+
+The two men stared at each other.
+
+Neither one moved.
+
+Then Sean stepped forward.
+
+"Okay."
+
+His fist connected with Fergus's face.
+
+The crack echoed through the small office.
+
+Fergus stumbled backward.
+
+For a second, everything was still.
+
+Then Fergus charged.
+
+He slammed into Sean and drove him against the wall.
+
+One punch.
+
+Then another.
+
+Then another.
+
+Sean grunted as Fergus continued hammering his body.
+
+"Enough!" Fay screamed.
+
+Sean finally got both hands against Fergus's shoulders.
+
+With everything he had, he shoved.
+
+Fergus flew backward through the doorway.
+
+The old doorframe exploded.
+
+Fergus tumbled down the stairs, hitting step after step before finally crashing onto the floor below.
+
+"Fergus!"
+
+Fay ran toward the broken doorway.
+
+She looked down.
+
+Her blood ran cold.
+
+They were there.
+
+Dozens of them.
+
+At least thirty.
+
+Those things were crawling and stumbling through the darkness at the bottom of the stairs, all of them moving toward Fergus.
+
+Fergus tried to get up.
+
+His breath was gone.
+
+His vision blurred.
+
+Then one of the creatures lunged toward him.
+
+Sean came running down the stairs.
+
+"Get up!"
+
+He grabbed Fergus by the arm and pulled him to his feet.
+
+But there were too many.
+
+They were everywhere.
+
+Then—
+
+BOOM!
+
+A shotgun blast ripped through the darkness.
+
+Gary stood at the top of the stairs, firing down into the horde.
+
+BOOM!
+
+Another fell.
+
+BOOM!
+
+Another.
+
+But there were too many.
+
+Gary fired again.
+
+Click.
+
+Nothing.
+
+He looked down at the shotgun.
+
+Empty.
+
+His face went pale.
+
+"That's it."
+
+The creatures kept coming.
+
+In fact, it seemed like every time one fell, two more appeared behind it.
+
+Sean reached for his knives.
+
+His hands found nothing.
+
+He suddenly remembered.
+
+"The knives..."
+
+They were still in the office.
+
+Sean looked around desperately.
+
+There had to be something.
+
+Anything.
+
+His eyes landed on a janitor's broom.
+
+He grabbed it.
+
+"Come on!"
+
+Sean swung as hard as he could.
+
+CRACK!
+
+The broom slammed into the head of one of the creatures.
+
+The wooden handle snapped in half.
+
+Sean stared at the broken broom.
+
+"You've got to be kidding me."
+
+"Here!"
+
+Drayke threw two knives down the stairs.
+
+One spun through the air and buried itself in the chest of a creature.
+
+The second struck another in the face, hitting hilt-first.
+
+Sean grabbed the first knife and ripped it free.
+
+He drove it into the creature's head.
+
+It dropped.
+
+Fergus grabbed the other knife.
+
+He began swinging wildly.
+
+The blade cut through flesh, arms, and shoulders, but he wasn't hitting their heads.
+
+They kept coming.
+
+"Anthony!" Gary screamed.
+
+Anthony didn't move.
+
+He was still sitting upstairs, staring at the floor.
+
+"Anthony!"
+
+Nothing.
+
+"If you don't help, they're going to die!"
+
+Anthony finally looked up.
+
+"They're already dead."
+
+Gary stared at him.
+
+"No."
+
+His voice was firm.
+
+"Not yet."
+
+Then Gary looked down the stairs.
+
+An arrow suddenly whistled past his head.
+
+THUNK!
+
+It buried itself in one of the creatures below.
+
+Gary looked up.
+
+Brook stood at the top of the stairs.
+
+She had Anthony's bow and quiver.
+
+She drew another arrow.
+
+"Get away from him!"
+
+She fired.
+
+Another creature fell.
+
+Then Drayke pulled his 9mm and started firing into the crowd.
+
+Bang!
+
+Bang!
+
+Bang!
+
+The stairway became chaos.
+
+Arrows.
+
+Gunshots.
+
+Screams.
+
+The creatures clawed over one another, desperately trying to reach them.
+
+But slowly, painfully, a path began to open.
+
+"Come on!" Drayke shouted. "Move!"
+
+Sean and Fergus pushed through the opening.
+
+Brook followed.
+
+Then Fay.
+
+Then Drayke.
+
+Everyone was moving.
+
+Everyone except Anthony.
+
+He remained on the floor.
+
+Frozen.
+
+Gary looked back.
+
+Anthony's eyes were empty.
+
+Gary ran toward him.
+
+"Come on!"
+
+He grabbed Anthony and pulled him up.
+
+Anthony barely reacted.
+
+Gary threw Anthony's arm over his shoulder.
+
+"You're coming with us."
+
+They ran.
+
+But the creatures were still coming.
+
+Gary pushed through the horde, dragging Anthony along.
+
+He didn't see the creature lying on the floor behind him.
+
+Its leg was twisted beneath its body.
+
+Fergus's knife had severed its Achilles tendon.
+
+It couldn't stand.
+
+But it could still crawl.
+
+And it was waiting.
+
+As Gary passed—
+
+A hand shot out.
+
+It grabbed his ankle.
+
+Gary's leg was yanked out from underneath him.
+
+He fell hard.
+
+Anthony went down with him.
+
+The creature pulled itself toward Gary.
+
+Gary kicked.
+
+"Get off me!"
+
+He kicked again.
+
+The creature clamped its teeth into his calf.
+
+Gary screamed.
+
+"SHIT!"
+
+He tried to pull away.
+
+The creature wouldn't let go.
+
+"Anthony!"
+
+Anthony was still on the ground.
+
+"Anthony!"
+
+Gary's voice cracked.
+
+"Get your head out of your ass!"
+
+Anthony finally looked at him.
+
+"You're surrounded!"
+
+Gary stared at him.
+
+"You're in danger!"
+
+Something changed in Anthony's eyes.
+
+The shock began to fade.
+
+He stood.
+
+He grabbed his sword.
+
+The nearest creature lunged.
+
+Anthony swung.
+
+The blade tore through its head.
+
+Another came.
+
+Anthony swung again.
+
+It fell.
+
+Another.
+
+Then another.
+
+For the first time since they had left his home, Anthony was fighting.
+
+Not thinking.
+
+Not remembering.
+
+Just fighting.
+
+He killed several of them before finally reaching Gary.
+
+Anthony grabbed Gary's arm and pulled it over his shoulder.
+
+"Come on."
+
+They moved.
+
+One step.
+
+Then another.
+
+Gary tried to keep his weight off his injured leg.
+
+But it wasn't working.
+
+His face was turning pale.
+
+"Keep going," Gary whispered.
+
+Anthony kept moving.
+
+Then Gary's leg gave out.
+
+They both crashed to the floor.
+
+Anthony pushed himself up.
+
+He looked behind them.
+
+The creatures were coming.
+
+Closer.
+
+Closer.
+
+Gary tried to stand.
+
+He couldn't.
+
+"Help me."
+
+Anthony grabbed him again.
+
+But Gary shook his head.
+
+"Go."
+
+Anthony stared at him.
+
+"No."
+
+"Go!"
+
+Anthony looked around.
+
+There were too many.
+
+He knew it.
+
+Gary knew it.
+
+There was no way they were both getting out.
+
+Gary looked up at Anthony.
+
+For a moment, neither of them said anything.
+
+Then Anthony whispered,
+
+"I'm sorry."
+
+Gary's eyes widened.
+
+"Anthony—"
+
+The sword came down.
+
+One clean swing.
+
+Gary's head split beneath the blade.
+
+Anthony froze.
+
+He stared at what he had done.
+
+His breathing became shallow.
+
+He wanted to look away.
+
+But something moved.
+
+Anthony slowly leaned closer.
+
+Something was crawling inside Gary's head.
+
+At first, Anthony thought it was blood.
+
+Then he saw it.
+
+A tiny, pale creature pushed its way out.
+
+It looked like one of the locust-like creatures.
+
+But smaller.
+
+Much smaller.
+
+Almost like a baby.
+
+It crawled across Gary's bloodied skin, twitching its tiny legs.
+
+Anthony stared at it in horror.
+
+"What the hell..."
+
+A scream echoed from somewhere behind him.
+
+Anthony looked up.
+
+The creatures were almost on top of him.
+
+There was no time to think.
+
+No time to understand what he had just seen.
+
+Anthony turned and ran.
+
+He disappeared into the darkness after the others.
+
+Behind him, the tiny creature crawled away into the shadows.
+
+Chapter Seven
+
+Covered in blood, Anthony realized something strange.
+
+They couldn't see him anymore.
+
+He stood perfectly still, barely breathing, as one of the creatures stumbled past him. Its milky eyes scanned the room, searching for something it couldn't find.
+
+Anthony didn't move.
+
+He could hear his own heartbeat pounding in his ears.
+
+Don't see me. Please... don't see me.
+
+The creature turned its head toward him.
+
+Anthony froze.
+
+For a moment, neither of them moved.
+
+Then it turned away.
+
+Anthony didn't wait.
+
+He ran.
+
+His shoes pounded against the floor as he sprinted toward the exit. Behind him came the scraping, snarling sounds of the creatures realizing their prey was gone.
+
+He reached the door.
+
+Pulled the handle.
+
+Nothing.
+
+He pulled again.
+
+Nothing.
+
+Anthony's heart sank.
+
+The door had been barricaded from the other side.
+
+“Shit!”
+
+He slammed his shoulder into it.
+
+Once.
+
+Twice.
+
+Nothing.
+
+Someone must have thought we died and barred the door shut.
+
+Anthony stepped back, desperately searching the darkness for another way out.
+
+Nothing.
+
+No windows.
+
+No doors.
+
+No escape.
+
+Then—
+
+CLICK.
+
+Anthony looked up.
+
+Water sprayed from the ceiling.
+
+The fire sprinklers had activated.
+
+A second later, the fire alarm exploded to life.
+
+WEE-OOO! WEE-OOO! WEE-OOO!
+
+“Oh, shit!”
+
+The alarm echoed through the building.
+
+Anthony looked toward the entrance.
+
+The creatures began to stir.
+
+One by one, their heads turned toward the sound.
+
+Anthony's stomach dropped.
+
+“That'll bring every one of them here.”
+
+The alarm screamed louder.
+
+Outside, the creatures began pounding against the walls and doors.
+
+Anthony backed away.
+
+I'm trapped.
+
+His eyes darted around the room.
+
+Then he looked up.
+
+The ceiling.
+
+The roof.
+
+“Maybe I can get out through the roof.”
+
+Anthony turned and sprinted back toward the office.
+
+Then he heard it.
+
+“Anthony!”
+
+He stopped.
+
+The voice had come from the office.
+
+He knew that voice.
+
+“Brooke?”
+
+For the first time in hours, Anthony felt something other than fear.
+
+Hope.
+
+He ran toward the voice.
+
+“Brooke!”
+
+He pushed through the doorway.
+
+And stopped.
+
+His hope disappeared.
+
+Brooke was sitting against the wall, covered in blood.
+
+Anthony stared at her.
+
+Her left arm was gone.
+
+Not injured.
+
+Not broken.
+
+Gone.
+
+What remained was a mangled stump, blood dripping steadily onto the floor.
+
+“I'm dying,” she whispered.
+
+Anthony couldn't speak.
+
+“They took my arm.”
+
+She looked down at it.
+
+“They took my arm...”
+
+Anthony instinctively reached for his gun.
+
+Brooke noticed.
+
+“I wasn't bitten.”
+
+Anthony froze.
+
+“What?”
+
+“I wasn't bitten,” she repeated weakly.
+
+“But you're covered in blood.”
+
+“It isn't from a bite.”
+
+“Then what happened?”
+
+Brooke swallowed.
+
+“I was trapped after Drayke got caught.”
+
+Her voice trembled.
+
+“I hid inside a fitting room. I thought if I stayed quiet, they wouldn't find me.”
+
+The fire alarm continued screaming in the distance.
+
+“I waited.”
+
+She looked toward the doorway.
+
+“Then I heard a knock.”
+
+Anthony's face tightened.
+
+“I thought someone had come to help me.”
+
+A tear rolled down her cheek.
+
+“It... wasn't someone.”
+
+Anthony crouched beside her.
+
+“What happened?”
+
+“I was too slow.”
+
+“I tried to close the door, but he got inside.”
+
+Brooke's breathing became shallow.
+
+“I managed to get out of the fitting room, but he grabbed my arm.”
+
+Anthony looked at the blood covering the floor.
+
+“Luckily, it was an old man.”
+
+She gave a weak, almost broken laugh.
+
+“He didn't have any teeth.”
+
+Anthony stared at her.
+
+“So when he bit me... nothing happened.”
+
+She looked down at what remained of her arm.
+
+“But he wouldn't let go.”
+
+Her voice cracked.
+
+“I couldn't scream.”
+
+Anthony understood.
+
+“If I screamed, the others would have heard me.”
+
+She wiped away a tear.
+
+“So I just stood there.”
+
+Her eyes closed.
+
+“He pulled.”
+
+Anthony said nothing.
+
+“He pulled my arm out of its socket.”
+
+She winced.
+
+“Then the flesh started tearing.”
+
+Her voice became barely audible.
+
+“Then the muscle.”
+
+Anthony looked away.
+
+“He kept pulling.”
+
+A long silence.
+
+“Until my arm came off.”
+
+The fire alarm continued to howl.
+
+Brooke looked at Anthony.
+
+“After that, I ran back here.”
+
+She smiled faintly.
+
+“That's when I saw you.”
+
+A tear slipped down her face.
+
+“I know this is selfish.”
+
+She reached for his hand.
+
+“But I don't want to die alone.”
+
+Anthony squeezed her hand.
+
+“You won't.”
+
+Brooke smiled.
+
+And for a moment, the screaming alarm, the creatures outside, and the end of the world seemed to disappear.
+
+Anthony looked at her smile.
+
+God, how beautiful that smile was.
+
+He held her as the night dragged on.
+
+The alarm eventually stopped.
+
+The pounding outside faded.
+
+But Brooke never woke up.
+
+Anthony never knew exactly when she died.
+
+He only knew one thing.
+
+She wasn't alone.
+
+\\---
+
+Now, in my final moments, I finally understand what she was afraid of.
+
+Dying alone.
+
+For so long, I thought I was afraid of death.
+
+I wasn't.
+
+I was afraid of what came before it.
+
+The silence.
+
+The darkness.
+
+Knowing there would be no one beside me when it finally happened.
+
+But I don't have to be afraid anymore.
+
+She is here.
+
+She's been here all along.
+
+I can almost hear her.
+
+I can almost see that smile.
+
+I'm not alone.
+
+\\---
+
+I found this book three years into the end of the world.
+
+It was lying beside the body of a man I assume was Anthony.
+
+It's hard to tell.
+
+Not after what the shotgun did to his head.
+
+Chapter Eight: Claire
+
+I guess I should follow Anthony's example.
+
+So, allow me to introduce myself.
+
+My name is Claire Valentine.
+
+I'm what people call a survivor.
+
+It doesn't feel like surviving.
+
+Surviving sounds heroic. Like I'm some kind of soldier who fought through the end of the world and came out stronger.
+
+The truth is, I wake up every morning and check the fence.
+
+I count the food.
+
+I check the water.
+
+I make sure my sister is still breathing.
+
+Then I do it all over again the next day.
+
+It has been three years since the start of this whole zombie thing.
+
+Three years since the first reports came out.
+
+Three years since the hospitals filled up.
+
+Three years since the government told everyone to remain calm.
+
+Three years since the emergency broadcasts stopped.
+
+Nobody calls it an apocalypse anymore.
+
+You don't need a word for something you've already accepted.
+
+We now have rules to remain safe.
+
+Rules that were all learned the hard way.
+
+Every rule has a story behind it.
+
+Usually, that story ends with someone dying.
+
+Rule 1: No cars.
+
+Cars are too loud, and gas is too hard to come by.
+
+Most of the gas now is basically just water, so if you have to go out, ride a bicycle.
+
+We learned that one during the first winter.
+
+A group from Asheville found an old delivery truck with half a tank of gas. They thought they'd hit the jackpot.
+
+They made it about six miles.
+
+The engine attracted hundreds of zombies from the surrounding roads.
+
+By the time they abandoned the truck, they had lost four people.
+
+The truck was still sitting on the highway the last time we saw it.
+
+Now it's covered in handprints.
+
+We don't know whose.
+
+Most vehicles have been stripped for parts anyway. Batteries, tires, alternators, anything useful gets brought back to the junkyard.
+
+That's one of the reasons we chose this place.
+
+The dead have plenty of things we need.
+
+They just don't need them anymore.
+
+Rule 2: Darkness is not your friend.
+
+Going out after dark, or even slightly before dark, will get you killed.
+
+Those things can smell us better than we can see them.
+
+If you have to go out after dark, bring firecrackers.
+
+"Why firecrackers?" I hear you ask.
+
+The only thing better than their noses is their ears.
+
+Firecrackers will save your life in a pinch, but do not rely on them.
+
+The first few months, we thought nighttime was safer.
+
+We were wrong.
+
+During the day, the roads belong to the zombies.
+
+At night, the woods do.
+
+You can't see them, but you can hear them.
+
+Sometimes.
+
+That's the worst part.
+
+A forest can go completely silent, and you'll know something is wrong.
+
+We've learned that the hard way too.
+
+William says the zombies don't sleep.
+
+I believe him.
+
+Sometimes, when I'm awake at two in the morning, I can see them standing beyond the fence.
+
+Dozens of them.
+
+Just standing there.
+
+Waiting.
+
+They don't move unless something makes a noise.
+
+Except for the children.
+
+But I'll get to them.
+
+Rule 3: Bite checks.
+
+Every time you leave our safe house, when you come back, you will be stripped and checked thoroughly.
+
+This prevents people from keeping bite wounds to themselves.
+
+If you are bitten, don't come back, because if you do and they find a bite, you will be kicked out of the community.
+
+We will not risk the others!
+
+I know that sounds cruel.
+
+It is cruel.
+
+But three years ago, people still believed that love could overcome everything.
+
+It couldn't.
+
+We had a man named Daniel staying with us once.
+
+He got bitten on a supply run.
+
+He didn't tell anyone.
+
+He made it through the gate.
+
+He ate dinner with us.
+
+He laughed.
+
+He hugged his wife.
+
+Forty-three minutes later, he attacked her.
+
+By morning, six people were dead.
+
+We burned the building afterward.
+
+Nobody complained.
+
+That's when bite checks became mandatory.
+
+Nobody gets privacy anymore.
+
+Privacy is a luxury the dead took from us.
+
+Rule 4: Avoid killing the zombies.
+
+Now, I know this is not what everyone is expecting to hear, but sometimes those bugs will crawl out of a dead zombie and try to infect others.
+
+Zombies are easy to escape.
+
+Those bugs that we call FlyZ are harder to stop.
+
+They can get into places a zombie couldn't, and those FlyZ can infect someone easily.
+
+We learned that lesson when Heorge found a zombie trapped underneath an overturned truck.
+
+Heorge killed it.
+
+He always says he shouldn't have.
+
+The body split open.
+
+Not like a normal corpse.
+
+It moved.
+
+Hundreds of tiny insects poured out from inside it.
+
+They were pale, almost transparent, with black wings and long needle-like legs.
+
+They scattered in every direction.
+
+One got through Heorge's glove.
+
+He was lucky.
+
+William cut the glove off before it reached his skin.
+
+We burned the entire truck.
+
+Heorge still won't talk about it.
+
+Neither will William.
+
+That's where the name FlyZ came from.
+
+Nobody remembers who came up with it.
+
+Probably some kid trying to make a joke.
+
+The name stuck.
+
+Rule 5: Protection.
+
+If you go out, you must wear a mask that covers your mouth, nose, and ears.
+
+All it takes is one FlyZ to crawl into you, and then you're as good as dead.
+
+That's where the zombies come from.
+
+Some type of crossbred insects that can burrow into your brain and control you.
+
+At least, that's what William thinks.
+
+Before all this, he was a doctor.
+
+A real one.
+
+He still keeps his medical textbooks in the office, even though half of the pages have been used to start fires.
+
+He says the insects don't behave like any parasite he's ever seen.
+
+They don't reproduce normally.
+
+They don't seem to need food.
+
+And they shouldn't be able to survive inside a human body.
+
+But they do.
+
+The FlyZ are just here to cleanse the Earth of us humans.
+
+That's what everyone believes.
+
+William isn't so sure.
+
+He thinks they're following some kind of biological instinct.
+
+He says calling it a hivemind makes us feel better because it gives the nightmare a simple explanation.
+
+I don't like when William talks like that.
+
+Because sometimes I wonder if he's right.
+
+And the last and most important rule:
+
+DO NOT GO INTO ANY CITIES.
+
+The zombies have mostly been drawn to the big cities.
+
+I guess it's some kind of hivemind thing that we don't fully understand.
+
+The cities are where the dead gather.
+
+Atlanta.
+
+Charlotte.
+
+Asheville.
+
+New York.
+
+Los Angeles.
+
+It doesn't matter how big the city was.
+
+Eventually, the streets become rivers of dead people.
+
+Sometimes we see smoke rising in the distance.
+
+Sometimes we hear distant sirens.
+
+There haven't been working sirens in years.
+
+So when we hear one, we know something is very wrong.
+
+Even small towns are risky, as you never know where a hivemind will be.
+
+That's what we call the large groups.
+
+Hiveminds.
+
+When enough zombies gather together, they stop wandering randomly.
+
+They move with purpose.
+
+We've watched entire groups change direction at exactly the same time.
+
+We've watched them stop outside buildings and wait.
+
+We've watched them pile against fences for hours without making a sound.
+
+Nobody knows what they're listening for.
+
+Or who they're listening to.
+
+Now I will tell you what we know.
+
+One bite, and you're a zombie in thirty minutes to two hours.
+
+If a FlyZ gets into you, it's even quicker:
+
+Five to ten minutes.
+
+William keeps records of everything.
+
+Dates.
+
+Symptoms.
+
+Time of infection.
+
+Time of death.
+
+He's filled three notebooks.
+
+I asked him once why he bothered.
+
+He said someday, someone might need to know.
+
+I didn't have the heart to tell him that I don't think there's going to be a someday where anyone reads those notebooks.
+
+Children are their favorite targets.
+
+They will ignore anyone if a kid who has not gone through puberty is around.
+
+And the children that are infected have certain powers.
+
+I hate that word.
+
+Powers.
+
+It makes them sound human.
+
+They're not.
+
+First, they can talk.
+
+They will try to draw you out of your safe place by acting like a child in danger.
+
+However, if you go outside, you're the one in danger.
+
+We've heard them imitate people they've killed.
+
+Sometimes they use voices from inside the house.
+
+Sometimes they scream for their parents.
+
+Sometimes they cry.
+
+Once, we heard a little girl calling my name.
+
+She knew my name.
+
+I didn't tell her.
+
+That's something I still don't understand.
+
+Secondly, they can also run.
+
+Most newly infected can run until rigor mortis sets in, and then they just shamble around like those Romero zombies.
+
+But not the kids.
+
+The kids can always run.
+
+We don't know why or how.
+
+Lastly, the children don't seem to follow the hivemind.
+
+They are just here to torture the living.
+
+They will find houses, buildings, and compounds and spend all night outside, taunting and begging for help.
+
+And their laughs are...
+
+Let's just say you don't wanna hear one laugh.
+
+Our little group of survivors is small.
+
+There is me, my sister Sherry, our local town doctor William, a mechanic named Heorge, and his daughter Bekka.
+
+Three years with only five faces...
+
+Well, five friendly faces.
+
+We used to have more.
+
+Everyone used to have more.
+
+That's another thing nobody tells you about surviving.
+
+Eventually, you stop remembering people's faces.
+
+You remember their shoes.
+
+Their jackets.
+
+The sound of their voice.
+
+The things they left behind.
+
+But their faces?
+
+Those disappear first.
+
+We live in a junkyard on the outskirts of town.
+
+The place used to belong to a man named Earl.
+
+We never met him.
+
+We found his body in the office during our first week here.
+
+He was sitting behind the desk with a shotgun across his lap.
+
+We buried him beneath the old yellow excavator.
+
+It's probably the nicest grave in town.
+
+The junkyard itself turned out to be perfect for us.
+
+There are rows and rows of abandoned cars, trucks, refrigerators, washing machines, scrap metal, and old machinery.
+
+The piles of junk create narrow paths that we know by heart.
+
+If someone unfamiliar comes in, they'll get lost.
+
+We won't.
+
+The place has chain-link fences that we have reinforced with all the spare metal from around the junkyard.
+
+The fence isn't pretty anymore.
+
+It's layers of steel, sheet metal, welded car doors, and sharpened scrap.
+
+Heorge calls it the castle.
+
+I call it a death trap.
+
+He's right.
+
+I'm probably right too.
+
+To stop those bugs from getting in, we made a makeshift roof for the fences.
+
+Every gap is covered.
+
+Every vent or hole big enough for them to fit through has to be closed.
+
+We even put mesh over the chimney.
+
+William says it's excessive.
+
+Then he checks it twice every night.
+
+Inside the junkyard, we've built our own little world.
+
+The old mechanic's garage is our workshop.
+
+The office is William's clinic.
+
+An old storage building has become our kitchen and pantry.
+
+We sleep in a two-story tire warehouse because it's the only building with enough rooms for all five of us.
+
+We collect rainwater from the roofs.
+
+We grow potatoes, beans, tomatoes, and whatever else will survive in old tires and plastic barrels.
+
+Heorge has managed to get one generator working, but we only use it for emergencies.
+
+Electricity attracts attention.
+
+Light attracts attention.
+
+Noise attracts attention.
+
+The world has taught us to live quietly.
+
+We even have a bell system.
+
+Fishing line connects the fence to empty metal cans filled with bolts.
+
+If something touches the outer fence, the cans rattle.
+
+If something gets through the first fence, we hear a second bell.
+
+If both go off at once...
+
+We run.
+
+There are five of us.
+
+Five people.
+
+That's all that's left of our world.
+
+But every night, when I look out through the office window and see the junkyard lights glowing behind their blackout curtains, I remind myself of something.
+
+We're still here.
+
+For three years, we're still here.
+
+And tomorrow morning, we'll check the fence again.
+
+We'll count the food.
+
+We'll check the water.
+
+We'll make sure everyone is breathing.
+
+And we'll survive another day.
+
+At least, that's what I keep telling myself.

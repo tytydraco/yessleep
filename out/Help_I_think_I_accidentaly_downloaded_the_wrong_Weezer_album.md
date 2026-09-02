@@ -16,11 +16,9 @@ It went as follows:
 
 **By: P4perface\_Slagginz**
 
-Got one here, that isn’t blocked yet ██████████████ 
+Got one here, that isn’t blocked yet ██████████████
 
 hope you Enjoy :)
-
-
 
 That was the first and last time I interacted with the user Slagginz. As far as I know.
 
