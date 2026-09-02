@@ -1,0 +1,105 @@
+I have had the weirdest day. And I have always been a writer so you all are going to be my diary today.
+
+It all started yesterday. I was leaving work, exhausted. I work at a 24 hr pharmacy. I work noon to midnight. Yesterday was particularly busy.
+
+I got to my car at 12:05am. It was still warm outside despite the sun being gone for a few hours now.
+
+I started the car, turned on my favorite podcast and started my 45 minute drive home.
+
+I got about 23 minutes down the road and had to slam on brakes.
+
+“Road work!? Seriously!?” I said under my breath.
+
+I backed up and tried to take one of the 3 side roads I knew would lead me home.
+
+Blocked.
+
+“Who the hell does road work on 4 major roads at midnight?” I grumbled to myself.
+
+I thought about calling my mom and asking to stay with her. she lives about 3 minutes from the pharmacy, but I have a cat at home waiting for her midnight snack.
+
+I had to get home.
+
+I pulled over in a dark abandoned parking lot that use to belong to a “Toys R Us!” I loved going there as a kid.
+
+I pulled out my cell phone and checked google. “Hey google, what’s the best route home? Avoid road work.” I said into the app.
+
+The screen buffered for a bit and a road I didn’t recognize popped up. By now it was 12:34AM and this route added 13 extra minutes to my commute. I did not care, I wanted to be home.
+
+I clicked the “directions” button, sat my phone in its holder and started driving.
+
+I passed by a few places I recognized. I suffer from OCD so I rarely leave the roads I have deemed as “the ones worth taking.”
+
+As I get into the open road clearing I notice a fire department up ahead with its own stop light, flashing yellow.
+
+I pass a welcome sign, “Welcome to Losville: Population Varies.”
+
+“Population varies?” I found myself saying out loud.
+
+Why did I have to come through a town to get home?
+
+I slow to a speed of about 20MPH, checking the map on my phone.
+
+“You’re here!” it reads.
+
+“I’m not home yet? What the hell is this?” I closed the phone and unlocked it again.
+
+“You’re here! End route?” It reads out-loud in a chipper computer voice.
+
+I decide to stop at a small gas station, put the car in park and reset the GPS.
+
+I pull into the “Jolly Minute” gas station. It’s the only halfway bright area in this small town. I feel unsettled but not unsafe. I look at my gas display, damn it. Low.
+
+So not only is my GPS insane, now I have to get out of the car, pump gas, and go in to pay.
+
+As I step out of the car I notice it’s much colder here. I’ve only been on the road for maybe 35-40 minutes, not enough for a temperature change.
+
+As I shut my car door, I look into the store. There is a tall man inside at the register. He would seem calm and not scary if not for the fact that he is staring right at me.
+
+I involuntarily jump. His face doesn’t change.
+
+I decide to smile and wave. Be nice. Get your gas. Get the hell out of here.
+
+I get my card in my hand and walk to the door. As I pull it open a gruff voice says, “Welcome home Taylor.”
+
+I stopped halfway inside the door.
+
+“Excuse me?” I say, avoiding his eyes. How does he know my name? I’ve never been here before let alone lived here?
+
+“We are so excited you came home, finally. We have to call the sheriff he will want to know you’re safe and back home.”
+
+“Sir, I think you have me conf-“ I cut my own sentence short when I notice it. A missing persons poster on the wall.
+
+“MISSING! Taylor James Lawton. Born January 2nd, 2000 in Losville. Went missing in 2014 when she was 14 years old. She is expected to be 26 years old now. Brown hair, blue eyes. Please call with any information.”
+
+“Oh my God.” I mumbled as I covered my mouth and stepped into the store.
+
+“You mom and dad will be so happy that you’re back.” The man said as he came around the corner towards me.
+
+“Get away from me!” I yelled as I ran back to my car, got inside, and locked the door.
+
+I instantly grabbed my phone, googling the information on the missing person, me.
+
+“404 no information found.”
+
+“What the hell is going on here?” I said out loud as I tried to slow my heart rate and my breathing.
+
+They have to be confused. That isn’t me… but that was a picture of me when I was 14 years old. It was my “first day” of school picture. I remember standing on my mom’s apartment steps taking it.
+
+I need to get the hell out of this town.
+
+As I leave the gas station I notice there are now people standing outside of their homes that weren’t there before.
+
+They are all watching me as I drive by.
+
+One family is crying, holding a sign that says “Welcome Home Taylor!”
+
+“Screw that!” I shouted as I floored it out of there.
+
+I drove past the “You are now leaving Losville.” sign and let out a sigh of relief.
+
+As I was settling back into my seat, my heart jumped. I was back in the town. Passing that “Welcome to Losville: Population Unknown.” But something was different this time.
+
+An additional sign was now beside it.
+
+It read, “Welcome Home Taylor! You’ll Never Leave Again.”

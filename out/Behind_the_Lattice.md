@@ -1,0 +1,107 @@
+Nearly the entire 26 years we've been together, married for 19 of them, Mags has told me cigarettes would be my early death. As is usually the case, she was right. However I don't think even my beloved woods witch could have predicted it would happen quite like this. Although I am certain it is happening and I will die tonight. My pack of smokes is after all, nearly empty now.
+
+Perhaps I should be grateful for that. It won't be slow or painful. In some dismal hospital room, in a noisy, crowded city. With specialists administering medication and treatments just as painful as cancer or emphysema. And while I don't imagine this is going to be more dignified, it will definitely be quicker. I hope.
+
+Come to think of it Mags was wrong about at least one thing, wanting to live way out here. Isolated, in the middle of nowhere. Where sinister creatures roam, hidden, while civilized folks convince themselves those things don't exist.
+
+Millersburg is about as beautiful as northern Michigan gets, if you love to look at the trees. Which of course Mags does. I knew how hard the winters would be, growing old out here though and wasn't as convinced as she seemed to be about this little house out in the sticks.
+
+She had always wanted to live somewhere like this though, long before she was my Mags. When she was still Margaret Baker, beautiful, restless and bored out of her mind in Bristol, Indiana. Our hometown, where both of us had been born and raised.
+
+Back then I didn't have a lot of ambition to leave Indiana. I had always expected to get a job in a local factory after high school. Or become a truck driver like my dad and grandpa had been. Find a wife, have some kids, cliché though it may be. A simple life for a simple man.
+
+I did not find a simple wife though, and that has been my life's greatest joy. I've know Mags since pre K and she has always been a pretty girl. By high-school I had been blessed with enough small interactions with her to have a serious crush. Like most teenagers I had no idea how to tell if she felt the same way about me.
+
+So one year at homecoming I took a chance and asked her to be my date. She delighted me with an enthusiastic yes and the rest is, as they say history. It may not seem very glamorous or exciting to most people to spend your whole life with your high-school sweetheart. Those people have never met a woman like Mags.
+
+Or maybe they have and they just lack gratitude. They don't realize how special some women are. Mags is special, she makes everything feel exciting and meaningful. Back then, when she was just my high-school crush she was the only Wiccan I knew. Granted the movie The Craft had made it pretty popular and certainly been one of her influences.
+
+She's always had a spiritual nature, unlike anything I've ever felt in any church. Her aura, I believe she would call it. A natural witch, one who felt the most at peace out in nature. Not in a bright hippie sort of way, but in a dark witchy way. Sexy and a little scary, the only woman I've ever needed.
+
+She had always wanted to live out in the woods somewhere. Tend to her own garden and a few critters. I had always wanted to make that dream come true for her. Currently I'm wondering if it wouldn't have been better to fall in love with a women who had glitzy dreams of a city life instead.
+
+It took us a lot of years to save and be able to afford such a move. For those years I did work in a factory, wearing my body down to save and build a respectable credit score. It worked out though, after my dad passed my mother moved down to Florida for the stereotypical warm retirement. Both Mags parents have been in Arizona for years for the same reason. Siblings scattered around, there just wasn't anything keeping us in Indiana.
+
+Millersburg happened to fit the bill for us after all these years preparing and Mags searching online for somewhere brand new to call home. The past two years here were the bliss she'd always known it would be for us. Even now I don't regret them, I had really expected to grow old together here.
+
+Now all I can hope is that she stays safe long enough to leave this place. That's not going to happen for me and I wish now I had seen all the warning signs for the danger they were. Unlike Mags I wasn't blessed with anything special, a witchy knowing aura. Just an average man doing what I could to make the woman I love happy. Happy wife, happy life indeed. It has been that. 
+
+Coming home from work to a warm kitchen swirling with the delicious aroma of the many meals Mags made for us to share. Our nights even warmer, in bed alone together where we often shared those moments a husband yearns for. Mags is adventurous and exciting in all her endeavors and you best believe that includes the bedroom.
+
+I think we were both the happiest just being around each other, it didn't matter what we were doing. Not that we didn't have our own hobbies, apart from one another. Before the move to Michigan mine was taking that dog she adores hunting. She's a pretty good little hunting buddy, too.
+
+Mags named her Matilda, after another witch she was influenced by growing up. We call her Tilly, a cute little mutt with big floppy ears and a gentle disposition. We got her as a pup, from an old neighbor in Indiana. I took her hunting all the time there, but it's been different out here. I should have been more wary of that. Tilly is good hunting company, but I've always felt she just likes spending time with me.
+
+You know how people joke about taking an interest in their pets hobbies, bird watching with their cats and things like that? Well I've always thought Matilda just takes an interest in hunting to humor me like that. She just likes to spend time with dad doing what I enjoy. She does her duty, but never seemed to take it very seriously until we got into these woods.            I've never been one to hunt for sport, but I do love to provide for my little family. It would appear that I am going to die for sport though. Although this thing is going to eat me, it isn't doing it to survive. Somehow I know that, it shares.
+
+Telepathically I think. Not actually speaking into my head, it's a feeling. A feeling inside my head, not my heart like feelings are supposed to be. Maybe that's how that sharp discernment feels to Mags and all the others like her. Women's intuition, it must feel something like this.
+
+Looking back now I think it's been hunting me for a long time. I'm not sure when it started, just when I first noticed it. The start of turkey season, two months back in early fall.
+
+I'd known all week what I was doing that Saturday, weather permitting. So I got up while it was still dark out, which I don't do often on the weekends. Got myself dressed while the coffee brewed and tried to rouse Matilda without waking Mags. I wanted to take her potty and get her moving so we could get out there and bag our turkey to freeze until November.
+
+Tilly, like Mags is not a morning gal. So it takes some digging to get her out from under the covers. She usually sleeps in her own bed, but lately she's been taking my spot next to Mags once I'm up. One of those signs I should have noticed. That morning reaching for her she grumbled at me in protest, not unusual. Also like Mags she makes her feelings known. This morning she was feeling like sleeping in and not happy to be pulled from bed into the chilly September air.
+
+I did get her downstairs to the front door to head outside to potty. She would not go, another sign I dismissed. Hind sight and all that. I had opened the big door, then held the screen door for her and she just stood there. She looked away, avoiding eye contact with me like dogs do when they've gotten into trouble. She hadn't though so I figured she just didn't appreciate the cold, early morning.
+
+So I just picked her up and carried her outside, where she did finally squat and do her business. Quickly, she did not require carried back inside and was up those front steps in no time. We grabbed our things, the last of which was a thermos of coffee with a heaping spoonful of brown sugar and a splash of that brown butter cookie creamer Mags keeps stocked. I have never understood the black coffee drinkers.
+
+This time Tilly did go out the door herself, she seemed a bit more awake. Not on edge or anything alarming that I noticed. I thought she had just been tired and grumpy before, but was happy to be out with dad now that she knew what was on the agenda for the day. I had absolutely no idea which way was best to head for the hunt, I hadn't managed to go in the spring I'd been busy working on some of the home repairs and renovations.
+
+This was a brand new adventure for Tilly and me both. It didn't seem new to her though, she set right off trotting ahead of me like she was on a mission. As if she knew just where to go. I didn't give it much mind and just let her lead the way, glad she was getting on board now that she was awake.
+
+She headed straight, I do mean straight. From our front door, directly forward. For some time, I'd been busy keeping an eye out for game and scoping the new scenery when it occurred to me Tilly hadn't strayed from dead ahead the whole time. No veering off a little to the left, a lot to the right, nothing but straight forward. Due South, straight as an arrow.
+
+Soon I noticed a smell, I'd thought skunk at first. As we walked it got stronger and it was not a skunk. I had started to think carcass, something dead nearby. That was closer to what it smelled like, but still not quite right. It was strong, it had to be what Tilly was following. It also occurred to me I hadn't seen any game.
+
+Not just turkey's, none of the birds you should see out in the woods. Or squirrels, chipmunks, hell I hadn't seen a fly. Or heard crickets or any insects for that matter. Had it been silent except for us the whole walk? It couldn't have been, I'd have noticed. I think I would have, well I was noticing now.
+
+I whistled for Tilly, to get her attention. Usually she'd stop whatever she was doing and look at me wagging her tail. She just kept marching forward, like a soldier. I picked up my pace, caught up with her and called her name. She finally stopped, dead in her tracks. It looked like she was just waking up, like breaking a trance. She looked around frantically and started whining low.
+
+I knelt down next to her, said her name a few more times, gently stroked her back. All her hair was standing on end and at my touch that dog turned tail and ran. Sprinted like a bat out of hell, tail between her legs, while I was still crouched down on my haunches.
+
+I popped up and after the dog, in that moment mostly worried she'd be lost out there. I lost sight of her quick, even if I didn't smoke like I did I would have. I've never seen that dog move so fast. I was out of breath and hitching in no time. I had to stop, give myself a moment so I didn't pass out.
+
+That's when I felt it, no I can't explain what "it" is. Just that all my hair was on end now, too and that something felt extremely wrong. I felt unsafe, like I needed to be away from where I was. I walked as quickly as I could, trying not to wheeze. I didn't feel alone and I didn't want anything nearby to hear me, breathing labored.
+
+I remembered some random piece of information. I'm not even sure if it's true or just some made up thing. From a story or a show, or maybe something Mags had told me.That if you're ever stranded at sea and get a cramp swimming not to swim with a limp. To hold still until it passes because swimming with a limp will attract sharks quicker than blood in the water. An injured creature makes for an easy meal to predators.
+
+That's just how I felt, injured prey being hunted. I strode along, trying to keep my head up and look composed. Keeping my eyes peeled for Matilda, just as worried for her as myself. Dogs are family I don't care what anyone says. Preparing myself for having to come back out here and look for her if need be, wood sharks be damned.
+
+I didn't have to go search for her, I spotted her on the stoop before I even hit the yard. Laying down, head up and alert, staring out into the woods. She didn't run up to me when I got close like she does when Mags brings her outside when I get back from work. She didn't even wag her tail. I opened the door and she bolted inside and up the stairs. I slammed and bolted the door shut behind me, adrenaline still coursing through me, making me feel sick.
+
+The sun wasn't even up yet, it felt like it had been hours. I didn't even take my boots off, just set my things down and followed Tilly right up those stairs to Mags. She was still sort of sleeping, Tilly had jumped into bed with her pulling her awake some. I sat on the edge of the bed and got my boots and everything off, down to my long John's.
+
+I went back downstairs, quietly put all my hunting gear where it belonged. I headed into the kitchen, to peer out the window over the sink. I couldn't see it, but I know it could see me. I stood there paralyzed, unsure of what was happening. Not thinking deeply enough to worry about what to do about whatever it was happening. I just felt uneasy and watched. 
+
+I don't know how long I stood there, just that I came out of it with Mags standing in front of me looking concerned. It was now late into the morning, the whole kitchen drenched in sunlight. "Mark, what's wrong? Are you okay?" I cleared my throat, blinked hard, keeping my eyes shut tight and told her that yes, I'm fine. She insisted I sit in and brought me a glass a water.
+
+She also informed me that first thing Monday she was scheduling me a doctor's appointment, I really didn't want to. I was overdue for my annual checkup though and I know how to pick my battles in my marriage. It would be worth the doctor visit just to ease her mind if nothing else.
+
+Looking back now I wish I had just taken us all out of here that day. All three of us in the truck and down the road. Send movers to go get our things later. We could have gone back to Indiana, just for awhile. Until we found somewhere else Mags loved. A different house, in a different part of the woods, in a different state. Or we could go see my mom in Florida, Mags hates the heat. Just a visit though, to give us time to make a decision. Anywhere but here, instead we stayed.
+
+I saw the doctor who lectured me about the smoking, but agreed I was healthy considering. After that Saturday morning there were no more notable occurrences. Tilly stopped going potty outside for the most part. Sometimes, during the daytime with Mags she would. Otherwise we started finding cold wet spots of urine around the house. Always in the kitchen, on the linoleum. Even scared Tilly is a good dog and never pissed on the carpet so it was easy to clean.
+
+Mags scheduled Tilly a vet visit, too. Perfectly healthy of course, the vet said less water before bed. We bought her some of those dog potty pads. She's not too old to learn new tricks and adjusted to them just fine. It goes without saying I never bagged us that turkey, so for Thanksgiving we had store bought.
+
+Sometimes I smelled that foul carcass odor faintly. Getting in and out of my truck for work, otherwise I can't think of anything else I missed. I'm sure I did miss more signs though, willful ignorance perhaps. The human mind can do some interesting things to protect itself.
+
+Last night was uneventful, work and then a nice hot dinner with my wife at home. Some ice cream and TV on the couch together after. Mags headed off to bed, but I just had to come out here for a smoke. She kissed me when she got up off the couch and I told her that I would be up shortly. Tilly followed her right up the stairs to bed and I grabbed a fresh pack of Marlboros from my carton in the freezer.
+
+I flicked on the porch light and sat in my favorite wicker chair just off from the door so my smoke doesn't drift back inside through the screen door. I was just wrapping up that first cigarette when I smelled it.
+
+I froze because what else could I do? Every alarm bell inside my body blaring. Ice in my veins, heart skipping beats, then beating too fast. My heart dropped into my feet, backside puckered so tight it might be shut forever. Every single cell in body screaming DANGER.
+
+I squeezed the soft pack of smokes in my fist and without thinking pulled out and lit a second one. That one wasn't halfway gone when I heard the rustling of the dry autumn leaves beneath me. Directly beneath me, under the porch. I don't know how it got behind the lattice. I just put it up last summer, no broken places so far as I know.
+
+I suppose it doesn't matter how, it's down there. It's been telling me things. Not speaking them, not even a whisper. It's communicating in some ancient way humans have forgotten how to do. Or maybe it's something we never knew how to do. It's told me what's going to happen to me when I finish smoking.
+
+The empty pack is damp even through the cellophane, from the sweat on my palm. As I take the last few drags I ever will my mind is racing. I've been thinking of everything I wish I had more time to do, the future I don't have. As for the past, when I think back on my life I am pleased to say it has been lived without very many regrets.
+
+One does come to mind though. My crazy, great uncle Judd up in Maine. Who used to tell my dad stories of homicidal undead things and how sometimes, dead is better.
+
+My dad passed those stories down to me, like family should. Both of us laughing, grateful we have all our marbles. I reget not taking those tales seriously, especially after how Uncle Judd died. Brutally mauled or murdered, they never could tell which. Or who or what did it. Sitting here now, mostly I think of Mags and how I should have listened to her and quit smoking a long time ago. What I wouldn't give for even one more moment with her.
+
+This last cigarette burned all the way down to the butt, scorching my fingers as I hear it speak out loud for the first time. In a voice so ancient and far from human I can barely comprehend it "delicious"...
+
+\***Author's Note**: Many of you reading this story will no doubt have caught the less than subtle nod to Stephen King's Pet Sematary (1983). Hopefully some will have noticed the homage to his short story The Boogeyman, from The Night Shift (1978). If you haven't read one or both of those I highly recommend each. I was reading The Boogeyman late one night, home alone with my then two year old son. Back when I still smoked cigarettes. I did so outside and hadn't smoked while I was pregnant and breastfeeding, but had started back up when my son was about a month old. That story fresh in my head outside in the middle of the night this story came to mind. I pictured an older man smoking a cigarette on a porch at night having a standoff with a monster underneath him. If he acknowledged it or tried to go inside it would get him! My son is 18 now and I'm finally actually writing it. It's never too late to do the things we love. Or quit the things we don't, I'm now about 4 years smoke free. 
