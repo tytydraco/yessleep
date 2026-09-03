@@ -30,8 +30,6 @@ She frowned.
 
 I didn't know what the hell I was supposed to say to that. It had been just Olivia and I for years, but now I felt like a third wheel in my own home.
 
- 
-
 Then, it stopped happening to just Olivia. I started to hear things around the house. I would be lying in bed and hear the sound of the floorboards in the hallway creaking, long after I knew Olivia was asleep. Then, I started to hear keys in the lock. The sound of cabinets opening and closing when I knew I was the only person at the house.
 
 Then things started moving.
@@ -110,7 +108,7 @@ Nothing.
 
 Silence.
 
-Olivia just ran to kitchen and asked me if she could have juice. She hugged me as I gave her a glass, then went to play in the living room. Hours went by. Nothing moved. No sounds. Just Olivia and I. I finally felt a bit of relief as I lay in the couch.
+Olivia just ran to kitchen and asked me if she could have juice. She hugged me as I gave her a glass, then went to play in the living room. Hours went by. Nothing moved. No sounds. Just Olivia and I. I finally felt a bit of relief as I lay on the couch.
 
 Olivia’s voice ripped that away from me.
 
@@ -172,7 +170,7 @@ She was still in her seat. Her head lay against the door. She was unconscious. H
 
 I continued to sob uncontrollably. “Not like this, please. I’m sorry.”
 
-I held her tight with my right arm; tears streamed like a raging river. I desperately searched for my phone. I gasped in pain as I searched. My left arm was broken but I wouldn’t put her down. Not now. She was going to stay with me. After finding it, I pushed my door open and dropped to the ground with her still cradled. I dialed and told the operator what happened. My vision and consciousness started to fade right as I saw the lights cresting over the hill.
+I held her tight with my right arm; tears streamed like a raging river. I desperately searched for my phone. I gasped in pain as I searched. My left arm was broken but I wouldn’t put her down. Not now. She was going to stay with me. After finding it, I pushed my door open and dropped to the ground with her still cradled. I dialed 9-1-1 and told the operator what happened. My vision and consciousness started to fade right as I saw the lights cresting over the hill.
 
 I woke up in the hospital to a nurse standing over me. I started to sit up in a panic as she placed a hand on my chest. “It’s okay,” she said, “She’s alright and she’s right here,” as she pointed over to her.
 
@@ -198,7 +196,7 @@ Keeping quiet wasn't.
 
 Letting Michael's family spend years wondering what happened wasn't.
 
-I don’t know how long I sat there holding her. Eventually, Olivia fell asleep against my chest. I watched her breathe for a while, her little hand resting against my hospital gown.
+I don’t know how long I sat there holding her. I just watched as she laid there against my chest. I watched her breathe for a while, her little hand resting against my hospital gown.
 
 I had almost killed her.
 

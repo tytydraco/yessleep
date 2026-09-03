@@ -1,0 +1,59 @@
+First off, I wanted to say that I am religious, (I wont disclose my faith for personal reasons) and have never really believed in the supernatural - until last night.
+
+It was any other night, I was doomscrolling at a time I should have probably been asleep at, but fuck it, I didn't have school for another week and a half. My brother usually stays up until a similar time as me so, its not out of the ordinary for me to send him videos and him responding within a couple seconds.
+
+We live in rural Nevada, about 300 miles north of Vegas. in the summer it gets pretty hot. Not as hot as other areas nearby, but just hot enough for it to be mildly uncomfortable at night.  
+Anyway, at around 02:58 in the morning, I got up to piss, and there was my brother in the kitchen, scouring for something to eat. 
+
+The conversation went as follows (plain text being me and bold text being my brother):
+
+"Dude, go to sleep, its 03:00  and mom will be pissed if she catches you awake."
+
+***no response***
+
+"What exactly are you looking for? I helped her with the groceries the other day and could probably help you find it."
+
+**"Where is the garlic."**
+
+The way he said it, it just didn't feel right, as if he was stating it, instead of asking a question like a normal human being. and who the *fuck* needs garlic at 03:00 anyways?
+
+"What, you making something to eat?"
+
+***he proceeds to walk out of the kitchen and to the pantry.***
+
+I think to myself, "*well that was weird as shit but whatever, I need to piss*", and head on over to the bathroom.  
+For context, you have to pass the pantry - it being on your left - to go to the bathroom if you're leaving my bedroom (the shitty basement but its the only room on the bottom floor and every other one is taken. I was living with my aunt during the time my family moved into to my current home (where this story takes place) and didn't have a choice of what room i took).
+
+As I walked past, the pantry door slightly ajar, I could make out him ducked down on the floor, and God knows why, but I just ignored it. I took my piss, washed my hands and then decided i wanted a drink.  
+I opened the fridge, and there, plain as day was the garlic. I cussed under my breath at the stupidity of my brother and made my way back toward my room, stopping off by the pantry to let my brother know I would drop the garlic off at his dresser, as he looked preoccupied. He stared at me in a seemingly disapproving way but it was late in the night and I didn't want to deal with his shit.
+
+ I walked up the stairs and to my brother's room, and... to my absolute disbelief, there my brother was, sound asleep.  
+I chalked it up to a lack of sleep and made my way back down to the kitchen to drop the garlic back off. I wandered down the stairs and heard ruffling coming from the pantry, which was weird, as my brother was asleep and the light was off.  
+I switched on the light, and there he was, still ducked down and reading ingredients off of spice jars as if they were incomprehensible, astonishing even.
+
+"What the fuck? You were just in bed"
+
+***No response, but he stopped gazing at the jars***
+
+"Hurry the fuck up and go to sleep, it's late."
+
+***He turned his head at a speed of which I had thought he had broken his neck at, and lunged at the door, slamming it in my face.***
+
+I contemplated waking my parents up, but figured it was a shitty prank my brother was pulling and I decided I didn't want to entertain it. I placed the garlic lazily back to its original place in the fridge and went back to my room.
+
+The fucked up part was that my "brother" wasn't in the pantry anymore, but heading down the stairs to my goddamn room.
+
+I instantly knew it was a bad idea to follow him down or try to stop him, so I ended up sleeping in the living room that night, and tried to get a good nights sleep.
+
+Cut to earlier today, and I asked my brother if he had found the garlic that I had put in the fridge.
+
+"Did you get what you were looking for with the garlic last night?"
+
+**"Why the fuck would I want garlic?"**
+
+"Im just fucking with you..."
+
+That single sentenced confirmed my entire suspicion that, whatever was heading to my room last night, wasn't my brother.
+
+I will keep you all updated if anything further happens in the next couple days, and will edit in this post a link or one in the comments to any other post I make.  
+I would appreciate all the help I could get, thank you.

@@ -1,0 +1,41 @@
+Three weeks ago I woke up at 3:07 like somebody had said my name against the back of my neck. No dream. No sound. Just upright, heart already going, the kind of wake-up you get when your body decides you are not alone.  
+My window faces the street. Second floor. Blinds cracked. I looked out without thinking.  
+There was a figure standing in the exact middle of the road.  
+Not the sidewalk. Not by a car. Dead center of the asphalt under the one streetlight that still works. Dark trees on one side. A parked car. The road stretching off toward more houses. And that black shape just standing there in the light.  
+It was waving.  
+Not like a person waves. A person puts weight on one foot. A person’s shoulder rolls. A person’s fingers close a little at the end of the motion. This was a straight arm on a hinge. Four seconds out. Four seconds back. Same height. Same speed. No pause. It looked like something had been shown a video of waving and learned the outline, not the muscle.  
+It was facing my window.  
+I took a picture. I still have it. Dark street. Orange light. That silhouette in the middle of the road with one arm up.  
+I looked up from the phone.  
+The road was empty.  
+Same light. Same car. Same wet pavement. Nothing walking away. No shoes on asphalt. The space where it had been was just road again, like the photo had peeled it off the world.  
+I checked the picture. It was still in the frame. Arm raised.  
+I told myself it was a person. Drunk. Lost. Some idiot standing in traffic for a joke. I sent the photo to the neighbor across the street. She said there was nobody out there and told me to go back to bed. I went downstairs and looked through the door. Empty. In the morning I walked to the spot. No footprints that didn’t belong. No trash. The puddle in the dip of the road was smooth. Nothing had stood in it.  
+A body has weight. This thing does not.  
+It came back the next night. 3:07. Same place. Same wave. Same angle at my window.  
+I took another photo.  
+Empty street.  
+The first photo still had it. The new one didn’t.  
+That has been three weeks.  
+I see it with my eyes. The camera only keeps it sometimes. If I blink, it is gone. If I look down and back up, it is closer, or it is not there at all. I have never seen it take a step. The position just updates. Middle of the road. Center line. Sidewalk. Edge of the grass under my window. Last night it was close enough that I could tell the head was the wrong shape.  
+From far away it reads as a man in a jacket. Up close, even in that first photo, the head is a smooth dark oval. No hairline. No ears. No dent where a mouth should be. The shoulders are too narrow for the length of the arms. The arms are too long for the torso. The feet are together like it was placed there, not like it walked there.  
+It does not breathe. I have watched it on cold nights with my own breath fogging the glass. Nothing around it. The air over that spot looks thicker, like heat coming off a road in July, except it is 3AM and the rest of the street is dead still.  
+It does not have a shadow that matches. The streetlight throws a shadow from the parked car. It throws a shadow from the tree. The figure has a smear under it that stays attached when the wave moves, like the dark is part of it and not cast by it.  
+Dogs will not cross that part of the road. I watched one hit the edge of the light, drop its shoulders, and go the long way around a van rather than walk through the place it stands.  
+No one else sees it. I have had people look out while I was looking at it. They saw the street. They saw the light. They asked me what I was talking about.  
+I do not think it is hiding from them. I think it is only built for one window.  
+Two nights ago I did something stupid. I was tired and I lifted my hand and waved back.  
+It matched me.  
+Same speed. Same height. When I froze, it kept going for four more counts and then froze with the arm up, waiting. I dropped my hand. A few seconds later it started again by itself.  
+My right shoulder has been sore since. I keep waking up with that arm on top of the blankets, elbow bent, hand loose, like it was in the middle of the motion and I interrupted it.  
+I still have the first photo. I have not deleted it. I keep thinking if I get rid of the proof it will stop, and I keep thinking if I get rid of the proof I am giving it permission to come inside.  
+Tonight I woke up at 3:07 again. I did not go to the bedroom window. I sat in the hallway with the lights on and my phone face-down.  
+I can hear it anyway.  
+Not knocking. Not a voice.  
+Cloth. A sleeve dragging through air on the other side of the glass. Four seconds. Four seconds.  
+I turned my phone over to write this and the original photo was already open. I did not open it.  
+In the picture it is not in the middle of the street anymore.  
+It is on the lawn.  
+Same wave. Same empty face.  
+I am not looking out the window.  
+I already know it is closer than the photo.
