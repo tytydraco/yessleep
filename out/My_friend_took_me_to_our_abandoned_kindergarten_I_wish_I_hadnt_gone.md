@@ -1,0 +1,393 @@
+“You’re shitting me?”
+
+
+
+ “Nope, that was the last one.” 
+
+
+
+“Fuck. I told your dumb ass we should have brought more,” Sophie said. She was always blunt. Some would say she was not scared of spilling the cold harsh truth in someone’s face. I would say that sometimes she was just plainly rude and careless with other people’s emotions. Though, this time she was in the right.
+
+
+
+“It is nearly midnight anyway and I’m first shift tomorrow.” 
+
+
+
+“Hold on,” she threw the empty can over the railing into the canal. “Not only that you didn’t bring enough beer, you’re also bailing on me?” 
+
+
+
+“We’ve drunk all the beer and smoked all the weed. What else can we do?”
+
+
+
+“Well, I do have sort of an idea,” Sophie said. I knew that tone very well. I had heard it many times, when we threw firecrackers down the manhole, when we stole a pack of cigarettes from her mom or when we trashed the teacher’s locker because she gave us bad grades. What can I say, we were dumb kids.
+
+
+
+ “What now?” I was already shaking my head. 
+
+
+
+“Let’s break into our kindergarten.”
+
+
+
+When we were young, that sort of idea might have been appealing. To an adult with an actual job, it didn’t hold the same weight. 
+
+
+
+“Come on, really? I know we are bored as fuck in this stupid town, but I can think of a hundred better things to do. If you are craving some wild action, we could–” 
+
+
+
+“It’s not that,” she interrupted me. I did recognize the tone, but the look in her eyes was not something I was used to.
+
+
+
+“What is it then?”
+
+
+
+“Promise you’re not going to think I’m crazy?” 
+
+
+
+“I promise.” I rolled my eyes at her. “Like I don’t already.” 
+
+
+
+“Shut up, bitch!” she smacked my arm. “Listen! This is serious.” 
+
+
+
+“Alright, alright, Jesus. What has gotten into you?”
+
+
+
+“Remember how it got shut down? All of a sudden?” 
+
+
+
+“Vaguely,” I slurred the words. “It was twenty years ago, who remembers?” 
+
+
+
+“I do.” 
+
+
+
+“What in particular?” 
+
+
+
+“That day? When all of the kids went crazy, teachers were yelling and screaming at us? At each other?” 
+
+
+
+“Ohh, right! Lunch came out and we had a food fight. Oh god, remember that? I hit that guy with a hotdog right in the face, what was his name, uhm–” she smacked my arm again. 
+
+
+
+“Focus!” she yelled.
+
+
+
+“Sorry.”
+
+
+
+“Yes, all of you went crazy, everyone except me. Something did happen that day to everyone, except for me. You don't remember. I hid in the storage room and stayed there the whole day, until my parents came looking for me. I don’t know what happened, but it’s been nagging at me, like an itch that I cannot scratch, you know? For some reason, lately, I cannot stop thinking about it. I need to go there.”
+
+
+
+First, I did look at her as if she was trying to trick me. She was the kind of person to set up elaborate pranks and this did feel like one. But when you spend your whole life with a trickster, you can tell when they are joking or not. Well, sort of. 
+
+
+
+“Alright. Let’s go.” 
+
+
+
+“Seriously?” her eyes lit up. 
+
+
+
+“I am. Let’s scratch that itch,” I smiled at her. If anything, her elaborate pranks had a habit of turning into a funny story. And what the hell was I saying, even if I worked the first shift, I’d end up doomscrolling until three in the morning. At least, this could be fun. Fuck, that town was truly a shithole, if that was what I considered fun.
+
+
+
+It took around a twenty-minute walk during which Sophie kept mostly silent. That was not like her. If anything, she was a yapper. Cold-hearted bitch at times, but boy, could she yap for hours. Not tonight.
+
+
+
+In my half-drunken state, the old kindergarten appeared way quicker than I had thought. I hadn’t been there since it was closed. It was sort of hidden between some factories and the storage units, as an industrial zone grew around it after it was shut down.
+
+
+
+It was surrounded by the rusted fence and some planks and debris from the construction, but that was it, and seeing it after so many years instantly brought memories, like the smell of your mother’s cooking. Then, I did remember. It was truly a weird day. Only the day after, my parents told me that I didn’t have to go to kindergarten anymore. I was set to start school about half a year later, so they didn’t even try switching me to another.
+
+
+
+Windows were boarded up from the outside, planks nailed, and there were large bushes and weeds around, but otherwise, it did not look a day older than when I used to go there.
+
+
+
+“My parents said it was closed because something else was supposed to be built here,” I told Sophie. “What the fuck? They built shit everywhere except there.” 
+
+
+
+“Yes, they did,” she said in some kind of absent tone, eyes locked on the kindergarten. 
+
+
+
+“Are you okay?” I pulled her by the shoulder. 
+
+
+
+“Oh, yeah. I will be soon. Are you okay?”
+
+
+
+“Yeah. Except that I am thinking, what if we step on a rusted nail? Or if we breathe some old dust, there’s probably asbestos in there. This kind of shit used to be more fun when we were young.”
+
+
+
+ “We won’t stay long. In and out.”
+
+
+
+“Speaking of in, how do we actually go in?” I looked at the shut door.
+
+
+
+Sophie went first, circling around to find the gap in the rusted fence. We ducked and squeezed past, walking around the corner of the building, where one of the windows had a plank hanging by a single nail. She found it so easy, that there was no way she was coming here for the first time, and that is what I told her.
+
+
+
+“You’re right, I came here a few times, but never past this window. I was too scared.” 
+
+
+
+“Well, if it makes you feel better, now I am scared too. This is creepy as fuck.” I pulled my phone out, turning on the flashlight. 
+
+
+
+“Pussy,” she grinned, putting one leg through the gap and disappearing inside. Fuck. I ain’t no pussy. I squeezed too, with a bit more difficulty than her.
+
+
+
+I slipped, bracing for my fear of rusted nails to come alive as I fell, but what I found was the furthest thing from it. I found myself on the clean tiles, dark brown as I remembered them. This was not my classroom – a classroom? Was that what we called them? I flashed the phone around. The heap of toys was neatly arranged, carpet clean and tidy, chairs tucked cleanly into the small tables where we used to draw.
+
+
+
+“What the fuck? Isn’t this supposed to be empty?” 
+
+
+
+“It’s not," Sophie said with a long delay, her back turned towards the door. I lit her back up with the phone and it kinda felt creepy that she would not look back. That could be what she was up to, to pretend that she was possessed or something. No way I’d let her know I was scared. 
+
+
+
+“Lead the way then,” I said with as much confidence as I could gather. 
+
+
+
+Sophie opened the door into the hallway. Remember when I said it felt like smelling mother’s cooking? Well, this felt like having that meal served. The hallway stretched ahead, on one side the railing and the main hall where we used to do plays, and on the other were lockers, with the posters and drawings above them. I remember seeing that bear family, trying to remember their names.
+
+
+
+“Berenstain Bears!” I yelled with excitement. “Holy shit, Sophie, remember that?” 
+
+
+
+Sophie was at the end of the hallway, looking left and right at the junction, ignoring my questions. Oh come on, she could have humored me at least. 
+
+
+
+“Found what you were looking for already?" 
+
+
+
+“Not yet,” she said, then turned a few feet to the right to take a look up the stairs. I don’t know whether it was nerves, but when I flashed the light up and saw the stairs disappearing in the dark, my bladder started working after all that beer.
+
+
+
+“I gotta take a leak. Where was the toilet?” With no words, Sophie strolled down another hallway, taking a hard right. She opened the door, put her arm through it and smacked the switch. The light came on in the restroom. 
+
+
+
+“How is this thing still working?” 
+
+
+
+“I am going to take a look around.” She still ignored my questions. “Find me after you’re done,” she said, already walking away.
+
+
+
+“Wait for me, I’ll be quick!” 
+
+
+
+“Pft, are you scared?” 
+
+
+
+“Pft, no!” I yelled at her back as she entered one of the classrooms. Well, I was a bit scared, but thank God for beer, otherwise I would have shat myself already. My thoughts wandered as I peed. After the excitement of seeing the place of my childhood after so many years, the dread started settling in. I hadn’t been here since childhood. Why did it look all the same?
+
+
+
+“Look, even this?” I mumbled to myself, as I instinctively went for the soap to clean my hands. There were even paper towels there. I was not sure whether it was a sudden realization that did it, but a shiver ran down my spine, and I felt as if I was not alone. Not Sophie, someone else. Or something. 
+
+
+
+“Shit. I need to get out of here.”
+
+
+
+And I did, heading straight for the classroom which Sophie had gone into. 
+
+
+
+“Alright fucko, let’s bail–” Oh shit. She was not here. “Alright, you got me. I am a pussy. I am scared. Woohoo, you won. Now, if you don’t come out, I’ll leave you here by yourself…” Something else drew my attention. This was not any classroom. 
+
+
+
+It was our classroom. 
+
+
+
+Exactly as I remembered it. Long but narrow, with a pillar in the middle of the room, around which we would play cats and dogs. There was the plastic castle, the plushies and stacks of paper, it even smelled of the tempera paint and wax crayons. A soft rhythmic thump kept breaking the silence. On the wall, the clock’s needle twitched against itself. Beneath, there was a class picture as large as a poster.
+
+
+
+I knew this one, I had a copy in my photo album too. As I got close, I noticed that all of the children's faces, our faces, were sharp and clean. I knew where I was in this picture, and I found myself. I remembered that Sophie was standing next to me that day and I glanced at her face. Or at least, what should have been her face. I couldn’t tell whether it was her, as the face beside mine was nothing but a blur.
+
+
+
+“Alright, Sophie, I am getting the fuck out now.” If this was her prank, well done. She got me and she got me well. I didn’t know how she did it and I didn’t want to know, I just wanted to get out. I think I was trying to convince myself it was her, because I could explain a lot of things, but I could not explain how she would make me feel as if someone else was there.
+
+
+
+I stumbled over one of the small chairs in a hurry, leaning against the table for support. I groaned as I hit my knee, taking a moment to breathe. The light from my phone lit up the table where my hand was a moment before, and there was dust. Dust in the shape of a palm. 
+
+
+
+“What the fuck?”
+
+
+
+I ran out of the classroom, down the hallway where we came from, heading towards the junction. Now, I know I was drunk and a bit high, but that hallway shouldn’t have been anywhere near as long as it was. I felt it took me more than two minutes to get there. If you think two minutes is not a long time, start counting to one-hundred-and-twenty now and imagine that all that time you have been just walking.
+
+
+
+It scared me so much that I could not orient myself. Where was that stupid window? 
+
+
+
+“What up, bitch?” Sophie said, coming from up the stairs, out of that swallowing dark. 
+
+
+
+“Congratulations. Well done. Let’s get the fuck out.” 
+
+
+
+“What do you mean?” 
+
+
+
+“The prank, the picture. I don’t know how you did it, but well done.” 
+
+
+
+“The picture? Of our class? Let’s check it out!” she said nonchalantly.
+
+
+
+Fuck, I did not want to go back down that hallway. But it was maybe her reaction that got me thinking. What if all of that was just a bad trip? At that moment, when I was no longer alone, the building did not seem that scary anymore. Except for that feeling that there was something creeping, but that is what weed does to you. I followed Sophie down the hallway, fearing it would stretch again, but it didn’t.
+
+
+
+“Right, speaking of, something is – wait. You went in there first, didn't you see the picture?”
+
+
+
+“Erm, no. I must have missed it.” She was not looking at me again. And it was a big picture to miss. I pointed at it as we entered the classroom. 
+
+
+
+“Anyway, something is off with your face, see…” I trailed off. Her face was normal, clean and sharp, unlike before. 
+
+
+
+Mine wasn’t.
+
+
+
+“Fuck this,” I said for maybe the hundredth time this evening and headed straight for the window. The hallway did not stretch, but there was that feeling of dread deep inside me, pulsing and shaking me. 
+
+
+
+“Wait!” Sophie’s voice cracked and she ran after me, but I wouldn’t stop. I almost broke the planks as I plunged through the window, then cut myself on the broken fence. I did not care. I was not stopping until I was miles away from that stupid place. 
+
+
+
+“Hold on!” Sophie yelled after me. 
+
+
+
+“I’ll call you tomorrow!” I managed, then the quick walk turned into a jog, then into a full-blown run.
+
+
+
+I did not want to stop until I was in the safety of my home, as even out of the kindergarten, streets away, I could not shake that feeling of dread. That something was wrong. Actually, that something was wrong with me.
+
+
+
+After a sleepless night, tossing and turning around in my own sweat, dreaming of being chased by something unseen in the half-sleep state, I messaged Sophie. I had to. 
+
+
+
+“*we gotta talk.*” 
+
+
+
+“*oh, sounds serious. what’s up*.” 
+
+
+
+“*did you feel anything last night?*” 
+
+
+
+“*wdym?*” 
+
+
+
+“*in kindergarten and after. did you feel something was off?*”
+
+
+
+I watched the bubble in the chat appear and disappear. She must have been writing and deleting whatever she wanted to say. After more than two minutes of looking at that bubble, only two words showed up.
+
+
+
+“*what kindergarten?*”
+
+
+
+I was long done with my theory that she was pranking me. It was too complicated for a prank. Something else nagged at me and I had to check it.
+
+
+
+I dug out an old photo album, finding my copy of the class picture, knowing what I would find even before I looked.
+
+
+
+All of the faces were visible.
+
+
+
+Except for mine.

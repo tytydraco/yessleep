@@ -1,0 +1,127 @@
+Chapter 1.
+
+"Be home by evening!" the departing mother yelled at the two little boys.
+
+The boys nodded happily and immediately started scrambling up the nearest tree. They climbed higher and higher until they reached the very canopy. The view from up there was truly magnificent; the small American town practically melted under the harsh rays of the summer sun.
+
+The property they were on had been abandoned for years. The only thing that hinted at a past human presence was an old stone ruin in the middle.
+
+The older boy was pushing through the thick branches when he suddenly froze. Something shiny caught his eye. Looking closer, he spotted a hollow in the tree trunk with some rusty metal object sticking out. He pulled it out carefully. It was a small iron box.
+
+"Hey, come here, I found something!" he shouted to his brother.
+
+The younger boy quickly climbed over to him, and together they opened the box. Their fingers trembled with excitement. They found a treasure! Maybe there would be gold inside!
+
+Instead of gleaming coins, however, there was only a rolled-up piece of paper lying inside. The boys paused in disappointment for a moment, but then eagerly began to unroll it. Maybe it was a map to a real treasure.
+
+But as they unrolled the paper, the smiles froze on their lips and their faces went pale with terror. Their fingers shook so violently that the discovery slipped from their hands. Crying hysterically, they started climbing down the tree and ran home without looking back.
+
+A dried human eye fell silently onto the green summer grass. Right next to it landed the unrolled paper. Upon closer inspection, a long text scribbled in old blood was clearly visible on it.
+
+I don't know what to call this. "Diary" sounds too normal, but I guess I don't have another name for it. I just need to write down what's happening to me, for myself. Nobody else is probably going to read this anyway.
+
+I always knew something was missing inside me. That common human thing you call a conscience, empathy, or a soul. To me, they are just abstract concepts from psychology textbooks that I had to study so I would know how to properly pretend to be normal.
+
+My name is Hugarus. I know, it sounds like the name of some failed Roman emperor, but you can thank my parents for that. I am eighteen, I go to a completely ordinary, boring high school in the Ohio suburbs, and from society's point of view, I'm a pretty cool guy. I get good grades, play lacrosse, and I even have that instinct of knowing when to laugh at a joke so I don't look weird.
+
+But that is just a mask. A perfectly tailored costume hiding a perfect, cold-blooded predator. I'm a sociopath or a psychopath, take your pick. No doctor ever diagnosed me, but my own mind is enough. And to be completely honest with you, I am also a serial killer. Scary word, isn't it? If someone is reading this, I don't care if you judge me. This is simply who I am, and it can't be changed.
+
+I didn't start with humans right away, don't worry, I'm not an amateur. I followed the proven handbook of every decent psychopath. First the neighbor's cats, then stray dogs, and finally... well, finally came the humans. The kind whose absence in this world nobody cared about. For example, homeless people or junkies, I don't need the police breathing down my neck.
+
+Ah, what an interesting feeling it is to remember my first murder. I was 10. I was just hanging around the night streets and saw some drunk sleeping on the ground. He was so drunk he didn't even wake up when I wrapped my hands around his neck and started squeezing. The feeling was so exquisite that words can't even describe it.
+
+I would call my father a walking mistake, perpetually pickled in cheap bourbon and unable to hold down a job for more than a month. His lack of interest in what I did at night was, paradoxically, a godsend. If you want to hear about my mother, you're out of luck. She was just a young prostitute, that's all I know, and honestly, I don't need to know more.
+
+Anyway, my grandmother died a long time ago. She left us only a crumbling house on the edge of the woods and a basement that became my first play area. That is where it all started.
+
+I remember my first real trophy, right on the second murder. It was a homeless man wandering near an abandoned gas station. He had no name and no family, just a bottle in his hand and a disgusting odor, a real stench. I was still experimenting back then. An old, heavy axe I found rusting in my father's garage gleamed in my hand. That feeling when the blade cut through the bone, that dull crack... it was like a symphony.
+
+I chopped off his finger as a souvenir. To this day, I have it pickled in formaldehyde in a small vial under the floorboards in my room. It is my secret. My little piece of divinity in a world full of sheep.
+
+But I don't plan on writing this diary in the format of my little night activities.
+
+You know, right when you think about how invincible you are in your own world, there is always something bigger.
+
+Let's get back to my high school life. Typical American high school. Yellow buses, burnt oil from the cafeteria, cheerleaders with the IQ of a rocking horse, and a bunch of morons who think the world ends past the boundary of our football field.
+
+Let's move closer to the present.
+
+On Friday night, there was a massive party at our quarterback Tyler's place. I was there, leaning against the wall, holding a random red plastic cup with some watered-down beer, playing my part. My mask was flawless. I was watching the stage where the biggest social farce was playing out.
+
+And there she was. My gorgeous, chain-smoking girlfriend who could best be described as a mean girl, dressed in a bikini. Sounds like the title of some cheap nineties porn, doesn't it? But it's true.
+
+Her name is Chloe. She is the center of attention, an arrogant, superficial bitch who loves humiliating younger students. She is a heavy smoker who thinks vaping and cigarettes at school are incredibly cool, which eventually led to her smoking two packs a day at the age of eighteen.
+
+Why do I date her? Well, it perfectly completed my facade. The bad boy sociopath and the high school queen. We fit together like puzzle pieces, although Chloe had no idea she was sleeping with a serial killer who, for fun, calculates in his head how many minutes it would take him to dismember her and pack her into plastic bags before her blood could dry on the floor.
+
+Let's get to the reason why I actually decided to write this diary.
+
+It started about two months ago. Our school, Oakridge High, has one principal, Mr. Higgins. He is an obese, sweaty guy who is nearing retirement, and his biggest life achievement is that he hasn't been locked up yet for embezzling school funds. Higgins is a zero. But... at our high school, there is one more principal. The second principal.
+
+I saw him for the first time in hallway B3, near the chemistry classrooms. The school bell had just rung, and I was walking to my locker, replaying the details of my latest murder in my head (a hitchhiker, by the way, but that is a different story).
+
+Suddenly, I felt a chill, that nasty, sticky chill akin to fear that makes the hair on the back of your neck stand up. That was exactly when I saw the second principal for the first time.
+
+He was standing at the end of the hallway. He was tall, extremely tall. He must have been at least eight feet tall since his head was dangerously close to the fluorescent lights on the ceiling. He was wearing an old, torn suit, the gray kind that was worn sometime in the fifties. He didn't look like a fucking human.
+
+I stopped. I am a serial killer, so I don't feel panic like you do. My brain simply starts analyzing the threat. "What kind of creep is this?" flashed through my mind.
+
+I waited for one of the teachers or students to point him out. But something completely different happened.
+
+A group of freshmen walked right past him. They literally passed right next to him. One of them even walked through the edge of his coat. Nobody stopped or even looked at him. After all, any normal person, if they saw something abnormal, would at least pay attention, if not start running away in fear. He doesn't exist to them, only I can see him.
+
+Since then, he became a regular part of my day. I started calling him the Second Principal. He never moved in a normal way. Mostly, he just stood in corners, in the shadows by the gym, or on the upper floor where he had a view of the entire cafeteria.
+
+The worst part, though, were his damn inhuman eyes. When he first locked eyes with me, I felt like someone had shoved a block of ice into my chest. Instead of eyes, he just had two deep, dark holes where a faint red dot smoldered. It looked like a dying, glowing ember in a pile of black ash. He was always looking right at me. It was uncomfortable even for me, and I don't like that.
+
+Do you know what it feels like when you are an apex predator at the top of the food chain, and suddenly you realize that something much, much bigger is watching you? It was fucking frustrating.
+
+I tried to ignore him. I continued with my life and my hobbies. A few weeks ago, one of the subs, a guy named Marcus, pissed me off in the locker room after practice. He was an arrogant piece of shit who thought he could make stupid remarks about me. I waited for him until everyone else left.
+
+Just a little lesson, nothing lethal. I didn't want to clean up a lot of blood on school grounds. While he was sitting on the bench tying his sneakers, I stepped up behind him and jammed a small, sharpened screwdriver right into his leg, exactly where the back of the thigh begins.
+
+He squealed like a stuck pig. "What the fuck are you doing, Hugarus?!" he screamed, clutching his bleeding wound.
+
+I acted shocked, as if it were an unfortunate accident. "Oh, sorry man, I tripped! I'm so sorry," I said with a flawless acting performance, while inside I was trembling with excitement from his pain.
+
+Suddenly, a brief flash in the shower doorway caught my eye. The second principal was standing there. The light flickered above him, and his face stretched into a smile. If you could even call it that. The skin on his cheeks tore open, revealing rows of small, needle-like teeth. He was smiling at me. He saw it. And not only did he see it, he liked it. He was sharing my secret with me.
+
+Everything changed from that day on. He stopped just standing idly in the corners; he started getting closer to me.
+
+Yesterday, for instance. I was in biology class. Bored to death, I'd rather not even describe it in detail. The teacher was monotonously blabbering about cell structure, Chloe was filing her nails next to me, and I was drawing anatomically precise sketches in my notebook on how to sever the carotid artery with a special cut that forces the blood to squirt into one specific spot. Suddenly, the temperature in the classroom dropped by at least ten degrees. My breath was turning into clouds of steam.
+
+I looked up. He was standing right behind our teacher. That corpse-like suit of his smelled strongly of rot, but clearly, I was the only one who could smell it.
+
+The other students continued to stare boredly at their phones. He bent down. That long, unnatural body bent at the waist at an angle that would have broken a human's spine.
+
+His face ended up right in front of mine, just a few inches from my nose. Those ember eyes were burning my pupils. His mouth opened, and a booming screech came out.
+
+"I see you... Hugarus..."
+
+I didn't flinch. I won't let some paranormal bullshit intimidate me. But I must admit I didn't exactly feel the bravest right then. The second principal raised his long hand and dropped something on my desk.
+
+Suddenly, the sound of the school bell rang. I blinked, and he was gone. The temperature in the classroom returned to normal.
+
+I looked at the desk. Between my notebook and my biology textbook lay a yellowed piece of paper. I picked it up. It was rough, and its overall texture was weird. It was definitely made of something other than wood... maybe skin?
+
+I slowly unfolded it. It was a letter written in beautiful, old-fashioned calligraphy. Reading it didn't take me much time since it was only four words.
+
+"Show me your art."
+
+I took a deep breath, put the letter down, and shoved it into my jeans pocket. Chloe didn't notice; she was too busy texting some dumb friend of hers. I looked at her smooth neck, at the spot where her vein stood out. I pondered.
+
+This... Second Principal. This demon, phantom, or hallucination of my own warped mind... he doesn't judge me. He doesn't condemn me for what I do. He just wants to see it. He is looking for a show.
+
+I had always killed alone. In secret. But now, it seems, I have an audience.
+
+The question is whether I want to play this game. When I stood in my room that evening, looking under the floorboards at that vial with the homeless man's finger, I felt strange.
+
+A chilling, dark thrill of the unknown coursed through my body. If this entity wants to see my art, if it wants to see the real Hugarus without the mask... maybe I should treat him to an exclusive premiere.
+
+We have another big event on Friday. Half the school will be at a cabin by the lake. There will be alcohol, drugs, darkness, and a whole lot of stupid teenagers who think they are immortal. The ideal hunting ground.
+
+I prepared my tools, sharpened my knife, and checked the plastic tarps and duct tape. I looked in the mirror and smiled.
+
+The Second Principal gave me an assignment. And I, as a model student, simply must complete my homework to get an A plus. I just hope that when I strike, the counselor will be watching my every move closely. Because what I have planned is going to be a fucking bloody masterpiece.
+
+End of Chapter One.
