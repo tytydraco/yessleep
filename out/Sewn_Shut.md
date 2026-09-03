@@ -1,0 +1,47 @@
+The evening fog was thick. I could barely see the streetlights. I was walking home from my shift through the run-down edges of an old New England town—a quiet place of overgrown orchards, crooked wooden fences, and the occasional distant bark of a dog.
+
+Honestly, I just wanted to get to my couch. My feet were aching, and the whole walk back felt completely off. Usually, the Millers' retriever would go crazy barking behind their fence when I passed, but tonight the yard was pitch black. No lights in their windows, either. The silence on the street was so heavy it actually made my ears ring.
+
+At the corner of Orchard Street, I noticed my neighbor, old Arthur. He stood with his back to me in his faded canvas work jacket, working by his chopping block. Raise—strike. Raise—strike. The dry wood cracked loudly across the silent street.
+
+"Hey there, Arthur!" I called out, pulling up to his picket gate.
+
+The old man didn't turn. His tool came down again with a heavy, unusual thud. As I stepped closer, a sour, metallic taste filled my mouth. Arthur wasn't splitting wood. At his feet lay his dog's leather collar, sliced completely in half and soaked in a pool of fresh, dark blood. The dog was nowhere to be seen.
+
+Suddenly, Arthur’s neck turned toward me with a dry, clicking sound. His eyes were clouded over, looking straight through me. His mouth was pulled into a tight, unnatural grimace, held in place by rough black stitches that cut deep into his skin. He moved his lips as if trying to speak, but no sound came out—just a hollow, whistling breath. He just stood there in complete, dead silence, staring fixedly at me.
+
+I ran.
+
+My own house felt like the only fortress left in the world. I burst into the yard, pushed the front door open, and stepped into the hallway. Inside, a warm light glowed through the windows—my wife, Chloe, was busy in the kitchen. The comforting scent of dinner drifted out, momentarily calming my frantic pulse.
+
+"Chloe!" I gasped, closing the door behind me. "Chloe, something is wrong with Arthur. Don't go outside."
+
+Chloe stepped out of the kitchen, wiping her hands on her apron. "David, your face is white. What happened?" She touched my cheek; her hand was soft and warm.
+
+I told her about the neighbor and the strange, heavy silence. Chloe listened, her eyes widening. "Oh, how awful," she whispered. "Sit down, David. I'll get you some tea."
+
+As she walked back into the kitchen, my eyes drifted to the rack. Chloe’s winter boots stood on the floor, covered in fresh, wet mud. Tangled in the rubber tread was a strand of that exact same thick, coarse black cord, tied into a tight, professional knot.
+
+The hair on my arms stood up. The comforting scent of dinner suddenly felt suffocating. Now that I was closer to the kitchen, the sweet smell of the stew changed. It had this sickening, heavy reek of burning hair to it—but worse. Deep down, my brain instantly knew what it was, even if I'd never smelled it before. It smelled like burning human flesh.
+
+My eyes darted to the small tray on the hallway console table where we keep our keys. Lying right next to my wallet were Chloe's heavy fabric scissors. The blades were smeared with fresh, dark blood.
+
+From inside the kitchen, the sound of a knife hitting a cutting board started again. Steady. Too steady.
+
+I took a step backward toward the door, fumbling in my pocket for the key.
+
+"David," Chloe's voice came from the kitchen. Her voice had gone cold. "Why are you touching the lock? Your tea is ready."
+
+I grabbed the door handle and pressed it down. It clicked smoothly, and the door swung open slightly, letting the cold night air rush into the hallway. I already had one foot over the threshold, ready to bolt and call for help.
+
+And at that exact moment, from the second floor, right above my head, came three short taps on the ceiling. Our old, secret agreement from whenever Chloe wanted me to come upstairs.
+
+My brain short-circuited. What was happening? Who was up there?
+
+I slowly pulled my foot back inside. I looked up at the ceiling, then toward the kitchen, where the knife was still hitting the board. My hands were shaking so badly I could barely hold the handle, but I managed to click the front door shut.
+
+"Yeah, honey, I'm coming," I called out, trying to keep my voice from cracking. "I'm just going to use the restroom first."
+
+I just locked the bathroom door. I have a few minutes before she realizes I'm not coming out. I can either open the window and drop outside, or go upstairs to whoever is tapping on the ceiling.
+
+I just don't know who to trust.

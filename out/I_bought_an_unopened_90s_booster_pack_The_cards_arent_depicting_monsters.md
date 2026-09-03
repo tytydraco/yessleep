@@ -1,0 +1,38 @@
+I’ve collected an obscure, long-discontinued trading card game from the late nineties since I was a kid. There was only a single print run, produced by a small printing house in Germany that mysteriously burned down in 1999. The cards don't feature dragons, creatures, or fantasy spells. They feature architecture: street corners, building facades, parking lots, edges of forests.
+
+Three days ago, I won a dusty booster pack on an auction site for four thousand dollars.
+
+When the package arrived, I tore open the foil. The first four cards were ordinary—faded photos of grey apartment blocks and highway rest stops. But the fifth card—the ultra-rare—made my blood run cold.  
+The image showed my own house.
+
+It wasn't just a resemblance. It was my front yard, my parked car, even the tiny crack in the attic window frame. Printed along the bottom edge wasn't lore text, but a fine, embossed grid graphic with a stat note: *1:1 Scale. Spatial Reserve: 0.4%.*  
+When I flipped the card to check the hologram, I noticed a slight unevenness in the cardstock. The surface wasn't flat. The printed front door protruded half a millimeter out of the paper plane like a microscopic bay window.
+
+I grabbed an X-Acto knife from my desk and carefully traced the edges of the tiny paper door to check the layering.
+
+The moment the steel blade pierced the paper of the card, a sound cracked through the hallway.  
+There was no explosion. It was the horrific sound of physical matter losing its depth. The frame, the wood, and the brass hinges of my front door imploded into one another in a fraction of a second. The dimensions collapsed: the three-dimensional opening squeezed down until wood and drywall compressed into a single, utterly flat surface.
+
+The sudden collapse of spatial structure generated a violent shockwave in the corridor. A razor-sharp, foot-long wooden splinter sheared off the doorframe and shot through my open office door like a spear.
+
+Before I could duck, the wood slammed directly into my right flank.  
+A searing, paralyzing pain tore the air from my lungs. The splinter embedded itself deep between my lower ribs, slicing open flesh. Warm blood instantly soaked through my shirt and dripped onto the hardwood floor.
+
+The recoil slammed me backward against the desk. Gasping, clutching the bleeding wound at my side with my left hand, I looked at the card.
+
+Where I had cut out the front door with the blade, there was now a white, square void in the paper.  
+No sound came from the hallway. As I dragged myself up and looked through the doorway, I understood the terrifying mechanics. 
+
+The front door wasn't just gone. The entire hallway behind it no longer existed. In its place, the floorboards ended at a razor-sharp vertical edge. Beyond it was nothing. Not darkness, not empty space—just an endless, blindingly white, flat surface, identical to the cutout on the card.  
+A cool draft smelling of fresh ink and cellulose washed over my forehead.
+
+A soft *click* made me snap my head around.  
+On the desk, the card had moved. Jostled by the impact when I fell, it had flipped face-down onto the wooden table.
+
+In that exact moment, the office darkened.  
+The room lost its depth. The ceiling didn't collapse downward—it flattened. The walls slid together silently, like a sheet of cardboard being folded down the middle. The bookshelves, the desk, and my own body were crushed against the back wall as the three-dimensional space around me bled out.  
+I tried to scream, but my lungs no longer had the volume to expand. My torso was already as thin as a door panel.
+
+I can't move my arm anymore. Not because it's injured, but because the direction "forward" no longer exists in this room. The last thing I see is the white paper edge of the cut, slowly folding over my line of sight.
+
+I'm no longer in the house. I am the next print layer.

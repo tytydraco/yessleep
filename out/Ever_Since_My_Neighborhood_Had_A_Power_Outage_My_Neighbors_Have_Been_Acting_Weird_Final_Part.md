@@ -1,0 +1,345 @@
+He started tapping my window vigorously, the piece of cardboard now completely falling off onto my bed.
+
+The moment I lifted my head from the blanket, Bob had already been making eye contact with me, those piercing blue eyes looking through me once again.
+
+“Salem. Hey Salem. It’s not what it looks like.”
+
+I closed my eyes, trying to go back to sleep.
+
+Suddenly the tapping stopped.
+
+I opened my eyes and there Bob was, his body turned towards the front of the house.
+
+Someone was speaking to him, trying to catch his attention.
+
+He slowly started walking away, almost like he was in a trance. 
+
+Once he was almost completely out of view, I stepped on my bed to see who caught his attention.
+
+It was my dad. 
+
+I don’t know what they were talking about but somehow my dad managed to calm him down. 
+
+Their conversation ended and Bob walked back home.
+
+My dad saw me in the window and waved hi, signaling for me to come upstairs to the front door.
+
+He looked drained. Just like Bob when I hung out with him yesterday.
+
+Those long shifts must be taking a toll on him. 
+
+I ran up, skipping each stair, before jumping into my father’s arms. 
+
+“I missed you so much. There’s so much that I need to tell you about.” I could barely even muster the words.
+
+“It’s okay. I’ll be back for the next few days actually. Okay?”
+
+We stood at the front door for at least five minutes, me bawling my eyes out as my dad held me tight.
+
+“Go on and get yourself some sleep. I know I need some. I’ll see you in the morning. Alright?”
+
+He pulled away from me and placed his hand on my shoulder.
+
+“Of course. Sorry about that. Goodnight Dad.” I wiped the last of my tears, mucus dripping over my top lip.
+
+“Goodnight. Sleep well.” 
+
+He walked upstairs to his bedroom and I made my way down to mine.
+
+For a while I just laid there, staring at the ceiling, worried about my next interaction with Bob. 
+
+All that matters is that I have my dad here to keep me company.
+
+“Good afternoon sleepy head!”
+
+I woke up to my dad hovering over me, pulling the sheets off of me.
+
+I pulled them back, embarrassed at my state of complete vulnerability, stripped to my underwear as always. 
+
+“You could’ve just knocked on my door.” I rubbed my eyes and stretched my body.
+
+“My bad, I'm just full of energy after being back. Anyways, the Chesterfields are having a cookout and we’re invited!”
+
+My blood ran cold.
+
+“Aren’t they a bit weird? I met them once and they just didn’t sit right with me.”
+
+I got a flashback to the Polaroid photos from the night before and felt
+
+“That’s how they are. They’re the nosey type. Once you get to know them you’ll see that they’re not so bad. Cmon.” 
+
+He looked at me with begging eyes and I’d hate to let him down. 
+
+“Sure. When are we leaving?"
+
+“In the next hour, make sure to get ready. Also do you need clothes? I noticed that the clothes in the dryer have a mildewy-type smell.”
+
+“That would help. Thank you.” 
+
+Laying on my bed was a Hawaiian shirt and some cargo shorts. Very snazzy.
+
+“You ready?” My dad called from the front door.
+
+“One sec!” I gave myself one last look in the mirror before leaving the house.
+
+I look so much like him. 
+
+The whole neighborhood smelled of charcoal and barbecue. 
+
+We arrived and there everyone was.
+
+Everyone except for the Ultras and Bob.
+
+Mr. Chesterfield was cooking on the grill, Mrs. Chesterfield was rocking her baby in the shade under a tree, and their children were running around.
+
+I tagged along with my dad, drink in hand, as I eavesdropped on him and Mr. Chesterfields’ conversation.
+
+Mrs. Chesterfield called my dad over for some help, looking very worried, leaving me and Mr. Chesterfield by the grill. 
+
+“How have you been since the power outage?” He flipped a burger, flashing me a warm smile.
+
+“I’ve been okay. A bit hungry. It’s just nice to have my dad back. It’s been so long since I’ve last seen him.” I wiped my forehead, beads of sweat forming from the heat radiating from the grill. 
+
+“I’m sorry to hear that, sonny. I’m glad you have him back. Family is more important than everything. I mean look at all of this.” 
+
+We both stood together, watching the crowd of people in the backyard.
+
+That’s when I noticed my dad hovering over Mrs. Chesterfield, looking just as panicked as her.
+
+“Give me a minute. Take this.” Mr. Chesterfield passed me the spatula and ran over to his wife and my dad.
+
+They all gathered around the baby and rushed inside through the sliding door, the kids not even noticing a thing. 
+
+The smell of charred meat caught my attention and I turned around, scooping the burger patty and tossing it onto the paper plate sitting on the folding table next to me. 
+
+I tried ignoring the muffled voices coming from inside the house until another sound caught my attention.
+
+It was Bob. He was in a different outfit this time. 
+
+He was dressed like he was going to work: a tucked in plaid shirt with tight denim jeans and some brown chelsea boots.  
+
+“Hey Salem. Sorry about yesterday. I was out of it.” He peered over to the paper plate on the folding table and picked it up.
+
+“Is this anyone’s?”
+
+“No. Not at all.”
+
+I watched as he ate the burnt burger with a perfectly normal face.
+
+“Anyways, why are you so late?”
+
+I continued to flip the other burger patties on the grill, not exactly knowing what I was doing.
+
+“I was at the Ultras house. They’ll actually be on their way here in a bit.” He spoke between mouthfuls of food, barely even giving himself a chance to swallow before taking another bite.
+
+“What were you doing there?”
+
+“We–”
+
+“Bob! Hey!” My dad placed an arm on my shoulder and took the spatula from my hand.
+
+“Hey Salem, why don’t you go and sit down and let us talk for a bit.”
+
+“Sure. Sounds good.”
+
+He was acting perfectly fine. Like nothing happened. 
+
+He’s seen so much over the years, I don’t think much affects him. 
+
+I just hope the baby’s okay. 
+
+I sat down in the shade under the tree, stirring my straw around in my drink, trying to keep myself distracted. 
+
+Minutes later, two pairs of feet came rushing around the house towards the party.
+
+Like clockwork, Mr and Mrs. Chesterfield came rushing outside, joy plastered across their faces as they went to greet the new visitors. 
+
+It was the Ultras.
+
+They exchanged handshakes and hugs with a bit of conversation about god-knows what. They don’t relate in any way. 
+
+The whole time I stared at my feet, trying to act like they weren’t there. 
+
+Until they settled on a bench next to where I was sitting. 
+
+“Hey! How are you Salem?” 
+
+The raspy yet familiar voice belonged to Mr. Ultra, his wrinkles forming into a half smile. 
+
+“Good.” I looked up and flashed a slight grin before looking back down at my feet, their veiny calves in my peripheral vision.
+
+That’s when I realized.
+
+Mrs. Ultra didn’t have her cane.
+
+She could not have gained that much mobility in a day. 
+
+Last time I checked she needs a stair lift just to go up the stairs. 
+
+“Hey, I was meaning to say, thanks for the pa–”
+
+“Excuse m–.” I could feel a surge of stomach acid rising to my throat, causing me to gag.
+
+I pushed myself off of the grass and rushed to Mr. Chesterfield and my dad, interrupting their conversation.
+
+“B-Bathroom.” I hunched over, trying to hold it back just a bit longer. 
+
+“No worries. Go inside and take a–wait you already know where it is.” 
+
+Everyone started laughing almost in perfect unison as I rushed inside, my palm pressed over my mouth. 
+
+I made it all the way to the bathroom before hurling out the nothingness that filled my stomach.
+
+My body laid flat on the floor.
+
+I don’t know what to believe anymore. 
+
+That’s when I heard a loud groaning coming from upstairs.
+
+Last I checked, everyone’s outside.
+
+Everyone except the baby.
+
+I rolled over on my stomach, curiosity giving me the energy to pick myself up.
+
+The groaning came from the master bedroom at the end of the hall.
+
+I tiptoed up the stairs as fast as I could, making a mental note of how long I’ve been inside the house before someone comes looking for me. 
+
+I reached the door and took a long pause.
+
+On one hand, I’m invading their privacy but on the other hand, what’s going on in that room?
+
+Everyone’s partying outside as if there wasn’t a whole crisis minutes ago. 
+
+Eventually, I pushed through and gripped the door handle, turning it ever so slowly.
+
+“What are you doing up here?”
+
+It was Mrs. Chesterfield. 
+
+She was an arms length away from me.
+
+“I’m sorry, I went to check up on the baby and–”
+
+“You don’t just roam people’s homes like that. Get out of my house. NOW!” 
+
+“I-I’m sorry.” 
+
+We switched spots, walking around each other as we stood face to face, mere inches from each other.
+
+As I walked down the stairs, she entered the bedroom, locking the door behind her. 
+
+I opened the sliding door, my hands shaking and my face burning hot.
+
+That’s when I noticed the reflection as I closed the sliding door behind me. 
+
+Everyone stood there, some with arms crossed and others shaking their heads. Even the kids.
+
+They must’ve all heard what went on from outside. 
+
+“Salem. What’s going on with you? You’re better than this.” 
+
+The look that he gave me made me feel so ashamed. 
+
+Mr and Mrs. Ultra were still sitting on the bench, whispering to each other, clearly talking about me.
+
+“Don’t look at me like that! You two were the same ones telling me all about ‘Aliens’ and everything being fake and now you’re here and acting all buddy buddy with the whole neighborhood!” I shouted, my voice echoing through the cul-de-sac.
+
+I looked over at Bob. He was looking at me like I had five heads.
+
+“And you Bob! You’re the one with the weird basement with the weird breathing noises coming from it! You were at my window last night!”
+
+“Now sonny.” Mr. Chesterfield raised a hand, taking a step towards me. 
+
+“Don’t sonny me. You and your family are just as bad as everyone else. Why did you guys leave your baby in the house after that whole debacle?”
+
+“What baby?” He placed his thumb and index finger on his chin. 
+
+It’s almost like he was trying to taunt me. 
+
+“Salem. I’ve been talking to the neighbors and they’ve been telling me about your behavior. I think I can speak for all of us when I say–”  
+
+“Why believe them? They don’t know me like you do! I’m not–” 
+
+He took a step closer to me, raising his hand up just like Bob did. 
+
+It felt like they were trying to corner me.
+
+“I think you should get help. Your mom used to–”
+
+Footsteps came rushing down from the master bedroom and into the hallway, nearing the sliding door behind me. 
+
+“No. That’s what the aliens try to do! They try to corner you before they take initiative!”  
+
+I took off for the woods, running straight through the center of the cul-de-sac, tears partially blinding my vision as I used every bit of my energy to get away from everyone. 
+
+I took one last look behind me before disappearing into the treelines and there everyone stood, arms by their sides, keeping still. 
+
+I don't even know how long I ran until I stopped.
+
+There I was, sitting on a tree stump, covered in sweat and grime.
+
+My mind kept replaying every decision that led to right now. 
+
+I couldn’t show my face again after all of that.
+
+I’d have to be admitted.
+
+The air smelled of ozone and the clouds grew heavy.
+
+It was approaching night time.
+
+I stood back up and continued my escape, my calves and ankles starting to give out.
+
+My body gave up on me.
+
+I fell, face down in a puddle, my lungs trying to catch up to my body.
+
+Everything went black. 
+
+I woke up in the hospital. 
+
+Multiple gadgets attached were to my body, monitoring my vitals.
+
+“Hello! It’s nice to see you awake!” A younger nurse around my age welcomed me, flashing me a friendly smile.
+
+“How did I get here?” I tried pulling myself up, failing back down in the process.
+
+ My muscles felt like jelly. 
+
+“You were found in the woods by a construction worker on a drive. Something about a power line?”
+
+“I don’t know why he was even out there. The singular road leading to our neighborhood has been closed ever since, due to construction on that exact power line.”   
+   
+“Actually, he was there to pick up the last of his crew's equipment from days prior and was loading up something in his truck bed when he found you face down on the ground. He said the only reason he actually saw you was because lights from the neighborhood were outlining the silhouette of your body on the ground. Your family must be worried.” 
+
+She must’ve heard him wrong. 
+
+My eyes roamed the walls, the interior design looking all too familiar.
+
+“Wait, what hospital is this?” I tried pulling myself up again, failing in the process. 
+
+“XXXX. We have some of the best doctors in the country!” 
+
+I felt a knot building in my stomach.
+
+There was a whiteboard ahead of me, covered with all my medical information and vitals from when I was unresponsive.
+
+My name was written in huge cursive lettering in the bottom right corner.
+
+Her eyes followed mine and she let out an amused huff through her nose. 
+
+“You were a John Doe until I got the idea to search through your phone to find your information.”
+
+That smug look on her face was starting to get annoying now. 
+
+“Wait. You look familiar. Is your dad a doctor? Possibly a doctor at this hospital?”
+
+I nodded my head and she had a look of concern. 
+
+“Oh my gosh. Is he okay?” 
+
+“What do you mean?”
+
+“He hasn’t been to work for a while. Almost a whole month. We tried contacting him but he hasn’t answered at all. We’re all concerned for him.”

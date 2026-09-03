@@ -133,3 +133,5 @@ Despite my obsession. My drive to all the creepy things going on in these woods,
 Well, this wraps it up I think. The sun is rising right now here, that is my cue to get to bed. Oh, I did not mention it. My name's Alex. 
 
 Remember: be careful in the woods. Don’t be an idiot, if something stands out to you when you are on trail, don’t approach it. If it’s on the trail, turn around and leave. It might have been there intentionally. Until the next one, stay put.
+
+[Part Two.](https://www.reddit.com/r/nosleep/comments/1w67eti/in_this_park_there_is_a_nonzero_chance_you_might/)
