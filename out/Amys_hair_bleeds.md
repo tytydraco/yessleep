@@ -1,0 +1,281 @@
+When the headstones bleed, panic is all that seeps into the bones. Amy Locke showed me such things, things that I never thought could exist outside of nightmares. We're so ignorant of the world that we convince ourselves its rules are set in stone, that everything has an explanation if we look hard enough, but I was forced to see a painful light, one that I wish I had never been shown.
+
+Forgive me, but I don't remember all that much from the days before. I have flashes of things that weren't red or black; I remember green, I remember breakfast, but I don't even remember the feeling of my own bed. It was a normal day, or at least it seemed that way at the time. I left the house, saying goodbye to people who still wait for me, and met with my friends, who I walked all the way to school with while we joked about girls and talked about new games and films. By the time we reached the school, the sky had gone from blue to grey and the warmth had been replaced by a bitter cold, but I was still excited for the day ahead.
+
+I don't think Amy Locke shared that feeling.
+
+As we sat down at our desks, chatting and waiting for our teacher, Amy sat in the same corner she always did, a place that somehow seemed much darker than the rest of the room. Her long black hair drooped over her face as she stared down at her notepad, writing continuously, while thin, pale hands poked out from the sleeves of her clothes. She was a thin girl, very small for her age, and even though we were among the older kids in the school, she could easily have passed for someone in the younger years. Her crimson coat hung over the back of her chair.
+
+While I was organising the books we would need for the day, I turned around and found her still scrawling away on the paper. Through the curtain of her hair, our eyes met, and I gave her a small smile.
+
+"Hey, Amy, you okay?"
+
+It was nothing more than a gesture of acknowledgement, but a small smile broke across her spectral face. She then firmly placed her pen down and lowered her head even further, almost as though she wanted to disappear completely.
+
+That was when three girls walked into the classroom.
+
+They were the popular girls, the kind with fake smiles and an attitude that screamed, \\\*I am a bitch, and everyone knows it.\\\* I scoffed as they strutted into the room, whispering amongst themselves before walking straight towards Amy Locke.They sang together in unison.
+
+"Amy Locke loves cock! Opens her legs for the boys to fuck!"
+
+They cackled like hyenas, but Amy didn't move a muscle.
+
+The head of the pack, Chloe, made sure this morning ritual took place. If I had known what it would eventually lead to, I should have ripped that bleached scalp straight from her head.Chloe grabbed the notebook from Amy's desk and began flicking through it.
+
+"What is this shit? Oh my God, just a bunch of schizo drawings. What the fuck?"
+
+Amy suddenly reached out and violently ripped the notebook back, scratching Chloe's hand in the process before clutching it tightly against her chest.
+
+Chloe recoiled, her face turning red with anger.
+
+"Fucking bitch! Don't touch me!"
+
+She slapped Amy across the cheek, and the crack of it silenced the entire room. Chloe bent down towards her and screamed, "You're a freak, Amy Locke!"
+
+This was Amy's morning, and as far as I could remember, it had been like this for as long as I'd known her.Our teacher, Mrs. Hancock, an older, heavier woman, had seen the whole thing. Instead of punishing Chloe and the others, she simply said, "Hey, all of you, sit down now. I'll deal with you later."
+
+She then walked over to Amy and knelt beside her.
+
+"You shouldn't provoke them, Amy. I told you about the drawings, okay? They just bring bad attention. Now put that stuff away, okay? You're creeping me out."
+
+Amy didn't answer. She simply sat there, breathing heavily while hugging her precious notebook to her chest. Looking back, I think she just needed a hug.Those girls would never be punished. They fit the untouchable criteria.
+
+For the rest of the class, Amy sat almost completely still, trying to make herself invisible. When lunchtime finally came, the rest of us ran around the playground, making the most of the little free time we had. The grey clouds had turned almost black by then, the ground was muddy beneath our feet, and somewhere far away at the edge of the playground stood Amy Locke, staring down at a single daffodil.
+
+The three girls were heading straight towards her.
+
+One of my mates noticed them and gestured for me to look in their direction. I remember muttering, "Shit, here we go again."
+
+Amy had crouched down and gently plucked the daffodil, carefully placing it into the pocket of her crimson coat. While she was still in that vulnerable position, Chloe shoved her down into the mud, and brown and crimson immediately fused together as Amy's black hair became tangled with the dirt. She struggled to stabilise herself, keeping one hand firmly wrapped around the leather-bound notebook while the girls kicked and pushed her further into the mud, screaming the same song over and over again.
+
+"Amy Locke loves cock! Opens her legs for the boys to fuck!"
+
+Other girls began joining in, although some tried to convince them to stop, as though they were finally beginning to realise they were beating a dead horse.
+
+"Oh, for fuck's sake," I muttered to myself.
+
+My mate warned me that getting involved would only paint a target on my back, but my parents raised me better than to stand by and watch something like that happen. I walked over and positioned myself between Amy and Chloe, who was still standing in the mud.
+
+"Chloe, that's enough, okay? Look at her!"
+
+She scoffed at me.
+
+"What, are you her boyfriend?"
+
+I leaned closer and lowered my voice.
+
+"No, but I'll tell the whole class what you did with Jason Clay in the cleaning cupboard. He was very descriptive."
+
+Her expression changed immediately, and she backed away.
+
+"Whatever. Fuck you."
+
+She turned around, and the others followed her, leaving me alone with Amy Locke. I reached out my hand.
+
+"Come on, Amy. Let's get you out of the mud."
+
+Her hand was cold and almost lifeless as she took mine. She stood there shaking, her black hair hanging low around her face, although somehow it looked longer than it had before, reaching far beyond her shoulders. Through the smallest gaps between the strands, I could see tears running down her face, but underneath them there was something else, something that looked much closer to anger.
+
+Through all the noise and emotion, she spoke softly, her voice somehow sounding scared and full of rage at the same time.
+
+"Thank you. Can I give you something?"
+
+"You don't have to. I just thought you needed help."
+
+She reached into her coat pocket and pulled out the daffodil. Its yellow petals seemed unnaturally bright against the gloom surrounding us.
+
+"You can keep this. It's really important that you have it close."
+
+I accepted the flower and carefully placed it in my pocket.
+
+"I can do that, no problem. And thank you. No one's ever given me a flower."
+
+She closed the gap between us and looked around. A few people were watching, judging her, and her tar-like hair was still stuck to my clothes. She leaned closer and whispered again.
+
+"You'll be happy you have that."
+
+Then she walked away, and as she disappeared into the distance, the hair slowly peeled itself away from my clothes.I spent the rest of lunch being teased by my friends. I took it on the chin and shot back whenever I could, figuring it would all be forgotten eventually. I had only wanted to help.
+
+As we went back into class, however, I noticed that a small part of my blazer where Amy's hair had stuck was still damp. I rubbed it with my finger, expecting nothing more than water, but when I pulled my hand away, my finger was red.
+
+Blood.
+
+During class, the rain began falling harder and harder until it became a violent storm. Lightning flashed outside the windows, followed by thunder that seemed to shake the building. Class continued, but some of the kids were becoming increasingly jumpy. There was something in the air, something all of us could feel without being able to explain it.Something wasn't right.
+
+I looked over at Amy. She was writing in her notebook, just as she always did, but her scribbles had become more frantic as the storm intensified. Lightning flashed outside the window, and the kids screamed as thunder crashed almost immediately afterwards.
+
+The teacher tried to regain control of the class, but Amy continued writing.
+
+Then she placed the final dot on the page.
+
+The storm stopped.
+
+Nobody else seemed to notice the exact moment it happened. The air became completely still, and the crackling sounds of the storm disappeared as though someone had simply switched them off.
+
+A moment later, one of the kids shouted, "Whoa, look at the fog!"
+
+We all got out of our seats and moved towards the windows. A thick, dark-grey fog had surrounded the school, stopping approximately twenty-five metres away from the building. It wasn't simply mist; it looked like a wall, completely blocking our view of anything beyond it.
+
+Amy remained seated.
+
+Then Chloe shrieked, "She's a witch! I fucking knew it!"
+
+The class stared at her in shock.
+
+"All this was in those creepy drawings!"
+
+Mrs. Hancock tried to control the situation.
+
+"Oh, sit down, Chloe. Don't be dramatic. Amy, have you been scaring your classmates?"
+
+Amy said nothing but Slowly, she stood.
+
+Her hair had grown even longer, now reaching down to her waist, and only her crimson coat seemed capable of breaking through the overwhelming darkness of it.
+
+She held the open notebook in one hand, keeping the other behind her as the lights above us began flickering. People slowly backed away while Mrs. Hancock approached her.Then Amy Locke addressed the class.Her voice was soft, but there was a strange force behind every word.
+
+"Bone, rot, hatred, red, carnage."
+
+She placed the notebook onto the desk and revealed a small blade with an old wooden handle.
+
+"Pain, hunger, fear, flies."
+
+Her hair was growing rapidly now, spilling across the floor and spreading between the desks. Kids began screaming as the black mass moved around their feet.Some tried to run while others froze in place.Mrs. Hancock stepped forward.
+
+"Put the knife down."
+
+Amy began speaking faster. She cut her own hand with the blade and held it above the notebook, allowing the blood to splatter across the pages.Her hair climbed over the desks, curling around them like vines.
+
+"Falling, destruction, screaming... hair."
+
+Her hair exploded across the room, clinging to the walls and pushing through the ground as it wrapped around Mrs. Hancock and dragged her to the floor. Strands forced their way into her eyes, nostrils and ears while she screamed and struggled beneath the growing mass.
+
+Blood seeped from the hair and dripped from every strand, smearing across everything it touched.
+
+I was the first to bolt.
+
+By then, the growth had already reached the door, but me and a few others managed to escape before it slammed shut behind us. Thuds and desperate pleas came from the other side, and through the small window in the door I could see terrified faces before they were completely obscured by the black growth.
+
+The screaming gradually turned into gagging and crying.
+
+Students and teachers from the other classrooms had filled the hallways, watching in horror as the scene unfolded.
+
+"I told you she was a fucking witch!"
+
+It was Chloe.
+
+One of the teachers tried to open the classroom door, but it wouldn't move. He backed away after seeing blood begin pouring from underneath it, and the door started to buckle and splinter under the pressure.
+
+The lights flickered again.She was coming.
+
+I ran as the door finally gave way, and a sludge of blood and wet hair flooded into the hallway. It bounced off the lockers and flowed through the narrow corridors, occupying every open space it could find. Strands spread across the walls and ceiling, growing thicker as they moved, and people were pulled from their feet before being swallowed by the mass.
+
+The hair seemed to find every weakness in the human body, invading every orifice and crevice it could reach. People disappeared beneath the sludge and never came back up, while the growing mass became thicker and stronger, tearing into anyone unfortunate enough to be caught in its path.
+
+I saw it grab Chloe and slam her against the lockers, pinning her there as the hair tore into her chest. It dug and pried through flesh, splitting bone, scrambling her insides and gouging at her eyes before ripping at her tongue.
+
+Me and a few others ran towards the main doors, but they wouldn't open. Hair had already spread to the outside of the building, wrapping around the entrances and windows until it was beginning to cocoon the entire school.
+
+A small group of us dodged and weaved through the corridors, with screams of pain and terror following us wherever we went. Through the roof tiles, the hair reached down and pulled a girl upwards, wrapping around her body and squeezing her like a wet towel. Her boyfriend tried to help her, but all I could hear was his muffled call for help as the hair covered his face.
+
+Eventually, we reached the gym.
+
+I grabbed some skipping rope and began tying the doors shut. I knew what that meant. Anyone still outside would be locked out, and we were condemning them to whatever fate awaited them on the other side.As I slammed the door shut behind a small group of students, I caught sight of Amy Locke a few feet away, suspended in the air by a solid mass of her own hair.
+
+I tied the door closed while the others added more skipping ropes, trying desperately to reinforce it.Then we stood back and listened to those we had left behind crying for help.
+
+One by one, they fell silent.
+
+The gymnasium was huge, with two basketball hoops, bleachers and the usual equipment scattered around the edges. Some of the kids tried the fire exit, but it would only open slightly before the hair stopped it.
+
+"Cut it or burn it! Just do something!"
+
+One kid pulled out a lighter and began slowly burning through the hair. The fire exit started to give way, and even the smallest gaps began allowing fresh air into the gym.Then Amy began to speak through the door.The gym fell silent.A timid knocking came from the other side.
+
+A girl screamed, "She's coming! I want my mum!"
+
+The knocking continued until Amy's voice slipped through the gaps in the door.
+
+"Longing, forgotten, cries."
+
+The girl who had asked for her mum put her ear against the door.
+
+"Nature, force, merged."
+
+She began crying as the hair crept through the gaps and intertwined with her own.
+
+"It hurts!"
+
+She tried pulling away, but she had already been fused with the growth. The hair tightened around her head, slowly ripping at her scalp until the pain became too much and she collapsed.The growth slowed as the fire exit finally began to open.
+
+Then Amy spoke again.
+
+"Shadow, void, horrors, growth."
+
+The other children suddenly began howling in pain, clawing at their necks as hair began oozing from beneath their fingernails. Their nails popped away as more and more of the black mass spread through them.
+
+The doors suddenly flew off their hinges.
+
+I dropped to my knees in the centre of the gym, completely overtaken by fear, as the hairy, bloody sludge began circling around me.Amy came through the doorway and floated towards me, suspended above the ground by the mass of hair beneath her. The lights dimmed before suddenly shining at full brightness, bursting several bulbs above us.Desperate for something to hold onto, I reached into my pocket and pulled out the bright yellow daffodil.
+
+"I kept it close, just like you said."
+
+She lowered herself until she was only inches from my face.
+
+Her red eyes stared deep into my soul.
+
+I could feel her reading my thoughts, something wriggling around inside my mind as though she were searching through my neurons. She reached out and cupped my hands with her own, and the flower immediately turned to ash between our fingers.
+
+The air had gone completely still, and my breathing became shallow as she revealed the notebook and opened it.There were crude, scratched drawings of everything that had happened throughout the day, almost as though someone had been watching us the entire time.
+
+She turned the page.It was us.
+
+I think there was a drawing of her standing over me while I slept, followed by another of the two of us holding hands.I said nothing as she took my hand and cut it with the same blade she had used earlier, allowing the blood to drip slowly onto the page.
+
+"Amy, please don't hurt me."
+
+She leaned closer.
+
+"You'll never hurt again. I'll make sure of that."
+
+She moved back, and the cut in my hand suddenly erupted with hair.Blood spurted from the wound as the growth spread up my arm. I rolled around in terror, trying to escape as it engulfed my entire body.Her eyes were the last thing I saw before everything disappeared into darkness.
+
+I woke up in my own bed, soaked in sweat, cold and frightened. I reached for the light and switched it on, expecting to find hair, blood or Amy Locke waiting for me, but there was nothing.
+
+No hair.
+
+No blood.
+
+No Amy Locke.
+
+A wave of relief washed over me.
+
+I sat there for a while, trying to collect my thoughts, until there was a knock at my bedroom door.
+
+"It's okay, Mum. I just had a nightmare."
+
+There was no answer.Instead, flashes from the dream began forcing themselves back into my mind. Amy. Her beautiful black hair. The way she had looked at me.I approached the door and locked it.From the other side came a voice.
+
+"Control, will, thoughts."
+
+Her voice was summoning me.
+
+I wanted to open the door.
+
+I wanted to see those ruby eyes again.
+
+There was no phone signal, so I ran to the computer and began typing this. I can feel my thoughts moving, being altered, and it's getting harder to think about anything other than her touch. I want to hold her. I want to be with her.
+
+I don't have long.
+
+Too scared to move, but I'm even more afraid that if I stay still, I'll lose myself completely. My mind isn't my own anymore, and my soul doesn't feel like it belongs to me. The urge to turn around is becoming too strong, and every second that passes makes it harder to resist.
+
+I need to see her.
+
+I need Amy Locke for we're about to start something beautiful to be together forever.
+
+"Peace, acceptance, mine."
+
+A voice so pure.
+
+A voice coming from right behind me.

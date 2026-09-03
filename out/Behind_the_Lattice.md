@@ -32,7 +32,9 @@ I think we were both the happiest just being around each other, it didn't matter
 
 Mags named her Matilda, after another witch she was influenced by growing up. We call her Tilly, a cute little mutt with big floppy ears and a gentle disposition. We got her as a pup, from an old neighbor in Indiana. I took her hunting all the time there, but it's been different out here. I should have been more wary of that. Tilly is good hunting company, but I've always felt she just likes spending time with me.
 
-You know how people joke about taking an interest in their pets hobbies, bird watching with their cats and things like that? Well I've always thought Matilda just takes an interest in hunting to humor me like that. She just likes to spend time with dad doing what I enjoy. She does her duty, but never seemed to take it very seriously until we got into these woods.            I've never been one to hunt for sport, but I do love to provide for my little family. It would appear that I am going to die for sport though. Although this thing is going to eat me, it isn't doing it to survive. Somehow I know that, it shares.
+You know how people joke about taking an interest in their pets hobbies, bird watching with their cats and things like that? Well I've always thought Matilda just takes an interest in hunting to humor me like that. She just likes to spend time with dad doing what I enjoy. She does her duty, but never seemed to take it very seriously until we got into these woods.
+
+I've never been one to hunt for sport, but I do love to provide for my little family. It would appear that I am going to die for sport though. Although this thing is going to eat me, it isn't doing it to survive. Somehow I know that, it shares.
 
 Telepathically I think. Not actually speaking into my head, it's a feeling. A feeling inside my head, not my heart like feelings are supposed to be. Maybe that's how that sharp discernment feels to Mags and all the others like her. Women's intuition, it must feel something like this.
 
@@ -46,7 +48,7 @@ I did get her downstairs to the front door to head outside to potty. She would n
 
 So I just picked her up and carried her outside, where she did finally squat and do her business. Quickly, she did not require carried back inside and was up those front steps in no time. We grabbed our things, the last of which was a thermos of coffee with a heaping spoonful of brown sugar and a splash of that brown butter cookie creamer Mags keeps stocked. I have never understood the black coffee drinkers.
 
-This time Tilly did go out the door herself, she seemed a bit more awake. Not on edge or anything alarming that I noticed. I thought she had just been tired and grumpy before, but was happy to be out with dad now that she knew what was on the agenda for the day. I had absolutely no idea which way was best to head for the hunt, I hadn't managed to go in the spring I'd been busy working on some of the home repairs and renovations.
+This time Tilly did go out the door herself, she seemed a bit more awake. Not on edge or anything alarming that I noticed. I thought she had just been tired and grumpy before, but was happy to be out with dad now that she knew what was on the agenda for the day. I had absolutely no idea which way was best to head for the hunt, I hadn't managed to go our first year here, settling in. This past spring I'd been busy working on some of the home repairs and renovations.
 
 This was a brand new adventure for Tilly and me both. It didn't seem new to her though, she set right off trotting ahead of me like she was on a mission. As if she knew just where to go. I didn't give it much mind and just let her lead the way, glad she was getting on board now that she was awake.
 
@@ -74,7 +76,7 @@ The sun wasn't even up yet, it felt like it had been hours. I didn't even take m
 
 I went back downstairs, quietly put all my hunting gear where it belonged. I headed into the kitchen, to peer out the window over the sink. I couldn't see it, but I know it could see me. I stood there paralyzed, unsure of what was happening. Not thinking deeply enough to worry about what to do about whatever it was happening. I just felt uneasy and watched. 
 
-I don't know how long I stood there, just that I came out of it with Mags standing in front of me looking concerned. It was now late into the morning, the whole kitchen drenched in sunlight. "Mark, what's wrong? Are you okay?" I cleared my throat, blinked hard, keeping my eyes shut tight and told her that yes, I'm fine. She insisted I sit in and brought me a glass a water.
+I don't know how long I stood there, just that I came out of it with Mags standing in front of me looking concerned. It was now late into the morning, the whole kitchen drenched in sunlight. "Mark, what's wrong? Are you okay?" I cleared my throat, blinked hard, keeping my eyes shut tight and told her that yes, I'm fine. She insisted I sit and brought me a glass a water.
 
 She also informed me that first thing Monday she was scheduling me a doctor's appointment, I really didn't want to. I was overdue for my annual checkup though and I know how to pick my battles in my marriage. It would be worth the doctor visit just to ease her mind if nothing else.
 
@@ -90,7 +92,7 @@ Last night was uneventful, work and then a nice hot dinner with my wife at home.
 
 I flicked on the porch light and sat in my favorite wicker chair just off from the door so my smoke doesn't drift back inside through the screen door. I was just wrapping up that first cigarette when I smelled it.
 
-I froze because what else could I do? Every alarm bell inside my body blaring. Ice in my veins, heart skipping beats, then beating too fast. My heart dropped into my feet, backside puckered so tight it might be shut forever. Every single cell in body screaming DANGER.
+I froze because what else could I do? Every alarm bell inside my body blaring. Ice in my veins, heart skipping beats, then beating too fast. My heart dropped into my feet, backside puckered so tight it might be shut forever. Every single cell in my body screaming DANGER.
 
 I squeezed the soft pack of smokes in my fist and without thinking pulled out and lit a second one. That one wasn't halfway gone when I heard the rustling of the dry autumn leaves beneath me. Directly beneath me, under the porch. I don't know how it got behind the lattice. I just put it up last summer, no broken places so far as I know.
 

@@ -6,7 +6,7 @@
 
 [Part 4](https://www.reddit.com/r/nosleep/s/nS2kw2iipW)
 
-I sat up and grabbed the file and photos, stuffing them into my the waist of my pants. Patty rushed over to me, and in a hesitant way, as if she were nervous to touch me, tried to help. I pushed her away and stood up on my own.
+I sat up and grabbed the file and photos, stuffing them into the waist of my pants. Patty rushed over to me, and in a hesitant way, as if she were nervous to touch me, tried to help. I pushed her away and stood up on my own.
 
 “Are you okay?” she questioned, her face contorted with worry.
 

@@ -1,0 +1,59 @@
+At first I would just awkwardly smile and nod as her joint smoke flowed in the warm, summer breeze. Chalking it up to stoned conversation.   
+
+After a month of excusing the subject with our sessions, I was becoming unnerved by her insistence. When her girlfriend sat me down a week after I had this feeling, I almost felt like the Earth had inverted.   
+
+“El, I don’t think I can even begin to explain how much I love your mother, but I am beginning to think I should call someone… I don’t know, a hospital?”       
+
+It felt like I was swallowing tar.     
+“What do you mean?”   
+
+“She was fucking eating the cactus. Blood was all over the damn thing and she was just drooling it all over, didn’t even acknowledge the gore, just greeted me like normal.” She drags off her dumb vape she carries around.   
+
+My mind was shutting down to this undigestible information. I am staring down the squirrel who enjoys my mom’s succulents hanging from an art piece bent into the shape of a flower. Some recycled bullshit she found at the thrift store and spent way too much money on. That was my mom. The one I knew.   
+
+“I know this is hard, El. But you need to talk to her. You’re her kid after all, she would probably take it from you better, when I tried to, she just kept saying I need to ‘listen’. It was fucking silence.”   
+
+My stomach is churning, I finally break my trance from the fluffy-tailed thief. I can only mumble out a feeble, “yeah.”   
+
+Her spare room door was shut, fans were the only noise in the hall. My hand brushes the fake silver doorknob, I’m lingering, terrified of what scene is taking place on the other side. Trying to swallow the tar again, I turn the knob, push the door open and there she is watering the plants that cover all the surfaces, spotting her white earbuds in place. The relief that washed over me almost felt more like I was on the verge of passing out. Cut short by her whispering while showering a Lily,  
+
+“The cats don’t have to stay.”     
+My mom’s cats are her babies, she absolutely loves them. I couldn’t stand anymore out of character bullshit. Deep breath. Step forward. I reach my finger out to gently tap her shoulder but instead she violently turns around. The fear that hit me as her normally comforting eyes are now ravenous.     
+“Oh honey, the plants just want peace. Don’t we all want peace? Wouldn’t you like some peace?”      
+She carefully leans on the tall guest bed.   
+Her fingers are cold as they brush a strand of hair off my cheek, sending shivers to every nerve. The question almost spits itself out, I didn’t really want the answer,     
+“Why… why do you eat them if they are just looking for peace?”     
+Her smile widens. Green, red, strands of god knows what are laced in all her teeth.     
+“To propagate of course. After reading up on the best soils and the best waters, I should be ready to harvest any day now!”   
+
+My lower lip is trembling uncontrollably as the woman who raised and loved me is no longer recognizable, standing in a floral dress I’ve seen countless times while eating blackberry cobbler she made.   
+
+“Momma… this is really scaring me, can we please, please go to the doctor?” All my energy was forced into that one question. I know the pleading look is falling on blind eyes.   
+
+“Sweetheart, the doctors are good at taking care of sick people, if anything I need a professional gardener!” Followed with an off-chime laugh and another smile that didn’t stifle the hungry eyes. I don’t know if I have taken a breath since she’s spoken the first time, finally dragging in air, I smell the rot. Meat that has been sitting too long. Involuntarily nose scrunching, trying not to gag, and just keeping it together were proving to be a difficult task.     
+
+It didn’t take long for the source to reveal itself, once she stepped from the side of the bed, I could see the pus and coagulated blood leaking from under her dress, down her ankles. Liquified insides that were being replaced by leaves and flowers.     
+
+“Listen little Elle, just listen.” I’m breathing too hard now.    
+
+“LISTEN YOU BRAT. LISTEN TO WHAT THEY WANT FROM YOU. CONSUME THEIR YOUNG AND CREATE ANEW!” Where the fuck is her girlfriend? How is she not hearing this shit, my mom is shredding her vocal cords, demanding I eat the plants. Listen to the plants.   
+
+Hundreds of voices are in my eardrums, there is no rhyme or reason to any statement, scream, laugh, or general babble. Cries for water, for sun, to be grown again. I am hearing the plants. The tiny needles of the cactus do not need to be eaten but they \*\*want\*\* to be. I don’t feel myself hit the floor as my hands slap against both sides of my head, this is too fucking loud.     
+In the nightmare of noise, I see brown pooling at my knees, my hands still firmly pressed against my ears, I crane my stiff neck to look just as my mother’s intestine slid out from under the floral dress.   
+
+With a sickening *slap*, her body follows it.   
+I crawl across the innards of plants and my mom, to reach what’s left of her body. Gently cradling her head to my lap, I sob. The tears streaming onto her now pale and veined face. Her eyes wide, like she’s seeing stars for the first time. Rustling begins at her opened stomach before short, spiked stems rip through the fabric, pink flowers open before I could blink. If I wasn’t holding my dead mom, and the flowers weren’t growing from her corpse, I would’ve maybe been able to say they were beautiful.    
+
+\[Mom’s Girlfriend\] has been a mess since we had to speak to the local police, I refused to bury my mom without a celebration of life or proper place. She loved the Mausoleum near our town, I decided to let her rest at a place she found peace on Sunday morning walks.      
+My brother was dead panned at the celebration of life, almost walked in like a corpse himself. After we all spoke of our favorite memories, I released everyone to drink and eat their sorrows. Finding my brother wasn’t hard as he buried himself in the corner of the event center, near a line of peonies I had hung up, thinking that if they were detached from the root, they had to be dead. His eyes were wide. I could feel my heart dip into my ribs. Gulping down more of my way too strong punch for courage, I approach his hiding spot.     
+“Hey… I’m sorry that you couldn’t see her. It was just really -“      
+He cuts me off with a \*shush\* and a hand wave. The shock is paralyzing.     
+“Don’t you hear them?”      
+“N..no.” Tears are welling before I can stop them. I \*\*do\*\* hear them. The peonies are screaming for water, for sun, and to be released.     
+Before I can move fast enough, my sweet, level headed brother begins stuffing the flowers, vines, string, and all into his mouth. His eyes bulging with hunger. The same and final look I saw from my mother while she was alive. Green, pink, and red dribbled from the corners of his lips.   
+
+“They want to be spread, El. They can’t do it without you.”   
+
+I can only write this as a warning to please, please, don’t listen if your plants say you’ll be okay. They ate her from the fucking inside out… they \*\*ate\*\* her. My brother has been banging on the car door for 15 minutes, begging me to eat the peonies. Begging me to help them be released.     
+He’s my brother, I can’t call the cops on him.      
+How do I explain that plants are speaking and we are all in danger? 
