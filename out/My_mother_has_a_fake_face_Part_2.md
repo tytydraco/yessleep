@@ -1,0 +1,275 @@
+&#x200B;
+
+Day 2
+
+I didn't end up sleeping that night…not a wink. I only realized that I didn't sleep when I heard the birds start chirping.I sat there ruminating on what happened and what I had gotten myself into. I had images of her grabbing my throat and choking the life out of me.I had to listen to her hoarse breath, feeling her hair brush against my neck.Every second was a living nightmare.Until eventually she left the room. I saw her head twisting in my direction; I snapped my eyelids shut and tried to look blissfully unaware. I heard her feet move out of the room.
+
+Tap.
+
+Tap.
+
+Tap.
+
+I opened my eyelids, and my stomach churned. Standing in the door frame was my mother, peering down at me with an empty gaze.
+
+“Good morning, sweetheart. Did you sleep well?”
+
+My heart was throbbing hard. But I had to come out with something, and I was stammering.
+
+“Y-Yeah, I slept awake. No, I mean, well.”
+
+“Good”
+
+She slid away from the doorway, walking sideways from it, disappearing. I got up from the bed, slowly pulled off the sheet and put on my slippers. As I walked from the bedroom to the bathroom, I saw her…just standing there watching. Her gaze empty, no thought behind her eyes, staring at the wall.
+
+After a bath, I changed clothes and began cleaning. I started sweeping with a broom and picking up paper, ripped-up clothing and…I found something strange. A food bowl with the name Milo. I was bewildered; I never had a cat during my childhood. My mother had never allowed it. I searched through my memories to find where it was from because it felt familiar somehow, and then I remembered it. My mother, a few months back, posted a cat on her Facebook. She had recently adopted it from a shelter. My brother was the one who suggested it since she was missing us so bad and needed something to take care of to fix things. She was hesitant at first, but eventually she gave in. Only…where was that cat now? I went ahead and asked my mom
+
+“Mom? Do you know where your cat went?”
+
+“What cat?” She yelled out.
+
+I sat there confused. "The one named Milo?”
+
+“Oh…”
+
+There was a moment of silence
+
+“I sold it.”
+
+“What? Why?”
+
+She didn't respond after that. I didn't bother asking again; I just carried on with my day. A wave of exhaustion hit me, but I couldn't sleep, not now, not here. Not with my mom or whoever she was in the house. I had to keep working.
+
+I looked for paint all over the house, but it wasn't anywhere. I then called out to ask if we had any paint
+
+“Mom, do we have any paint?”
+
+No response. Okay, looks like I'll have to go out and buy some, so I went out to the nearest Home Depot.
+
+Walking through the aisles, this feeling of all- encompassing dread slowly crept in. I took into consideration all the things that were strange to me. I thought about all the options that could reasonably be the explanation for why Mother was acting this way. A. My mother could just be going through a mental breakdown, which is what I assumed. That would be perfectly reasonable. But the second option, that was the one that terrified me.What if she was a random stranger who snuck into my mother's house and pretended to be her? At first I shrugged it off; I chuckled a bit at the sheer insanity of the idea. Then it started to make sense; I never did fully see my mother's face. Her hair was always drawn over it, but from what I could see, it looked correct. Just her expressions were slightly…off. The way she forgot slight details, like the cat. She just responded in three words and then didn’t say anything after that. Her voice too; it wasn't like my mother's. Sure, it was vaguely similar, but she was intentionally quiet; her voice was practically a whisper. When she did talk loudly, it was always raspy like a smoker, but I was under the impression that wasn't real. I felt a slight headache and rubbed my temples.
+
+“Sir? Sir, will that be all?”
+
+I shot up; I was already at the cashier. I got lost in my thoughts. Yeah, that'll be all.”
+
+“That'll be one hundred dollars.”
+
+“Yeah, sure” I handed him the money out of my wallet and collected all of my stuff in a bag. I then sat on the sidewalk and just looked up at the sky. The sun dipped into the horizon like a brush; the pavement was its canvas. And as I sat there, watching the sunset, I looked up at the clouds and stared. I didn't really believe in god. But in the context of what happened, I was starting to think that if he was, he was playing a cruel joke on me. Like, what purpose did this all have? Maybe I was just losing my head. At that moment, my phone buzzed. It was my mother. I answered the call.
+
+“Ye-.”
+
+“Where are you?”She said, her voice hushed to a whisper.
+
+“I'm buying paint…for the house.”
+
+“Come home…I miss you, okay. Please come home.”
+
+“Okay…”
+
+“I love you.”
+
+My heart sank. At that moment, I didn't know what to believe, but maybe she was my mother, and if she was, then I was just deluding myself.
+
+“I'll be right home.”I hung up. But I sat there; I hugged my arms around my knees and cried right there. Tears streaming down my cheeks, rivers digging up old memories.
+
+As soon as I came back home, it was already night. It was too late to start painting now. I entered the house and collapsed onto the chair. I don't even realize what I'm doing when I wrap my arms around each other on the table, close my eyes and drift off to sleep.
+
+When I woke up…a soft orange light illuminated the table. I heard a sliding noise, and then I felt something plastic brush against my elbow. I raised my head off the table to see a plastic plate with a sandwich on it. Inside the sandwich, I couldn't say what it was. It looked like grey meat with orange fur on it. Suddenly I was startled; my mother's face loomed over me, with her mouth held open, gaping wide, sagging down to the side, deathly pale. She blinked, but it looked wrong. I swear for a second, I saw a second pair of eyelids blink behind those folds.”You missed dinner.”
+
+I shakily began to say, "I-I did, huh, sorry, but what did you make?”
+
+“Stop being fussy, just eat.” She slammed her hand on the table, and as she did, the plate rattled; I flinched. "O-okay.”Whatever this was, I wasn't going to swallow it. I slowly but surely took a nibble, the smallest bite I could take without her noticing, and pretended to swallow.Good.” She left, walking backwards, mouth hanging open, gaping wide, like a zombie. She left the room. I heard the basement door open. I took a breath and held my hand to stop it from shaking; I could have passed out. I walked to the bedroom and tried to sleep.
+
+Suddenly, I was jolted awake by a metallic click. What the hell was that? 
+
+Click.
+
+Click.
+
+Two times now; what in the world was that noise? There was a slight pressure on the mattress near my feet. I slowly leaned upwards, staring at the foot of the bed where the sound came from. The bedroom was covered in complete darkness, but I could make out a womanly figure staring at herself in the dark, my mother. I felt my stomach churn once again.
+
+She was holding something in her hands.
+
+Click.
+
+Click. 
+
+Click.
+
+There it was again. It looked to be two black boxes that snapped shut.
+
+A stapler.Click.I saw she was staring at a mirror, so I looked in it.
+
+What I saw, I won’t forget it. There were staples aligned at the edges of her face, causing crimson blood to ooze each time she dug them into her skin.
+
+A droplet touched her lower lip. She was unfazed by it. Her face oh god, her face- it was sagging; her nose drooped. Half of it hung off, revealing holes where her eyes should be, a black abyss lying inside, and behind the folds I could see an eye, bloodshot red, shaking erratically. She noticed the blood on her lip and licked it. I shuddered and made a little sound. Her head snapped around.
+
+I hid under the covers.
+
+I felt like a child again, hiding way past my bedtime. Hiding away from my mom so I wouldn't get in trouble. Now the context was different. This was not my mom.
+
+I felt the covers rustling. Pulling lower and lower, dipping past my forehead. The gravity in the room was weighted in her direction. I squeezed my eyelids shut.
+
+She pulled, and she pulled as she
+
+let out a soft, pained, raspy breath. But suddenly…
+
+Bang!
+
+Bang!
+
+Bang! 
+
+A noise came from downstairs. She stopped pulling; I could feel her weight come off the bed. I heard her footsteps leave. This time, I waited longer; I wasn't going to get caught. I heard her footsteps leave again.
+
+I finally opened my eyes slightly, just a wink, enough to see the doorway. She was finally gone. I crawled out of the bed, lifting the sheets, resting my feet on the floor slowly. Making sure to be as quiet as possible, the door creaked open, and I slowly crept down the hallway. I was going to investigate that noise. I had to know; I needed a good reason to leave. I already had one, but I had to be sure. Gingerly moving one foot after another, trying to be as quiet as possible.
+
+Suddenly, the banging got louder and louder and louder. Eventually, loud, painful howls like a dying animal boomed through the hallways, sending chills down my body. It sounded like a woman going through immeasurable pain. Eventually, she started begging for someone to stop.
+
+“Oh God, Oh God, please stop, please, make it stop!”
+
+Her wails of anguish metamorphosed into a voice stricken with tears.
+
+“Whatever you want, just take it! If it's him you want, then-then take him. Just stop, stop, ARGHH.” It sounded like she was struck hard with something sounding metallic; I heard it cling. That was it; I needed to call the police. That was enough for me.
+
+I rushed to the bathroom with as much quickness as I could manage while still being quiet. I snapped open the door. It creaked open way too loud for my liking. But as soon as I entered, I pushed the door in with my back and then scrambled in my pocket for my phone. It slipped out with a loud clack. I stopped for a second to listen, wincing…nothing. I carried on, picked up my phone, and whispered, "Please don't be cracked, please don't be cracked.” I turned the face over, and it was the same. I let out a sigh of relief and dialed 911. The phone began to ring; I turned off the speaker.
+
+“Hello, this is 911. What's your emergency?”
+
+“Listen, I'm in my mother's house, and there's something seriously wrong with her. She has someone trapped in her basement. I'm in danger. Okay, send someone fast, please.”
+
+“Okay, sir, where are you right now?”
+
+“In the bathroom, right next to the basement.”
+
+“Lock the door, and is there anything you can barricade it with”
+
+ I locked the door; the knob held in place with a sudden click
+
+“Uhh, uhh.” 
+
+I began to look around the bathroom. I saw nothing of note except a clothing basket. But there was something in it. Something seeping red into the nightgown above it.Something that looked like flesh. I grabbed it with my two fingers and dragged it out slowly.
+
+“Sir? Sir, are you there?”
+
+Slowly dragging it out with a pinch, I could make out a pair of eyes, one nose and a mouth.
+
+Creak!
+
+Tap!
+
+Tap! 
+
+Tap! 
+
+Tap!
+
+Suddenly the basement door slammed open, and I could hear wet footsteps coming to the bathroom in quick succession. But then the footsteps came to a halt. There was silence for five seconds. I muttered a curse under my breath.
+
+“Honey…come out. I know you're in there”
+
+She said in a pleading, motherly tone. It sent chills down my spine.
+
+She whispered through a crack in the door
+
+“Don't make me come in there.”
+
+“Sir? Sir, are you there?”
+
+The officer said.
+
+“Don't make me come in; you're supposed to be asleep. Don't be bad now.”
+
+I kept very silent and very still, clasping my hands over my mouth.
+
+“Hang up the call.Now.”This time, a little louder and more demanding.
+
+The police officer was now silent, listening. It seemed they realized what was happening.
+
+“Okay, okay, but it's just a friend.”
+
+“Why? Why did you lie?”
+
+“Huh?” 
+
+“Why did you have to lie? WHY DID YOU HAVE TO LIE!” She was now screaming, begging for me to open the door, banging her fists on it with hard knocks, repeating the same phrase over and over again. Then nothing; it was quiet, dead silent. All that could be heard was the faint wind, whistling through the house. Then suddenly, a thud; the doorknob shook a bit.Thud!The doorknob was bent a bit now. Thud! The doorknob was diagonal, shrapnel flung onto the floor, and a wood chip grazed my skin. Again and again and again, the doorknob was hit, creating tears through the wood, sending splinters everywhere. The hair on my arms was now straightened. I began backing into the corners while she slammed into the lock over and over again to get it open. My chest heaved, overwhelming fear spreading all over me, then…All I could do was shout and beg for mercy. She poked her eyes through the door, yelling and screaming at me harshly.
+
+“Okay, I'll hang up!”
+
+Then it was silent; crickets were singing the song of the night outside. She was waiting. I opened my phone and hung up. "There… that's it, you see.”There was this all-encompassing dread washing over me. I was thinking so many thoughts and so many emotions that I had to hang up. I didn't know what she would do, what she was capable of. If my mother was even still alive. I had to follow her directions.
+
+“Then come out…let me see your face.” I opened the door slowly; the crazy thing was, the door was already open. Had I waited a second longer, she would have gotten to me. I exited the room, closing the door behind me. She was there; I could barely see her, but I knew she was angry, very angry. Her face was shrouded in darkness, but I could see that same glinting in her eyes.
+
+“Go to bed.” 
+
+I didn't move. I was too terrified, frozen right where I stood.
+
+“Go to bed, or I will cut you. I will cut you and not stop, even when you beg me to. I will cut holes for the bugs to climb in and nest in your skin, and they will breed, and they will hatch, and they will feast on your flesh.”
+
+I crawled across the wall, heart thumping in my chest, and went into the room. She watched as I did it head slowly turning. Then she locked the door. I sat down, staring at the ceiling, defeated.
+
+Eventually I saw red and blue lights flare and hit my eyes, as I was composing myself on the bed. I heard the door unlocked and I exited the room.
+
+The woman was waiting right next to the door, face still shrouded in darkness.
+
+“You let me talk; you follow what I say. You listen to me; if you don't, I'll punish you, I'll punish you very badly.”
+
+I nodded.
+
+She opened the door for the police
+
+They knocked at the quiet harshly.
+
+”Get out with your hands up; we don't want no weapons.” 
+
+The officer’s voice was harsh and rough. His face was hardened too. Only my mother's face was stiff. She wasn't wearing the mask.
+
+She opened the door. The officer had a grey beard, was balding, and was wearing a bullet vest with police in bold letters on it. His posture straightened, and he looked my mother up and down.
+
+“Ma'am, we received a call from this house that there was a problem.” His eyes glanced over towards me. They looked accusing.
+
+“Did you make the call, sir?”
+
+My mother started to speak
+
+“Yes, it was him; it was just an overrea-”
+
+“I was looking to hear from him?”
+
+My mother looked at me, eyes fixed; they were cold, made me feel like pins were all over my arms.
+
+“Yeah, it was me.” 
+
+“Okay, and what exactly is the problem?”
+
+My mother put her body closer to mine to cover up her nails digging into my arm. I could feel the blood trickle down to my palm. I tried hard not to show my reaction.
+
+“Nothing, sir; just had an overreaction, thought I heard something by accident.”
+
+The officer looked at me, annoyed. So you are a grown man, making false calls? You know you're wasting police resources, right? That's a serious thing, boy. Stop wasting my time with nonsense”
+
+“Wasn't intentional, sir.” 
+
+“That's right, sir, just a false alarm; he heard me hurting my foot downstairs. Sounded pretty bad too.”
+
+Suddenly she sounded like she had perfect decorum. Like she put on a new mask. Her voice still had a rasp to it.
+
+“There's no problem here, officer.” She let out a smile, a big, wide grin. Her teeth were strikingly yellow, haven't been taken care of for maybe months. They might have been rotting too. But there was something vaguely familiar about her face; I could see it clearly. She didn't drop her smile; it was almost like a photo, not even a muscle twitch. I knew her. I didn't know how or who, but I did; it was very faint. She sure as hell wasn't my mother, though.
+
+“Right, well, have a good day, ma'am.”
+
+He turned to me.
+
+“Don't go making stupid calls in the middle of the night. Word of advice, grow the hell up.”
+
+The officer went in his car, waved goodbye and left.
+
+The woman dropped her smile and went back inside. At this point I was lost, utterly and completely. But I thought to myself: if the woman in the basement was my mother, and she was hurting her. By skinning her face and wearing it like a mask. Then I had to do the job myself; I had to save her. I needed to save her on my own, and I would do it…tonight.
+
+I went into the bedroom, and the woman was already in the bed. I climbed in behind her, turned my back and stood there. Waiting for the perfect time to strike.Until I felt something scraping in circles around my arm, drawing blood.
+
+“I love you too much to hurt you. But that doesn't mean she won't hurt you.”
+
+She turned to me, the mask of my mother's face drawn. I now saw it clearly. It sagged down on the left, opposite to where her face was turned. Behind the eyeholes were her real eyes, bloodshot, fixed on me. The mask was rotting; holes were all over it. It smelled sickly sweet almost made me vomit. Blood was staining the mask near the area where the staples were. I was horrified; the blood drained from my face. I slowly nodded.
+
+She turned her face away from me. I was stuck where I was, welded to the bed. Unable to gain control of my emotions, my instincts. But I had to; I had to be a man for once in my life. I had to see my mother again, even if it was just a body to recover, and after that, I'd kill her. I gained control, barely on the verge of dozing out and running out of that house. But there was no turning back now. I watched the clock: 3:00 am. The witching hour. It was time. I went into the basement.

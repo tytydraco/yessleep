@@ -1,0 +1,133 @@
+I never had much of a connection with my grandma, she lived in the old country and we barely got to see each other, so, when news came of her death, I wasn't exactly grieving
+
+Don't get me wrong- I did feel bad for her, I do remember her as the sweetest person in the room despite the little time we had together, and I'm gonna miss her, sure, but... I just didn't have that longtime connection my parents had
+
+So, when we got her stuff, my parents spent hours crying while I sat awkwardly in a corner
+
+Grandma spent most of her existence in a small village close to Predappio, she lived humble and didn't leave us much besides the small house, old carbine, a black beret with a chunk of wool ripped off right in the middle, and other memorabilia
+
+Among everything, a black box caught my eye: leathery and withered, half a piece of paper was barely held together by an almost peeled-off piece of scotch
+
+The paper was signed:
+
+"*VITTORIA*"
+
+I remember her constantly bragging about her name meaning "victory", I always thought it was a bit presumptuous, but, thinking about it now, it was almost adorable
+
+The other half with her last name had been cut off, it probably got ripped apart during the moving, the box itself didn't look any better, so I opened, carefully
+
+Alongside some old lira coins, was a huge stash of old newspapers, posters, and photos, one immediately caught my eye: a poster of Benito Mussolini, proudly holding a finger in the air, the phrase "*A NOI !*" right below him, the phrase roughly translates to "to us"
+
+Fascist memorabilia wasn't a big deal in Predappio, it is Mussolini's birthplace, you can still see things like busts or posters of the "big man" to this day, despite being dead for over 80 years, you can still feel his presence as if he was right there, looking at you
+
+It reminded me of a story my grandma would bring up at dinners: my great grandfather always told her that during the 20 years of fascism, talking in small groups would make you look very suspicious to the authorities, and it wouldn't take much for the *Squadracce* to knock on your door
+
+But speaking of my great grandfather, the very first picture shows him in uniform in Libya, next to a plane, I've never known much from that period in his life, grandma told us he didn't like talking about those years, and the picture itself seemed a little out of place with the others
+
+The following pictures showed grandma as a young girl, in her school uniform, she and her classmates playing outside in their little blue school smocks
+
+Next ones were mostly the same; an old car, grandma at the village fair and procession, her playing outside, and family members I've never even heard of
+
+One I found interesting, labeled 7th December 1970, grandma and her father: her small body and radiant smile contrasted with the carbine she positioned on the ground as if it were a walking stick, and the serious, almost worried look on my great grandfather's face didn't help either, but still I kept digging
+
+And as I dug and dug, I yawned, my grandma's infancy was interesting and all yes, but seeing pictures of Italian kids doing things wasn't that exciting after a while, so I was about to close the box and go on with my day
+
+At least, that's what I would've done if I hadn't noticed something: a newspaper, titled "Il Popolo" dating 1971, with the headline "Trionfo a Roma!", something like "Triumph in Rome"
+
+The rest of the writing had either been withered away, got too unreadable, or was ripped off, but the picture... the picture showed the inside of a classy hall: marble ceiling, marble walls, tall windows, and black and white marble pavement, though the alternating of black and white was interrupted by the red of about a dozen corpses, stripped of their clothes, bullet holes covering them head to toe
+
+Beneath the picture, I could barely make out the word
+
+"*Sovversivi*"
+
+Then, the pictures went back to normal
+
+They showed grandma a bit grown up, her in school uniform, she and her classmates playing outside in their little black school smocks, and a picture of kids playing table football, labeled "*Balilla e calcio*"
+
+These day-to-day life photos went on, until one showed grandma and her classmates, in uniform, holding their arms out in what clearly was a roman salute
+
+...neither my parents nor my grandma ever told me any of this, maybe on purpose?
+
+I took the photo downstairs to show my parents, but the living room was empty, tv on with some Italian channel playing
+
+I was about to turn it off, when some of the footage on tv caught my eye
+
+<\*... ma il governo Borghese durò a breve, l'evento che segnò la sua fine, la strage del 1971, vide l'uccisione di una dozzina di manifestanti, ciò finì quando venne annunciata l'uccisione del "Duce Borghese"\*>
+
+I couldn't understand much of it, but the footage on tv... some of the footage looked just like the marble hall photo...
+
+So I went back to the box, and sure enough, both pictures and program showed the same event, and curiosity got the best of me, so I kept digging
+
+My grandma, now in her twenties, was sitting somewhere in Rome, smiling, her hair curly and long just like mine, holding my dad in her arms
+
+Most of the pictures showed landmarks: the Vatican, the Colosseum, then a big parade, the crowd roaring, cheering, big banners waving in the air, all black
+
+Then a motorcade, a man in uniform with a black beret on his head and a neutral, satisfied expression on his face, the people applauding him, many others looking back, one pictured showed the man holding the same baby grandma was holding...
+
+And right beneath that brick of pictures, was a poster, with that same photo, and the phrase
+
+*<Borghese ama molto i bambini d'Italia... A NOI !>*
+
+The next newspaper, the same "*Il Popolo*", showed more and more pictures of the man, sitting at a desk, or in parliament- or at least, what used to be parliament
+
+Exaggerated poses and even more exaggerated headlines, the man meeting with leaders from countries like Spain, Greece, Chile, shaking hands and sitting at tables together
+
+Then, a newspaper, not Italian but American, from the 1990s, it showed a map of the mediterranean, focused on Italy, outlined in black, headline read
+
+"*A black box in the Mediterranean*"
+
+...just out of sheer curiosity, I looked up
+
+*Italy, Wikipedia*
+
+*Geography*
+
+*History>*
+
+*Prehistory and Antiquity*
+
+*Ancient Rome*
+
+*Middle ages*
+
+*Early modern period*
+
+*Unification*
+
+*Liberal Period*
+
+*Fascism and World War 2*
+
+*Republican era and the second dictatorship*
+
+*...*
+
+Am I making this up? Is this all in my head?
+
+I closed the box and went downstairs
+
+"Not a single photo is ever coming out again, not a single one, I'm gonna seal it shut, nobody's going to-"
+
+***Thump***
+
+I screamed, not for the pain on my knee, but the box-
+
+...
+
+Pictures, newspapers, all laid out on the stairs
+
+"Maybe I can... put them back inside?"
+
+I thought
+
+But the box had a different plan
+
+I reached for the nearest picture to put it back in the box
+
+And the picture, the first picture I took, was of me
+
+I looked about 10, in a black uniform, holding my hand out and a black beret on my head, a golden eagle emblem in the middle
+
+I turned the picture, behind it, was the phrase
+
+<*Vittoria, a noi ! >*
