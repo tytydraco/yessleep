@@ -1,0 +1,381 @@
+I usually do administrative work for the local government. Municipal level stuff, nothing extravagant or life changing. I’ve worked at that same position for 15 years, dealing with scheduling, relaying information to the mayor, and making sure new hires are up to speed on their first day. It’s nothing fancy, but it’s one of the better jobs you can hope for in a mid-sized small-government kind of town in the Midwest.
+
+One morning, as I was getting ready for work, I got a call. I didn’t recognize the number, but I could tell it was a government affiliated one. I answered.
+
+“We’re going to need your help,” the man on the other end said. “We’ve had a last-minute cancellation, and we need someone to perform a series of interviews.”
+
+“I’m not a reporter,” I joked. “What kind of interview?”
+
+“We’re hiring for a new position. You’re experienced in performing job interviews and assessment tests, correct?”
+
+“I’ve done my fair share.”
+
+“I’ll send you the details.”
+
+With that, he hung up. I didn’t even catch his name, but I got the sense that was somehow the point.
+
+ 
+
+I got an e-mail with instructions. I’m not going to go into detail about what department sent me this, but let’s just say it was the kind of people that should make you reluctant about asking too many questions. I hadn’t been in touch with that side of the government before, and it was way above my pay grade, but I figured it was just an interview. But looking at the details, there were some things that didn’t line up.
+
+For one, I wasn’t interviewing people for a *government* job. This was strange, given how I worked for, well, the government. It was supposed to be a private company that was hiring a remote communications field technician; a junior position at that. In fact, I was strictly *forbidden* from mentioning that I work for the government to begin with. If anyone asked, I worked for a very well-known telecom company. They’d even added the logo on the print-out info slip that I was to hand to the applicants.
+
+The fake job itself wasn’t that special. It was an in-house maintenance position with on-the-job learning. A lot of travel to remote locations and, over time, solitary work on a rotating schedule. They were to maintain microwave relay stations, transmitting information over large distances. That meant working with a lot of power and being responsible for critical communication infrastructure.
+
+The questions for the applicants were fairly standard and technical, but there was a subset of instructions that were to be kept hidden. I was to make note of a series of observations about the applicants. This is where it gets tricky.
+
+I was to check for yellow nails.
+
+Not just yellow nail polish, but actual yellow-colored nails. This was very important. If the applicant had yellow nails, I was to write their name in a separate list, in a separate folder. I didn’t really have time to question it. I just went to the assigned address.
+
+ 
+
+I’ll be honest, I wasn’t comfortable with the whole thing. I’d never been asked to lie, but I also didn’t have much of an option. They made that very clear in the instructions. This interview was supposed to be done by a much more seasoned representative, but they’d cancelled on short notice. I was next in line. Not just because of my experience, but my proven loyalty. Honestly, I think it was less about loyalty and more about being comfortable in my position. They knew I wasn’t about to throw over a decade of experience down the drain.
+
+I got to the address outlined in the e-mail. It was a temporary barracks-style building on the outskirts of town. I remember it being a bit of a build-site earlier. It had the company logo and two more cars parked out front. I felt uneasy about going in, but as it turns out, I wasn’t alone.
+
+There was a woman there. Late 40’s, short gray hair, and a tired bloodhound-like face. She looked like she had either been chain-smoking for decades or forgot to sleep for the past week. I’d never seen her before. She walked up to me and handed me a couple of folders. She pointed at them, one after another.
+
+“The white one’s for ordinary people. That blue one’s for yellow nail-people.”
+
+“I’m sorry, who are you?”
+
+“We got twenty-two people to clear today, so we better get started.”
+
+“Yes, but who are you?”
+
+“Do you want to chit-chat or do you want to get some work done?”
+
+“I’m just asking-“
+
+“I’m Joan of God-damned Arc, patron saint of sit down and do your job.”
+
+ 
+
+She showed me to a small side office where I was to conduct my interviews. There was a cheap IKEA-style desk with some office supplies. There was a sign with a name on it, but “Joan” removed it for me. The sign had been made for whoever I was replacing. Before I was left to my own devices, I noticed a bottle in the first drawer. Something chemical.
+
+“It’s acetone,” Joan explained. “If they got painted nails, you gotta use it to check the real color.”
+
+Before I could ask any follow-up questions, Joan was out the door. I could already hear an applicant stepping into the waiting room. I hurried through the questions again, checking the print-out information pamphlet that I was to provide them, and practiced my introduction. Was I supposed to have a fake name? If not, they could easily find out that I worked for the government. There was no time to think.
+
+Joan walked off to conduct an interview with the first applicant, but I was handed the second one – a man in his mid-30’s. Middle eastern background with well-combed black hair and surprisingly round cheekbones. We shook hands, he introduced himself, and I thanked him for coming. I handed him a pamphlet, and we sat down to conduct the first interview.
+
+ 
+
+While I asked him various questions about his experience in relation to the position, I couldn’t help but look closer at his hands. I couldn’t tell if he really did have yellow nails, or if I was just hyper-fixating on them for no reason. What does “yellow nails” even mean? In context to what?
+
+Thankfully, my employer had thought about that. One part of the interview was to perform a simple physical test. In short, I was to check their hand for damages and flexibility. There was a small desk light and a short procedure where I was to check the front and back of the hand and flex the fingers to see if there was any pain. What I was *really* doing was checking the nail color under a clear light.
+
+This man had yellow nails. No doubt about it. When I checked his hands under the desk light, it was clear as day. But it wasn’t just a yellow color, it was a small pattern of S-shaped yellow indents that you could see through the nail. It was almost completely invisible unless you looked right at it, but once you saw it, it was impossible to miss.
+
+“Looking good,” I said, trying to disarm him a little. “No joint pain when I flex this finger?”
+
+“None at all,” he smiled. “I’ve done this kind of work before, you know.”
+
+“It’s an insurance thing, we have to be thorough.”
+
+“I understand.”
+
+As we finished the interview, I picked up the two folders. One had a white tulip on it, while the other had a blue sunflower. Just little stickers in the corner. Looking at him, I switched to the blue folder, and noted his name at the top.
+
+“Thank you for your consideration,” he said. “When can I expect your call?”
+
+“The process shouldn’t take more than a week, but that depends on my employer.”
+
+“And who is your employer?”
+
+He looked at me as my tongue got stuck in my throat. I’d forgotten the name of the telecom company I was supposed to say I worked for. I swallowed hard and peeked down at the folders, noting the company name in the corner of the printed paper. I straightened out, answered his question, and sent him on his way. He didn’t seem entirely convinced, but what’s done is done.
+
+ 
+
+I performed three more interviews. First one was a man in his early 20’s. Cocky kind of guy; didn’t have yellow nails. He made a snarky comment about checking his fingers though – very unprofessional. The second person was a woman in her early 40’s. Athletic build, very serious demeanor. She had a bit of a nervous streak; I could tell from the way she was biting her fingers. She barely had any nails left, but they were free of any yellow discoloration. Both of them went into the white folder.
+
+The third interview was a woman in her late 20’s. Let’s call her Donna. Mediterranean, curly brown hair, dark eyes. She had these big pupils that gave her a doll-like appearance. Whenever she listened, she tilted her hear slightly to the left. I introduced myself, and noted that she had painted red nails.
+
+“As part of the interview, I have to perform a simple physical to make sure you have no prior conditions impacting your flexibility,” I said. “For insurance purposes.”
+
+“Of course,” Donna said. “That’s not a problem.”
+
+“Great. I also need you to remove the paint from one of your nails.”
+
+“What’s that?”
+
+“The paint,” I said, putting the acetone bottle on the desk. “I need to remove the paint from one of your nails.”
+
+“I’m sure that’s not necessary. These were expensive, you know.”
+
+“I’m sure they were. But protocol is protocol. You understand, I’m sure.”
+
+We both looked at one another in silence. Neither of us spoke up. She furrowed her brow and crossed her arms, as if shielding her hands.
+
+“I’m not doing that.”
+
+“Then I’m afraid we can’t proceed.”
+
+She looked at me for a long while, then turned her attention to my folders. Then, to the acetone bottle. Her furrowed brow loosened as her expression changed.
+
+“Why do you have two folders?” she asked.
+
+“We’re evaluating different positions.”
+
+“What’s the other position?”
+
+“Similar to yours, but a senior level replacement.”
+
+I swallowed hard, trying to keep up with my lies. She wasn’t buying it. I was making it up on the go.
+
+“I didn’t see *anything* about that. I’ve been looking for those positions too.”
+
+“We’re looking at making an in-house promotion.”
+
+“Then why do you need to conduct interviews?”
+
+“It’s a legal issue when offering new positions to-“
+
+“You’re *lying*.”
+
+She got up and pointed at me.
+
+“Which folder are you putting me in?”
+
+I kept my mouth shut. I pulled the folders back as she reached for them. Before I could say anything else, she stormed out of the office, running down the street at a full sprint.
+
+ 
+
+As I got a chance to catch my breath, I met Joan in the waiting room. There were more applicants coming, but we had a moment to ourselves. I told her about Donna with the red nails, and how she’d stormed out.
+
+“If they refuse the test, put them in the blue folder,” she said. “Yellow nails or not, if we don’t even get a chance to check, something’s wrong.”
+
+“Why are we checking the nails at all?”
+
+Joan rolled her eyes and retreated to her side room. Before I could ask her to clarify, the next round of applicants arrived. It wasn’t even lunch yet.
+
+I went through interviews all day. A little over half of them had yellow nails, but most of them were ordinary applicants. I talked a lot about the various responsibilities and benefits, having to make up on-the-spot lies about things like what company vehicle was offered, and the exact extent of the coverage area applicants were to work within. They asked things about work rotations and housing on extended assignments, and I was having trouble keeping up with the lies. I started making notes about what I’d told people so I could act more confidently in future interviews.
+
+There were a few things that I noticed about the applicants with yellow nails. While the ordinary applicants usually asked things about the position and its responsibilities, those with yellow nails seemed more interested in the company and the access they gained through their assignments. They also seemed eager to work on their own, and to get away from the senior technician they were to be assigned to. Not a single applicant with normal nails asked about that, but every applicant with yellow nails did. A lot of them also asked if it was okay to bring family or friends on longer excursions once they reached a senior position.
+
+ 
+
+After my first day of interviews, I had nine names on my list of yellow nails. Joan had seven. We compared notes and exchanged a few tips on how to convincingly lie about certain things. She was incredibly well-read on the subject. If I didn’t know any better, I’d say she was actually working with telecommunications. She could describe the functionality of a microwave relay station in detail, and the most common maintenance issues associated with them. I got the impression that Joan had been doing this for quite some time.
+
+I bought some Thai food on the way home. I didn’t know what to make of that day, I’d been so out of my comfort level that it seemed unreal. I was to come back the next day for another batch, but there wouldn’t be as many applicants. Joan could handle it from there, apparently.
+
+Coming home and parking my car, I noticed someone standing outside my front door. It was Donna, the woman who’d stormed out of my office earlier. I’d recognize those eyes anywhere. She turned to me, looking at me; her hand was still on my door as if she’d just knocked.
+
+“Can I help you?” I asked as I carefully stepped out of my car.
+
+She put her hand down and searched for the right words. She tried to answer a couple of times, until she finally gave up with a deep sigh.
+
+“Did you put me on a list?”
+
+“What do you mean?”
+
+“I mean, are they putting people like *me* on a list?”
+
+“I don’t know what you’re talking about.”
+
+I pushed past her, sliding my key in the door and opening it. She didn’t seem like much of a threat, and the longer I talked to her, the bigger the chance I slipped up.
+
+“You work for the government,” she continued. “I looked you up.”
+
+“I’m going to ask you to leave.”
+
+I stepped inside and closed the door behind me, but I could still hear her talking from the other side.
+
+“Just please, remove me from the list. I don’t want any trouble.”
+
+“Leave, or I’ll call the police.”
+
+“Will you please take me off the list? *Please!*”
+
+I stood there in the hallway with a grocery bag in hand, waiting. After a while, I heard her footsteps disappear down the path. I let out a long breath, taking a moment to collect myself. There was something happening outside my control. I was *lying* to people, and for what? Some kind of identification? What did it mean?
+
+ 
+
+The next day, I was back for a second round of interviews. I was a bit more prepared this time. I had the same folder and the same list; I was probably going to hand it in once we were done with the entire process. Looking at the list, my eyes lingered on the woman’s name. Donna didn’t seem like a bad person. She seemed desperate, and if she had bad intentions she could’ve hurt me outside my door. But she didn’t. She just asked me to take her off the list.
+
+It took a bit of work, but I removed her from the list. I took a blank sheet and rewrote the whole list without her name, throwing the old list into a shredder. I don’t know why, but I wanted to give her the benefit of the doubt. This wasn’t a list of bad people – it was a list of people with strange nails. If they weren’t going to be honest with me about the purpose of it, I didn’t have to be honest about the names I put on it.
+
+Joan was there again. There was no small talk, but I noticed a couple of things about her that I hadn’t paid attention to the previous day. For example, she would regularly step outside to take phone calls. I have no idea who kept calling her, but it was regular, like an hourly check-in. She was just as rude to the caller as she was to me, that much was consistent.
+
+The day was fairly straightforward. I was a bit more comfortable with the procedure, even if I wasn’t happy about lying to people. I was lucky; a majority of people I talked to on the second day were ordinary. One had painted nails, but she had no issue with me checking the color. Unsurprisingly, she was clear. After a while, I could sort of tell who was fine and who wasn’t without checking the nails. There were a couple of tells.
+
+For example, those with yellow nails asked a lot more questions. They were a bit twitchier, looking around and watching their backs. They were usually pleasant to talk to, but you could tell they were more nervous. They always seemed to be one ill-thought sentence away from bursting into a sprint.
+
+ 
+
+By the end of the second day, I had five more names on my list of yellow nails. I sat down with Joan and compared notes. She counted them out.
+
+“You had nine yesterday, five today. Fourteen total.”
+
+“I had, uh, eight yesterday,” I corrected.
+
+She raised an eyebrow at that.
+
+“You sure about that?”
+
+“Yeah, eight. Sorry, I wasn’t clear.”
+
+She brought out her phone and showed me a picture. She had taken pictures of the list from the previous day. It was clear as day; there were nine names.
+
+“You covering for someone?”
+
+“I just made a mistake. I corrected it.”
+
+She looked at her phone, then back at my list. She smiled.
+
+“You *rewrote* it. I can tell which name you took off. You know her? Is that it?”
+
+“No, I don’t *know* her. I put her there by mistake.”
+
+“And you magically remembered that when you came to work today? I’m not buying it. I’m putting her back on the list.”
+
+“Hold on.”
+
+I raised a hand, asking her to stop for a moment.
+
+“Okay, yes, I removed her from the list,” I continued. “I don’t think she should be there.”
+
+“What you think, and what you don’t think, is of no consequence. We’re doing our job. Do you have a problem with that?”
+
+“Actually, yes. Why are we doing this? Who are these people?”
+
+“They’re tooth fairies, and you’re making sure all the good little girls and boys get a treat.”
+
+“Why aren’t you answering the question?”
+
+“Why aren’t you putting down the *goddamn names?*”
+
+She was shouting at me. Before the conversation could continue, she stepped outside to take another call. I only caught parts of it, but the intention was clear; she was reporting something. The discussion was over, and I was to return to my regular job in the morning. They didn’t need a stand-in anymore.
+
+When I got home, I didn’t know what to think. I felt guilty. I’m not much for conflict, and Joan just brought out the worst in me. It’s one thing to be new at your job, and another thing entirely to be caught in a lie. I wasn’t a good liar. Never was. That’s not the kind of job I signed up for.
+
+As I got home and closed the door behind me, I was looking forward to going back to my normal job. I didn’t mind doing interviews but doing them under false pretense sort of rubbed me the wrong way. I was trying to distract myself with my fancy noise canceling headphones and a brand-new audiobook, but I was having trouble focusing on the plot. Then I rounded the corner to my kitchen, and stopped.
+
+There was someone sitting there. Someone with a black ski mask.
+
+ 
+
+Before I could react, there was a hand on my shoulder. Two people. One by the table, one standing behind me. I felt something sharp against my neck. The stranger sitting at my kitchen table was slightly taller than me, somewhat muscular, and had dark eyes and skin. I couldn’t see any other particular details. I think it was a man. He slid a paper and pen over to me, as whoever was behind me urged me to sit down.
+
+“I need you to write down all the names of the people on your list,” the man said. “Don’t leave anything out.”
+
+“I don’t remember them all.”
+
+“Write them down, now.”
+
+“I told you, I don’t-“
+
+My entire world shook. It took me a moment to realize that I’d been struck in the face; the pain came much later than the impact. It felt like my face was on fire, and I could feel this immense pressure building in my skull. My neck ached from the sudden movement, and I could feel the nerves in my nose constricting as a nosebleed stained the paper.
+
+“Write,” he insisted. “*Now*.”
+
+ 
+
+I wrote down what names I could, starting with Donna. I didn’t remember all the names I’d seen on Joan’s paper, but I wrote down what I could. At one point, the one who was standing behind me got up and moved away, checking one of the windows. They talked to one another in a hushed voice. The other person was smaller, and had big, doll-like eyes. They also tilted their head slightly when listening.
+
+“You sure there’s no one else? No roommate, girlfriend, anything?”
+
+The other person shook their head. As I wrote, they took turns checking on me and going through my apartment. I think they were looking for weapons, or cash. I didn’t keep anything like that. Once I finished the list to the best of my ability (including a couple of names that I only remembered the first or last name of), they seemed satisfied. They folded up the note and moved to the front door.
+
+As they were about to leave, they stopped. The man looked through the peephole and slowly backed away. There was someone outside. Someone they didn’t want to interact with. I knew better than to interfere. They were about to leave; they wouldn’t double back just to *kill* me. If I just kept my head down and waited patiently, this whole ordeal would be over. So, despite knowing there was someone outside, I kept quiet.
+
+A woman’s voice whispered into my ear. I recognized it instantly. Donna.
+
+“Are you expecting anyone?” she asked. “Someone with a spare key?”
+
+“I have all my keys,” I said. “It’s just me.”
+
+She looked up at the man, who nodded. Then, there was a metallic click. Someone slid a key into the lock of my front door, and turned. It worked.
+
+ 
+
+The next few seconds were intense. The man rushed the door and slammed it shut, grabbing the lock and twisting it shut. He held it close, yelling at Donna to check the window in the bedroom. As she did, I heard this absurdly loud metallic noise as the front door was pulled off its hinges, straight out of the frame.
+
+I didn’t see what happened to the man that hit me in the face. I just saw him falling backwards, as he’d propped himself up against the front door, trying his best to keep it close. As the door was torn away, he fell, and I heard this flesh-like squelching, followed by a scrunch and a pop.
+
+Without so much as a second thought, I got out of my chair. Donna, still in a ski mask, came back around the corner. Something shot past her, slamming into my hallway wall, rocking the whole floor with a force that might have moved the foundation of the building. Donna grabbed me by the arm and pointed a knife at me, dragging me into the bathroom.
+
+We got in and she locked the door. Meanwhile, something was going ballistic outside, triggering all kinds of alarms and warnings. I could hear cars in the parking lot react as a series of alarms blared. Donna pressed her knife against my throat, looking me in the face. The ski mask was barely hiding anything at this point.
+
+“Was this part of it?” she gasped. “Did you tell them I came here?”
+
+“I didn’t tell them anything! I tried to remove your name! I didn’t-“
+
+There was a thump at the door, and the lights flickered. Donna grabbed my collar and pulled me closer into the knife, almost drawing blood. I tried to stay calm as I could feel my pulse pushing up against the blade.
+
+“Step back!” she demanded. “I’m walking out of here!”
+
+Whatever was on the other side seemed to disagree as a shockwave rocked the bathroom. The mirror fell over and shattered against the floor, and the shower started spewing out this steaming hot water. The ceiling lamp shut off completely, leaving only a sliver of light coming in from underneath the door.
+
+“I did everything right!” Donna cried. “I’ve lived here for years; I never hurt anyone! I didn’t even play the market!”
+
+The top of the door bent outward and came loose as something claw-like tore the corner off. Donna pressed herself backwards, her arms almost cramping as she held on to me for dear life. It felt less like keeping me hostage, and more like a desperate passenger holding on to a sinking ship.
+
+“Please don’t take me away,” she whispered. “Please, I didn’t-“
+
+The door came loose. In a sudden flash of light, I saw something vaguely humanoid standing in the doorway. There was this intense flurry of movement as Donna was pulled away from me at breakneck speed; her voice *immediately* silenced with a violent bang. It took me a moment to realize that, as she was pulled away, she’d accidentally cut me across the throat.
+
+I sat down on my toilet. My throat was warm, like I’d been burned. I could inhale, but I never felt the air reach my chest. Trying to form a word, all I managed to do was spit up a glob of blood. The wound itself didn’t hurt, but as I felt my body fail, I realized this must’ve been what dying felt like.
+
+A glowing pair of eyes looked me over. It looked like a person wearing either matte aluminum armor, or some kind of hardened plastic. My eyes blurred, but I could see them grabbing my hand. I couldn’t feel it. They lifted my hands, checking my nails. After doing so, it nodded, and spoke in a voice that I can only describe as ethereal. Like a whisper in the wind.
+
+*“Thank you for your cooperation.”*
+
+ 
+
+I blinked in and out of consciousness, not realizing what was happening. There were people shining lights into my eyes, and I had a mask over my mouth. There was this intense pressure on my neck, and I could see a bag of blood hanging from a stand. I think they were doing a transfusion.
+
+By the time I woke up, I was in a hospital. I was lying in a bed, looking up at a tiled ceiling. I was breathing, albeit with a bit of pushback. There was something wrapped around my neck, but I couldn’t feel any pain. In fact, I didn’t feel anything. I was probably hopped up on painkillers.
+
+A nurse came in to change my IV and to check on me.
+
+“I’ll let the doctors know you’re up,” she said. “He’ll be here in a minute.”
+
+She took off an empty bag and put up a new one.
+
+“Hell of a thing,” she continued. “You’re lucky to be alive. That was a nasty cut.”
+
+She adjusted something on my wrist, staying long enough for my eyes to focus. I couldn’t help but notice something on her hands. Little S-shaped indents in her nails. Her *yellow* nails.
+
+She noticed me looking. For a moment, her hands lingered on something stuck in my arm, considering her options.
+
+“What are you looking at?”
+
+“Nothing,” I wheezed.
+
+“That’s right,” she smiled. “Nothing. Right?”
+
+“Right.”
+
+“I’m glad we understand each other.”
+
+She stepped back, giving me a light pat on the arm. Her expression had changed. Her breathing was faster.
+
+“What does it mean?” I asked, looking at her hands.
+
+“It’s better if you don’t know.”
+
+“Is it dangerous?”
+
+She opened the door and stepped outside. As she turned to leave, she nodded.
+
+“Sometimes.”
+
+ 
+
+It took a long time for me to recover. I didn’t see anyone else at the hospital with yellow nails. I saw that nurse a couple more times, but we just nodded at one another in passing. She knew that I knew, but I wasn’t going to rat her out. That didn’t mean she didn’t keep an eye on me though. Before long, I was okay, and on my way; albeit with a nasty scar across my neck.
+
+I don’t know what happened to Donna or her helper. I can only imagine. I was never asked to perform another interview, and I never got as much as a text or e-mail from anyone involved in it again. I don’t think I’ve even *seen* Joan in another context, or heard anything about her. I know for a fact that it was a legitimate government assignment, but for whom, and what purpose? That’s anyone’s guess.
+
+Every now and then, I run into people with yellow nails. I’m sure you’ve seen them too. Sometimes when I ask people about them, or point them out, they seem genuinely surprised. I’m convinced some of them don’t even know they have them. Others get strangely defensive. Be careful when you look.
+
+ 
+
+I still work in the municipal government. I don’t have to lie anymore, and doing the work I was hired for feels like a return to form. The interviews I conduct nowadays are more about finding temp workers or clarifying things in resumés.
+
+But every now and then, when someone new walks into the office, I shake their hand. And when I do, I look a little closer at their nails. Ninety-nine times out of a hundred, it’s nothing. But sometimes, there’s something there.
+
+Perhaps they know something I don’t.
+
+Perhaps they know that I know.

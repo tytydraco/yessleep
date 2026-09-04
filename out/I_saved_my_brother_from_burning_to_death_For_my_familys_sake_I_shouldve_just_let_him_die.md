@@ -64,7 +64,7 @@ But he wasn’t. 
 
 “His survival was nothing short of miraculous.” 
 
-The doctor was barely audible over the incessant hum of Lev's breathing machine. I couldn’t help but fixate on the way she said that word - *miraculous*. There was no joy in her voice. No twinkle in her weary brown eyes. She uttered the word quietly, with ice in her breath, because none of it made sense.
+The doctor was barely audible over the incessant wheeze of Lev's breathing machine. I couldn’t help but fixate on the way she said that word - *miraculous*. There was no joy in her voice. No twinkle in her weary brown eyes. She uttered the word quietly, with ice in her breath, because none of it made sense.
 
 Somehow, only one side of him had been burnt. 
 
