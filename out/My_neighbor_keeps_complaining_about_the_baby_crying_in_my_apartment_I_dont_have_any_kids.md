@@ -1,0 +1,109 @@
+alright no sleep fam. please tell me i’m not losing my mind.
+
+I just moved into a new apartment complex. I’m on the bottom floor. A comfortable 2 bedroom apartment with a small kitchen and one bathroom. It’s really perfect for me, and the owner worked on the price for me. I feel comfortable here.
+
+That was until last night when my neighbor came storming to my front door. It was about 2AM and I was awoken by the sudden explosion of notifications on my phone. 
+
+MOVEMENT NOTICED: FRONT DOOR 
+
+PERSON DETECTED: FRONT DOOR
+
+There must have been 10 alerts in the last 30 seconds. 
+
+I sit up in bed and turn my noise machine off. All I hear is an angry banging on my door. 
+
+I check the camera app. It’s Theresa. My upstairs neighbor. Her bedroom sits directly above my extra room. 
+
+“What the hell?” I say to myself as I get out of bed, throw on my robe and slippers, and make my way to the front door. 
+
+I rip the door open just as she is going in to hit the door again. 
+
+“Shelby! Shut that baby up!” she screams into my face before I have a chance to respond. 
+
+“Uhm… Theresa. There is no baby in my home.” I say with a bit of annoyance in my voice. 
+
+She chuckles to herself, “Shelby, ever since you moved in that damn baby has been crying all night long. I don’t care if you aren’t married and don’t have help, SHUT THE BABY UP.” 
+
+Before I can respond she is storming back up the steps mumbling to herself. 
+
+I close and lock my door. I am awake now, no thanks to my lovely neighbor. I make my way into the kitchen for a glass of water. 
+
+“What the hell is she even on about? I have no baby in this home? And there’s no tv in that room.” I say out loud to myself trying to figure out what she could be talking about. 
+
+I haven’t even been in that room since I moved in. I haven’t decided what I wanted to do with it yet. 
+
+I drink my water and feel myself getting sleepy again. 
+
+I place the cup in the sink and make my way back to my room. 
+
+I pass that door. The one with the mysterious baby crying. 
+
+“Crazy old woman.” I mumble to myself and go back to bed. 
+
+I am awoken again, at 4AM. 
+
+But it’s not banging at my door. 
+
+It’s crying. 
+
+It’s a baby, crying, in my apartment. 
+
+“What the hell!?” I whisper to myself thinking someone will hear it. 
+
+I sit up in bed, rub my eyes and turn on my bedside lamp. 
+
+Is someone who lived here before pranking me? I’ve been here for a few weeks and haven’t heard this baby crying, ever. 
+
+I decide I will finally have to go into that room. Maybe I’m having a psychotic break? Stress from moving? 
+
+Whatever. I’m going to check this room and I am going back to bed. 
+
+I walk across my cold hardwood floor and find myself shivering. 
+
+I make my way down the hallway and stand in front of the door. I reach my hand to grab the doorknob and feel a chill going through me. I’m still hearing this baby crying and I cannot for the life of me help but worry for what I will see behind this door.
+
+I bite the bullet and shove the door open. The crying continues. The room is set up perfectly as a nursery for a small baby boy. 
+
+A crib, rocker, changing table, and a crib are in the room along with some sweet decor and some outfits. 
+
+I make my way to the crib where the crying is coming from. What the hell do I do if there’s a baby in this crib?
+
+As I approach I find myself holding my eyes shut. I feel myself hit the side of the crib. The crying continues. 
+
+I open my eyes and feel my heart shatter. 
+
+There is no baby. 
+
+There is a small baby monitor with a cry coming from it that is so loud it’s making my teeth hurt. 
+
+A sonogram is placed beside it. My name, Shelby Daniels, is placed on top. 
+
+A blanket monogrammed with the name, Owen, catches my eye. 
+
+I can feel myself crying before I even know what I am doing, I grab the monitor and shut it off. 
+
+I sink to the floor beside the crib as I cry.  
+
+I know this baby. This was my baby. Owen was 2 months when he died from unknown cause. My heart was in pieces, my boyfriend left me. I was alone recovering from the worst thing to ever happen to me. 
+
+This room was a room for my son. My dead son. 
+
+Just as I close my eyes, I hear it, crying. 
+
+The baby monitor in my hand is silent… but the crying is coming from somewhere. 
+
+I rub my eyes again, it has to be sleep deprivation. 
+
+I open my eyes, I’m back in my cell. Alone and cold. No apartment. No neighbor. No life. No baby. 
+
+Just me, in a cage, alone. 
+
+My boyfriend standing on the other side of the door. 
+
+“Has she shown any improvements?” I hear him asking a nurse who I standing on the other side of the door, looking at me.
+
+“No. She keeps waking up every night, claiming she hears crying from her baby son, Owen.” The nurse replies. 
+
+“There was never a baby. She woke up one morning and went insane. I cannot believe she is keeping this going.” He says as he looks at me through the bars of my door. 
+
+I don’t care what he says, I hear the crying again, and I know i’ll be home again soon. 
