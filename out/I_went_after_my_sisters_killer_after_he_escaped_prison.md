@@ -1,0 +1,132 @@
+“It should have been you in that box, not her.”
+
+That was the first thing my lovely grandmother told me, at my sister’s funeral. She said it in a perfectly pleasant way, as if she were teaching her grandchildren about some obscure yet inconsequential facet of family history. Her statement sent hushed whispers across the members of my family, while some pretended not to hear it as to not make a scene. I think the worst part was that I knew she was right, and everyone else did too.
+
+A week after the funeral, my grandmother was diagnosed with dementia. Her social faux pas was chalked up to her unfortunate condition. The entire family was secretly grateful that lovely grandma Ethel’s brain was falling apart at the seams.
+
+The year was 1981. Drunk driving laws hadn’t been established yet, and a man had rammed into the car my 15-year-old sister and her 19-year-old boyfriend had been in, killing her on the spot. 
+
+In a couple hours, our family was turned into a spectacle. We lived in a deep south small town, so while everyone was all condolences and crocodile tears to our faces, they whispered all sorts of obscenities behind our back before her body was even in the ground. 
+
+The boyfriend survived the accident with minimal injuries. He and his family disappeared from the town as soon as he was discharged from the hospital. I heard some connection they had with a senator halfway across the country kept the police and the press off their backs. They were quite well off, so they could afford to jump ship in a pinch.
+
+While our tiny town was abuzz with gossip about my dead little sister, I sat home and ruminated about what my grandmother had told me on the day of the funeral. It was all I could do, save for listening to my mother wail and throw around furniture or listening to what everyone else was saying about us. 
+
+My sister was a golden child, that much was true, and while it didn’t spare her from the entire town turning on her as soon as she was dead, it gained her boundless adoration in life. She was ever the overachiever in school and quite popular to boot. All the boys wanted to be with her (and those who tried were roughed up by me) and all the girls wanted to be her. Sometimes I wanted to hate her for taking all the love and adoration for herself, but I never could, she had me under her spell too.
+
+I spent an entire year feeling sorry about myself, and wishing it was me in that box. I was on autopilot, and the entire year was a blur.
+
+I was shaken out of my grief and self-loathing induced stupor when one of my friends, a kid named “Erskine”, told me that the man who had killed my sister escaped from prison.
+
+“Word is, he gnawed through the straps they had on him”, Erskine told the lunch table grimly. “He’s out there in the sticks, surviving on lizards and shit”.
+
+“When was this?”, I asked, to the table’s surprise. I must’ve sounded terrible, because the vague excitement and interest in everyone’s faces turned solemn. 
+
+“Sometime this month”, Erskine mumbled out like a kid confessing to robbing the cookie jar. “Before you ask, I heard it from Scott, so I don’t think it’s true or anything”.
+
+Scott was an odd kid. His dad was a conspiracy nut, always talking about devil worshippers out in the desert and how Raegan shook hands with Iranians. Scott somewhat took after his dad, but he was quite absent minded. He often zoned out and talked about dreams he had. His dad believed the government was sending him dreams, the school psychologist believed he was schizophrenic, in reality, he was most likely autistic.  
+
+That day, after school, I pulled Scott aside. I was far rougher with him than I intended to be. I yanked him away from the loose file of kids walking towards their bus home. 
+
+“Where’d you hear about the escapee, Scott?” I sounded monotone, like I was threatening him.
+
+“Stop it!” he whimpered, holding his eyes shut and bracing for impact. Seeing him like this broke my heart, even though I never particularly cared for him.
+
+“Calm down and listen to me. I just want to talk about what you told Erskine about the driver that killed my sister. Is it true? Did he really escape or is this some weird, fucked up dream you had and decided to spread around the school?” I wanted to sound calm and reasonable, but any “gossip” about my sister’s death made me feel like a clogged pressure cooker.
+
+“It wasn’t one of the dreams, I swear. They took dad away again last night, and I heard the pigs talk about it. That’s the truth please don’t hurt me!”
+
+“I’m sorry”, I managed dryly, though it wasn’t nearly enough to express the remorse I felt. “Thank you for telling me. And I’m sorry about your dad too”.
+
+Scott scampered away, holding back sobs. The guilt I felt gave way to curiosity, and a low anger. I fantasized about what I would do to the driver often for the first few months. While the frequency of my fantasies lessened over time, their violent nature never went away. I sat down next to Erskine in the bus, intending to tell him my plan, but he spoke first.
+
+“Sorry about lunch today. I got carried away, I know you don’t like that sort of talk”.
+
+“It’s okay. If anything, I should be thanking you. I didn’t even know I was looking for this kind of opportunity”.
+
+Erskine was quiet for a moment and I could see the gears in his brain turning. He wasn’t sure if he had heard me right.
+
+“I’m going out into the sticks, tomorrow night. I want to get my hands on this bastard.”
+
+I half expected Erskine to protest, to tell me I’m just a dumb kid about to get myself killed. I didn’t realize it then, but I think I wanted the latter to happen. Erskine’s response was curt.
+
+“I’m coming too”.
+
+Everything was moving too quickly for my mind to keep up. One moment I was having a meal with what was left of my family - having just arrived from school - the next I was sneaking out of my bedroom window to meet my friend. When I met Erskine, the speed of the day caught up with me. I shook myself out of the sudden, jarring realization of what was about to happen as Erskine walked towards me.
+
+“We don’t have to do this, you know.” Erskine offered me a way out.
+
+“No. Come on, we have a walk ahead of us.”
+
+We barely spoke on the way to the outskirts of the town. I thought about how insane we were to even attempt such a thing. Two high school kids, walking out into the desert to track down an escaped criminal. It sounded like some sort of joke. 
+
+We were walking past the local gas station when we heard it. A sudden crash cutting through the evening silence. It startled the both of us, but the scare was replaced by confusion when we turned to face the source of the sudden noise.
+
+It was Scott, he had just smashed through the shoddy glass door of the gas station. He stumbled his way through the street seemingly running away from someone. He yelped when he saw us, or rather, saw me; and quickened his pace. Thankfully, Erskine was a quick kid.
+
+It took little time for Erskine to catch up with Scott, who was inconsolable. Something had clearly terrified him out of his mind.
+
+“I didn’t even make it home” he cried. “The dreams and the hangman, they came after me”.
+
+We considered taking Scott to a hospital. Weird as he was, Scott was never this detached from reality. 
+
+“You’re going after the killer, right? The jailbreak? The hangman told me. He said the killer soured his bile. He said he upset him.”
+
+I could only gawp.
+
+“I’m coming with you two; I have to know what the dreams are, I have to know why they took dad away. He said it's my fault and I have to know that's not true.”.
+
+“No way we’re letting him follow us” Erskine said. “I trust him as far as I can throw him, and I don’t want to end up lost in some desert with my head smashed in”.
+
+“This kid just said he had an honest to god premonition of us going into the sticks looking for some escaped convict. I don’t know about you but I don’t think he’s a threat to us more than he’s a threat to himself.”
+
+“And what if he’s a threat to us \*and\* himself?” 
+
+“If you think so, you’re welcome to go home.” 
+
+Erskine sighed and shook his head, but he made no attempt to leave. I could tell that he thought this little trip was growing more insane by the minute. He really did feel guilty enough to follow me into this mess, or maybe he was just reckless.
+
+Scott, to his credit, was calm as we walked into the sparsely wooded wilderness. The sun still hung overhead, scorching and angry, we would have no need for torches.
+
+We thought that the walk was mercifully short, although in hindsight a long walk and a lack of sunlight may have spared us from what we would have witness in the badlands outside of town. The air was dry and tinged with a hint of something burning, and I could feel a headache setting in. Crunching through baked earth and dry trees we made our way to the relatively, but still sparsely, greener part of the wildnerness. We were officially "too far" from civilisation. Erskine seemed on edge and Scott seemed absent. Through the headache I could hear Scott muttering to himself. I tried to talk, to ask him what he was saying, but a sudden ringing in my ear grew suddenly loud, and I felt myself slip off my feet.
+
+Darkness. Then a wet rumbling, a distorted view of Scott and Erskine, arguing. Then darkness again.
+
+I opened my eyes a few minutes later, to a mouthful of dust and the arguing of my companions. I was propped up against a tree and from my position I could see the mouth of a cave to my left. I tried to tell them what I saw, I tried to point to the cave, but I couldn't talk. The left side of my face was drooping, and mustering up the energy to lift my arm was all I could do. 
+
+"That's what happened to my father!" exclaimed Scott. "Before all the dreams, before the suits. He said his face drooped something fierce for days and he couldn't move at all."
+
+Erskine had no patience for him.
+
+"If you're so interested, why don't you go into that cave and get yourself nice and lost, huh Scott?" His tone was nothing but disdain.
+
+"Listen man, I think you had a damn stroke or something, just sit tight and I'll try to get a signal on my phone." Erskine's tone softened when he turned to talk to me, but he failed to notice that Scott was indeed going into the cave. I insistently pointed at the cave, tired to make any and all sound I could, but Erskine was too distracted.
+
+"Don't push yourself. Listen, I'm sorry for all that talk today, I know I shouldn't have said anything and I've been feeling awful about it the whole day".
+
+Something moved in the darkness of the cave. I tried to scream.
+
+"I don't think I ever told you this, but I lost a cousin years ago. I know how you feel, man, I promise I do. That's why I knew I should have kept my damn mouth shut." 
+
+As Erskine was fumbling with his phone, a yelp sounded from the cave, Erskine failed to hear it.
+
+"I guess all of this is to say, I'm real sorry. Maybe I don't know what it feels like, but I have a good estimate, I know I shouldn't-"
+
+Something came flying out the cave mouth, spinning in the air and splattering Erskine and I in coppery red fluid.
+
+We froze. I forced my hopelessly stiff neck to move, just enough to see whatever had flown out of that cave. I came face to face with the man that had ruined my life.
+
+Erskine screamed. As if in response, the cave belched forth an explosion of gore. The cold, rancid blood showered me, I could feel the tiny particles of bone prickling my skin, and mixed in the horrid mess that had blanketed us were scraps of fabric. 
+
+I wouldn't have blamed Erskine for leaving me then and there, but he was too busy vomiting to go anywhere. He retched, attempted to collect himself, slipped on the wet ground, then retched again. In his predicament, he failed to notice the shape that was growing out of the cave. 
+
+One last thing emerged from the damnable cave. It was Scott, hung by the neck from a noose bound to nothing, floating above the ground. He was still twitching, tears in his eyes. His face showing the same lividity as the killers, only his eyes were clear and showed nothing but terror.
+
+"Help me." He choked out. 
+
+That was the last time anyone ever saw Scott.
+
+Erskine managed to carry me all the way back to a place with signal. The stroke I suffered, and the amount of time that passed before I recieved any medical attention, rendered me partially paralyzed. I haven't been able to use the left side of my body since then. 
+
+We talked to the police about what happened, asked about Scott and his dad. They told us that Scott's dad was taken in for vandalism. I don't know if they believed us or not, but only a single search party went out there to look for Scott. 
+
