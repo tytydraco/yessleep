@@ -14,7 +14,7 @@ I understood his frustration. We’d supported Lev for most of his adult life - 
 
 “And this time…I don’t know. It’s different.” 
 
-I veered off the highway. Loose Cheez-Its and some old pacifiers audibly shuffled across the car’s interior. I drove by the last flickers of civilization - the rundown gas stations and the boarded-up townhomes - and that’s when I saw it, drifting thick over the treetops. 
+I veered off the highway. Loose Cheez-Its and old pacifiers audibly shuffled across the car’s interior. I drove by the last flickers of civilization - the rundown gas stations and the boarded-up townhomes - and that’s when I saw it, drifting thick over the treetops. 
 
 A plume of smoke.
 
@@ -42,7 +42,7 @@ His body rose into the air, bucking the collapsed beam with ease. 
 
 He floated toward me, limp like a ragdoll, charred knuckles dragging across the dirt. 
 
-Up close, I saw the discoloration across his unburnt skin. Splotches of blue and pink and black. He was covered in paint. 
+Up close, I saw the discoloration. Splotches of blue and pink and black. He was covered in paint. 
 
 And then, *plop* \- Lev fell at my feet. 
 
@@ -84,7 +84,7 @@ Hazy spotlights reflected orange halos across the windshield. Bleary-eyed and wo
 
 I drifted off. 
 
-In that brief lapse, I had the strangest vision. The sight of a hand approaching my mouth, wet fingers the color of fresh snow hooking under my teeth, stretching my jaw wide. Of an arm shoving past my molars, fingernails scraping against the inside of my throat; a five-legged tarantula burrowing deeper and deeper. Part of me wanted nothing more than to just let it happen: to give in, give up, give myself and my burdens away. 
+In that brief lapse, I had the strangest vision. The sight of a hand approaching my mouth, wet fingers the color of fresh snow hooking under my teeth, stretching my jaw and squeezing inside, shoving past my molars, past my tonsils, a five-legged tarantula burrowing deeper and deeper, fingernails scraping against the interior of my throat. Part of me wanted nothing more than to just let it happen: to give in, give up, give myself and my burdens away. 
 
 But I couldn’t. 
 
@@ -106,7 +106,7 @@ Their torso was rigid, porcelain-white, and still. 
 
 Their hands were clasped in their lap. 
 
-Their eyes were tiny black pinpoints. 
+Their eyes were sparkling black pinpoints. 
 
 I gasped, stiffened, blinked. 
 
@@ -316,7 +316,7 @@ Sam had my palm in a vice grip. As my hand swung, it grazed the still-unsheathed
 
 It wanted to get to my brother, and I’d learned what would happen if I refused to cooperate. 
 
-I pleaded with him to let me take Alicia with us. She was four, and she was petrified beyond words: I couldn’t just leave her home alone. Sam shook his head. He twisted the box cutter against his skin, and blood began to flow: a small, accelerating trickle. I shouted that I’d leave her behind. Only then did he pull back. He threw on a coat with a collar large enough to hide the cut and directed me outside, gesturing to the driver’s seat of our sedan. Alicia had her face pressed into the foyer window as we pulled away. 
+I pleaded with him to let me take Alicia with us. She was four, and she was petrified: I couldn’t just leave her home alone. Sam shook his head. He twisted the box cutter against his skin, and blood began to flow: a small, accelerating trickle. I shouted that I’d leave her behind. Only then did he pull back. He threw on a coat with a collar large enough to hide the cut and directed me outside, gesturing to the driver’s seat of our sedan. Alicia had her face pressed into the foyer window as we pulled away. 
 
 Sam reached for the handle to Lev’s room. 
 
@@ -372,7 +372,7 @@ An orderly knocked into me as he rushed out of the room. He was holding a plasti
 
 I returned my attention to Sam. 
 
-He was on his back now. A nurse was straddling him, pushing his hard into his chest with a pair of cupped hands. His eyes were empty. His jaw was wide and relaxed. Something began to emerge from his open mouth. A bouquet of wriggling, pearly fingers. Then a pair of twisting arms. And eventually, a complete woman, with porcelain skin and beady black eyes the size of deer ticks. 
+He was on his back now. A nurse was straddling him, pushing hard into his chest with a pair of cupped hands. His eyes were empty. His jaw was wide and relaxed. Something began to emerge from his open mouth. A bouquet of wriggling, pearly fingers. Then a pair of twisting arms. And eventually, a complete woman, with porcelain skin and beady black eyes the size of deer ticks. 
 
 No one reacted. 
 
@@ -400,7 +400,7 @@ Aunt Ida congratulated me. 
 
 The police didn’t feel compelled to investigate Sam’s death. To them, it was all pretty straightforward. 
 
-The mechanism was strange, but it was simple. Hemorrhagic shock. Blood loss from a severed femoral artery.
+The mechanism was strange, but it was simple. Hemorrhagic shock. Blood loss from a severed femoral artery. A man who fell onto a box cutter at the perfect angle.
 
 The motivation was even simpler.
 

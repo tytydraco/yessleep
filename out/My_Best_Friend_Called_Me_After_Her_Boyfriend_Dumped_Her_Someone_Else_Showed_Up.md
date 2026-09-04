@@ -1,0 +1,469 @@
+“Hey, Phil...” Anna said weakly over the phone. “I just... I don’t know... Am I bothering you?”
+
+“Huh?” I replied, still half-asleep and caught off guard. “No! Of course not.”
+
+Anna had interrupted my Saturday night movie marathon, but there was no way I was going to admit that the only thing she had interrupted was me sitting on my couch with a bag of chips, binge-watching Indiana Jones.
+
+“Listen...” Anna continued sadly. “Ah, shit... Mark dumped me... and I feel like absolute shit... Can I come over for a while?”
+
+I was lying on my couch with a half-empty bag of chips beside me, dirty laundry scattered all over my apartment, while Indy was running from the giant boulder on my TV. It definitely wasn't the kind of situation where I was ready to have a woman over.
+
+Especially not Anna.
+
+We met during our freshman year of high school. She was a tiny blonde girl with freckles and braces. I was a World of Warcraft nerd. We became friends almost immediately, and we stayed close all the way through graduation.
+
+Anna became popular over the years. The other guys started noticing her. I stayed exactly what I'd always been, just an average guy.
+
+By the time high school ended, we found out we'd both been accepted to the same university. We studied different majors, but that only made our friendship stronger. Anna was always kind to me. She considered me a real friend.
+
+Even if I wanted to be something more… I never had the courage to tell her.
+
+Anna dated a lot of guys over the years. Some were better than others, but none of them lasted very long. Until Mark. Mark was different. He was the love of her life. For the last two years they were practically inseparable.
+
+And I slowly faded into the background.
+
+Until now.
+
+“Phil? You still there?” Anna asked quietly.
+
+“Yeah! Yeah, sorry.” I answered quickly. 
+
+“I thought maybe you stopped listening.”
+
+Of course I hadn't stopped listening.
+
+I'd always felt more for Anna than friendship. And now that Mark was out of the picture... maybe, just maybe, I finally had a chance.
+
+“It's okay if you're busy,” Anna continued. “I'll figure something out. I just... it'd be nice to see someone.”
+
+I argued with myself.
+
+Should I tell her I wasn't available and ask her to meet me somewhere tomorrow instead? That would be the decent thing to do.
+
+Or does decency even matter in love and war?
+
+Was I really going to take advantage of Anna's heartbreak because it might finally give me a chance with her? Would that make me the bad guy? Or was that still Mark?
+
+“Listen, Anna...” I searched for the right words. “What happened? Did Mark say anything?”
+
+“He just kept making up this stupid bullshit,” Anna muttered. “He said I'm not the same person I was when we first met. That sometimes it's like I'm a completely different person around him. He was just talking nonsense. I'm sure there's something else going on.”
+
+I'd known Anna for years. I believed her.
+
+She was a good person. Probably the kindest person I knew. Always kind. Always friendly.
+
+The idea that she'd somehow become... someone else?
+
+I didn't believe it for a second.
+
+“Alright. Come over.” Even I surprised myself with my answer. “I'm home.”
+
+“Really?” Anna's voice brightened immediately. “I'm leaving now. I feel so awful. Should I bring anything?”
+
+“No, don't worry about it.” I reassured her. “I've got everything we need.”
+
+“Okay... Phil...” Anna's voice caught for a moment. “Thank you.”
+
+It took me about half an hour to clean up my apartment.
+
+I hadn't really cared how messy the place had gotten lately. But now that Anna was coming over, suddenly everything bothered me. I picked up the clothes scattered around the floor, washed the dishes as fast as I could, and vacuumed the parts of the apartment people could actually see.
+
+All that was left was waiting for Anna. I knew I had a bottle of wine somewhere, and eventually found it buried in the back of the fridge. Perfect for tonight.
+
+The sudden buzz of my intercom startled me. I flinched at the sharp sound.
+
+“Hello?” I answered, already assuming it was Anna.
+
+But no one spoke. Other than a faint hiss of static, there was complete silence.
+
+“Hello?” I repeated, more cautiously this time.
+
+“Oh... Yeah... umm... It's Anna,” the girl answered awkwardly.
+
+“Buzzing you in.”
+
+The intercom buzzed as I unlocked the front door, and I waited for Anna to take the elevator up to the fourth floor. She'd been here once before, right after I moved in six months ago.
+
+Hopefully she still remembered which apartment was mine.
+
+I took one last quick lap around the apartment to see if there was anything else I should hide away.
+
+Then I waited. And waited. Far longer than I should have.
+
+She should've been upstairs by now.
+
+I walked over to my front door and peeked through the peephole.
+
+Anna was standing in the hallway. In front of my neighbor's apartment.
+
+Just... standing there. Waiting.
+
+Rolling my eyes, I opened the door to let her know where I actually lived.
+
+“Anna?” I called softly into the hallway.
+
+The slender blonde turned toward me, her blue eyes looking confused.
+
+Lost. Like she didn't recognize me.
+
+“Anna! Over here.” I waved from my doorway.
+
+Her face finally lit up.
+
+She stumbled awkwardly toward me before eventually making it to my apartment.
+
+“Come on, get in here.” I took hold of her thin, pale wrist. “My neighbors are weird. Someone's going to get the wrong idea.”
+
+Anna didn't say a word. She just smiled gently and blinked slowly. Like her mind was somewhere far above the clouds instead of here with me.
+
+“Anna... are you okay?” I asked as I shut the door behind us and guided her farther inside.
+
+“Umm...?” she mumbled slowly. “Yeah? Yeah... I'm fine.”
+
+I looked her over suspiciously. Her eyes were just as beautiful as ever. But there was something distant about them. Like she wasn't entirely sure where she was.
+
+A faint blush spread across her freckled cheeks, while her head slowly rocked from side to side.
+
+Only one thought crossed my mind.
+
+“Anna... have you been drinking?” I asked, sounding more like a concerned father than a friend.
+
+“Me?” she asked, staring at me with those big blue eyes. “No... I don't know... maybe?”
+
+Then, as if she'd only intended to take half a dance step, she spun once and flopped down onto my couch. She looked at me through slow, sleepy blinks. Almost like she was waiting for something. Or waiting for me to come closer. My conscience started eating away at me.
+
+The poor girl had just been dumped after a two-year relationship. She'd either gotten completely wasted or taken something just to numb the pain. And here I was… The friend she trusted...
+
+Thinking maybe this was finally my chance to sleep with her.
+
+I swallowed hard.
+
+“Do you... want anything?” I asked nervously.
+
+Anna didn't answer. She just watched me with those blue eyes.
+
+Softly. Gracefully. Like she was studying me.
+
+It felt less like two old friends sitting in the same room… and more like two complete strangers trying to figure each other out for the first time.
+
+“What do you have to drink?” Anna finally asked.
+
+“I've got some chilled wine,” I answered without thinking. “If you like wine.”
+
+“Maybe?” Anna said, almost sounding like she was asking herself. “Yeah… That'll do.”
+
+I wasn't sure giving Anna more alcohol was a good idea.
+
+But… I was here with her. If anything happened, I'd take care of her. She'd be safe.
+
+At least, that's what I kept telling myself.
+
+The cork came out easily, even though it took me a minute to find the corkscrew buried in one of the kitchen drawers. I glanced over at Anna, sprawled lazily across my couch.
+
+She was staring at the ceiling.
+
+One arm rested across the back of the couch, as if she were lying beneath a sky full of stars on a warm summer night.
+
+I had no idea what she'd taken, or how much she'd had to drink, but I'd never seen her this messed up before.
+
+I knew she'd been crazy about Mark. She'd really believed he was the one. And the asshole had just walked away from her.
+
+I grabbed my only nice pair of wine glasses along with the bottle and wandered back into the living room, lost in thought.
+
+“Here we go,” I said with a gentle smile.
+
+Anna didn't react. She simply stared at the ceiling with an exhausted, vacant expression.
+
+“Anna? You still with me?” I joked.
+
+Still nothing. Her body was sitting on my couch… but her mind felt like it was somewhere impossibly far away.
+
+“Anna?” I asked again, more cautiously this time.
+
+“What?!” Anna suddenly jerked upright, startled. “Yeah... I'm here. I'm here!”
+
+I stood frozen in the middle of my living room.
+
+She looked… Broken. Traumatized.
+
+Could Mark dumping her really have affected her this badly?
+
+None of her previous breakups ever had. Hell, one of her exes got dumped and she went clubbing the very same night.
+
+So what the hell was different now?
+
+“Here.” I awkwardly held out one of the purple wine glasses.
+
+Anna examined it suspiciously. Like she'd never seen a wine glass before.
+
+Sure, it wasn't exactly fancy… but it definitely didn't deserve that kind of reaction.
+
+“How much do you want?” I asked, still wondering whether I should even be giving her more alcohol.
+
+Anna blinked slowly and rubbed her face. She looked like someone who hadn't slept in days.
+
+Still...
+
+She didn't answer. She just sat there, almost as if she'd fallen under some kind of spell.
+
+“So... how much?” I asked again, holding the bottle out toward her.
+
+Anna studied the bottle with the curiosity of a small animal. Then, without warning, she snatched it out of my hands. She tipped it back and started drinking straight from the bottle like a raging alcoholic.
+
+I couldn't even find the words. She just kept drinking. And drinking.
+
+Wine spilled down her slender neck, soaking into her clothes.
+
+“Anna, Jesus, that's enough!” I grabbed the bottle.
+
+She wouldn't let go. She clung to it like her life depended on finishing every last drop.
+
+For a few ridiculous seconds, it felt like we were trapped in some stupid cartoon.
+
+I was pulling on one end of the bottle, while Anna desperately drank from the other.
+
+With one loud pop, I finally managed to wrench it out of her grip.
+
+“Aaaahhh...” Anna sighed with satisfaction, smacking her lips.
+
+“What the fuck is wrong with you, Anna?” I snapped, slamming the bottle onto the coffee table.
+
+Then I grabbed her thin face with both hands and turned it toward me.
+
+She was completely out of it. Her eyelids barely stayed open. Her breath reeked of wine.
+
+She kept smacking her lips like a baby that had just finished eating. I pulled one of her eyelids open so I could get a better look.
+
+Her pale blue eyes looked unfocused. Her pupils were enormous. Her gaze drifted aimlessly from side to side.
+
+She had to be on something...
+
+But where had she gotten it? And what the hell had she taken? Was it Mark's?
+
+I angrily set the wine bottle down on the kitchen counter. The moment I let go of her head, Anna drifted off on my couch.
+
+I couldn't help feeling like the entire universe was against me. Would I really be such a terrible person if, after all this, I still hoped that maybe...just maybe...this could finally be my chance with Anna?
+
+After all these years. After all the imaginary confessions I'd played out in my head.
+
+Didn't I deserve at least one break?
+
+I put the wine glasses back in the cabinet. I wasn't much of a wine drinker anyway. Since Anna had already finished three quarters of the bottle, I dumped what was left down the sink. This night had turned out absolutely nothing like I'd imagined. I started wondering whether I should take Anna to the hospital... or maybe just get some food into her and hope she'd feel better.
+
+For now, I let her sleep on the couch. It seemed like the most reasonable thing to do.
+
+As I searched through the snack cabinet for something Anna might actually eat...I heard something.
+
+A strange sound.
+
+Like the faint buzz of static coming through my speakers. Then came the familiar chime of a Bluetooth device connecting.
+
+An instant later, my entire home theater system exploded to life.
+
+The walls of my apartment practically shook as the opening of Baddadan blasted through the speakers.
+
+A wave of panic hit me. It was ten at night. The music was deafening. I sprinted the few steps back into the living room.
+
+And Anna...
+
+Anna wasn't on the couch. She was standing in the middle of the room, spinning.
+
+Her blonde hair swirled around her flushed face, a blissful smile stretched across her lips.
+
+“Anna, what the fuck?!” I shouted over the music.
+
+She didn't answer. She just kept jumping and spinning. Like she was at some nightclub where tomorrow simply didn't exist.
+
+Or maybe, maybe she was reliving her teenage years.
+
+“God damn it!” I yelled, hurrying toward the speakers.
+
+“Nooooo!” Anna pleaded as she grabbed my hand. “Please! Come dance with me. Please!”
+
+“Anna, for fuck's sake, I have to turn it down!” I snapped.
+
+“Awww, come on.” She pressed herself against me. “Just have a little fun. Relax.”
+
+This wasn't Anna. A few minutes ago she'd barely known where she was. Now she'd transformed into the queen of the dance floor, ready to party until sunrise. She was acting like a completely different person. But the moment she pressed herself against me and slowly ran her hand across my body, my panic faded.
+
+I swallowed hard.
+
+My eyes couldn't leave her. She swayed her hips in that little white summer dress while one hand traced across my chest and the other moved with the rhythm of the music.
+
+“Anna...” I swallowed again. “Anna... please. I...”
+
+“What's wrong?” she asked, stopping mid-spin to look at me. “Come dance with me.”
+
+She took my hands and pulled me against her.
+
+My hands settled on her hips while she continued moving her body. My heart pounded.
+
+I could feel the warmth of her skin. The music thundered around us. The whole thing felt unreal.
+
+The woman I'd been in love with for years. The woman I'd never been more than friends with… was practically throwing herself at me.
+
+The air suddenly felt heavy.
+
+My palms were already sweating.
+
+“What's wrong?” Anna whispered, leaning so close our faces were almost touching. “Don't you like me? Isn't this what you wanted?”
+
+“What?” I whispered back. “Anna?”
+
+She smiled.
+
+Then… She froze. Completely.
+
+She simply stared into my eyes, blinking slowly, swallowing loudly.
+
+“Anna... are you okay?” I asked, grabbing her shoulders and gently pushing her back.
+
+She gave me one last look.
+
+Then she vomited all over my chest. It erupted out of her like a fountain.
+
+Hot. Reeking of wine. It soaked my shirt and ran all the way down my legs.
+
+“Jesus Christ, Anna!” I shouted in shock.
+
+But Anna simply slipped from my hands and kept vomiting onto the carpet in my living room.
+
+I was sitting on the couch beside Anna again, my nerves completely shot.
+
+My apartment reeked of vomit. I rubbed my forehead and silently cursed this entire goddamn day.
+
+I'd already turned the music off, but I couldn't bring myself to start cleaning up the mess. Hell, I was still wearing the same clothes Anna had thrown up all over.
+
+“What the fuck did you take, Anna?” I asked, staring at her in frustration.
+
+She didn't answer.
+
+She was slumped across the couch again, her face still smeared with chunks of vomit. After she'd finished throwing up all over my carpet, she'd collapsed face-first into it.
+
+I'd had to drag her back onto the couch.
+
+“Anna? Can you hear me?” I asked, my voice growing irritated.
+
+She just grinned at me.
+
+Her breath still reeked of wine and vomit.
+
+The whole situation made me feel like I was babysitting someone completely strung out on drugs.
+
+“God damn it...” I muttered. “I'm taking you to the hospital. You look like absolute shit.”
+
+The moment I stood up, Anna grabbed my wrist.
+
+“Please...” she looked up at me sadly. “Don't. I promise I'll be okay. I'm fine.”
+
+“For fuck's sake, Anna.” I rubbed my tired eyes. “You had to have taken something. You're completely out of it. I... fuck.”
+
+She simply flopped back onto the couch like a rag doll.
+
+“Do you want me to get you something?” I asked, giving in.
+
+“Get me something?” Anna repeated.
+
+“What?”
+
+“Water,” she answered simply.
+
+“Okay.” I nodded uncertainly. “I'll get you some water.”
+
+“Warm water. A mug of warm water,” Anna said almost mechanically. “A little salt. Two teaspoons.”
+
+“What?” I stared at her.
+
+“A mug of warm water. A little salt.” She repeated herself.
+
+I just blinked. It sounded like she was reciting a recipe.
+
+Or...
+
+I don't know. Maybe it was some weird hangover cure. With a sigh, I decided to get her what she'd asked for.
+
+I walked into the kitchen, filled a mug with warm water, stirred in the salt, and carried it back into the living room like it was nothing more than a glass of orange juice.
+
+Anna was no longer sprawled across the couch. She was sitting perfectly upright.
+
+Rigid. Staring straight ahead into nothing.
+
+“Anna?” I stopped in my tracks. “Are you okay?”
+
+“Yeah... okay?” she mumbled.
+
+“Here. Your water.” I held the mug out to her.
+
+With stiff, jerky movements, Anna raised her arm and took it from me.
+
+Then she gripped the mug with her thin fingers so tightly it looked like she was hanging onto her own life.
+
+I instinctively took a step backward.
+
+She'd been acting strangely all evening, but now she was becoming something that actually scared me.
+
+“Anna... are you okay?” I asked again.
+
+She simply straightened her back even farther. As if someone were pulling her upward by an invisible string.
+
+I swallowed hard. My courage disappeared.
+
+A loud crack echoed from Anna's back. My eyes widened.
+
+She stretched upward again.
+
+It looked as though her spine had grown longer. I stood there frozen.
+
+Barely breathing.
+
+Then...
+
+My intercom buzzed.
+
+I glanced at the buzzing speaker for only a second, before looking back at Anna.
+
+She was impossibly tall now.
+
+Like someone was slowly pulling her apart, stretching her like a figure made of clay.
+
+Carefully, I started walking toward the front door while the intercom continued buzzing.
+
+I shuffled sideways the entire way...
+
+Never taking my eyes off Anna. She looked as though someone had forced a steel rod straight through her body.
+
+Slowly...
+
+I reached for the intercom.
+
+“Hello?” I said, barely able to keep my voice steady.
+
+“Hey, Phil,” Anna's cheerful voice answered. “I finally made it. Damn, I barely missed the last bus... Can you buzz me in?”
+
+My heart skipped a beat.
+
+I couldn't answer. I just stood there...
+
+Staring.
+
+How could Anna have only just arrived?
+
+Then...
+
+Who had I let into my apartment an hour ago?
+
+What...was sitting on my couch?
+
+Terrified, I slowly looked into the hallway mirror that reflected part of my living room.
+
+The thing sitting on my couch barely fit inside the room anymore. It had stretched so tall that its head was far too close to the ceiling.
+
+It was still clutching the mug.
+
+And its face… Its face had twisted into an impossibly wide, inhuman grin.
+
+I swallowed.
+
+And in that moment...
+
+I regretted inviting Anna over.
