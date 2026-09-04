@@ -1,0 +1,125 @@
+I did not plan on bringing him on my trip - this is the most important thing you should know. My relationship with my dad had never been great, and I had often considered going no-contact with him. But on the eve of my first solo hiking trip I got a simple text:
+
+*Hey I heard you were camping this weekend. I loaded my gear in the car - I will pick you up at 6am.* 
+
+And just like that - he took it from me.
+
+I camped a lot with him as a kid and I never enjoyed it. I know a lot of you probably have great stories of camping with your parents, but my dad had a special skill of making these trips unbearable. The packing would be stressful, he always hiked faster than I could (I was a chubby kid), and I would always feel like him bringing me was just an excuse to get away from my mom. We would never talk about my interests or hobbies, instead we would just hike and fish and he would spend a lot of time alone. 
+
+I hated those trips, and that hatred made camping as an adult a difficult challenge for me. I had to spend years trying to heal that wound. Therapy, hiking, and several camping trips with my wife finally helped me grow confident enough to do it on my own. I actually was excited to solo camp - I had a great little tent, all the gear I needed, and plenty of weed and music to enjoy.
+
+Quick aside: listen to the Ween album "Live in Chicago" while stoned and looking at a mountain lake. It's an incredible experience.
+
+So here I was, feeling confident and proud of myself, and in a single text I felt the floor get pulled out from under me. The sinking feeling in my chest, mixed with the anxiety of having to now spend time with my father, was nearly unbearable. I did not sleep that night. I didn't even tell my wife, instead I just lay in bed until 5:30, trying to convince myself to set a boundary, but I failed. Instead of sticking up for myself, I simply gave in and waited for him to pick me up.
+
+He was quiet on the drive up, opting to play his music instead of having a conversation. I don't know how he figured out that I was going camping, and I couldn't build up the energy to ask. There was something about being around him that just made me feel tired and gross, like he sucked all the power out of a room and left it feeling hollow. I tried to focus on the music, a lot of it I normally liked, but something about listening to it with him made it feel cheap, almost cringy.
+
+A few hours later we were on the trail and hiking to our first stop. The conversation picked up once we started moving up the trail, but not in the fun way I would have wanted.
+
+
+
+"You need to speed up - I don't want to build a tent in the dark."
+
+"Breathing pretty hard back there!"
+
+"I bet you could easily lose 50 pounds."
+
+
+
+So on and so forth. My father's unending commentary on my body, life choices, my choice of spouse, how much money I make, my student loans.... on and on. He was incapable of adding anything to a conversation or making the people around him feel loved. Instead he just... comments. And those comments lingered long after he said them.
+
+The first night was terrible. I was so mentally and physically exhausted from the day and I just could not sleep to save my life. Instead I just kept hearing my dad's incessant commentary in my head - his little notes and "helpful ideas" circling around and around to the point I sometimes thought I heard him saying them in his sleep.
+
+The next day we continued the hike, this time on a relatively rocky path a few feet wide, sandwiched by a steep incline on one side, and a cliff on the other. We were taking it slow (finally at a pace I was comfortable with) and trying to make the best of the situation. The view was honestly breath-taking, and I had several moments where it felt like I was the only person in the world. That was until the commentary started up again.
+
+
+
+"Your pack is not tied right."
+
+"Make sure to not stand too close to the edge."
+
+"We need to hurry up, other hikers may need the trail."
+
+  
+I gave a huge sigh and decided I was done with him. I started to shout - I screamed every last emotion I was feeling. I told him how much he was ruining my life, how I hated the commentary, and that I was so tired of how much of my brain space he had. He just stood there, absorbing my words until I said the final line:
+
+"I hate you and I always have."
+
+The mood was not great before this point, and it did not improve much after. Instead we just continued up the path, hiking in silence, as I did my best to hide the fact that I was crying.
+
+We managed to get to the highest part of the path and it opened up on one side, the other still being the cliff but with an even better view. I walked away from the cliff to find somewhere to drop my pack for a bit. I didn't know what to say to my dad, instead opting for uncomfortable silence while he stood near the cliff and watched the sun slide closer to the horizon. A few minutes later he was still standing there, so I decided to try and talk to him.
+
+I walked up next to him and started to say something, but he just held up his hand to silence me. I felt anger towards this but held it in, opting to just wait and see what he was going to say. A few more minutes of the silent treatment and I grew impatient, so I turned to walk back to my pack. Halfway between him and the bag I heard my father curse so I turned back. He was trying to adjust his pack but he was losing his balance - and it was right next to the cliff.
+
+I ran over to grab him as he fell and I managed to grip his bag in my hand. I pulled hard while he shouted at me to not let go. He was starting to slip more and I pulled with all my might. He then said something I will probably never forget.
+
+
+
+"Don't fail me like you fail everything else!"
+
+  
+I let go. 
+
+My father made no further comment as he slipped further down the side of the cliff, and within moments he had completely left my field of view. It took me what felt like eons to look over the edge and see where he landed. I just stood there and breathed, not knowing what to do. I finally snapped out of it and looked past the edge and saw nothing. He had gone all the way off the cliff, and probably landed about 500-600 feet down. There was no chance he survived that.
+
+Most people would have hiked back down, found the body, called it in, a million other things that I did not do. Instead I simply walked back to my pack, strapped it on, and kept hiking. I felt nothing at this moment, only the pressure in my ears that usually hits at this elevation. That pressure that came with a mild ringing were the only sensations my brain could comprehend. I just kept walking and ringing, ringing and walking. 
+
+Right before sunset I finally found a place to camp. I set up my tent in silence, ate a few granola bars, and crawled into my sleeping bag to sleep. Surprisingly sleep came easy to me that night, although I was woken up very early by something I did not expect. 
+
+The commentary continued. At 4am I was awoken by hands slapping on my tent as the voice of my father clearly rang in my ears.
+
+
+
+"YOU FAILED! YOU DIDN'T EVEN TRY! THIS IS WHY YOU SHOULDN'T BE OUT HERE! YOU DO NOT BELONG."
+
+
+
+In a panic I ripped my tent open to see nothing but a dark sky. My flashlight was strong but revealed nothing around me. I was alone.
+
+I decided to walk home that day. The reality of what happened was starting to hit and my panic attacks were coming in waves. As I hiked down the hill I came up with a story: my dad and I fought and he turned around to leave and I kept going. I didn't see what happened until I found the body.
+
+Jesus what was his body going to look like? More panic, more walking.
+
+Eventually, and with a solid story (or so I thought) I made it down to where his body should have landed. The cliff he fell from was easily visible from the lower elevation, and there was really only a small area he could have slid to. Getting to this spot was no issue.
+
+The issue was he was not there. No body, no blood, nothing. I searched for hours, covering a good square mile, but found nothing. He must have landed safely... somehow.. and hiked out. I didn't know what to do, and I did not want to call it in until I figured out where he went. I decided to continue hiking back to the car - which should have only been a few hours away. If he had hobbled his way back, I should find him.
+
+Hours of hiking later and I was utterly lost. The trail kept looping back onto itself until I lost it entirely. This was a popular trail I found on a hiking app so I tried to use my phone GPS but to no avail. I was completely lost and the sun was getting low again. My panic attacks started to come back, so I decided to make camp.
+
+That night the screaming returned. It came back the next night too. And the one after that. Every day I tried to find the car and failed, and every night my father found me and tormented me. The yelling got louder and the commentary got more detailed each time.
+
+On night 6 I decided I had enough. My supplies were gone, my water filter was barely functioning, and my asshole father was emotionally torturing me. Once the commentary started I ripped open my tent immediately, hoping to catch him before he ran. I was surprised when I saw him standing there, not running, just staring at me.
+
+I lost it on him, even bigger this time. I cried and I spat and I threw up a little, but I was unrelenting in my verbal assault on this man. The more I yelled, the darker his face grew. In my anger I didn't see how red his eyes were, or that he was moving ever closer to me. 
+
+Suddenly his hands were wrapped around my neck and we were on the ground. I kicked and hit him, trying to get him off of me, but he was just too strong. His fingers dug into the skin of my neck as dark liquid pooled out of his mouth and onto me. His eyes were locked onto mine, but not like he was looking at me, almost like he was seeing right through me. There was anger in those eyes I had never seen.
+
+My vision started to darken as I struggled to free myself. I knew this was a losing fight and that for some weird reason, this injured old boomer was successfully murdering me (I forgot to mention he is an asshole). As he held me down I could hear his voice in my head. Years of commentary, cruel jokes, anger, and spite filled my mind. I was going to die and he was going to have the last word - and I couldn't have that. I used all my strength to grab his face and say one final thing to him before I lost conciseness:
+
+"I belong here. You don't belong anywhere."
+
+And then everything went black.
+
+
+
+I woke up the next morning in my tent, feeling like I had slept for days. I stretched, made some coffee, and watched the sun rise. Packing was easy that morning and I smiled as I rolled everything into my bag and set off home. I found the path easily and got back to my car before noon. Once I got there I grabbed my phone, turned it on, and called my wife as I pulled out of the parking lot. My eyes started to tear up a little as my wife's voice filled my ears.
+
+"How was your first solo trip, baby? I am so so proud of you. Me and the girls have had a lot of fun but everyone misses you."
+
+I smiled as I told her about my hike, how much I loved my new travel flashlight, and how badly I needed a shower. She told me about her adventures with our pets (the girls) and how much Stardew Valley she played. I was close to the highway and about to end the call when she asked me a final question: 
+
+"Did you think about your dad at all?"
+
+I smiled to myself and replied *"*I did, but I think I worked it all out. 12 months no-contact feels really good right now."
+
+My wife was quiet on the line for a little, and simply said she was proud of me. I told her I loved her, and ended the call. 
+
+  
+"YOU DIDN'T TELL HER ABOUT WHAT YOU DID TO..."
+
+I turned around and looked at my father in the back seat with a piercing glare. I pointed my finger at him and calmly replied "I'm gonna need you to shut the fuck up. No more trips with me, and no more commentary."
+
+He was gone by the time I pulled my car into the driveway.
+
+
+

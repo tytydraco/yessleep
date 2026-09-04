@@ -1,0 +1,78 @@
+**I had a recurring nightmare that honestly feels like it could be a horror series**  
+Okay, this is probably going to sound insane, but I’ve had this dream 2–3 times recently, and after waking up I realized the whole thing has the structure of a psychological horror/mystery series.  
+I don’t remember every detail because the dream feels extremely complex and most of it disappears when I wake up, but here’s what I remember.  
+**Working title: THE SAFE HOUR**  
+**Genre:** Psychological horror / mystery / supernatural thriller  
+The story takes place inside my mother’s house.  
+A brother and his sister are trapped on the **second floor** of the house.  
+They cannot leave the house.  
+Something is inside.  
+**Monsters.**  
+They are somewhere beyond the apartment door, meaning the brother and sister have to stay inside their apartment to survive.  
+But there is one strange rule:  
+**There is a specific hour every day when they can leave the apartment.**  
+During this hour, the monsters apparently cannot attack them.  
+But there’s a catch:  
+**They still cannot leave the house.**  
+They can only move around inside it.  
+So they use that hour to go downstairs, search for food, explore other rooms, look for their mother, and try to understand what happened.  
+Then, when the hour ends, they have to get back upstairs and lock themselves inside before the monsters become dangerous again.  
+Nobody knows why this happens.  
+Nobody knows who created the rule.  
+And nobody knows what happens if you’re still downstairs when the hour ends.
+
+**THE STRANGER**  
+During one of these trips downstairs, the brother encounters a man he doesn’t recognize.  
+The man isn’t someone he knows well.  
+And somehow, **their cat is with him.**  
+The brother has no idea how the cat got downstairs.  
+He doesn’t know who the man is.  
+And the stranger doesn’t seem nearly as confused or afraid as he should be.  
+It’s almost like he already understands the rules of the house.  
+But he refuses to explain everything.
+
+**THE MISSING MOTHER**  
+There’s another strange detail:  
+**Their mother never appears.**  
+The house belongs to her.  
+They’re trapped inside her house.  
+But she isn’t there.  
+Did she escape?  
+Did the monsters take her?  
+Is she hiding somewhere in the house?  
+Or does she know what is happening?
+
+**THE HOUSE**  
+As the brother and sister explore during the safe hour, they slowly realize that the house is much stranger than they thought.  
+Rooms don’t always seem to be where they remember them.  
+Things move.  
+Sounds come from empty rooms.  
+Sometimes they find evidence that someone else has been living there.  
+And occasionally, they discover things that suggest **their mother knew this was going to happen.**  
+The safe hour becomes their only opportunity to investigate.  
+But every day, they discover something worse.
+
+**THE REAL MYSTERY**  
+Eventually, they realize the monsters aren’t simply random creatures trapped inside the house.  
+They follow rules.  
+They react to certain things.  
+They seem to be protecting certain rooms.  
+And they seem particularly interested in the second floor.  
+The brother begins to suspect that the apartment isn’t protecting them from the monsters.  
+**It might be keeping the monsters away from something upstairs.**  
+And eventually he starts wondering:  
+**Why are the monsters waiting for them to leave?**
+
+**Season 1 ending idea**  
+During one safe hour, the brother stays downstairs too long.  
+The hour ends.  
+The house becomes completely silent.  
+He looks toward the staircase.  
+Something is standing at the top.  
+But instead of attacking him, it simply says:  
+**“You weren’t supposed to come downstairs.”**  
+Cut to black.
+
+The actual dream was much more confusing and I don’t remember everything, but the feeling was extremely real: being trapped somewhere familiar, knowing there’s something dangerous outside the apartment, knowing there’s a specific time when you can leave the apartment, and having absolutely no idea what the rules are.  
+I genuinely woke up thinking, *“Why does this feel like an entire TV series?”* 😂  
+**Would you watch something like this?**
