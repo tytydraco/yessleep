@@ -1,0 +1,148 @@
+>!CW: Mentions of Self Harm!<
+
+
+
+Hello anthropology community. I’m wondering if it’s possible that there is an uncontacted tribe in the mountains of Vermont. It’s the only plausible explanation for what’s been going on lately.
+
+It started back in November. There was a death in the family of my lifelong friend Toby. His uncle drove to a cemetery one night, reclined the front seat all the way back, and painted the roof of his car with his brains and a shotgun. In his will, which he had updated only two months prior. He left Toby his Vermont mansion. Toby had apparently only visited the place once in his childhood, and he had only met this uncle a handful of times. However, he isn’t one to turn down anything that’s free, so he packed his bags and moved out of his parents home into that mansion the day after Thanksgiving. 
+
+He said in hindsight it was weird from the get-go. He once heard a scream in the night in the dead of winter. He reported it to the police, and they said it was probably just mountain lions. They however assured him that it would be fully investigated. Nothing ever came of that.
+
+Someone threw a bicycle in his trash bin. It was New Years Day so he assumed it was just some drunk he stole it and threw it in there or something. He filed a police report about that one too. Nothing ever came of that either. They even offered the bizarre theory that it was raccoons who put it in there.
+
+Then came spring. He started opening the windows during the day. He said that a few times he heard what sounded like a group of people cheering in the distance coming from the woods. Now, this mansion was very secluded. The nearest house was a half mile away, the next closest house was a quarter mile further. On top of that, he emphasized that the cheering was coming from the direction of the woods. 
+
+Then came the summer time. It got hot in the house. Toby would leave the windows open at night. One night he woke up at 2 AM to take a leak. He’s pissing next to the open window. As soon as he finishes his pee, in the moment of silence before the flush, he notices something odd. He can hear what sounds like chanting in the distance, coming from the woods. 
+
+He started doing research on local indigenous groups. He turned up no logical explanation. He reports it to the police. They don’t take him seriously. A week later he hears it again. This time he records a short clip on his phone. He takes it to the police and they tell him it ‘sounds like windchimes.’
+
+I don’t believe in the paranormal, and for most of his story I rolled my eyes and worried he was crazy. But when he took out his phone and played that recording, all my hairs stood on end. I wasn’t sure what I heard, but I do scare easily. It really freaked me out.
+
+It sounded like at least a dozen people, but maybe way more. They were shouting out things in total gibberish. It didn’t sound like any language I'd ever heard. For three beats of a drum they would shout things in low, gravely voices. For the next three beats of the drum they’d sing in high pitch falsettos. He had recorded about a minute straight of this, but he said it seemed to go on for over two hours which he spent on his bathroom floor, just listening.
+
+Toby told this whole story to our other friend Clyde and I over breakfast at Martha's, a local diner. “So?” Toby asked, “What do you guys think it is?”
+
+I could see his exhaustion on his face. I’d never seen him looking so disheveled. He had been losing sleep, but what does one even say in this situation? I didn’t know what the hell it was either. Despite how freaky the recording was, part of me still thought he was going crazy. It definitely wasn’t windchimes. It could be some kind of dumb joke, but I'd expect that more out of Clyde than Toby. This wasn’t like Toby at all.
+
+“We’re here for you, Toby.” I said, pushing around the eggs on my plate.
+
+“I wanna hear it with my own ears, can I sleepover sometime?” asked Clyde.
+
+I was shocked. I thought for sure Clyde would think Toby was crazy. I’m also shocked he wasn’t scared. What was uttered next sent a chill down my spine.
+
+“Yeah, yeah absolutely. You too James. You should both come sleepover sometime, it could be fun, and it’d definitely help me sleep a little better.” Toby replied. Shit. What kind of friend would I be to say no?
+
+“Sure. I’ll be there, pick a day.” Clyde said, then they both turned their attention to me.
+
+“Count me in fellas.” I feigned a smile to accompany my words. 
+
+Before I knew it the plans were set in stone. On the following Friday night the three of us would spend the night in that mansion in the woods and stay up to listen for the chanting. Maybe we wouldn’t hear it at all. That’s what I'd hoped. It was Sunday then, I had five days to mentally prepare myself. Those five days came and went so fast. 
+
+Before I knew it we had landed on Friday. By then I had wisened up again. I’m not one to believe in ghost stories. I’m not one that believes in monsters. I’m not one to believe in cryptids or conspiracies or government cover-ups. There had to be a rational explanation for it. I packed a bag for the night and got in my car with confidence.
+
+I stopped at a gas station for supplies. Two energy drinks, a jumbo honeybun for later, and three of the nastiest gas station hotdogs I had ever seen, all three of which never made it out of the parking lot before being lathered with ketchup and devoured. 
+
+It was my first time visiting Toby’s new place. I was relieved to learn that it was only about a 10 minute drive from the nearest small town, it wasn’t completely out of the way of civilization. I stared at the house for a moment before double checking the address on my phone. As I was scrolling back through text messages a car horn scared me half to death. My head shot up to the rearview mirror. Clyde had pulled in just behind me and was staring at me with a shit eating grin on his face. I was definitely at the right address. Or we were both at the wrong one.
+
+I got out of my car as Clyde got out of his. “Did I get ya?” he asked.
+
+“I mean, you definitely started me.” I replied, defeated as the two of us walked up to the house.
+
+“So I got you?” he asked back, putting a ham firmly on my shoulder for a moment before knocking on the door.
+
+“Sure.”
+
+Soon the door opened to Toby. “What’s up, did you guys come together?” he asked.
+
+“Nah, we just showed up at the same time. Spooky.” Clyde said with that same shit eating grin
+
+Toby welcomed us in and showed us around a bit. We’d be spending the night in the large living room on the first floor with the windows open. We’d be staying up as late as we could to try and hear the chanting. I sat on the couch and cracked open one of my energy drinks. 
+
+We ate some popcorn and watched a few scary movies. Now, we aren’t teenagers anymore, the last time any of us pulled an all-nighter was years behind us by this point in our lives. All of us had woken up early that day for work at our respective jobs. Just past 11 it started to sink in that we were not gonna make it to 4 AM, we weren’t even gonna make it to 2. We decided to call it a  night just after midnight. 
+
+Clyde and I played rock paper scissors to see who got the first floor guest room and who got the second floor guest room. I lost and Toby showed me to my room. It was small but the bed looked comfy. There were no windows in the room. If I had to guess I would say it was a room meant for a washer and dryer that had been converted to a guest room. The fact that this was one of only three bedrooms in this house says a lot about how Toby’s uncle must’ve lived. 
+
+It had one little perk though, it had its own bathroom. It had a small shower, toiled. And sink. There was also a window out to the woods. It was open, the window screen had been patched up with duct tape in a handful of places. Toby told me I should leave it open so it doesn’t get stuffy in the room so I obliged.
+
+The second my head hit the pillow I was out like a light. Next thing I knew I woke up in the middle of the night. I peeked at my phone, 3:16 AM. The gas station hot dogs had run their course, I had to go to the bathroom. 
+
+I got up and went into the private bathroom, flicking the light on. My eyes shot to the window. A nauseating chill went down my spine. Someone’s face was pressed against the window screen. It was just their nose and above that made it above the windowsill. It was a pale old man. He had a few greasy strands of gray hair but was otherwise bald. The whites of his eyes were almost completely yellow.
+
+We made eye contact for a few long silent seconds before he crouched down below the window, out of sight. I stood there another few seconds completely frozen, trying to decide what to do. I wish I could say I did something better, but I just screamed. I screamed at the top of my lungs. 
+
+I instantly heard clambering from upstairs. I had awoken Clyde and Toby. “James? Are you okay?” Toby yelled down.
+
+“C-call the police!” I stuttered. “There’s someone outside the house!” I ran out of the bathroom and into the mail hall. I watched as those two descended the stairway.
+
+“What happened?” asked Clyde.
+
+“I woke up to go to the bathroom.” I said with a gulp. Someone was peeking into the window, right up against the fucking screen. Call the cops.” I said, shaking. 
+
+Toby spoke up first, “Calm do-”
+
+“I can’t  calm down there was somebody staring into my god damn room, call the fucking cops!” I interrupted.  
+  
+“You’re serious?” Clyde asked.
+
+“And you’re sure it wasn’t just a shadow from a tree or something?” Toby asked. 
+
+“Yes, I'm sure. We have to call the cops.” I said, my voice cracking a bit. I was starting to compose myself but I was still scared as shit. 
+
+Clyde called the police. Eventually they handed the phone over to me. It took almost 15 minutes for the police to arrive. One car carrying two cops arrived. They searched around the back of the house but assured us they found nothing. 
+
+“And you’re sure you saw a person?” asked the shorter fatter cop.
+
+“Yes. Completely sure.” I said. 
+
+The cop sighed. “We found nothing. Not even a footprint in the mud. We’ll file a report and make sure a patrol car is nearby the rest of the night, but there isn’t much more we can do for the time being.”
+
+“Well, thanks.” I said, annoyed. The cops soon left.
+
+“You can go home. I believe you.” Toby said to me as we watched the cops' taillights disappear into the distance. The sun was just barely starting to rise and illuminate the mildew in the grass.
+
+“The sun is almost up. I’ll stay.” I sighed. “But I wanna sleep on the second floor.”
+
+It was a done deal. I went upstairs, took a shit in the upstairs bathroom, and laid down in the guest room bed where Clyde had slept. I had come down from the adrenaline rush and I was exhausted. The sun made me feel safe enough to sleep. Soon I was snoring.
+
+When I woke up it was almost noon. I hadn’t slept like this for ages.
+
+ I went down stairs and Clyde and Toby were eating sandwiches. “He has risen.” Toby said. “Make yourself a sandwich.” he gestured to the bread and cold cuts that were out on the counter. I made myself a turkey and cheese.
+
+“Toby is letting me stay another night. To try and see what’s going on.” Clyde said. I lost my appetite in an instant. “Are you in, James?” he asked.
+
+“Totally cool if last night has scared you off.” Toby said.
+
+“You guys are crazy.” I sighed. “How could you possibly stay here another night?” I asked.
+
+“I mean, I can’t just leave my house unguarded if some prowler is creepin’ around.” Toby said.
+
+“And you said it was just some old guy. I’m not scared of an old dude.” said Clyde.
+
+“So, are you in?” Toby asked with a smile.
+
+I sighed, I get FOMO easily and it made me reply, against my better judgement, with an “I’m in.” I had signed myself up for another night at this place. 
+
+“It ain’t much, but in case that guy comes back and tries to break in, I grabbed these out of the garage.” Toby said. I hadn’t noticed before but there were three rusty old hammers on the other counter. “It’s all we really have, unless you want a kitchen knife.”
+
+I would definitely sleep better with a hammer in my hands. Who the hell was that last night? Why had I agreed to stay here again? I was petrified. The day went by fast. We watched movies and talked about old memories from high school and college. It was a good day. 
+
+The couch in the living room was big enough that all three of us could sleep on it with space left over. It was a big sectional that took up most of the living room. It sat in front of a stained coffee table and the oldest TV that I'd ever seen. On a newly mounted shelf above that old TV sat a cheap smart TV that Toby had brought when he moved in. There were several windows along the right all that faced the woods to the side of the house.
+
+The plan was simple. We leave all the windows open. We also leave the TV running, playing movies all night. If you notice someone asleep, let them sleep for an hour then wake them up. If you’re the only one awake, wake up both other people. It was fool proof.
+
+At some point during the night we all fell asleep. All three of us awoke to a phone alarm at exactly 3 AM. Clyde had set it just in case we had all fallen asleep. The three of us all laughed about how we managed to all fall asleep. “It had to be your fault, dude.” Clyde joked to Toby.
+
+As the three of us laughed suddenly Toby went ghostly pale. Turn the TV off, shhh, shush.” He said quickly. 
+
+“I grabbed the TV remote. The room wasn’t left in silence. Out the window we could hear it. That chanting and that drum rhythm from Toby’s recording. It sounded to be a decent bit in the distance, and it was hard to hear from the windows in the living room. The three of us got up and rushed to the kitchen. Toby threw the windows open. The kitchen windows were facing the backyard and the woods. We could hear it much better from over here.
+
+It was the same as before. The pitch changing every three beats. Nothing they said sounded like any language I'd ever heard, however, I swear during one of the high pitch segments I heard one voice chanting “James! James! James!”
+
+This time Toby called the cops. His idea was that they wouldn’t be able to call it windchimes if they were hearing it with their own ears. I assumed that after yesterday the police would be on high alert in the area and rush to us fast. It took them nearly forty-five minutes to show up. They classified it as a non-emergency, they didn’t even keep Toby on the line. And wouldn’t you know it, the chanting stopped just a few minutes before the cops arrived.
+
+It was the same two cops as the previous night. Clyde had made a recording and showed it to them. They identified it as a bird call, took a report, and left. Something really fishy was going on here. We sat around for an hour or two, Toby made pancakes as the sun rose. Me and Clyde both had to leave that day. All three of us had work the next day. I told Toby he could come stay with me but I declined. I went home that day defeated.
+
+It’s been a week and I haven’t slept right a single night. I’m so paranoid. Almost every night now I wake up in the early hours and worry I'm gonna see something scary. I never do. I'm worried about Toby staying in that house. I've begged him move back home with his parents or even stay with me for awhile but he refuses. 
+
+I’m not really sure what to do next. I feel like I need to figure out what's going on. I just can’t come up with a logical explanation for what’s happening except for the idea of some kind of lost civilization in the woods. So I ask you all readers, what could be going on here? What can I do about it? I appreciate any and all advice.
+

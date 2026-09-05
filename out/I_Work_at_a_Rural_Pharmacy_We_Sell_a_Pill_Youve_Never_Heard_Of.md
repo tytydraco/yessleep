@@ -1,0 +1,377 @@
+I learned a lot working at the Main Street Pharmacy.
+
+
+
+Mostly useless stuff, like how much ibuprofen a small town needs, what flavor of Mt Dew sells best during summers, and that the town’s mayor uses a lot of Viagra.
+
+
+
+But most importantly, I learned how dangerous a pill called ‘Doc Harden’s Fresh Start’ really is.
+
+
+
+I started at the Pharmacy shortly after moving to town at the start of the year. My grandma was kind enough to give me a room after the halfway house released me. Her only stipulation was that I kept a job. She was friends with the owner of the pharmacy and convinced him to give me a job at the register.
+
+
+
+Karl was the only pharmacist within a forty-mile radius; the store was all he knew, and his balding head and baggy eyes showed his commitment. On my first day, he gave me a short tour around the small, dusty shop. He showed me the worn medication counter in the back, the cobweb-covered shelves, the flickering fridges, and finally the small register station.
+
+
+
+“Here’s where you’ll be working,” Karl said in a low monotone voice.
+
+
+
+ I nodded and forced a smile
+
+
+
+“Great!” I said, trying to convince myself as much as him.
+
+
+
+“I’ll handle the medication and prescriptions in the back; you’re here to deal with the over-the-counter items.”
+
+
+
+His voice couldn’t have been more boring.
+
+
+
+With a nod, I said
+
+
+
+“Sounds simple enough.”
+
+
+
+He eyed me
+
+
+
+“Where’d you work before this?”
+
+
+
+It was the question I always dreaded.
+
+
+
+“Nowhere, actually.”
+
+
+
+He raised an eyebrow; my smile faded
+
+
+
+“I was in recovery; I had some drug issues after high school.”
+
+
+
+His face was hard as stone. He muttered to himself as if I wasn’t there
+
+
+
+“Sure wish Joline had mentioned that.”
+
+
+
+“What’s that?”
+
+
+
+“Nothing.” He clenched his jaw.
+
+
+
+“Just know, there are cameras in here, and I handle all the drugs. So don’t even think about it.”
+
+
+
+With that, he turned and disappeared into his office in the back
+
+
+
+“Didn’t even cross my mind.” I sighed; some people struggle to believe people can change.
+
+
+
+Now alone, I took some time to familiarize myself with the numerous shelves and their contents. It was fairly typical, even if it was outdated. A small snack section, a mix of generic and name-brand allergy relief, and various flu and cold treatments. I was about to return to the register when an item on the bottom shelf in the back corner caught my eye.
+
+
+
+It was different than the other products; there was no listed price on the shelf. Reaching down, I picked one up to examine it. It was a large single pill, greenish-brown in color, resting in a plastic cocoon, fastened to a colorful cardboard backboard no bigger than my phone. I stared at the pill; small flecks of glitter reflected the dying fluorescent light from above as I turned the package in my hands. Above the pill's housing, large vibrant words were sprawled across the cardboard backing. It read:
+
+
+
+“Doc Harden’s Fresh Start.”
+
+
+
+In smaller words beneath said
+
+
+
+“Another chance in a pill!”
+
+
+
+I frowned as I turned the container over in my hand and read the back. There was nothing, no FDA statements, no instructions, no list of ingredients, just plain brown cardboard. Confused, I slowly walked to the door in the back and knocked gently
+
+
+
+“Karl?” The door creaked as I slowly opened it. He sat at the desk, his eyes glued to the computer in front of him.
+
+
+
+“What?”
+
+
+
+I held up the packet of ‘Fresh Start’
+
+
+
+“What’s this?”
+
+
+
+He looked at the item and turned back to the screen.
+
+
+
+“It’s a pill; it's not unusual for a pharmacy to have pills.” He replied sarcastically  
+
+
+
+My jaw clenched at his response, but I continued
+
+
+
+“Yeah, but what is it? It doesn’t even have a price; what do I charge for it?”
+
+
+
+“Don’t worry about it; the people who use that know what it costs.”
+
+
+
+“But what do I ring it up as?”
+
+
+
+“Just accept whatever they give, not up to us.”
+
+
+
+I didn’t get a chance to ask for an explanation. Karl continued
+
+
+
+“Look, I’m pretty busy; I just need you to man the register. Think you can do that?” his voice was degrading.
+
+
+
+“Sure, whatever.” I let the door slam as I walked up front.
+
+
+
+Over the next couple of weeks, I started to get into a routine of boredom. The job was simple, and customers were sparse and pretty regular: the same elderly people who’d shuffle straight to the back to pick up their prescriptions, or the same group of middle schoolers grabbing Doritos and Monsters after school. Now and then, an unfamiliar face would stop in to grab some allergy relief or treat their cold.
+
+
+
+The strangest clientele were those shopping for “Doc Harden’s Fresh Start”. It was always the same five or six people; each one would stop in every three or four days, hands shaking, pupils dilated, and a cold sweat glistening on their foreheads. Symptoms I knew all too well, withdraw. They would rush to the back corner, grab the pill, and hurry back to the register. The strangest part was their payments.
+
+
+
+No two payments were alike. The first buyer I encountered was a jittery thirty-year-old woman; her black hoodie was drenched with sweat, and tremors shook her body. A strange, hungry look filled her eyes. With a slam, she laid the pill package on the counter. I looked at it and then at her. Her eyes fluttered around before resting on the pill and staring at it intently.
+
+
+
+After she stared at it for an uncomfortably long moment, she swallowed hard and slowly nodded before quickly pulling down her hood, revealing her unkempt hair. She then grabbed a big fistful of her hair and yanked it out of her head. She winced as the quiet popping sound of thousands of hairs being ripped from her head filled the shop. She handed me the ball of hair and, with a weak smile, said
+
+
+
+“Here you go, thank you.”
+
+
+
+She grabbed the pill and hurried out. I stood there, confused over what just happened. I used a pencil to push the hairball into the trash and tried to forget about the experience. Later that week, I encountered another strange customer. A mid-twenties man, tall and thin. He wore a soiled grey T-shirt and worn-out jeans. He looked like a methed out ghoul. In mere seconds, he had the pill and was at the counter. Slamming it on the counter, he stared at it before releasing a heavy sigh and pulling a pair of pliers from his pocket. In an instant, he clamped the tool onto his right thumbnail and started to pull.
+
+
+
+“What the hell are you doing?” I screamed, horrified
+
+
+
+“Paying for it,” the man said through gritted teeth.
+
+
+
+The nail stretched and began to rip away from the surrounding skin; drops of blood began to fall on the counter, and a wet, fleshy sound indicated that the separation was now complete. With a shaking hand, the man set the nail onto the counter. I looked at him; his face was a mix of pain and relief. He gave a half-smile, took his pill, and said
+
+
+
+“Thanks.”
+
+
+
+With that, he walked out.
+
+
+
+I felt like I was going to throw up; the man’s nail and blood lay splattered on the counter. About twenty minutes later, Karl returned from his lunch break. He looked at me as he walked in
+
+
+
+“Everything ok?”  he asked
+
+
+
+He looked at the nail and blood on the counter
+
+
+
+“Clean that up,” he said blankly before returning to his office in the back.
+
+
+
+The next week, I saw the same thirty-year-old woman again, just as desperate as last time. Again, she placed the pill on the counter and locked her gaze on it. After a moment, she started to cry and shake her head.
+
+
+
+“No, no,” she said between tears.
+
+
+
+A few minutes later, she seemed to muster some courage as the tears began to slow
+
+
+
+“I hope this one works.” She whimpered
+
+
+
+With that, she rolled her hand into a fist and, with full strength, flung it into her jaw; a dull thud resounded through the store. She did it again and again. Her gums leaked blood, and her mouth swelled, yet still she bombarded her face with her fist. Finally, a hollow crack was heard, and with pain-filled sobs she fished out a single bloody tooth, which she gently set on the counter. Taking the pill, she stumbled out.
+
+
+
+The next day the man returned; he looked weak and hopeless. At the counter, he stared at the pill as if it was speaking to him. A moment later, he muttered to himself
+
+
+
+“Fine”
+
+
+
+Before leaving the store, only to return a few seconds later with a large kitchen knife. In an instant, he slammed his hand onto the counter and, in one swift motion, the knife fell, removing two fingers, which lay limply on the blood-covered counter. I screamed
+
+
+
+The man threw the pill into his mouth; it crunched loudly as he chewed, and a trail of blood followed him out of the store.
+
+
+
+Two weeks later, I hardly recognized that same man when he walked back into the store. He wore expensive clothes, was cleanly shaved, and greeted me with a warm smile.
+
+
+
+“Hey! Remember me?” I looked at him, but it was only when I saw his two missing fingers that I realized this was the same guy. The last time I saw him, he was frail, dirty, and reeked of cigarettes and sweat. But now he was relaxed, healthy-looking; he smelled vaguely of vanilla and lavender.
+
+
+
+“What happened to you?” I said, trying to hide my surprise.
+
+
+
+He shrugged
+
+
+
+“I finally got my fresh start.”
+
+
+
+He told me how, mere hours after I last saw him, he got a call from the estate of a long-lost wealthy great-uncle who named him as his heir. A trip to the casino only doubled his newfound wealth. His high school sweetheart called him and asked to get back together. His life had been changed. He had gotten his second chance.
+
+
+
+“I just wanted to stop in and give you some real payment. I’m sure I’ve caused you some trauma.” He chuckled
+
+
+
+After writing me a check for a thousand dollars, he headed towards the door. I couldn’t help myself; I blurted out
+
+
+
+“Was it worth it?”
+
+
+
+He glanced back with a wide smile; it seemed like there was real joy in his eyes.
+
+
+
+“It’s a high cost, but yeah, it was worth it.”
+
+
+
+With that, he was gone. I should have been happy to have the extra cash, but it wasn’t enough.  All I could think about was the greenish-brown pill in the back of the store. I had screwed up my life before it even really started, and the rest of my life would reflect my poor mistakes. I don’t remember walking back there, but I found myself in front of Doc Harden’s Fresh Start.
+
+
+
+I picked up the packet and held it in my hand as I stared at it. Karl walked by on his way to the back; he stopped, and his eyes met mine. After a long pause, all he said was
+
+
+
+“First one’s free.”
+
+
+
+With that, he entered his office and shut the door. Later that night, I walked back to my grandma’s because I didn’t have money to fix my car. She greeted me with a big smile when I entered her run-down little cottage. I smiled back; I was thankful for her, but all I could think of was the garbage house we were stuck in, the empty fridge in the kitchen, and the overdue bills hanging over her. I told her I was tired and just wanted to go to bed. I went to the tiny bedroom I had been staying in, sat down on the bed, and slowly pulled the pill from my pocket.
+
+
+
+“I just want a better life,” I muttered, and I put the pill into my mouth. It tasted like worn tires.
+
+
+
+The high from this pill was better than any drug I’ve ever used, but it didn’t last more than 15 minutes. And an hour later, I began to feel my throat grow dry, and my fingers twitch. I only made it four days before I needed the pill.
+
+
+
+With sweaty palms, I pulled the pill from the shelf, taking it to the counter. As I stared at it, the pill told me the cost: three drops of blood, which I was willing to pay. The high was even better but even shorter than the last. Three days later, I needed it again. This time it wanted a notch out of my ear; that was fine. But it didn’t give me my fresh start.
+
+
+
+“Maybe next time,” I muttered
+
+
+
+The high was amazing but wore off less than a minute later. Somehow I knew I didn’t get my fresh start.
+
+
+
+Next time was a price too high. As I stared at the pill on the dirty counter, it demanded my right leg. Cold sweat rolled down my forehead. I resisted; I didn’t pay. I took the pill, ignoring its demands, and chewed it before I walked home for the night. No high followed, no ecstasy, just an instant desire to have another.
+
+
+
+A heavy fever kept me from sleeping that night. It was 3 am, I lay on my bed, writhing in pain, when a loud tapping came from my window. Slowly, I turned to the window; a tall silhouette was plastered against the thin curtains that covered the window. My right leg throbbed in pain as I stared at the figure. Slowly, it raised a hand and tapped again. With every tap, it felt like a vise grip tightened just below my right knee.
+
+
+
+I screamed in pain as the pressure around my leg grew. The bone cracked; I could feel shock setting in. Right before my leg was ripped off, I heard the figure declare in a deep, raspy voice
+
+
+
+“There is no Fresh Start for you.”
+
+
+
+With a squelch and pop, my leg separated from my body; I screamed and passed out.
+
+
+
+I woke up as they lifted me into the ambulance; my screaming must have woken up my grandma, and she called 911. I’m writing this a day later as I lie in a hospital bed. It's starting again: the tremors, the sweats. I told them I was going through withdrawal, but when they tested me, they found no signs of drugs. I know I’ll need Doc Harden’s pill soon, but now I know it won’t give me what it promises. I’ve been denied a Fresh Start, but I still have to pay the price.
