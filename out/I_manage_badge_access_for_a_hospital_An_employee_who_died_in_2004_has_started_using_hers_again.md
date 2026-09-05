@@ -1,0 +1,629 @@
+I work in hospital security systems. Not as a guard. I'm one of the people who handles access cards, door permissions, broken readers, that kind of thing.
+
+
+
+Last Monday I got an automated alert for a badge that shouldn't exist anymore.
+
+
+
+Employee: Evelyn Hart
+
+Department: Environmental Services
+
+Status: TERMINATED
+
+Last active: November 18, 2004
+
+
+
+At 2:13 AM, her badge opened the laundry corridor on B1.
+
+
+
+I assumed database garbage.
+
+
+
+Our hospital has been around forever and parts of the access system have been upgraded three or four times. Old employee records survived migrations they probably shouldn't have. Sometimes a badge number gets recycled and the system attaches the wrong name.
+
+
+
+So I checked the credential number.
+
+
+
+It wasn't assigned to anyone else.
+
+
+
+At 2:19, Evelyn opened the service elevator.
+
+
+
+2:26, housekeeping storage on the third floor.
+
+
+
+2:41, the east stairwell.
+
+
+
+2:52, the fifth-floor linen room.
+
+
+
+Then nothing.
+
+
+
+It looked weirdly deliberate, but hospitals are full of weird automated shit, so I disabled the credential and opened a ticket.
+
+
+
+Tuesday morning I mentioned it to one of our older security officers.
+
+
+
+He knew the name.
+
+
+
+Not personally, but he'd heard it.
+
+
+
+Evelyn had worked nights as a cleaner. In 2004 she disappeared during a shift.
+
+
+
+That got my attention because the employee record said deceased, not missing.
+
+
+
+He said she was eventually declared dead years later, which apparently got reflected in HR's records somehow. Nobody ever found her.
+
+
+
+I went back through Monday's cameras.
+
+
+
+Laundry corridor at 2:13.
+
+
+
+Empty.
+
+
+
+The door still opened.
+
+
+
+Service elevator at 2:19.
+
+
+
+Nobody waiting outside it.
+
+
+
+The elevator arrived, opened, sat there for about eight seconds, then closed.
+
+
+
+Third floor at 2:26.
+
+
+
+The housekeeping door opened inward.
+
+
+
+Nobody went through.
+
+
+
+That was the first moment I stopped thinking software glitch.
+
+
+
+I watched the rest.
+
+
+
+Every door in the sequence physically moved.
+
+
+
+No person.
+
+
+
+Tuesday night, Evelyn's credential was disabled.
+
+
+
+At 2:13 AM, the laundry door opened anyway.
+
+
+
+The access log read:
+
+
+
+CREDENTIAL UNKNOWN
+
+
+
+At 2:19, service elevator.
+
+
+
+2:26, housekeeping.
+
+
+
+Same route.
+
+
+
+Same exact times.
+
+
+
+I called our vendor Wednesday morning. They remote-checked the controller and found nothing wrong. Their explanation was that some scheduled automation must be triggering the doors while the logging software was misidentifying the event.
+
+
+
+I asked them to show me the automation.
+
+
+
+They couldn't find one.
+
+
+
+That afternoon I started digging through old records.
+
+
+
+This part took forever because most facilities paperwork from 2004 was never digitized.
+
+
+
+I eventually found an old housekeeping schedule.
+
+
+
+Evelyn's shift started at 10 PM.
+
+
+
+At 2 AM, she had a scheduled linen collection route.
+
+
+
+Basement laundry.
+
+
+
+Service elevator.
+
+
+
+Third-floor housekeeping.
+
+
+
+East stairwell.
+
+
+
+Fifth-floor linen storage.
+
+
+
+Exactly the route the doors were taking.
+
+
+
+I should have stopped there.
+
+
+
+Instead I got curious about what happened after the fifth-floor linen room.
+
+
+
+The current room is tiny. Shelves, carts, spare bedding.
+
+
+
+But the 2004 floor plan showed something different.
+
+
+
+Behind that room used to be another service corridor.
+
+
+
+It was sealed during a renovation in 2008.
+
+
+
+Thursday night I stayed late.
+
+
+
+Yes, I know.
+
+
+
+At 2:10 I was standing in the basement laundry corridor with one of the night guards.
+
+
+
+I wasn't alone and we had cameras everywhere. It felt stupid to be scared.
+
+
+
+2:13.
+
+
+
+The reader flashed green.
+
+
+
+The lock clicked.
+
+
+
+The door opened.
+
+
+
+Nobody touched it.
+
+
+
+The guard stopped smiling.
+
+
+
+At 2:19 we followed the elevator upstairs.
+
+
+
+At 2:26 the housekeeping door opened.
+
+
+
+At 2:41 the east stairwell unlocked.
+
+
+
+Every event happened exactly on schedule.
+
+
+
+We followed all the way to five.
+
+
+
+At 2:52 the linen room door opened.
+
+
+
+Nothing inside moved.
+
+
+
+We waited.
+
+
+
+2:53.
+
+
+
+2:54.
+
+
+
+The route had always ended there.
+
+
+
+The guard said, "Okay, that's enough."
+
+
+
+Then we heard knocking.
+
+
+
+Three knocks.
+
+
+
+From behind the back wall.
+
+
+
+The linen room backs onto the sealed service corridor.
+
+
+
+We both froze.
+
+
+
+Three more knocks.
+
+
+
+Not pipes.
+
+
+
+Not some building noise.
+
+
+
+Knuckles.
+
+
+
+The guard immediately radioed his supervisor.
+
+
+
+While he was talking, I looked at the badge reader.
+
+
+
+It flashed green again.
+
+
+
+There is no reason for it to do that unless it reads a credential.
+
+
+
+The screen displayed:
+
+
+
+ACCESS GRANTED
+
+HART, EVELYN
+
+
+
+Then something knocked from inside the wall so hard that one of the metal shelves shook.
+
+
+
+We left.
+
+
+
+Facilities opened part of that wall Friday morning.
+
+
+
+Behind it was the old corridor.
+
+
+
+It was narrower than the plans made it look because somebody had built another wall across the far end before the 2008 renovation.
+
+
+
+There was a gap between those walls. Maybe three feet deep.
+
+
+
+They found bones inside.
+
+
+
+I'm not going to describe them because I didn't personally see them.
+
+
+
+Police came. The area is sealed now.
+
+
+
+From what I've heard, they're treating the remains as potentially connected to Evelyn's disappearance, but obviously nothing has been confirmed yet.
+
+
+
+What I did see was the old ID badge facilities found on the floor next to the remains.
+
+
+
+Evelyn Hart.
+
+
+
+Same credential number from the logs.
+
+
+
+The physical badge looked ancient. Bent, stained, cracked straight through the magnetic stripe.
+
+
+
+It has been sitting inside a sealed wall for at least eighteen years.
+
+
+
+I thought that was the end.
+
+
+
+Last night I checked the system from home.
+
+
+
+2:13 AM came and went.
+
+
+
+Nothing.
+
+
+
+2:19.
+
+
+
+Nothing.
+
+
+
+I actually laughed.
+
+
+
+At 2:52, still nothing.
+
+
+
+Then at 3:07 AM I got an alert.
+
+
+
+My own badge had been used.
+
+
+
+I was holding it in my hand.
+
+
+
+The location was fifth-floor linen storage.
+
+
+
+I logged in and pulled up the event.
+
+
+
+There were two entries.
+
+
+
+3:07:11
+
+ACCESS GRANTED
+
+MY NAME
+
+
+
+3:07:18
+
+ACCESS GRANTED
+
+HART, EVELYN
+
+
+
+I called the night desk and told them not to go up there.
+
+
+
+While I was still on the phone, a third event appeared.
+
+
+
+3:07:25
+
+ACCESS GRANTED
+
+MY NAME
+
+
+
+Different door.
+
+
+
+East stairwell.
+
+
+
+Then another.
+
+
+
+Third-floor housekeeping.
+
+
+
+Then the service elevator.
+
+
+
+The route was happening backwards.
+
+
+
+I watched it come down through the building.
+
+
+
+At 3:26, the basement laundry door opened.
+
+
+
+After that there were no more events.
+
+
+
+I didn't sleep.
+
+
+
+This morning I came into work and found my office locked.
+
+
+
+My badge wouldn't open it.
+
+
+
+I checked the access system from another workstation.
+
+
+
+My credential is still active.
+
+
+
+My permissions are normal.
+
+
+
+But someone changed the employee name attached to it sometime last night.
+
+
+
+It doesn't say my name anymore.
+
+
+
+It says:
+
+
+
+HART, EVELYN
+
+
+
+And according to the system, I've been clocked in since 3:07 AM.
