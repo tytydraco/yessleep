@@ -1,0 +1,42 @@
+When my father died, he did not leave much to me. A stuffed attic room full of yellowed field post letters, a rusted horseshoe, and a heavy package wrapped in resinous oil paper. I brought it down into my study and placed it upon the wooden desk, directly beneath the skylight.
+
+When I unfolded the sticky layers, it lay before me: a *Pistole 08*. An old Luger.  
+The wood of the grip scales was worn down, the iron dark and stained. Yet what fascinated me immediately was the toggle-joint. That precise, mechanical marvel did not seem like a relic from the war, but like a cold, metallic insect in a lurking stillness.
+
+I wished to clean the weapon. A pure impulse of conservation.
+
+I fetched gun oil, a rag, and pressed the catch bolt. The toggle-joint snapped open. A dry, metallic *click* echoed through the room—too loud, too deep for the slope of my study. It did not smell instantly of chemicals, but of wet clay, burnt fat, and putrid breath.
+
+I looked from above into the opened breech.
+
+There, where the chamber should lie, no brass was seated. It was a twitching, moist membrane of pink tissue.  
+Dirt fell from my own sleeve. I blinked. My fingers, which a moment ago held the cloth, were numb and gray with grime. Beneath my fingernails sat firm, black mud.
+
+From shock, I pushed the weapon away from me. It struck with a dull, organic thud upon the wooden board of my desk—as if it were made of flesh and iron at the same time.
+
+The toggle-joint still stood open. From the throat of the mechanism pushed not the casing of a 9mm cartridge. It was a tiny, pale human finger. It was moist, sinewy, and curled itself slowly upward, as if searching for support.  
+I took a step back from the desk, but my knee buckled. My legs felt rigid, as though stuck hip-deep in icy mud. The odor of burnt skin and old powder rose into my nose, so intense that I became sick.
+
+The Luger upon the desk surface moved. The toggle-joint began, step by step, to *pump*.
+
+*Klack.*
+
+The moist finger pushed itself further out. Behind it followed a second one. A third joint.  
+*Klack.*
+
+The metal of the barrel transformed itself. The deep traces of bluing looked now like dark, dead veins. At each mechanical snapping of the joint, the space around me contracted. My field of vision narrowed itself to this single point of iron and bone.
+
+I bent forward and reached for the barrel, intending to hurl the weapon through the skylight above me. But as soon as my skin touched the iron, it was too late.
+
+The coldness of the metal did not merely cut into my skin—it *sucked* itself tight. The toggle-joint snapped closed with merciless force. It did not lock itself around a cartridge casing, but around my own thumb.  
+A sharp, dry pain shot through my arm, directly into the shoulder.
+
+The iron was hungry. I felt how the mechanism of the Luger began to drink my blood through the pores of the wooden grip scales. The wood became darker, softer, swelling up like a greedy sponge.
+
+I wanted to scream, but from my throat issued only a dry, metallic rattling sound.
+
+The toggle-joint buckled once more. *Klack.* And with that sound, a memory shot into my head that did not belong to me: A dark trench in November of 1917. The stench of sweat, gangrenous flesh, and fear. A man cowering in the mud, his fingers locked rigidly around that same metal, while the trench wall collapses over him.  
+The man was not my father. It was the first nourishment of the weapon.
+
+I looked down at my hand. The metal of the Luger was no longer merely pressed against my skin. The bluing pushed itself in fine, dark grooves beneath my pulse. The weapon needed no one to pull the trigger.  
+It was the trigger. And it had just reloaded itself.
