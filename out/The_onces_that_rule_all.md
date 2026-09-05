@@ -1,0 +1,41 @@
+Humanity has done it. Humanity has became a type 5.3 civilisation, we’ve been able to travel between universe using our verse travel. Millions of years stuck, trapped in our solar system, billions of years trapped in our galaxy, until we kept going. Harnessing the power of stars, developing universal translation between all species in our universe and others, spanning our influence to all. Seeing an alternate version of yourself, kind of weird. But all this was nothing, compared to, them.
+
+It happened aboard the ship SolarX 5, this ship had a mix of prisoners, cargo and special VIP representatives going from our universe to universe 4. We’ve only been able to make contact with 5 other universe’s around our own. Our voyage was only supposed to be around 7 hours so we had some time on our hands. While on the bridge taking to my lieutenant, I looked out the window into the void between universes I turn back to see my lieutenant but, I wasn’t on my ship anymore. Looking on, where once the ended void between universes, there was now a throne room, there was no decorations, lights, nothing. Just a throne at the end of the room. It was massive, it had gaged spikes coming out of the top, the more I looked down I saw skulls impaled along the stairs to get down. Some of humans, aliens and some of never seen before. I didn’t realise that there was something sat on the throne, once it stood by it was huge, it looked to be around 8-9ft tall with a dark golden cloak rapped around it. The more it deceased the stairs, the more I could see its face, there was no face. It was complete darkness and the longer I looked my head started to hurt, even when I looked away and looked back it started hurting again. There was a good mile or so between me and the throne and whatever this was crossed that in less than 10 seconds. Until it stood before me, I was right, this thing was a giant.   
+“Hello, captain Car.” The thing said, it sounded as if all the life and excitement was sucked out of it. “I have brought you here, to warn you of an imminent danger to your empire.” I reached for my pistol.  
+“Who are you? Where the hell am I?” I asked looking up at it, again getting a sore head when looking at where its face should be.   
+“Apologies for the interruption, but there was no other way to tell you.” Its voice changed with every word like it was a different person saying a word. “My name is Rutsah. And there is somethings coming for your civilisation.” He began to walk and when I turned to follow, the room was even bigger, another few miles at best.   
+“There once was this civilisation, once like you inhabit now. But unlike you, they went in a different direction, they wanted power. They started harvesting mythical creatures like; unicorns, dragons, Wyverns, cyclops, even stronger beasts like Cerberus, Fenrir and the leviathan.”  
+“Leviathan? Like from the bible?” I asked   
+“Yes.”   
+“But the bible is false? How could it exist?”   
+“Some, universes have different gods, sometimes non, sometimes all of them. In this unfortunate case, it was all.” At this point I’m just trying not to piss myself.   
+“Once they harvested all the power from them, they distributed it throughout the humans on earth, but yet again, they wanted more. They wanted to become gods, and to achieve this, they killed there gods.”  
+“What gods?” I asked again still confused on where I was and how I even got here.   
+“Norse, Greek, Egyptian, Celtic, Chinese, and even Christian. Every god, deity and creature they could find was slaughtered by them only one was able to escape, the monkey king himself, Sun Wukong. And once they harvested the power, they sought heaven. They tore through the pearly gates heaven seeking god himself, angels tried to stop them but did little to no damage to them, even arc angels like Michal, Azrael and Gabriel intervened, all they did was give them more power. And then they found him, god. They harvested his power and became so strong.” He stopped taking as we reached a door.   
+“What’s this?” I asked it. He pushed it open to reveal what was outside this miles long throne room. Millions if not billions of spherical objects laid before us. “What the hell are these?” I asked standing back as to now fall out.  
+“Universes. This is the edge of creation, the boundless area where nothing existed beyond this point. And these.” Multiple universes started to turn red. “Are the universes taken by them.” In amongst all of them was one universe, completely covered in a blinding light, but it was black. A blinding black light.   
+“What is that?” I asked covering my eyes.  
+“That is the universe they originated from. Their control spans billions of trillions of universes destroyed those who try to stand against them.”   
+If there do unkillible, why am I here?” I asked glancing back up at him and the headache returns. “What am I supposed to do?”  
+“Nothing.” It says. “Noting you, nor your civilisation can do to stop them, if you make anything they will destroy it, if you plan anything they will stop it, if you try anything, they will stop you.” It turns away and starts to walk back to its throne. “I was just trying to warn you.” I don’t say anything. 
+
+Before I could say anything, I’m back on the ship, I wake up in the medical bay.   
+“Captain Car.” On of my guard stands and salutes   
+“At ease soldier, where am I?” I asked him  
+“Sir, you fainted in the bridge, you had a weak pulse. Are you okay?” He asked coming to my side.   
+“Yes, yes I’m fine.” He helps me stand and he leave so I can get dressed. What the fuck was that? That had to have been a dream, humans that became gods by killing them? Before I can think anymore a message comes over the intercom.   
+“Attention all crew and prisoners aboard the ship, we are now approaching Earth in universe 4 prepare for lan- WHAT THE FUCK!” The intercom is cut off I run out of the room and the soldier guarding me follows, we run straight into the bridge as the ship closes in on the edge of the solar system. Looking out, it wasn’t a dream. Standing, floating before us on the other side of the solar system is a gargantuan humanoid figure, it’s fully covered in a cyan colour with multiple different colours, some I’ve never seen before flowing around its body. We get an incoming transmission.  
+“WHAT THE HELL IS THAT?” A frantic screening man says.   
+“Where is this from?” I ask   
+“WHERE ON THE FARTHEST PART OF THE KUIPER BELT! WHAT IS THAT THING!?” The transmission is cut off as another voice comes over.   
+“Inhabitants of this universe.” The voice is sounds young yet raspy. “This universe and all of you are now under the control TC10 and will obey our order.” A small screen appears before me with two buttons. Red on the left and blue on the right. “Before you, is a choice. Press the blue button, and you will continue to live under our rule and continue life as normal. Press the red button, and suffer the consequences.” I hesitated for a second and pressed the blue buttons, most did.   
+“I AIN’T SCARED OF YA!” Shouted a soldier. “Bring in o-.” Before he can finish, he’s gone, not his clothes, guns, just him. Looking around I see two more piles of stuff, unlucky bastards.   
+“Out of the of the 385 Decillion intelligence life forms in this universe, only 475 septillion of you remain. For those you remain, don’t make there mistakes.” Then it disappeared, in the blink of an eye. I walk through the ship seeing more and more piles of uniforms, idiots.
+
+As we land and start unloading everything I turn away and I’m back in the throne room again, but it’s not the same as before. Looking to where the throne should be, looks to be a collapse in reality, there all over the room.   
+“I tried.” I look down to see the golden figure from before. “They found me, they can’t be stopped now.” Its cloak is torn and his entire bottom half is gone.   
+“W-Why and I back here?” I ask as my legs start to give out.  
+“I’m here to warn you?” It says looking up.  
+“B-But you already told me. They’ve taken my universe already.” I fall onto my ass in shock and the room starts to fall apart.   
+“Not you.”  
+“You.” 
