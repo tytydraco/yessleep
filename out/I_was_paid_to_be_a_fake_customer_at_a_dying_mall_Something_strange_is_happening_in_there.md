@@ -456,4 +456,4 @@ I really don’t want to go back there.
 
 But I know I’ll probably have to.
 
- 
+[Part 2: ](https://www.reddit.com/r/nosleep/comments/1w255as/my_husband_was_recently_hired_to_renovate_a_dead/)
