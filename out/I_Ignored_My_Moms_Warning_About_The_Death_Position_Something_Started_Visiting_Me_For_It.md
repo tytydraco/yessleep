@@ -1,0 +1,28 @@
+When I was in high school, my mom had a rule about how my bed could be arranged: never sleep with your head or feet pointed toward the door.  
+She called it the “death position.” In our culture, that’s how you lay a body during a wake — feet or head lined up with the doorway, so the spirit can leave the room. Do it while you’re alive, she said, and you’re basically inviting something in that has no business being there. To me, this was some old Chinese superstition. 
+
+I was sixteen and thought I knew better. My room only really “worked” one way — the desk fit in one corner, the closet took up a wall, and the only way to fit my bed how I liked it was in that exact forbidden alignment. So I moved it. Rebellious kid stuff. I didn’t think about it again.
+
+Two or three nights later, the dreams started.  
+In the dream, I was lying in my bed — the actual layout of my real room, down to the same clutter on my desk — and I slept with my door open, just like in real life. Except in the dream, someone was standing just behind the door, in the sliver of hallway you couldn’t quite see. Not in the room. Not yet. Just… there. Watching the gap.
+
+I woke up unsettled but brushed it off. Then it happened again the next night. And the next.  
+Here’s the part that still gets me: it wasn’t the same static dream on a loop. It was progressing, like a story picking up where it left off. Each night, whoever was behind that door had moved a little closer to the foot of my bed. A few feet, maybe. Enough that I noticed.
+
+By the fourth or fifth night, I could tell it was small. Child-sized, or close to it. I couldn’t see a face, couldn’t tell you what it was wearing — just a shape, low to the ground, in that in-between dream-logic way where you know things without your eyes actually confirming them.
+
+I told myself it was nothing. I did not rearrange my bed.
+
+About a week in, I dreamed that I opened my eyes and the kid was standing right beside my bed. Close enough to touch. And for the first time, it made a sound.
+
+It called out for help.
+
+Not a whisper. Not ambient dream noise you can talk yourself out of later. A clear, panicked voice, right next to my ear, begging me to help it — and I shot awake so fast I nearly fell off the bed, heart slamming, absolutely certain for a solid ten seconds that someone was still standing there in the dark.  
+Nobody was.
+
+I didn’t sleep the rest of that night. The next morning, before school, before anything, I dragged my bed back to its original position — the “right ” way, according to my mom, the way that didn’t line up with the door. I didn’t tell her why. I just did it.  
+The dreams stopped. Immediately. Not “faded over time” — stopped, like something had been switched off.
+
+It’s been years and I still haven’t moved my bed back into that alignment, in any room I’ve lived in since. I tell myself it’s superstition. I tell myself it was stress, or a coincidence, or my brain doing something weird with a story my mom told me one too many times.
+
+But I still think about that voice sometimes. How close it sounded. How it wasn’t asking for anything except help — and how I never found out from what.
