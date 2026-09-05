@@ -1,0 +1,199 @@
+I'm sure I'm not the only person who has someone in their life who has spent years trying to ruin it. For me, that person has been Silas ever since I was a kid.
+
+I don't know how he did it, but even back in kindergarten, all the other children seemed to gather around him like he was some kind of idol. The same thing happened at school. Unfortunately for me, that's where his attention shifted entirely to me.
+
+Silas bullied me for years. I never knew why. I'd never done anything to him. I went through the worst hell you can imagine.
+
+They threw me into trash cans almost every day. Every day, I lost my lunch and whatever money I had on me. They beat me, but never hard enough to leave marks on my face.
+
+Silas told me that if I ever said anything to anyone, there would be consequences.
+
+One day, I couldn't take it anymore and went to the principal. I showed him all my bruises.
+
+It had happened right after PE.
+
+The principal was horrified and immediately started investigating.
+
+But of course, nothing could be proven against Silas because everyone was on his side. It was as if they'd been hypnotized.
+
+Even the PE teacher claimed that I'd gotten the bruises from falling off the horizontal bar.
+
+I don't understand how Silas did it, but somehow I ended up being the one in the wrong, and I had to apologize to him in front of the entire class.
+
+Thank God, one day my parents came home with the news that we had to move.
+
+I'd never been happier.
+
+I actually cried tears of joy.
+
+It had been years, but some things stay with you for the rest of your life. Even when you think you've finally gotten away from them, all it takes is one thing to tear that wound open again, as if it had never healed.
+
+After finishing school, I found a job and moved out of my parents' house. I liked my job, got along well with my coworkers, and we even went out together once a week after work.
+
+Everything was great until our new boss came to introduce himself.
+
+It was Silas.
+
+You can't imagine what it felt like to see him again. He noticed me almost immediately, and I saw that cruel smile on his face.
+
+I knew it was starting all over again.
+
+Silas made a perfect impression on everyone. They were all thrilled with him.
+
+And my hell started all over again.
+
+Just a little different this time.
+
+There was an endless amount of work. He started badmouthing me to my coworkers, who slowly began pushing me out of the group until I wasn't even invited to the things we'd used to do together all the time.
+
+I wanted to quit, but I couldn't. I wouldn't have been able to afford my rent, and my parents weren't exactly well-off either. They could barely support themselves, let alone support me.
+
+One day, Silas sent me to pick up a package from a small company on the other side of town. I drove there, and when I walked out of the building with the package, I noticed a little shop across the street.
+
+In huge letters, the sign read **VOODOO DOLLS**, surrounded by a dark background covered in stars.
+
+It looked beautiful.
+
+That's when the thought occurred to me.
+
+*What if…*
+
+I crossed the street and walked into the shop.
+
+I looked through the shelves and picked out a plain, light-colored doll. It had buttons for eyes and a stitched smile.
+
+I took it to the counter.
+
+The shopkeeper looked at me and said,
+
+"Good choice, son. But I have to warn you. Be careful about what you do with it. This isn't a toy. There are things people shouldn't play with."
+
+I smiled and said,
+
+"Then why do you sell them?"
+
+He smiled back.
+
+"Because I have to make a living somehow. And people never learn."
+
+He wished me a nice day, and I went home.
+
+I unwrapped the doll and looked at the instructions. Inside the box was a piece of string, which I was supposed to use to tie something belonging to the person, along with a small pin.
+
+Whatever happened to the doll would happen to that person.
+
+I sneaked into Silas's office at work, and there was a comb with some of his hair on it sitting on his desk.
+
+*Could it really be that simple?*
+
+I took a few hairs from the comb and quietly slipped back out.
+
+A little while later, Silas called me into his office. I was afraid he knew I'd been in there. But it turned out he only wanted to thank me for delivering the package.
+
+I didn't believe a word he said.
+
+I could see how much he hated me in his expression.
+
+While we were talking, I watched him reach for the comb, walk over to the mirror, run it through his hair, and then walk back.
+
+*Bingo.*
+
+Then he dismissed me, and I couldn't wait to get home.
+
+When I got home, I took out the hair and wrapped it around the doll.
+
+First, I took the pin and stuck it into the doll's right leg. I left the pin there.
+
+When I came to work the next day, Silas was limping.
+
+It pleased me. Especially because he was treating me exactly as badly as I had come to expect from him.
+
+He even outdid himself that day. During a coworker's birthday celebration, he grabbed a piece of cake and threw it at me.
+
+Everyone nearly died laughing.
+
+When I got home, I angrily grabbed the doll and moved on to the doll’s right arm.
+
+The next day, Silas had his right arm bandaged.
+
+I left it alone for a while.
+
+But then came the day when Silas crossed every possible line.
+
+He called all of us into the conference room and played videos of me when I was a child.
+
+There I was with my head shoved into a toilet. There I was buried in a trash can. There I was crying in a corner, begging them to leave me alone.
+
+No one stood up for me.
+
+Everyone was completely hypnotized again.
+
+I got up and went home.
+
+I opened the fridge, took out a bottle of vodka, and poured it over the doll. I searched through the drawers and found some matches.
+
+Then I struck one.
+
+The doll caught fire.
+
+I watched it burn, and when there was almost nothing left of it, I put out the flames.
+
+When I realized what I'd done, I felt sick.
+
+I ran to the bathroom and threw up.
+
+I was disgusted with myself. I was terrified of what would happen the next day.
+
+With my stomach in knots, I went to work. As soon as I arrived, one of my coworkers told me to go to the boss's office.
+
+Confused, I went there, opened the door, and there stood Silas.
+
+With that same smile on his face.
+
+"I'm really sorry, Tyler, but I have some bad news for you."
+
+"What?"
+
+"Your parents are dead. They were driving yesterday and got into an accident. Their car caught fire, and there was almost nothing left of them."
+
+I took a step back, my eyes filling with tears.
+
+"That's not possible."
+
+He stepped right up to me.
+
+"Remember one thing, Tyler. I'll always be better than you."
+
+"What the hell are you, and why won't you just leave me alone?" I screamed desperately. "Why me?"
+
+He started laughing.
+
+"What I am... you'll find out soon enough. And why you? Because I find you entertaining. Now get out."
+
+I started backing out of the office.
+
+But just before I closed the door, I noticed something glinting in his hands.
+
+A pin.
+
+Things have been even worse ever since.
+
+Sometimes I wake up with excruciating pain in my legs. Sometimes it's my arms. Other times, I wake up with an entire section of my back burned.
+
+For the past few days, I've been waking up to the sound of wheezing. When I open my eyes, I see my parents staring at me. Their bodies are completely burned, and they're reaching toward me.
+
+After a while, it always disappears.
+
+I don't know what else Silas is capable of.
+
+I don't know what to do.
+
+I'm scared.
+
+I'm too much of a coward to kill myself, so I have no choice but to wait until Silas decides to end it.
+
+I guess all I can do is wait until Silas decides to end it.
+
+I'll let you know how this goes.
+
+And if you don't hear from me again... I guess you'll know what happened to me.
