@@ -1,0 +1,165 @@
+I leave for work at 4:40 every morning. At that hour, the lobby of my apartment building is empty except for Nora, the night concierge, and whatever has recently started walking out ahead of me.
+
+
+
+There are two sets of automatic glass doors between the lobby and the street. Normally, the inner doors open when you enter the vestibule, then the outer doors open as you approach them. About a month ago, both sets began opening before I got anywhere near them.
+
+
+
+The first few times, I blamed oversensitive sensors. I would step out of the elevator, still thirty feet from the vestibule, and the inner doors would slide apart. Three seconds later, the outer doors would open too. It looked exactly like someone six or seven paces ahead of me was leaving the building.
+
+
+
+Nora noticed me staring one morning.
+
+
+
+“Cold air sets them off sometimes,” she said.
+
+
+
+Then she looked at the security monitor and stopped smiling.
+
+
+
+Our cameras use motion tracking. Whenever a person crosses the lobby, a green rectangle appears around them. Nora turned her monitor toward me. I could see myself approaching the doors, boxed in green. Six feet ahead of me was a second green rectangle surrounding empty air.
+
+
+
+According to the label beside it, the empty rectangle was tracking something six feet three inches tall.
+
+
+
+Nora replayed the recording. When I slowed down, it slowed down. When I stopped to zip my coat, it stopped. Then, the moment I moved again, it continued toward the doors.
+
+
+
+After that, I started testing it.
+
+
+
+The next morning, I walked halfway across the lobby and stopped beside the mailboxes. The empty rectangle stopped too. The inner doors remained open, waiting.
+
+
+
+I took one step backward.
+
+
+
+On the monitor, the empty rectangle turned around.
+
+
+
+I couldnt see anything in front of me, but I felt a pressure against my chest, gentle at first, like someone resting two fingers on my coat. When I backed up again, the pressure followed.
+
+
+
+Nora grabbed my arm and pulled me behind the desk. The rectangle stayed where I had been standing for almost a minute. Then it moved to the vestibule, passed through both open doors, and disappeared outside.
+
+
+
+We spent the next hour checking older recordings.
+
+
+
+The first time the camera had detected it was twenty-three days earlier. It had been seventeen feet behind me. Each morning after that, it moved a little closer. Twelve feet. Nine. Four.
+
+
+
+On the morning it first appeared ahead of me, the footage showed its rectangle touching mine from behind. For three frames, the boxes overlapped. My coat collar lifted, even though the lobby doors were still closed and there was no wind.
+
+
+
+Then the empty box appeared on my other side.
+
+
+
+“It passed through you,” Nora said.
+
+
+
+She disabled the automatic doors and told me to use the fire exit beside the parking garage. That worked for four days.
+
+
+
+On the fifth morning, I pushed open the garage stairwell door and found the fire exit already standing open. It was a heavy metal door with a hydraulic closer. Holding it open normally took most of my weight, but it stayed perfectly still until I got within six feet.
+
+
+
+Then it began to close.
+
+
+
+Not quickly. It moved at walking speed, keeping the same distance ahead of me all the way to the frame. It shut just before I reached it.
+
+
+
+I went back upstairs and called in sick.
+
+
+
+Nora reviewed the garage camera. It did not have motion tracking, but it recorded sound. She sent me the clip. Before the fire door started closing, there were seven footsteps on the concrete.
+
+
+
+My footsteps were recorded several seconds later.
+
+
+
+I stayed with my sister after that. Her building has ordinary hinged doors, and for almost a week nothing happened. Yesterday afternoon, Nora called me. She said the empty rectangle had returned to our lobby every morning at 4:40, following my old route from the elevator to the disabled doors.
+
+
+
+Without me there, it stopped six feet from the glass and waited.
+
+
+
+Yesterday it did something different. It walked behind the concierge desk.
+
+
+
+Nora said the drawer containing the manual door controls opened by itself. Both automatic doors switched back on. The rectangle walked through them, crossed the sidewalk, and left the camera’s view.
+
+
+
+Last night, the grocery store doors opened while I was still crossing the parking lot. The pharmacy doors did the same thing. When I returned to my sister’s building, the regular front door swung outward before I touched it.
+
+
+
+I checked into a roadside motel with exterior rooms. No lobby, no elevators, no automatic doors. I pushed a dresser against the entrance and stayed awake until sunrise.
+
+
+
+At 4:40 this morning, the motel’s ice machine turned on by itself. Then the motion light outside the next room came on. A second light followed, then another, moving down the walkway toward me.
+
+
+
+My deadbolt began rotating just before the light outside my room turned on.
+
+
+
+The dresser held long enough for me to climb through the bathroom window. Police searched the room and found no one. The deadbolt wasn’t damaged, but the officer showed me something scratched into the paint beside it.
+
+
+
+It was a small rectangle, about the size of a person on a security monitor.
+
+
+
+I am writing this from a twenty-four-hour diner while I wait for my sister. The entrance here is an ordinary hinged door.
+
+
+
+A few seconds ago, it opened.
+
+
+
+Nobody came inside.
+
+
+
+The waitress just asked why the chair across from me is moving.
+
+
+
+It has stopped directly behind mine.
