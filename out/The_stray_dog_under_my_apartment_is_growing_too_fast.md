@@ -1,0 +1,103 @@
+Recently, my daughter has been nagging me about something she found in our basement, constantly calling it “her new bald pet.” She's always had a vivid and expressive imagination, often describing the thing as if it were a small hairless rat with six limbs and a short tail, so for a while I made the conscious decision to make short nods to her playful delusions, like, “Oh? It seems so interesting,” or “Make sure you take good care of it.” She would usually respond emphatically and run to the next room to play with whatever she needed. However, her behavior became concerning whenever she was out of the house for too long.
+
+ The best example that I can recall at the top of my head is when her mother had to take her for two weeks. On the 4th day, she called me repeatedly, and when I picked up, that woman began screaming as if a wild animal was cornering her.
+
+“You need to pick her up now!”
+
+I distinctly remember her voice sounding as icy cold as when she found out that we had a daughter. In response, I made the reasonable decision to de-escalate. 
+
+“How come? Taking care of a kid can't be that hard.”
+
+“Don't f\*ck with me right now; she's freaking out right now, and I need you to come help with her!”
+
+I was obviously reluctant to drive to her place since my daughter was usually low maintenance and couldn't even rip open a teddy bear, but when I opened her door, I almost fell back in shock. 
+
+The house was a complete mess: broken glass, destroyed stuffed animals and dolls, all of which were done in the same way: completely mangled and twisted into horrific and unnatural shapes. Some of the windows were cracked, and doors were chipped, like something was desperate to leave. After a brief search, I found my daughter's mother on the deck, who pointed to the guest room where my daughter sat on the bed, curled up, surrounded by discarded pillows and sheets.
+
+“What the hell is this?”
+
+“...”
+
+No response; it was as if even she couldn't believe it was real. In the end, I grabbed her arm and walked her to the car, not even bothering to look at the kid’s mother. I started the ignition and glanced in the rearview mirror, expecting her usual jolly face; instead, she looked like she didn't even have the energy to look up.
+
+The ride home that afternoon was depressing, but I still needed to be the bigger man and make sure she knew what she did wasn't okay, and yet I didn't have the heart to scold her like usual.
+
+“Why… why did you do it?”
+
+“...”
+
+“Is it something we did? Are we just not giving you attention?”
+
+“...no…”
+
+“Then why are you doing this, knowing how hard I work?”
+
+“...I’m sor-”
+
+“Don't say that… you don't get to say that… because I'm at the point where I don't even know what to do anymore. I work every second of my life, and I have to do everything, but in the end, I want to know.”
+
+She was quiet for a while after that, not even making a peep until we went into the parking space of our apartment complex, where she finally said, just quiet enough to make out, “I could feel my pet… he was lonely.” I didn't even bother to question her told her that now wasn't a good time for her expressive imagination, but at this point, I was willing to take anything that would get me out of this awkward situation. 
+
+Every night after that, things escalated with more and more occurrences I was unfortunately blind to at first, thinking it was in my head, until they were right in front of me. The first night I came home from my night shift, I noticed that all of our meat was gone: beef, mutton, chicken, and even fish weren't spared. This was despite me shopping for food the night before, but at the time, I was too tired even to care or be concerned about what my daughter was doing while I was at work, so I just walked to peek into my daughter's room, where she was fast asleep, peaceful as usual, and went to sleep.
+
+The night following that, I returned home and attempted to go to sleep, only to be repeatedly woken up by multiple thumps on the floor below me, staggered yet randomly consistent. I assumed it was my neighbor below us, so I sluggishly and sloppily put on random clothes, walked downstairs, and knocked on the door impatiently. When a sluggish, disheveled mess of a man opened the door, I immediately laid into him.
+
+“Hey man, I'm going to need you to quiet it down here.”
+
+“The hell are you talking bout-”
+
+The man looked utterly bewildered, which only made me more agitated, so I snapped at him and got into a slight argument. By the end of our conversation, I was forced to leave while he flashed his phone screen at me. When I finally made it back to bed and tried to rest, the thumping only got more ferocious and louder as I hopelessly covered my ears with any available pillow.
+
+The day after, I woke up much earlier than usual, causing me to see what my daughter prepared for her day, except she never left. She just sat on the carpet, writing multiple letters, all written to “my stray dog”. I assumed she never left for school because they were off that day or something, and she was trying to pass the time, but when I passed by to grab a drink from the fridge, I saw what was inside the letters. Each one was written like text or casual conversations you would have with a best friend, and under what she wrote were weird greenish goo stains that I didn't pay much attention to; kids love to play with slime, so I figured that was it. That was until later that day, when she ran off into her room and came back a bit later, with all of the sheets of paper gone.
+
+For the days after that, I always woke at the same awkward time and was forced to stay with my daughter as she repeated the same cycle until one night, before I had to go to my night shift, I finally intervened and stepped in front of her before she managed to get into her room, saying,
+
+“Hey kiddo, I've noticed that you haven't been going to school recently. Are you off? Is there a break?”
+
+She proceeds to nod sheepishly. In response, I sigh and look at my phone on the dining room table. 
+
+“So if I go call your mother and ask about your schedule, she wouldn’t say otherwise?”
+
+She stopped and clutched her papers tighter, giving me a look of complete turmoil. Finally, she squeaked out.
+
+“I couldn't go to school because I need to take care of the pet in the basement.”
+
+First of all, we don't have a basement; we live in a multi-story apartment complex. How can that be physically possible? Without saying a word, I burst into her room to see a brown, tattered oak door sitting on the wall in front of her bed. There's no way that it was real; it was completely out of place. It wasn't even architecturally possible. I slowly turned around and looked at my daughter, subtle horror on my face,
+
+“So this is why you have been skipping school, to go into your room and play pretend?”
+
+She looked utterly bewildered at my response, looking past me and back at my face.
+
+“Dad, what are you talking about- it's right there.”
+
+“Now's not playtime, sweetie.”
+
+“But my pet is in the basement, just look…”
+
+“WE DON'T HAVE A BASEMENT! YOU DON'T HAVE A PET! God, I try to give you the best life we have, and you are just spitting in my face with your DELUS-”
+
+In an instant, the door slams open, causing me to snap around and fall back. My hands were cold with sweat, and my legs instinctively started shaking. A slow squelching and pounding sound as the old oak stairs past the tattered dark oak door creak with such intensity; they sound like they're on the verge of snapping in half. It never came out of the shadows; instead, it slugged its way into the next shadow when one ended. When it passed the door's threshold, I caught a glimpse of what it was. Its bloated, rotting flesh peeled away, and green, spoiled liquid oozed from its wounds. Its body was made up of different animals, all of which I couldn’t identify. Its voice was unidentifiable as well, sounding like it came from multiple unrelated creatures; it was impossibly bigger than my daughter had first described.
+
+My first instinct was to put my daughter behind me and hold out a hand.
+
+“Don't hurt my daughter!” I managed to say while my outstretched hand shook wildly, but it seemed to work, as the creature stopped in its tracks. But with a slow and labored pace, it let out a tendril, made of several different fingers, and wrapped it around my arm as it spoke in a gargled, broken English.
+
+“...When… was the…last time- you got.. groceries…” 
+
+I was completely stunned by the question, and before I was able to speak, it put inhuman force into its tendril and broke my arm as if it were a twig. I managed to break free from the creature's grip and let out a blood-curdling scream, and grabbed my daughter with my healthy arm, who was quiet throughout all of this, and ran out of the apartment, down the stairs into the parking lot of the complex, finally setting my daughter down on the curb. Before I was able to give my daughter any words of encouragement or even scream for the police, since I left my phone in the apartment, the thing jumped down from right in front of my daughter and stared me down. 
+
+I fall back, horrified, once more and look past the creature, at my daughter, who just looked at me plainly.
+
+“Sweetie, I'm going to need you to step away from the monster and come to me slowly, please…” 
+
+She didn't move as the creature let out a tendril, softly and protectively grasping her hand with it.
+
+My negotiations with her soon turned into desperate pleas with her to come to me, as that thing just stared at me, with not even a hint of remorse on its face for what it did to me. Finally, I take a step back to the stairwell, and the creature seems to follow curiously, with her only turning to me, face unrecognizable, and saying, “Please, Dad, stop… You could have just tried to believe me.”
+
+She walks off with the creature following her like a loyal dog, leaving me in the parking lot, arm shattered and completely breaking down, screaming for her to come back. 
+
+“I do! I'll do anything! Please! I’m a good dad!”
+
+Now, I've taken refuge in a downtown shelter, with my only resource being a company laptop I managed to get hold of. I ask: what can I do? I need my family back. She can't be living with that thing; no one understands what I have done- not my ex, my daughter- and I lost it to that thing.
+
+I need to bring her back.

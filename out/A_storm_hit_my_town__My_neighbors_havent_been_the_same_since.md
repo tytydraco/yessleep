@@ -131,7 +131,7 @@ A storm came to my town.  Whether conscious and coordinated, or a form of unfee
 
 The only solace I find in these final moments is the clouds.  Their cyclone of spiraling darkness is oddly hypnotising.  And their humming.  It suddenly sounded more like a cooing than a growl to me.  The pain has dissipated.  Whether that be from my body going into shock, or a mercy of the storm, does not matter.  I still feel the holes burrowing and spreading across my legs, torso, and face, like a faint pressure.  They grow wider and deeper, as if my flesh were but an ice cube melting on a hot summer day.  
 
-A final sob shakes through my wretched body, the last sights, sounds, and thoughts I’ll ever have drowned out in the downpour and the humming syphon twisting toward me.  My eyes melt into my skull.  My gums reduce to a bloody pool where my teeth swim, awaiting their turn.  My heart now lies exposed to its fate, free from its fleshy castle.  The humming grows as the clouds descend, like a gaping maw, eager to feed.  With bursting lungs, I am allowed one final wale.  
+A final sob shakes through my wretched body, the last sights, sounds, and thoughts I’ll ever have drowned out in the downpour and the humming syphon twisting toward me.  My eyes melt into my skull.  My gums reduce to a bloody pool where my teeth swim, awaiting their turn.  My heart now lies exposed to its fate, free from its fleshy castle.  The humming grows as the clouds descend, like a gaping maw, eager to feed.  With bursting lungs, I am allowed one final wail.
 
 Watch for the storm.  
 
