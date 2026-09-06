@@ -1,0 +1,69 @@
+I say this as a word of warning: guard your souls and do not neglect them. You will not like the outcome if you do not.
+
+ I was eighteen; wild and fresh as a summer's morn. Rebellious and stubborn, I disregarded all that I was taught. 
+
+ A solder was I. Fresh faced, and uniform freshly pressed. Shipped off to France to fight the Hun. 
+
+ I remember the engagement. Dug in deep into the earthworks, waiting patiently for our time to charge. I was excited, for I wanted to shed blood. Until Jacoby took a round to the face.
+
+ His cries for his mother which he uttered out of a shattered mouth were all I needed to know that I was in hell, and that I would die here. I had no idea what was to come.  
+
+ I comforted him in his final moments. His breathing much like a child with a high fever. The rasp grew ever stronger as he struggled. 
+
+ I was only with him for a minute or so, until God took him away. 
+
+ I was staring into Jacoby's eyes when I noticed a reflection in them. It was of a figure, high above in the bright, mid-day sky. And although carnage and bloodshed were all around me, I couldn't help but become transfixed by the visage. 
+
+ The figure continued to decend towards us. And then I looked up. For one brief moment... I saw Him. 
+
+ I should have known better.
+
+ For he took my sight. I was plunged into darkness. I stared into the sun for too long, after all.
+
+ Through my other senses I continued to feel the world: the squeeze and release of Jacoby's hand in mine, the deafening roar of the guns, the screaming and the agony, and the smell of flesh burning and blood flowing. 
+
+ And then I felt the presence of Him next to me. I could hear His breath. I could feel the winds shift, and hear the guns fade for one solitary instant.
+
+ 
+
+ And then He spoke. 
+
+ I still do not know what He said. It wasn't for me, at any rate. It was for Jacoby. But I do remember Jacoby squeezing my hand as tight as he had squeezed so far.
+
+ He passed then, I think. His hand went limp as he whimpered a final wordless fairwell to the earth. 
+
+ God then must have took him in His arms, for I felt Jacoby's hand slip from my grasp. 
+
+ I sat there, in the mud and mire, waiting to understand what had just happened. Then I stood. The understanding came in the form of a bullet to my head. 
+
+ The sensation of falling was all I remember. I didn't feel pain. Not even when I reached my hand up to the hole in my temple, and felt the stream of steaming liquid flow freely. 
+
+ I did not last long. My mind fizzled and faded like a fuse doused with water.
+
+ And I did not awaken again until God chose. 
+
+ I opened my dead eyes to see a face staring back at me through the darkness. A pale, bearded face. His piercing eyes bore into me. 
+
+ "You are not one of mine." He spoke. 
+
+ And in an instant, I felt myself be brought into a new realm. 
+
+ My eyes slowly regained sight, and I wish they never had. For I opened my eyes to see a wall of stone. I frantically looked to my left and right, then up and down. All to find stone. Forever in all directions. Stone.
+
+ I tried to move, but I was pinned in. I was in a cylinder of stone. I tried to breathe, but I could barely grab any air. It was hot, and harsh on the lungs. 
+
+ I realized then that I wasn't alone. I could hear moaning and screaming far off through the walls. 
+
+ Oh, how I tried to move. I fought, and wriggled, and kicked, and screamed, and clawed. All to no avail. 
+
+ Hell is no inferno. It is a cylindrical stone tube that goes on forever. And I am stuck inside of it. Just another soul in the pipeline. 
+
+ I am now sewage.
+
+ I will never leave this place. 
+
+ I will never have another chance. 
+
+ I cannot die. 
+
+ Help me. 
