@@ -1,0 +1,22 @@
+Last Sunday my 6 month job search had finally ended. I saw an ad online that a local flower farm was hiring, so I applied. I wasn’t really expecting a reply from the place, since that has been the recurring theme of my hunt up to that point. No one really wanted to hire a teenager without a resume. 
+
+To my surprise, they responded almost immediately. The next day I was scheduled to meet the owner of the farm and learn the ropes of working there. He mostly just showed me around the place and taught me the basics of what I would be doing. I wasn’t even really interviewed to see if I would be a good fit or whatnot. At the end, I was even given a flower that he picked as we worked together. I'm not really a flower person, but the bright color and the fragile happiness that it contained was enough to sell me on the job. It looks very pretty sitting in a milk glass in my room.  He was very eager to have me start, so I showed up on Monday and worked for a couple hours. Doing a lot of weeding mostly. Which was by no means “fun” But hey, it's money. 
+
+The rest of my week continued like that. I show up for work and do whatever task I'm handed. He has an upcoming wedding that he’s been prepping for so I've been picking a lot of flowers that suit his client’s request.
+
+On Wednesday, he and I were weeding a section of flowers and brought the weeds to a huge compost pile on the edge of the property. While we were tossing them into the pile I heard a bunch of sounds coming from far away in the woods. I asked him what they were, assuming they were probably just coyotes or foxes. Maybe even a hurt deer? I live in town, so I'm not too familiar with identifying animal noises. He hesitated for a moment and shifted uncomfortably before speaking.  
+   
+“The neighbors in the woods own a lot of dogs… so that's what you're hearing.” 
+
+He quickly switched the conversation to talking about my next task before I could ask any questions. I continued on with my day, not really thinking too much about it.
+
+The next day I was working in the field, picking flowers for pre-made bouquets to be sold at the farmers market over the weekend when I heard the noises again. They didn't sound like dogs. It was more like angry squealing, like a monkey?  And they were coming from the cornfield this time. Now that I think about it, I don't think the sounds I heard in the woods a couple days ago sounded like dogs either.  
+   
+I looked up from my work and didn't see anything around me. I watched the cornfield for a moment before continuing. Not too long after that, my boss called me into the barn to help him put the bouquets together. He said that he still had a bit of work to do and asked me if I could stay for another hour. I told him I could only stay for half an hour due to plans I had with some friends later that evening. He looked a bit disappointed or maybe even a bit upset but said that he understood. I left just as the sun was almost finished setting.
+
+I'm set to work as a “hired contractor”, so that means I set my own hours and mostly just come in whenever he says he needs help. Thursday was the last time I was there, so later that night I messaged him and asked when he needed me again. I never got a response so I figured he must have been busy with something. So I messaged him again the next morning. No response again. I thought maybe he has other employees that he has working, although I never met any of them or heard him mention anyone.   
+  
+All of the socials that he usually post to for advertising have gone dark. He regularly updates them, so its very unusual. It's been a whole weekend by now, so I think I might go to the farm to see if everything's alright.
+
+   
+

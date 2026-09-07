@@ -270,7 +270,7 @@ I could hardly breathe as I watched her loom over Lucy with the instrument, and 
 
 I kept my gaze mostly on Lucy, specifically her eyelids, praying with each passing second that she would close them. The longer this didn’t happen, however, the more the sickness in my gut ate away at me.
 
-*‘*She’s not falling asleep’*,* I realized, *‘*She’s not *meant* to fall asleep*.’*
+*‘She’s not falling asleep’,* I realized, *‘She’s not meant to fall asleep.’*
 
 “Adeline, I don’t feel very good…” the little girl whined up to the scarlet-haired witch looming over her.
 
@@ -323,3 +323,5 @@ Protruding from my torso, from the same place that I’d felt a consistent sickn
 I suddenly found it hard to breathe again as I stared down at the magical string that ran a few inches before vanishing into the air before me. It wasn’t unspooling the way Lucy’s was right now, only lingering there and drifting loosely when I moved. Either way, it was undeniable that it was the same thing.
 
 Whether it was because we were currently present for the ritual, or witnessing it had just opened some sort of third eye, I was staring at my own thread of life. A thread that was meant to be taken in this basement long ago.
+
+[{Next post}](https://www.reddit.com/r/nosleep/s/auZ5Hml65J)
