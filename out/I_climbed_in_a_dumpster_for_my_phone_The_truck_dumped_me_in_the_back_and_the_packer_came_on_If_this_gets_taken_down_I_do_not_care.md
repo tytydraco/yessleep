@@ -1,0 +1,117 @@
+I should not post this. I am posting it anyway. I keep typing it and deleting it because it sounds like a warning video. It was not a warning video. It was a Tuesday morning and I am not all the way a person anymore.
+
+I live in a cheap building. Four dumpsters in the back. The truck comes early. Like 5 a.m. I work nights so 5 a.m. is still night to me. I took the trash down because the bag split in my kitchen and I did not want ants. I had my phone in my hand. I always have my phone in my hand. I lifted the dumpster lid with my elbow. The bag tore again. I leaned in to shove it down. The phone slipped.
+
+I heard it hit. That little glass sound on something wet.
+
+I stood there like an idiot. I needed that phone. Work. Bank. Everything. The dumpster was not even full. I thought I could see it. I thought I would be in and out in ten seconds.
+
+I climbed in.
+
+That is the whole stupid thing. I climbed in.
+
+The inside was worse than it looks from the lot. Bags. Wet cardboard. A slick of old juice and grease. It smelled like rot and soap and summer even though it was cold out. I had my knee on a bag that moved in a way I did not like. I was reaching. I saw the phone. Screen still on. My sister’s text. A white rectangle in the black. I had my fingers on it.
+
+Then I heard the truck.
+
+Not far. Right there. The backup beep. That high ugly beep. The diesel. The air brakes. I stood up in the dumpster and I yelled. I yelled wait. I yelled I am in here. I waved. The lid was still up. I know it was up. The driver was high in the cab. The sun was not even thinking about coming. He was looking at the next can. The helper on the back was looking at the next can. Nobody looks in a dumpster for a person. People are not supposed to be in a dumpster.
+
+I tried to climb out.
+
+The truck’s arms were already on the can.
+
+If you have never seen it, a front-load dumpster gets grabbed and lifted and turned like a toy. It is fast. Faster than a man with one leg over the rim. The dumpster went up. I fell in. My chin hit the rim. I lost the phone. I lost the sky. The world turned and all the bags came with me and then there was a drop.
+
+I fell into the hopper of the truck.
+
+I need this to be simple. The hopper is the open mouth at the top. Garbage goes in. Then a big metal panel pushes it back into the body of the truck so they can keep going. That panel is the packer.
+
+I landed in wet bags and something that broke under me. Glass. I felt it in my side. I screamed. The dumpster was already going back down to the ground, empty of me. I screamed again. The diesel ate it. The helper hit the side of the truck twice, the all-clear slap, and we started moving.
+
+I was in the dark with other people’s trash, and the truck was going to the next stop.
+
+I got on my knees. I reached up. The hopper walls were slick. My hands slid. I could see a rectangle of morning, very high. I could not get to it. I yelled until I tasted blood. I banged metal with a can. The truck hit a bump and I went down again face first into a bag that burst. I will not list what was in it. You can guess. It went in my mouth. I threw up and the throw up stayed with me because there was nowhere for it to go.
+
+We stopped.
+
+I thought thank you. I thought they heard.
+
+They did not hear. They dumped another can on me.
+
+Weight. A wall of bags. A piece of wood. Liquid that was not water. It all came down and I was under it and I could not get a full breath. I punched up. I got a hole. I got my mouth to the hole. I screamed. A radio in the cab was playing. I could hear it a little, through the metal, a man talking about traffic. They could not hear me over themselves.
+
+The helper slapped the truck.
+
+The packer beeped.
+
+A different beep. Shorter. The hydraulic sound. A scream of its own. I did not know what it was the first time. Then the wall in front of me started coming.
+
+Not fast like a movie. Fast enough. A steel panel the width of the hopper, sweeping, pushing everything that was in the mouth back into the body. Pushing me.
+
+I tried to climb over it. There is no over it. I got my hands on the lip and the lip had no pity. The panel took my legs and then my hips and it shoved me into the packed garbage already in the truck like I was just more of it. I felt myself go from a person in a hole to a person in a press. Bags in my face. A spring in my back. My ribs could not open. I could only take sips of air that tasted like the dumpster and diesel and rot.
+
+The panel stopped. Hydraulics holding. I was in a pocket. Not a safe pocket. A leftover space between the packed load and the roof, full of torn plastic and my own noise. My right leg was not right. I knew that in a clean way. It was bent in a place legs do not bend and the pain was a white stick in my head. I reached down and I touched something wet and sharp that was my jeans and also not my jeans.
+
+I said please to nobody.
+
+The truck moved.
+
+Every bump packed me tighter. I could not tell up. I could tell pain. I could tell I had pissed and it was warm and then it was not. I could hear the beep at every stop. I counted stops because counting is a job and I needed a job. Four. Five. Each stop they added more. The more came in at the hopper and then the packer ran again and the whole load, me included, got a shove, and my pocket got smaller.
+
+On the sixth pack I felt a rib go.
+
+It is a small sound inside you. A click. Then breathing is a knife. I stopped screaming because screaming needed the rib. I made little sounds. I bit plastic. I bit until my teeth went through and then I was biting garbage and I did not care.
+
+I thought about my sister’s text. The white rectangle. I never even read it.
+
+I thought about the helper. A kid, probably. Headphones. He was doing his route. He was not a murderer. That is the part that makes me sick in a way the glass in my side does not. Nobody was trying to kill me. I was in the wrong container. The machine was doing the only thing it knows.
+
+We drove a long time. I went away and came back. When I came back I was colder and the pain was farther, which is not better. It means you are leaving. I slapped my own face with the hand I could move. I hit the roof of the body with a bottle. Tap tap tap. Nobody.
+
+Then the truck got louder in a new way. Beeping. Men shouting. A backup alarm that was not the truck, another truck. Transfer station. I did not know the word then. I know it now. It is where they dump the load so they can go get more.
+
+A huge hydraulic sound. Different from the packer. The body started to tilt. The packed garbage started to move as one thing, a glacier of bags, and I moved with it. I was coming out. I was also under it. I thought I would be poured like soup and crushed under my own grave of trash in a pile on concrete.
+
+Light.
+
+Dirty daylight. I had not seen daylight in I do not know how long. It hurt. The load slid. I slid. I hit the pile and more hit me and I got a mouth of plastic and I could not lift the weight off my chest. I could see a strip of sky. I could see a seagull. I could not get the sky.
+
+I put my hand up through the bags.
+
+That is all I had. A hand.
+
+I waved it. I think I waved it. A man yelled. Not a scared yell at first. An angry yell, like somebody had thrown a mannequin in for a joke. Then the yell changed. Then there were two men. Then they were digging with their hands, cursing, calling for the loader to stop, stop, stop, there is a guy, there is a fucking guy in it.
+
+They pulled bags off my face.
+
+Air. Rotten. Beautiful.
+
+I tried to say my name. I threw up black. One of them said oh Jesus oh Jesus and he kept saying it while they dug my other arm out and then they stopped digging so fast I thought they were leaving. They were not leaving. They had seen the leg. I did not look. I did not need to look. I could feel the air on parts of me that should not have air on them.
+
+An ambulance at a dump. That is a picture. They cut me out of the rest of the load. Every cut of scissors I thought was the packer again. I bit a man. I said sorry later. I do not know if I did.
+
+Hospital. Dirt. Infection. They named the infection like it was a pet. My right leg was a construction problem. They tried to save it. Then they sat down next to the bed and they used a simple sentence. I said do it. I said it before they finished. I did not want to belong to that leg anymore. That leg belonged to the truck.
+
+I still have the left. I still have my hands. My ribs healed into a shape that hurts when the weather changes. My mouth was a medical thing for a while because of what I bit and what went in. I will never tell you the list. You would delete this faster.
+
+The driver came to the hospital. He cried in a chair and I watched the wall. He said he did not see me. I believe him. I told him I climbed in for a phone. He put his head in his hands and I thought we were both in a hopper, just different ones.
+
+They found the phone when they sorted the load. Cracked. Dead. My sister’s text was still in the cloud. It said call me when you can.
+
+I can.
+
+I do not.
+
+I do not take the trash down if I can hear a beep. I do not sleep when trucks go by. I dream I am waving a hand through bags and the seagull is there and the men are angry at the joke before they understand it is not a joke. I wake up and my missing leg hurts, which is a nasty trick, and my mouth tastes like that first bag, always, under toothpaste, under everything.
+
+If you drop a phone in a dumpster, leave it.
+
+Buy another phone.
+
+Stand on the asphalt and watch the truck take the can and understand that the can is a mouth, and the truck is a stomach, and the packer is just a muscle doing work, and it will not check first.
+
+I checked first.
+
+I still went in.
+
+This will get taken down. Good. I would take it down too. I just needed it out of my head and into a place as dirty as the place I was in, for one minute, before I go back to not calling my sister, and not sleeping, and not looking at metal panels that move.

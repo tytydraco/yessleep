@@ -1,0 +1,15 @@
+Have you ever gotten one of the midnight phone calls? 
+
+It'll be midnight, or sometimes later, 2 or 4 AM, in the hours where the world is silent, apart from the distant cars on the highway, and you feel like you're the only person on Earth. The phone will ring and, for whatever reason, you'll wake up. On the other side will be someone you've never met. Always a different person each time - man, woman, young, old.
+
+They'll start talking and you'll stay silent, tempted to interrupt them, but just lacking the wherewithal to do so. The message varies but the subject is always the same - they're looking for someone they lost. 
+
+An old man describes his missing granddaughters, twins, with fresh braces and glasses and short blonde hair, missing before their first day of fifth grade. A woman tells me about her husband, a carpenter, who walked out the door one day and never came back. Once a little boy did nothing but ask me where his mother had gone.
+
+After they finish, you'll hear nothing but silence on the line and the beating of your own heart, your own breath in your silent kitchen or bedroom or bathroom. Then they hang up. I've written down the numbers every time I've gotten one, but during daytime I never get around to calling back. It's never been the same number.
+
+I'm not the only one this happens to. All over the world, people on the Internet mention this phenomenon. Nobody knows who's making the calls. It doesn't happen to everyone - lots of people say it's a hoax, that we're crazy, we're making it up for attention. The news did a segment on it once. I had to turn it off after two minutes.
+
+I had a dream the other night that all the midnight callers were in my house. It was dark and the air was still, and I drifted like a silent swimmer through the halls. They were spread throughout the place, far enough apart as to be alone, close enough together that there was nowhere you could go to escape them. The woman with the missing husband stood blocking a doorway, recounting her story at a low volume, not even talking directly to me. The old man was eating rigatoni out of a dirty bowl, without sauce, layers of clumped noodles squishing between his yellow teeth. The little boy sat in the corner of the living room, staring at the television, which wasn't switched on. None of them seemed to see me. None of them would stop talking. Their voices became louder and louder until I woke up.
+
+Today, though, something strange happened. I got a phone call at 3 in the afternoon. I immediately recognized the number on the other end - it was one from my list, a woman whose father never came back from K-Mart. Alone in the grocery store parking lot, I answered, bracing myself for her tale and the dull silence of having nothing to say. But she didn't go into her story. She only asked me why, the previous night, I had called her at midnight.
