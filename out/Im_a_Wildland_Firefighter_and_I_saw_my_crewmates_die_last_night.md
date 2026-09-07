@@ -1,0 +1,314 @@
+I need to write down what happened. I... I just can't... I just need to write. Everything started yesterday.
+
+I was floating through clouds of cotton candy. I saw Grandma June riding a horse with wings. I got closer, excited to see her again. “Hey Grandma!” I said. “I have really missed you!” She met my eyes. Red light beamed out of her once deep blue eyes. She opened her mouth, ***BEEP… BEEP… BEEP…***  
+
+
+Sam shook me away. “Wake up, dipshit! We got a fire, and she’s hot!” Instinct and training took over as I slid out of bed. My eyelids felt heavy, wafting up and down, as my body moved with precision. Nomex pants, on. Wool undershirt, on. Boots, on. I felt my eyelids fall as whoops and hollers bounced off the walls. “Keep up!” Sam said as he shoved me out the door. I lifted my fifty-pound eyelids and buckled.   
+
+
+“Rouge Dispatch, this is Engine 631,” Damien said into a static radio.   
+
+
+A cheerful woman's voice said, through bouts of interference, “Go ahead, Crew 31!”   
+
+
+“Show us en route to the reported smoke up Chetco River Corridor.”   
+
+
+“Copy, Engine 631 on route to Chetco River smoke sighting.”  
+
+
+“Thanks, Mindy.”  
+	
+
+“Any time, Damien.” The radio fell silent, and a roar replaced it. The engine whined and barked as Sam put the pedal to the floor. Someone rolled the front window down, blasting me with crisp air. It was so sharp my eyes began to water.  
+
+
+I rubbed my eyes, saying, “What time is it?”   
+
+
+“Ha! It’s one AM, buttercup- too early for you?” Sam said.   
+Damien twisted around in his seat, his bright green eyes meeting mine. “On-call shifts are a bitch, kid. You’ll get used to it, especially after that first paycheck hits,” he said. “Take this; it’ll help wake you up.” I took the still-warm styrofoam cup and gently brought it to my lips. The bitter taste hit my tongue, and a few grains got stuck in my teeth. I scowled as I forced the brine down my throat. “Black,” he said. “Cream and sugar are waiting for you when you get back.”   
+
+
+I stared out the window while Damien's chuckle, reminiscent of a mall Santa’s *Ho Ho Ho,* played a harmony with the whispering wind. I checked my pocket for my phone, only to come up empty. *Damn, how could I forget?* With no other option, I watched the trees that bled into the sandy ocean. *Not bad, kinda pretty at night.*   
+
+
+Sam tossed and bumped us as fast as he could in our little engine. 600 gallons of water sloshed just behind me, lulling me into a blissful doze. My eyelids gained twenty pounds, then thirty, then forty; by fifty I couldn’t keep them open and succumbed.   
+
+
+“Grab the Bino’s kid!” Sam yelled. I shot awake, heart beating through my chest. I rummaged through the junk we let pile up in the cab after endless patrols took us within arm's reach of a Taco Bell or a Subway. My fingers brushed the rough leather strap, and I yanked out the binoculars from their fast food tomb.   
+
+
+“Here,” I said, handing them to Damien.   
+
+
+He took them with a smile and a wink. “Hop out, kid,” he said. “My night vision isn’t what it used to be. Sammy, kill the lights.”   
+
+
+I pulled myself out of the car, muscles screaming a hollow cry. We pulled off by the river, the shimmering reflection of a sliver of a moon caught my eye. I trailed Damien as he hiked up a grassy hillside a ways.   
+
+
+Damien pulled out his phone and scrolled. He flicked a wink at me as he tossed the binoculars at me. “Says here it should be due east.” I followed his finger and brought the cold, sleek metal to my eyes.   
+
+
+I peered through, scanning up and down, left and right. Endless pines, magnolias, and ferns stared right back at me. I caught a faint wisp of smoke drifting slowly into the sky. I followed it down and saw a faint glow through leaves and needles. “I see it,” I said.  
+
+
+“Damn,” Damien said, slapping me on the back. “I was hoping for a false alarm.”   
+
+
+“It's only a wisp; it's basically nothing,” I said.  
+
+
+Damien grabbed my arm, saying, “That shit is crispy and dead; a little spark will extend our employment all the way to November.” I nodded. *God, I hope it's nothing.* We made our way back to the truck. Wordlessly, showed his glowing phone to Sam.   
+
+
+“Fuck,” Sam said, flicking the lights back on and putting the truck in gear. We wound and crossed back over and over till we came to a dirt road, its marker post snapped halfway up. “Think this will get us there?”   
+
+
+Damien scrolled through his phone, tapping and flicking. “It's as good as best as any,” he said. Sam nodded and turned us up the rocky road. Sam danced through the rivets the rain had cut, expertly guiding us up and up. The water tanks sloshed, braking its rhythm after every bump.   
+
+
+“Car,” Sam said as we pulled to a stop. I looked out and saw a small red sedan. Its front end was wrapped around a mighty pine. Empty airbags fluttering in the wind. “Probably lost their brakes coming down. Mark it down so we can tell Roady.”   
+
+
+A pause of silence, then both burly, bearded men looked back at me. “Oh, c-copy that,” I said, pulling out my pocket notebook. “What road is this?”  
+
+
+“Just put that on the road between mile marker 15 and 16,” Damien said. I quickly wrote it in my book and gave Sam a nod through the rearview mirror. He put us back in gear, and we started away.   
+After what felt like hours, the clock said 2:36 AM. “Think we missed it?” I chimed in.   
+
+
+“Spoke too soon,” Sam said as we pulled into a small clearing. In the center were smoldering embers wrapped in a ring of rocks. Beer cans and bullet casings reflected the headlights back at us. “Someone was having my kinda party,” Sam said as we hopped out of the cab. “Kid, go grab a hose. Might as well douse it while we are here.”  
+
+
+I ran back to the engine and started unspooling the quick action hose. I cranked with my right hand until it got too cold and switched to my left. After more than enough limp hose pooled like a snake on the ground, I flipped the switch and the pump screeched to life. It rumbled all the way to my toes as I gathered the nozzle and walked back to the dying embers, ready to put them out of their misery.   
+
+
+Damien stood off to the left, shining his flashlight on the ground like a helicopter searchlight. I approached the fire, braced myself, and switched the nozzle release. Spittle drizzled out before a *POP,* then the flow really started. The force hit the coals and sent a few sizzling out of the ring of safety.   
+
+
+“Watch it, Kid!” Damien called.  
+
+
+I gripped the hose tighter, aiming it toward the heart of the coals. “Sorry,” I said, shivering in the newly damp wind.   
+
+
+“Should be good,” Damien said. Gratefully, I backtracked my steps, happy to wind the hose up and 
+
+get in the warm truck.  
+I clipped the reel release into place. “All clear!” I yelled as the pump motor wound down. I rubbed my hands on my pants, trying desperately to dry them off on the damp fabric. I jumped in the cab, buckled my seat, and was ready to go. *Come on, let's get out of here.*  
+
+
+Damien's flashlight flickered through the window as he approached the truck. “Still waiting on Sam!” He yelled. “He better hurry up if he knows what's best for him!” his yell echoed back, tauntingly, as he jumped in the cab  
+
+
+“Where’d he go?” I said through my chattering teeth. “Lost his marbles?”   
+
+
+Damien scoffed. “He went to see if the *responsible party* was hiding in the bushes nearby,” he said. 
+
+“Better get back soon, though!” he called out the window. “I did find this, though.” He turned back and showed me a silver-plated Magnum pistol.   
+
+
+“Whoa,”   
+
+
+“Figured if he is too scared to run back for this, means he’s given up ownership.” Damien slid the pistol into his pants. “Perks of the job.” *That's definitely like a drug dealer's pistol. I wouldn't dare touch that thing.* “You can have this.” He tossed a shiny object at me.   
+
+
+I turned it over in my hands and flipped it open. A small flame protruded from the top, illuminating both our faces. “Thanks,” I said.   
+
+
+We sat for five minutes before Damien started squirming in his seat. He flicked on the radio, switching through the frequencies with static snow barking through. He stopped on a clear channel. “Sam, Sam, do you hear me?” Ten seconds ticked by on the backs of snails. “Sam?” Nothing, just faint static. “I am going to go look for him; you stay here and keep the radio on.”   
+
+
+“Copy that,” I said, replacing him in the passenger seat. I watched him comb back his salt-and-pepper hair, shine his flashlight widely, and pull the magnum from his pants. He crouched slightly, and I heard him softly calling Sam’s name as he walked up the hill.   
+
+
+I sat in the faint static, only slightly worried. *Leave it to Sam to scare the pants off ol’ Damien.* This would be over soon, and I would be back drifting through cotton candy clouds.  
+
+
+My eyelids were gaining the weight of fatigue when a *BANG* rippled through the trees. I perked up; *was that a gunshot?* My heart punched my chest faster and faster. I grabbed the radio with trembling hands, dropping it on the first go. “G-guys?” I said. Nothing. My breath warmed; the windshield began to fog. “Guys?” *Bang Bang.* I dropped the radio. *Oh God, Oh God* bounced off the four corners of my brain.   
+
+
+I froze, holding my breath. My hands wouldn’t move. I wasn’t cold anymore, but my heart would not stop punching my chest, harder and harder, faster and faster. I heard rustling in the trees. *I’m dead.*   
+
+
+“Turn the truck on!” a familiar voice called. My fingers broke free from the invisible ice that cocooned me. “Turn the damn truck on!” It was Damien; he was tumbling down the slope, dragging something behind him. I broke free from my cocoon and skittered into the driver's seat.   
+
+
+My hand jingled the keys, shaking like a rattlesnake, while I turned the engine over. It roared to life as Damien approached the back of the cab. He threw the door open and tossed whatever he was dragging in the back seat. It groaned as it landed and reached a muddy hand out at me. Damien swung the passenger door open. “Drive!” he yelled, jumping in.   
+
+
+I put the engine in gear and arched us around the long, cold firepit and drove back down the road. “Where’s Sam?”  
+
+
+“Here, numbnuts,” the lump in the back seat said. “They almost got me, but-” he was cut off by a bout of coughing. “Can’t stop me that easy.”  
+
+
+We hit a bump, and I almost sent us right into a tree. “Bears?” I asked after angling us back on the road.   
+
+
+“Not bears,” Damien said. “I don’t know what they are.” I gripped the steering wheel and all color fled from my knuckles.   
+
+
+“Whatever they were, they got me good,” Sam said. I snuck a glance back at him. He was covered in deep red blood.   
+
+
+“Holy… what happened?” Neither of them answered me for the next couple of big bumps. “What happened?” I repeated.   
+
+
+“They just looked like tall men,” Damien said.   
+
+
+“Tall what?”   
+
+
+“Tall men.”  
+
+
+I slammed the brakes. “You are saying that a tall dude scared you guys so much you made me piss my pants?”  
+
+
+“Just drive,” Damien said, a waver in his voice. “Now!” he pulled the gun from his pants and flicked the safety off.   
+
+
+“Har Har, real scary. What's in there, blanks? You know I heard about the hazing, but this is something-” The truck shook. It whipped us side to side like we just got T-boned by a speed junky. “What the?”   
+
+
+“Just GO!” Sam screamed, sounding less like a burly firefighter and more like a schoolgirl. “Drive, dammit!”  
+
+
+I let my body take control while my mind ran in circles. My hands moved us back into gear, and my foot slammed the gas. Heart chiseling away at my chest, knuckles white as bone. *What the hell?* My body drove us down but failed at the same spot our smashed sedan friend did.   
+
+
+We hit a blind bump, bouncing us left. I overcorrected right, and we *SLAMMED* into the back end of the abandoned red car. Airbags punched me in the face, sending me to drift with the cotton candy clouds.   
+
+
+Screaming, eardrum-bursting wails filled my thoughts, and I shot awake. Everything looked fuzzy, like a child trying their best to stay in the lines in their coloring book. *What… what hap… happened.* My mind was muddled, but my body, ancient programming taking over, turned my head toward the heart-stopping scream.   
+
+
+A blur, vaguely in the shape of Sam's wide muscular frame, was sliding into the darkness. A long arm wrapped around a green leg. *Bang*! I shut my eyes; needles stabbed my face as the muscles contracted. Something tickled my chin and splattered warmly onto my hand.   
+
+
+I opened my eyes; blood was snaking down the back of my hand. “Oh god,” I yelled!  
+
+
+“Shut up!” a harsh whisper, muffled through teeth, sat in my ears before my brain finally made time to process it.   
+
+
+“What… what happened?” I said.   
+
+
+The “Shut up” drifted by again.   
+
+
+I felt for the seatbelt; my thumb had no strength to unlatch it. I pressed hard, but still nothing. I forced my knuckles in the groove; *click,* I was free. I tried the door handle, frozen solid. *That's not right; it's only fall, no ice till winter.* I tried again; stone solid. Before I could deliberate with myself again on why that made no sense, a hand gripped my arm.   
+
+
+It pulled me toward the passenger seat. I scrambled, grabbing every nook, cranny, and knob I could. I heard another scream, but it broke with every breath I took. I slid further and further. *No, NO! This can’t be it.*  
+
+
+Light blinded my eyes. “Shut up,” the light said.   
+
+
+“G-God?”  
+
+
+“No, kid, now shut up!” Damien put a hand over my mouth. I blinked my eyes. Damien, bloodied, stood before me, magnum pointed into the trees. He trembled and dropped to a knee beside me. “They got Sam.”  
+
+
+“Who?”   
+
+
+“The damn tall guys!” Damien looked me over. “Looks like that arm is busted.”   
+
+
+I looked down and saw my arm was angled at my mid-forearm. Looking at my arm reconnected it to my brain, and hot pain pulsed through me. *Dammit!*  
+
+
+“We gotta go,” Damien said, grabbing my good arm and pulling me to my feet. A sharp twinge shot up my back, but I caught my footing. “I’ll grab the radio; just start heading down the hill.”   
+
+
+My feet planted. Left. Right. Left. Right. My head bobbed with every step. I prodded my arm with my good hand, feeling its tight, bloated skin and the warmth it radiated. I missed placing a foot, sliding on a patch of loose gravel. The sudden jerk it took to catch myself from falling worked, but the twinge in my back got heavier. I stumbled to a tree, resting my shoulder on its jagged bark.   
+
+
+I breathed in and out until the beast in my chest slowed to a reasonable rhythm. I looked back at the truck; Damien had almost made his way to me. I sucked in deep, unearthing a sharp stab in my ribs.   
+
+
+“Radios busted,” He said as he approached. “I’ve only got two bullets left, so things are looking peachy.” He met my eyes. “How do you feel? Think you can make it down the mountain?” I nodded, clutching my arm against my chest. “Let's get gone then.”   
+
+
+I followed Damien's dark silhouette down the hill. I didn’t notice when the dirt road changed to dead leaves and twigs. I brushed against low-hanging branches, flinching to keep from getting snagged.   
+Damien stopped. “What was that?” I just looked at him. “Did you hear that?” I shook my head, feeling muscles in my neck I never had before. “We'll be quiet.” He gestured to keep moving.   
+
+
+I took another step, planting my foot securely, when a distant rumble registered. “Wait, I did hear something.”   
+
+
+Damien turned back. “Like a distant earthquake?”  
+
+
+“Ya.” I took another step forward. Damien's face bloomed with wide eyes and raised eyebrows. 
+
+“What?”  
+
+
+“Just keep moving, slowly.” He raised his gun, aiming just above me. I started to turn back, but Damien broke in, “Don’t! Just keep moving.” I moved the complete opposite of how fast my heart beat in my chest. One laborious, strenuous, silent step after another. Damien didn’t move an inch. He stood, shaking, but the gun was still as a stone.   
+
+
+I passed Damien and braved a glance back. A dark, lean figure stood, higher than the decade-old trees, silhouetted by the sliver of a moon in the sky. I jerked back, eyes on my feet as I kept my legs moving. *What is that thing?* I kept moving and going; *just go down* was my only thought.  
+
+
+ I came to a small drop where a mudslide cut a ten-foot cliff. I turned back, “Hey, help me get-” A faint flash flickered through the trees. *Bang! Bang!* A gut-curdling scream rose, lifting into the air before *Thud!* It was cut short. *Go!*  
+
+
+I jumped down the cliff, rolling shortly with sharp stabs and shocks running through my skin and bones. I caught my feet and rose, heart beating against its cage. I stumbled through the trees and undergrowth, ripping my pants on thorns and grazing my arms on bark and branches.   
+
+
+The sliver of a moon fled behind some morning fog, cool on my skin but sucking the last bits of light. I felt my pockets for my phone. *Damn, I don’t have it.* In my fleeting search, my fingers grazed a sleek metallic object. I pulled out the lighter and flicked it on. Its warm glow fuzzed through the fog. *Barely a dent.*   
+
+
+I kept walking, a warm beacon stretched out in front of me. I got so focused on putting my left foot in front of my right, then my right foot in front of my left, that I slammed into a tree. My eyes tracked the warm glow as it was dislodged from my grasp and glided to the earth. I scrambled down to pick it up. *Fire, Fire, FIRE.* I snatched it up, stamping a couple of times where it had lain, spreading its heat.   
+
+
+I flicked the lighter closed, inviting the darkness back to consume me. *Rather be dark than light the forest on fire.* I looked around at the solid dark trunks, fuzzy and diffused through thickening fog. *Fuck, I just- I just gotta keep moving.*   
+
+
+I took a step, as my foot connected to the freshly dead leaves, a tree in front of me shook. I froze, gluing my feet in place, eyes locked and unblinking. The shaking got more strained, gaining wider and wider side-to-side movements. I slowly, inch by inch, slid my hand back into my pocket. I clenched the lighter, gradually pulling it out. I moved it right in front of me while the shaking tree began whipping harder and harder, wider and wider. I sucked in a long, deep breath, then flicked the light open, releasing the blaze. The light bounded through the fog, diffusing and cooling till it hit the black shape of the tree.   
+
+
+I took one step, then two, then three, getting closer and closer to the dark flailing tree. Inches from its surface, I made out the texture of the bark as the whipping slowed. I followed the trunk to the ground, my eyes crawling, hoping to find any possible explanation. Finding nothing on their trek, my eyes journeyed up toward the branches. The light followed my gaze, inching up to the sky the higher my eyes climbed. All the leaves were gone, flung from their perch and resting on the ground. Hordes of black and brown branches stared back at me. *I hope my mind doesn’t play tricks on me.* I made out vaguely familiar shapes, but even in the weak glow I could tell they were all branches.   
+
+
+All the branches were in their place. *It's nothing.* I raised a foot to back away when one branch dislodged, falling towards me. As it approached and absorbed more faint firelight, I marked out its straight posture. Amused, I took a step from its intended landing zone, satisfied with my safety. But as I moved, so did the branch. It stopped, hovering just above me. Hesitant, shaky fingers reached out. My skin groped, expecting cool solidity, finding warm softness. The branch curled, gripping my arm.   
+
+
+I clenched my eyes, feeling the digits grip deep into my muscles. I began to move, pulling my confined arm away from the tree. Through the faint glow, I opened my eyes and followed the branch as it converted into an uncanny arm. My eyes crept along its slender shape, meeting a bulbous portion. Raising the lighter, I saw two faint warm glows staring back at me.   
+
+
+My muscles took over while my mind pitted itself deep in the recesses of despair. My hand holding the lighter swung back and whipped the lighter straight at the soft reflections. As it made contact, the grip released from my arm, and my body was ready. My legs shot up and bound me down the slope. I collided with tree after tree, never faltering, always moving down.   
+
+
+The thud of my feet, smashing foliage and deep tree limbs, was echoed by pops and rattles. The wind at my back slipped from cool and propelling to warm and inviting. The pops grew into a roar, louder and louder, ringing in my ear. I chanced a glance back; flames danced and jumped, a primeval beast awoken and hungry. I ran, I jumped, I bobbed, I stumbled, the warmth on my back reaching out and cooking my skin. My calves and neck started to burn, absorbing heat from hell.   
+
+
+Tears found purchase in my eyes. I heard soft whimpering. *Thud, right, Thud, left. It’s over.* I prepared to turn back, meet my end with dignity rather than be caught in cowardice. I planted my foot, engaging my muscles to consume my momentum, when the ground beneath me gave out. My arms clawed for anything, coming up short, sending me tumbling. I rolled, attempting to protect my head when sharp frigidity consumed me and stole my breath. I pulled my head from the water, up to my neck in the flow of the river, immediately grateful for the heat of the fire and the adrenaline.   
+
+
+My eyes gravitated to the tips of the blaze as it met the bank of the river. I had found refuge from the scorching tendrils. I watched the trees pop and rage as the flames licked up their backs, eating them in moments. I let the flow of the river pull me, drifting away from the flaming bank.   
+
+
+I used my weeping muscles and treaded water to a boulder that had sat itself in a shallow portion of the river. I gripped its cool, jagged ridges and pulled my aching body out of the icy flow. My arm screamed at me as I rolled the sleeve up, revealing its mangled zig-zag. I let out a yell, unafraid to sound unmanly, allowing my pain to be drowned out by the screaming fire and rushing water.   
+
+
+I breathed a handful of times deeply before I realised the fog had fled. I turned back to the fire, wanting to gauge its spread. *Going to need at least one helicopter, maybe a plane-.* My thoughts were cut off by a dark spot on the flame. I squinted my eyes, trying to make out what it was. A long, thin silhouette stood motionless on the river bank. My breath choked in my throat as my heart punched my chest. I kept my eyes wide and planted; it still didn’t move. Another silhouette emerged from the blaze, black, voidlike color only enhanced by the terrific flames.   
+
+
+I sat motionless as the bank filled with more long, thin silhouettes. I stayed there, arms screaming, back tingling, shivering violently, eyes never moving, for what felt like hours. As the pale orange light of the sun crested the tops of the mountain peaks, one by one the silhouettes turned back into the fiery blaze. All but one. Its figure remained motionless, never as much as a twitch. I kept my eyes locked until finally, it moved. It raised one long, stretched, black arm in the sky and slid it back and forth in the air before retreating into the blaze.   
+
+
+I reported the fire. I told them they needed to remain aerial as long as possible, but the command had other plans. Tonight's the first night initial attack crews will be camping in the region. I keep the radio on my lap, full volume. The nurses keep teasing me, telling me my rest is more important than news about a fire. I don’t know what I’ll do when the first sighting chimes over the static snow. Their deaths will be on my hands.
+
