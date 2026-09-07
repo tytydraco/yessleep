@@ -1,4 +1,3 @@
-It happened again. Something is tormenting me. 
 
 [https://www.reddit.com/r/nosleep/s/aubIQl2yqX](https://www.reddit.com/r/nosleep/s/aubIQl2yqX) For further context i attached a link to my previous post. 
 

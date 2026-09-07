@@ -14,9 +14,8 @@ The next day I was working in the field, picking flowers for pre-made bouquets t
    
 I looked up from my work and didn't see anything around me. I watched the cornfield for a moment before continuing. Not too long after that, my boss called me into the barn to help him put the bouquets together. He said that he still had a bit of work to do and asked me if I could stay for another hour. I told him I could only stay for half an hour due to plans I had with some friends later that evening. He looked a bit disappointed or maybe even a bit upset but said that he understood. I left just as the sun was almost finished setting.
 
-I'm set to work as a “hired contractor”, so that means I set my own hours and mostly just come in whenever he says he needs help. Thursday was the last time I was there, so later that night I messaged him and asked when he needed me again. I never got a response so I figured he must have been busy with something. So I messaged him again the next morning. No response again. I thought maybe he has other employees that he has working, although I never met any of them or heard him mention anyone.   
-  
-All of the socials that he usually post to for advertising have gone dark. He regularly updates them, so its very unusual. It's been a whole weekend by now, so I think I might go to the farm to see if everything's alright.
+I'm set to work as a “hired contractor”, so that means I set my own hours and mostly just come in whenever he says he needs help. Thursday was the last time I was there, so later that night I messaged him and asked when he needed me again. I never got a response so I figured he must have been busy with something. So I messaged him again the next morning. No response again. I thought maybe he has other employees that he has working, although I never met any of them or heard him mention anyone. 
 
-   
+All of the socials that he usually post to for advertising have gone dark. He regularly updates them, so its very unusual. It's been a whole weekend by now, so I think I might go to the farm to see if everything's alright. Ill update if I find anything.
 
+ 
