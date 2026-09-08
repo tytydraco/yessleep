@@ -19,3 +19,5 @@ I'm set to work as a “hired contractor”, so that means I set my own hours an
 All of the socials that he usually post to for advertising have gone dark. He regularly updates them, so its very unusual. It's been a whole weekend by now, so I think I might go to the farm to see if everything's alright. Ill update if I find anything.
 
  
+
+UPDATE:  [I went to check on my boss to see if I were fired or something](https://www.reddit.com/r/nosleep/comments/1wagtff/something_in_the_corn_part_2/)

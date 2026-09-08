@@ -1,0 +1,30 @@
+
+
+[how I ended up here](https://www.reddit.com/r/nosleep/comments/1w9jtlv/something_in_the_corn/)
+
+
+
+This morning I checked my messages just to make sure I hadn’t missed any from my boss. Still radio silence. 
+
+As I was leaving my house I noticed that the flower that I had been given had abruptly died sometime in the night. It was totally fine when I went to bed.  But, this morning it was completely wilted and shriveled up. I've never seen any plant do that before. 
+
+I arrived at the farm a bit after sunrise. I didn’t see my boss working in the field yet, like I sometimes do. I kept driving and parked my car at the barn and walked inside, hoping to maybe catch my boss there. All of the tools that he was using when I left last week were left out. Even the flowers he was arranging looked as if they hadn’t moved and were sorta dying. 
+
+The paranoia of the circumstances must have gotten to me, because I caught myself looking over my shoulder with the dread that I was being watched.
+
+I left the barn and went to the house. It was sort of old and looked like it had definitely weathered quite a few storms. It was very rustic and had shutters falling off their hinges. I knocked on the door and stood on the doorstep, swaying as I waited for an answer.  After a couple of minutes I decided to look for the key that he kept hidden for his employees to access the bathroom with. I looked under the doormat and it wasn’t there. So I tried the flower pot next to the steps. I breathed a sigh of relief as I took the brass key and slowly fumbled with the lock to get it to open. It was dark inside, as he didn’t leave any lights on. I turned on a small lamp as I called out.  
+   
+“Mr. Taylor? Are you here? I haven’t heard anything in a while, I was just stopping by to make sure I still like… work here.”
+
+I lingered in the stillness of the house for a moment, waiting for my boss. A loud wailing broke me from my trance. I whipped my head around to face the door. I subconsciously walked outside. It was bright and hot outside now. I almost instantly start feeling sweat beads form on my forehead. I considered wandering further into the house to see if he might be sleeping but I didn’t want to invade his privacy.
+
+So I went to walk around the farm. I walked down the dirt path to the feed shed for his animals. I don't work with the animals, so I haven’t been over there yet. I heard a shuffling in the neighbor’s cornfield as I approached the shed. I called out again for my boss before going inside. There were many bags of food and just other stuff you’d use to take care of livestock. What really caught my eye was a box sitting in the corner. It looked really out of place, so out of pure curiosity and nosy-ness I approached it. In wobbly handwriting it had “finished” etched onto it with marker. I open the flaps and I see a really odd assortment of items. A bunch of personal items that look like they would belong to a plethora of different people. Rings, watches, phones, water bottles, lunchboxes, necklaces, books, and a couple other things were tossed in. the exterior of the box had a bit of dark red staining it and so did a couple of the items. Is that blood? My mind starts to drift. What if this stuff had belonged to people? What if that's why I was hired so fast?
+
+I hear the animalistic wailing again from the direction of the cornfield. I flinch. I frantically look around the shed for something to defend myself with. I rush over to the wall to grab a pitchfork hanging from the wall. As I do I see something poking out of a stack of hay. What I assume was a bloody arm was sticking out of it like a sore thumb. The familiar flannel shirt was torn and barely attached to it. It stained was an angry shade of dark red.
+
+My legs work faster than my head and I start bolting to my car. Somehow I manage not to fall or impale myself with the pitchfork. Honestly, I didn't even know that I had it in me to run that fast. 
+
+I start the engine and peel out of there as fast as I could. I tried to not look behind me or even try to imagine what was there, but I caught a glimpse of something incredibly tall and unnatural standing in the tree line by where I was just moments ago. 
+
+I know whatever was in those trees was waiting for me. I can’t believe I was hired to become fast food. Safe to say I'm never going back there and I’m in need of a new job and probably therapy.
+
