@@ -1,0 +1,49 @@
+&#x200B;
+
+I’ve known Ryan for years. He was the kind of guy who could sit in a room full of people and somehow remain completely unnoticed. He was easygoing, funny, and never really talked about his family or where he came from. I never thought much about it until one night, when I accidentally learned about something his family had been doing for generations.
+
+It was almost eleven at night when Ryan’s phone rang. His father, Michael, was calling. Ryan answered immediately, and at first everything sounded normal. But after a few minutes, his expression changed. He suddenly sat upright on his bed and said, “Seriously? It’s my turn this year?” He listened for a few more seconds before saying, “Yeah, Dad. I’ll be there. I’ll leave tomorrow.” The moment the call ended, he opened his closet and started throwing clothes into a bag.
+
+I asked him where he was going, and he simply said, “Home. There’s a family gathering.” When I asked what kind of gathering happened only once every five years, Ryan stopped packing and looked at me. After a long pause, he said, “We call it the Gathering of the Dead.” I laughed because I honestly thought he was joking. He didn’t. He just looked at me and said, “This is exactly why I never tell people about it.”
+
+Once I realized he was serious, I asked him what actually happened during the gathering. Ryan told me that every five years, his entire family traveled to an old ancestral burial ground in a remote valley. They opened the graves, brought their dead relatives outside, cleaned the bodies, dressed them in fresh clothes, and kept them with the family for five days. I had heard of strange traditions before, so at first I thought it was simply some forgotten cultural ritual. Then Ryan told me the part that made me stop smiling.
+
+“Sometimes,” he said quietly, “the bodies move.”
+
+I thought I had misheard him. He explained that fingers sometimes twitched, hands shifted, and occasionally a chest appeared to rise and fall as if the person were breathing. His family had grown up around it, so they didn’t consider it unusual. But outsiders were strictly forbidden from attending because fear was considered an insult to the dead. According to Ryan, if one of them sensed that a stranger was afraid, nobody could guarantee what would happen next.
+
+Naturally, that warning only made me more curious. I spent the next two days trying to convince Ryan to let me come. Then I told my girlfriend, Sarah, about it, and she immediately wanted to come too. Ryan argued with both of us for hours, but eventually he gave in. He made us promise that we would stay quiet, keep our distance, and never react to anything we saw. At the time, we thought he was being overly dramatic. We had no idea he was trying to keep us alive.
+
+We took two connecting flights and then spent several hours driving through winding mountain roads before reaching a remote valley called Kavresh. By the time we arrived, it was deep into the night. There were no streetlights, no traffic, and barely any houses visible through the darkness. Our phones had lost their signal hours earlier. The village felt completely cut off from the rest of the world.
+
+Then, just before we reached Ryan’s family home, he suddenly told the driver to stop.
+
+A short distance away, several lanterns were burning in the darkness. People were gathered around something on the ground. At first, I thought they were preparing some kind of ceremony. Then the headlights reached them, and I realized what they were actually doing.
+
+They were opening graves.
+
+We got out of the car and stood there in silence. One man was digging through the earth while two others pulled something wrapped in old cloth from a grave. When the lantern light fell across it, I realized it was a human body. Sarah grabbed my arm. I couldn’t move.
+
+More graves were being opened around us. One by one, the bodies were being brought out and carefully placed on wooden platforms. Nobody spoke. There was only the sound of shovels breaking through the soil and the faint crackle of the lantern flames.
+
+Then two men lifted one of the bodies into a sitting position.The lantern beside it flickered.For a second, I thought I saw the dead man’s chest rise.I stared at him, barely breathing
+
+
+“Ryan...” I whispered.Ryan grabbed my arm.
+“Don’t.”
+Before I could ask what he meant, an old man stepped out of the darkness. He looked at Ryan first, then at Sarah and me. His expression changed the moment he saw us.
+“Who are they?” he asked.Ryan swallowed. “They’re my friends.”
+
+
+The old man stared at us for several seconds before turning back to Ryan.
+“You brought outsiders here?”
+Ryan didn’t answer.
+The old man stepped closer and lowered his voice.
+“Then you should have told them what happens when strangers watch the dead.”
+
+Ryan’s face went pale.
+The old man looked directly at me.
+“Because once they are brought out of their graves...” he whispered, “they know who is watching them.”At that exact moment, something behind me made a sound.
+A slow, quiet breath.I started to turn around.
+Ryan grabbed my wrist so hard it hurt.
+Whatever you do,” he whispered, “don’t look back.
