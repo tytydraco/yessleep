@@ -1,0 +1,49 @@
+I moved from Europe to work as an undercover profiler for seven years. I built my career on a simple, comforting truth: no matter how monstrous a crime is, there is always a face behind it. A man with a mother, a motive, a flaw and a pattern. That's what my job is all about.
+
+Then I was called to a stretch of the Appalachian Trail where even the park rangers refuse to tread without sidearms and radios.
+
+The local authorities were completely out of their depth. They had a body, but no murder weapon, no struggle, and no logical cause of death. The victim’s neck was twisted like a coiled spring, his limbs cleanly severed at the joints, and his internal organs crushed under immense hydrostatic pressure, yet there wasn’t a single mark of external trauma on the skin. The only thing left on the flesh was a mark burned into the chest: three distinct dots aligned to form an inverted triangle.
+
+Around the corpse, the clearing was completely flattened. Trees, heavy brush, and dense foliage were pressed flat into the dirt in a wide, perfect circle, as if something gargantuan had descended from above and crushed the earth beneath its weight.
+
+It wasn’t the first time. It had happened three times in six months across the ridge. Same crushed clearings, same imploded bodies, same inverted triangle. Quantico wanted a profile. They wanted a serial killer with a signature, somebody with a clear obsession for ritualistic mutilations.
+
+The locals, of course, started talking. In the diner in town, over crackling radios, they whispered about black eyes gleaming in the tree canopy, unnatural shrieks echoing down the ravines, Wendigos, and Skinwalkers: the usual tropes you find in bargain paperbacks and forum threads. I dismissed it all as regional hysteria. Folklore is just how uneducated minds digest trauma.
+
+I believed it was human. Until the photos arrived on my desk.
+
+Along with the crime scene analysis, came an encrypted message that lead to a hidden node on the dark web. I spent weeks to find this remote angle on that damn digital shithole. Someone inside the bureau had flagged it, but nobody wanted to touch it. I opened it.
+
+It was a repository. A private, invite-only forum where thousands of people (paranoiacs, former law enforcement, whistleblowers) had compiled years of raw data. There were high-resolution photos, thermal video clips, autopsy reports and audio files.
+
+They had a name for the creature. A name I won't write here, because nobody has to find.
+
+It was not a cryptid, nor a ghost story.
+
+The evidence was undeniable. I watched a clip of a clearing where the air itself seemed to buckle, the trees flattening in real time under an invisible, crushing weight while something stepped into the frame. Something that didn't fit human anatomy, shifting its form like grease on water.
+
+Shortly after I accessed that node, my security clearance was revoked. I was quietly relieved of duty, given a generous severance, and instructed to sign an NDA that threatened me with federal imprisonment if I ever spoke of the Appalachian files again.
+
+Officially, I cut ties with that life. I left the United States and moved back to Italy, to the quiet, ancestral village my family left decades ago. I sit in a stone house built in the nineteenth century, surrounded by olive groves and silence, pretending to be a retired man living on savings.
+
+Unofficially, I never left that dark web forum.
+
+I log in every night behind layers of proxies. I watch the new uploads. And that is when the true horror set in: it isn't just in the Appalachians. It is everywhere.
+
+The data proves that this thing is not a local beast bound to American woods. It is an apex entity that adapts to whatever local terror exists in the human collective mind. In the dense forests of North America, it acts like a phantom in the trees. In the industrial ruins of Eastern Europe, it leaves dismembered remains in locked rooms. In rural Asian provinces, victims aren't killed outright: they are found catatonic, their minds utterly shattered, whispering about a shadow with three points.
+
+Different methods. Different appearances. But every single incident, from Kentucky to the Black Forest to the outskirts of Tokyo, shares the exact same signature left on the flesh or written in the blood of the victims: three dots forming an inverted triangle.
+
+It feeds on collective fear, taking whatever shape we are most afraid of, moving across the globe like a quiet epidemic.
+
+I cannot go to the police. I cannot call my former colleagues at the bureau. If I speak to a publisher or a journalist, I’ll be buried in a federal prison or erased entirely.
+
+So I am writing this here, under the guise of fiction, as a story. Call it a thriller. Call it horror. Believe it or don't, as we say in Italy: how it goes, it goes. Let them come for me if they want.
+
+I needed to tell someone. I needed to leave a trail before the shadow reaches this side of the Atlantic. And when it will be done, my memories will be hidden inside a novel.
+
+Last night, on the dark web forum, a new photo was uploaded.
+
+It was taken three miles from my village. The body of a farmer was found in his own vineyard, split open like a tin can and filled with some kind of strange, metallic liquid. The tissues inside his throat were scorched, as if burned by molten lava.
+
+On the side of his left shoulder, three perfect, inverted dots, forming an inverted triangle.
