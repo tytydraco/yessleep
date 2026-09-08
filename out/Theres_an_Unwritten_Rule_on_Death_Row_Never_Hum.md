@@ -47,3 +47,5 @@ The humming seems to be getting louder. *Row row row your boat* over and over ag
 I keep thinking about my last conversation with Stacks, something he said. He said the humming isn’t the thing to be afraid of. He said the thing to be afraid of is when it stops.
 
 The humming just stopped. Please pray for me.
+
+[\[PART 2\]](https://www.reddit.com/r/nosleep/comments/1w9v2a0/theres_an_unwritten_rule_on_death_row_never_hum/)

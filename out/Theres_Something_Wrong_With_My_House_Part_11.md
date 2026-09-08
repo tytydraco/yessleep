@@ -1,0 +1,508 @@
+[Part One](https://www.reddit.com/r/nosleep/comments/1voy2cl/theres_something_wrong_with_my_house/)
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/1vriree/theres_something_wrong_with_my_house_part_2/)
+
+[Part Three](https://www.reddit.com/r/nosleep/comments/1vt1x1r/theres_something_wrong_with_my_house_part_3/)
+
+[Part Four](https://www.reddit.com/r/nosleep/comments/1vvsadp/theres_something_wrong_with_my_house_part_4/)
+
+[Part Five](https://www.reddit.com/r/nosleep/comments/1vxmckx/theres_something_wrong_with_my_house_part_5/)
+
+[Part Six](https://www.reddit.com/r/nosleep/comments/1vykc70/theres_something_wrong_with_my_house_part_6/)
+
+[Part Seven](https://www.reddit.com/r/nosleep/comments/1vzib5j/theres_something_wrong_with_my_house_part_7/)
+
+[Part Eight](https://www.reddit.com/r/nosleep/comments/1w4qzk7/theres_something_wrong_with_my_house_part_8/)
+
+[Part Nine](https://www.reddit.com/r/nosleep/comments/1w61pep/theres_something_wrong_with_my_house_part_9/)
+
+[Part Ten](https://www.reddit.com/r/nosleep/comments/1w7nroj/theres_something_wrong_with_my_house_part_10/)
+
+  
+“You look exhausted,” Hannah said the next morning.
+
+“Nice to see you too.”
+
+“You know what I mean.”
+
+“Late night.”
+
+She accepted that, or appeared to. We got coffee and Hannah complained about the party. Somebody had cried in the bathroom before ten. Somebody else had attempted to make cocktails in a blender and broken it. A man Hannah barely knew had spent forty minutes explaining cryptocurrency to her despite being asked repeatedly to stop. She did not mention Toi Whakaari.
+
+For the first hour I watched her closely, looking for some indication that she knew. There was nothing. If anything, she seemed more relaxed than she had all week, and by lunchtime I had begun to feel ridiculous. Martin had not told her. Of course he hadn’t. Hannah was a contractor on one production, not a child whose teacher needed to report her girlfriend’s behaviour. He probably did not even know how to contact her. By Monday he would have forgotten the whole thing.
+
+The relief should have made me reconsider what I had done. Instead it felt as though I had been given more time.
+
+I did not use it. For the rest of the weekend I stayed close to Hannah and made myself behave normally. We went to the supermarket. On Sunday I worked on my thesis for almost two hours while she sat across from me drawing something on her tablet. Juniper slept on a dining chair between us, occasionally opening one eye as though checking that neither of us had left.
+
+Once, Hannah caught me staring. “What?”
+
+“Nothing.”
+
+“You’re doing it again.”
+
+“Doing what?”
+
+“Looking at me like you’re trying to remember where you parked.”
+
+I laughed convincingly enough. “Sorry.”
+
+“Weirdo.” She nudged my shin beneath the table and went back to drawing.
+
+That night I slept beside her. Around three she woke for water, exactly as she always did, and I listened to the glass touch the bedside table before she settled beside me again. Afterwards I lay awake thinking about the workshop, although not about the cold box anymore. I thought about Martin. Whether he had written my name down. Whether he knew Hannah well enough to remember hers. Whether there were cameras. Whether I had left anything obviously disturbed.
+
+Whenever the anxiety became difficult to tolerate, I reminded myself that Hannah had spent two days behaving completely normally. If she knew, she would have said something.
+
+On Monday morning she left early. She kissed me while I was still in bed and told me not to let Juniper trick me into feeding her twice.
+
+“She lies,” Hannah said, pointing towards the cat, who was already stationed beside the bedroom door.
+
+“She’s elderly.”
+
+“She’s manipulative.”
+
+“She’s starving.”
+
+“She had breakfast twenty minutes ago.”
+
+“I’ll take that under advisement.”
+
+Hannah pointed at me. “Do not feed her.”
+
+Then she left, and I went back to sleep for another hour.
+
+By late morning the weekend had done its job. The workshop had begun to lose some of its immediacy. I still believed Hannah could have moved whatever had been inside the box, but there was nothing useful I could do with that belief yet. Following her again immediately would be reckless. Breaking into somewhere else without knowing where I was looking would be worse.
+
+So I worked. Properly, for nearly three hours. I read something unrelated to Hannah, doppelgängers or alternate versions of human beings. I answered an email from my supervisor and made lunch without searching anything on my phone. For a little while, I almost forgot.
+
+At 2:17 my phone buzzed beside the laptop.
+
+*Hannah: we need to talk*
+
+Everything in my body tightened at once. I read the message again and typed, *about?*
+
+The typing indicator appeared, vanished, then appeared again.
+
+*are you still at mine?*
+
+I looked around the living room as though there were some possibility I had forgotten where I was. Juniper was asleep beside me on the sofa, one paw pressed against my thigh.
+
+*yeah*
+
+This time Hannah replied immediately.
+
+*Okay. I’ll be home at 4.*
+
+I stared at the message. Hannah did not come home at four. Four was when she complained that the day had somehow only just become productive, when somebody discovered a measurement was wrong or paint needed another coat or an actor had broken something they had been specifically asked not to touch. On a good day she was home by six.
+
+There was only one reason she would leave work two hours early to talk to me.
+
+For a moment I supplied alternatives. Something else had happened at the party. She wanted to talk about my supervisor. She had noticed I had spent most of the previous week behaving strangely and had any number of legitimate concerns about me. Then the obvious answer asserted itself: Martin had told her.
+
+For the next hour and a half I did almost nothing. I tried reading and got through the same paragraph four times without retaining it. I made coffee, forgot about it and found it cooling beside the kettle twenty minutes later. At three I fed Juniper early, then spent several minutes worrying Hannah would notice that too.
+
+Mostly I rehearsed explanations. The charger story was unusable now. Whatever Martin had told Hannah, he would also have told her enough to make that obvious. I could say I had gone there looking for her, although that created the question of why I had waited until the building was empty. I could say I had been curious about the set, which might survive until Hannah asked why I had opened the cold box.
+
+Every explanation eventually reached the same problem. Why were you there? Because I followed you. Why did you follow me? Because I don’t think you’re you.
+
+At 3:47 I heard a key in the front door. Juniper lifted her head, but I stayed where I was. The door opened and shut harder than Hannah usually shut it, followed by the scrape of her boots against the mat and the thud of her bag on the floor. She did not call out.
+
+“Hey,” I said when she came into the living room.
+
+She looked at me, then at Juniper curled beside my leg. She was wearing black jeans and the same old T-shirt she had worn the previous Friday, with white dust along one sleeve. Plaster, probably. “Hey.”
+
+She did not kiss me. I moved Juniper gently aside and sat forward. “He told you.”
+
+Hannah’s face tightened. “So you know what this is about.”
+
+“The guy who found me.”
+
+“Martin. Yes.” She stayed standing. “Martin told me he found my girlfriend going through the workshop after ten o’clock on Friday night.”
+
+“I wasn’t going through everything.”
+
+“He said cupboards were open.”
+
+“I was looking for something.”
+
+“Yes, Eve. That is generally why people open cupboards.”
+
+I looked down. “I’m sorry.”
+
+“Then tell me what the fuck you were doing there.”
+
+There were still lies available, although none of them were good. I could say I had wanted to surprise her. I could resurrect the charger. I could say I had gone to look at the set and panicked when Martin found me. Instead I said, “I needed to check the cold box.”
+
+Hannah stared at me. “What?”
+
+“The thing for *Frankenstein*. The freezer-looking thing.”
+
+“The specimen cabinet?”
+
+“Whatever.”
+
+“You went into my work after hours to look at a prop?”
+
+“I didn’t break in. The door was open.”
+
+“Eve, I do not care whether you picked a lock. Why did you need to look inside it?”
+
+“Because I saw you put something in there.”
+
+The anger left her face for a moment. “When?”
+
+“Last Friday.”
+
+“What do you mean, you saw me?”
+
+“I was there.”
+
+“At Toi?”
+
+“Yes.”
+
+“Why?”
+
+I hesitated. Hannah’s eyes narrowed. “Why were you at my work last Friday?”
+
+“I followed you.”
+
+She blinked. “You what?”
+
+“I followed you from here. I sat outside for a few hours.”
+
+Hannah gave a short laugh with nothing amused in it. “You sat outside my work watching me?”
+
+“I needed to see what you were doing.”
+
+“You know what I do.”
+
+“I know what Hannah does.”
+
+Her face changed. Neither of us moved for a second before she said, “What does that mean?”
+
+This was the moment I had imagined repeatedly and somehow never prepared for. In my head I had explained everything calmly. I would start with the tattoo, then the collision, then the photographs. Hannah would resist, obviously, but eventually the accumulation would become impossible to dismiss. Now she was standing in front of me looking as though I had started speaking another language.
+
+“The tattoo,” I said.
+
+Hannah shut her eyes briefly. “Jesus Christ. We’ve done this.”
+
+“No. You’ve told me you never had it. That isn’t the same thing.”
+
+“I remember you thinking I did.”
+
+“You keep saying that like my remembering it is the problem. It isn’t. The problem is that you don’t.”
+
+Hannah stared at me for a moment, then asked, “What did you think was in the cabinet?”
+
+I did not answer quickly enough.
+
+Her arms dropped to her sides. “Oh my God. What did you think was in there?”
+
+“I didn’t know.”
+
+“That’s bullshit.”
+
+“I thought there was a chance she was in there.”
+
+“Who?”
+
+I hated how quietly she said it. “Hannah.”
+
+Her mouth opened slightly. She looked around the room, almost as though somebody else might be there to explain the sentence to her. “I’m Hannah.”
+
+“I know you think you are.”
+
+The change in her face was so immediate that I wanted the words back, not because I no longer believed them but because I finally understood what they sounded like to her.
+
+“You know I *think* I am.”
+
+“I’m not saying you’re lying.”
+
+“That’s generous.”
+
+“I mean it. I don’t think you know.”
+
+“Know what?”
+
+I hesitated, which was worse than simply saying it. “What you are.”
+
+Hannah stared at me.
+
+“I think something happened after the crash,” I said. “I think somehow you replaced her, or you came from somewhere else, or she did. I don’t know exactly what happened yet.”
+
+“After what crash?”
+
+“The one I told you about.”
+
+“The one where you thought you hit me.”
+
+“I did hit you.”
+
+“No, Eve. You had a frightening experience. You were exhausted. You thought something happened that didn’t.”
+
+“You weren’t there.”
+
+“I was literally there.”
+
+“You were at the window afterwards.”
+
+“Yes, because you stopped the car and I walked over.”
+
+“That’s what you remember.”
+
+She looked at me as though I had slapped her. I heard the sentence myself and tried to correct it. “I mean, that’s what happened to you.”
+
+“No. Don’t fix it.” Her voice was very calm now. “You think your memory is real and mine isn’t.”
+
+“I think something happened.”
+
+“You think I’m some kind of copy.”
+
+“I don’t know what word you want me to use.”
+
+“How about Hannah?”
+
+I looked away. Apparently that was enough.
+
+“Fuck you,” she said quietly.
+
+“Hannah, I’m trying to explain.”
+
+“You followed me to work because you think I’m an impostor.”
+
+“I didn’t say impostor.”
+
+“Oh, sorry. Is there a more respectful term?”
+
+“You’re making this deliberately difficult.”
+
+Her expression sharpened. “I’m making this difficult?”
+
+“I’m trying to tell you what I think happened.”
+
+“And I’m telling you that you followed me, watched me at work and then went back when you knew I wouldn’t be there.”
+
+“I knew you wouldn’t believe me.”
+
+“Of course I don’t fucking believe you.”
+
+Her voice rose for the first time. Juniper slipped from the sofa and disappeared into the hallway. Hannah watched her go and lowered her voice again, which somehow made the anger worse.
+
+“You have spent two weeks sleeping in my bed,” she said. “You’ve eaten my food. You’ve let me touch you. You’ve told me you were okay. And the whole time you’ve been watching me?”
+
+“I was trying to figure it out.”
+
+“Figure *me* out.”
+
+“Yes.”
+
+“What were you looking for?”
+
+“Differences.”
+
+“From what?”
+
+“The Hannah I knew.”
+
+“I am the Hannah you know.”
+
+“No.”
+
+The answer came too quickly. Hannah went still. Her eyes were wet now, although she did not look close to crying so much as furious that tears had become involved at all.
+
+“I’m not?”
+
+“The Hannah I knew had a tattoo.”
+
+“Oh, for fuck’s sake.”
+
+“She did.”
+
+“So that’s it? You’ve decided I’m not your girlfriend because I don’t have a tattoo you remember?”
+
+“It isn’t just the tattoo.”
+
+“What else?”
+
+I opened my mouth and, for a moment, nothing came. The pause made her angrier.
+
+“What else, Eve?”
+
+“The crash.”
+
+“That is your memory, not something different about me.”
+
+“The photographs.”
+
+“The photographs where I don’t have the tattoo?”
+
+“That doesn’t prove what you think it proves.”
+
+Hannah stared at me. “Listen to yourself.”
+
+“I have. I’ve done almost nothing else for a week.”
+
+“That is not reassuring.”
+
+“I know how it sounds.”
+
+“Stop saying that.”
+
+“I do know.”
+
+“No, you don’t.” She wiped beneath one eye with the heel of her hand. “Because if you knew how this sounded, you would understand why I’m standing here wondering whether I should call someone.”
+
+That stopped me. “Who?”
+
+“Liv. Your supervisor. I don’t know.”
+
+“Why would you call my supervisor?”
+
+“Because I’m scared.”
+
+The word changed the room.
+
+I had expected anger. I had expected Hannah to tell me I was being ridiculous, perhaps to throw me out. Fear had occurred to me only in another form: fake Hannah becoming frightened because I was getting close, fear as a defensive reaction, something I could count as evidence.
+
+This was not that. Hannah’s hands were shaking. When she noticed me looking at them, she folded her arms.
+
+“I’m not going to hurt you,” I said.
+
+“I didn’t say you were.”
+
+“You’re acting like you think I will.”
+
+“I don’t know what you’re going to do.”
+
+“I would never hurt you.”
+
+“You broke into my workplace because you thought I had another version of myself hidden in a prop.”
+
+“I thought she might be there.”
+
+“That does not make it better.”
+
+“I know.”
+
+“Do you?” Her voice cracked. “Because you keep saying that, and then you say something worse.”
+
+I stood and took a step towards her. Hannah stepped back immediately, and I stopped.
+
+That hurt more than anything she had said. “Hannah.”
+
+“Don’t.”
+
+“I’m not doing anything.”
+
+“I know. Just stay there.”
+
+The fear in her face was unmistakable now. Almost automatically, something in me tried to turn it into evidence: *She’s frightened because you know.* I hated the thought as soon as it appeared, but hating it did not make it disappear.
+
+“If you are Hannah,” I said, “then help me understand the tattoo.”
+
+Her face crumpled for half a second before she recovered. “If I am Hannah.”
+
+“I don’t know how else to say it.”
+
+“You could start by not saying that.”
+
+“But it matters.”
+
+“To you.”
+
+“Yes.”
+
+She looked at me for a long moment. “What would convince you?”
+
+The question stopped me.
+
+“What could I say right now that would make you believe I’m me?”
+
+I thought about it. That was the wrong thing to do, and I saw her realise it.
+
+“Oh my God.”
+
+“It isn’t that simple.”
+
+“Yes, it is.”
+
+“No, because you know everything she knows.”
+
+“How?”
+
+“I don’t know.”
+
+“So if I remember something, that proves nothing.”
+
+“Not necessarily.”
+
+“And if I don’t remember something, that proves I’m fake.”
+
+“I didn’t say that.”
+
+“You don’t have to.”
+
+“That isn’t fair.”
+
+Hannah laughed, and this time there were tears in it. “Fair? You followed me. You watched me at work. You broke into the building. You searched through our set because you thought I had kidnapped myself, and now you’re telling me there is literally nothing I can say to prove who I am. And you want to talk about fair?”
+
+“I’m trying to find her.”
+
+“I’m right here.”
+
+“No, you’re not.”
+
+The words were out before I could stop them. Hannah flinched, barely, and that was worse than if she had done anything dramatic. For several seconds the only sound in the room was the refrigerator switching on in the kitchen.
+
+Then she nodded. “Okay. I need you to leave.”
+
+“Hannah.”
+
+“Go home.”
+
+“We’re not finished.”
+
+“I am.”
+
+“You can’t just—”
+
+“Yes, I can.” She reached for her phone on the coffee table. “And if you won’t go, I’m calling Liv.”
+
+“Why Liv?”
+
+“Because she knows you. Because you trust her.”
+
+“I trust you.”
+
+Hannah looked at me, and I heard what I had said at the same moment she did.
+
+“Right,” she said.
+
+“That isn’t what I meant.”
+
+“I know exactly what you meant.”
+
+She unlocked her phone. Panic rose in me, sudden and disproportionate. “Don’t call her.”
+
+“Why?”
+
+“Because she’ll think I’m crazy.”
+
+The anger went out of Hannah’s face. What remained was worse.
+
+“Eve,” she said carefully, “I think you need help.”
+
+There it was: the sentence I had been waiting for without knowing I was waiting for it. The obvious move. If something had replaced Hannah and realised I was close to finding out, what else would it do? It would not confess. It would make me the problem. It would tell everyone I was unstable and make sure nobody believed me.
+
+The theory closed around the moment so neatly that for an instant I almost felt relieved. Hannah must have seen something happen in my face, because she moved towards the hallway.
+
+“Where are you going?”
+
+“To get my keys.”
+
+“Why?”
+
+“Because either you leave or I do. I’m not staying here alone with you.”
+
+My stomach dropped. When she looked back at me, I finally understood how frightened she was. Not of a theory, and not of being exposed. Of me. It should have been enough to break through. It nearly was, but I knew exactly where the tattoo should have been, and I still believed myself.
