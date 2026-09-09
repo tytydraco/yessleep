@@ -1,5 +1,5 @@
-Some time has passed since I saw Mr Johnson outside that door. Here’s the link to part one if you don’t know what’s been happening.   
-https://www.reddit.com/r/nosleep/s/AgfigHLTvu  
+Some time has passed since I saw Mr Johnson outside that door. Here’s the link to part one if you don’t know what’s been happening.  
+[https://www.reddit.com/r/nosleep/s/AgfigHLTvu](https://www.reddit.com/r/nosleep/s/AgfigHLTvu)  
 I haven’t seen him in a while but I see that damn door every day since.
 
 I want to look at it, I want to walk over and open it just to see what’s inside of it but something inside me is telling me no. My mind wants to know so bad, it craves it but my body seems to know better, or maybe something that I don’t. I think I'm gonna talk to Jen about it 
@@ -65,12 +65,12 @@ I remove my hands. I don’t move. I wait and start to stand back up praying to 
 
 Sobbing. An old man directly outside my door sobbing and wailing in the darkness. “I’m sorry, please forgive me please”. I freeze, stunned into silence. “I didn’t want to scare you”, his crying gradually dies down. For a moment there is nothing. Then he speaks again. “I just really need you to open the door” 
 
-My stomach twists. Something about his voice is wrong. It’s throaty and gruff. Like someone else’s voice coming through a throat that wasn’t made for it. Like someone is borrowing him. 
+My stomach twists. His voice It’s throaty and gruff. 
 
-I don’t answer, and from somewhere behind him, in the darkness outside, I hear something whisper. “Please”   
-Then another voice “Please” 
+I don’t answer, and from behind him, in the darkness outside, I hear someone whisper. “Please”   
+Then another voice joins him “Please”. 
 
-Then another. Until the darkness outside my door is filled with people begging me to open it.
+Then another. Until the darkness outside my door is filled with people begging me to open it. But I recognized them I think. It’s so overwhelming their voices echoing, bouncing off one another. 
 
 Still frozen, I stand listening until the voices trail off into the distance until it’s just Mr Johnson’s again. “That’s okay.”  
    
