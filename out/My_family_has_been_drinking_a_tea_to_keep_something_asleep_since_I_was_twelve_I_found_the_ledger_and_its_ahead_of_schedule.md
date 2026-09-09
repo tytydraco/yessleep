@@ -1,0 +1,33 @@
+Okay. I need to just get this out in order or I'm going to keep circling it in my head instead of typing it. I don't really have anyone else to tell this to who wouldn't think I'd lost it, so this is going here.
+
+Since I was twelve, every single morning, someone in my family hands me a cup of pale blue tea. My mom, my aunt, whoever's up first. It tastes like nothing much, a little bitter, a little mineral, like licking a wet rock. I never thought about it. You don't question the weird stuff your family does when it's just always been there. Doesn't everyone have some routine like that they never look at too closely?
+
+If I skip it, someone notices fast. Not mad. Just very, very attentive. I want to be clear my life has felt completely normal this whole time. I sleep fine. I have a job I like (and hate some days). My best friends think my family is intense but harmless. The tea was just furniture. Until three weeks ago, when I was helping my mom clean out the storage room and found a shoebox taped shut under some old bedsheets.
+
+Inside were maybe thirty small notebooks. Each one has a name at the top, a birth date, and then a long column of dates going down the page, checked off one by one, going back almost a hundred years by the look of the paper and the handwriting. Some have little notes next to certain dates. "Missed, fever, doubled next morning." "Missed, travel, none available, watched all night."
+
+My name is in the newest one. Checked off every single day since I turned twelve.
+
+Here's the part I haven't been able to say out loud to anyone yet. I flipped forward past today's date, just out of morbid curiosity, expecting blank pages. There are checkmarks up to eleven days from now. Someone has already filled them in. In advance. Like it isn't really a record of what happened, it's a record of what's supposed to happen, and today just hasn't caught up to the page yet.
+
+I asked my mom about the notebooks that evening, trying to keep it light, like I'd found something funny and old. She went still in a way I have never once seen her go still. Then, not looking at me, she asked if I'd been getting headaches. If I'd had any moments where I "lost a little time." If I'd been dreaming about water.
+
+I said no. That was true until that exact night…
+
+I dreamed I was standing at the bottom of a well looking up, and also somehow the one looking down into it at the same time, both places at once, and something in the water down there was saying my name in a voice built out of my own voice, like it had been listening long enough to learn how I sound. I woke up at 3:41 in the morning with my jaw locked so hard my teeth hurt, and the taste of the tea in my mouth even though I hadn't had any since that morning.
+
+I went back the next day and told my mom about the dream. She didn't ask anything else. She just walked into the kitchen and called my aunt, talking too low for me to hear, except for one line that carried through the wall. "She's dreaming of it now. We need to talk to the others tonight."
+
+Nobody will tell me who "the others" are. Nobody will explain what happens if the tea ever just stops. What I do know is that since that phone call, someone has been sleeping on the couch outside my old bedroom every time I stay over, and twice now I've woken up at some ungodly hour to find my mom sitting in the dark just watching me, insisting it's nothing, she just couldn't sleep, go back to bed.
+
+Yesterday I cornered my dad, who is usually the easiest one to crack. I asked him directly what's in the tea and what our family has been keeping away all this time. He looked at me for a long time before he answered. Then he said it isn't being kept away. It's being kept asleep. The tea was never really for me. It just needs somewhere to go every morning that isn't back to whatever it came from.
+
+I asked what that meant.
+
+He said don't stop dreaming about the water. Tell them the second I do, every single time, no matter how trivial it seems. And that he's glad it still thinks it's talking to my name in the notebook and not to the person actually holding the cup.
+
+The tea is about to go cold and that's against the rules. I think I have to drink it now.
+
+But I keep coming back to those checkmarks past today. Eleven days of them, already filled in, in ink, like whoever wrote them knew for a fact I'd still be here to earn every single one. I haven't told my parents I saw that far ahead. I don't know what happens on the day the checkmarks stop. I don't know if that's the day nothing happens to me, or the day something finally does.
+
+If anyone here knows anything about old family rituals like this, tea that's supposed to keep something asleep, ledgers with names and dates, I need to hear it before day twelve. Updating after I drink this.

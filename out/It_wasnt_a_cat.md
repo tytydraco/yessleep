@@ -102,7 +102,7 @@ People write that someone “ran in terror” in stories all the time.
 
 It doesn't capture the feeling.
 
-Real terror takes the body away, makes you move before you even notice you're feet have been hitting the pavement for about five seconds already.
+Real terror takes the body away, makes you move before you even notice your feet have been hitting the pavement for about five seconds already.
 
 I didn’t decide to turn around. One moment I was staring into that impossible mouth, and the next my legs were already hurtling me toward home. The part of me capable of thinking simply went dark. There was no plan, no dignity, no question of whether running would make it chase me.
 
