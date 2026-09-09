@@ -1,0 +1,97 @@
+There is a defunct lighthouse in the middle of the York River, right off Dead Knuckle Shoal.  
+
+I’ve puttered by it more times than I can remember. 
+
+I believe the official name for it is Light Beacon 412, in the almanac that is…but everyone around these parts call it The Light of Trudy.  
+
+While it functioned, it only had one keeper, a misanthrope named Gertrude Fox.  She never came around the town and people never came around the lighthouse, but after about eighty or ninety years, a few people looked sideways at old Gertrude and started calling her a WITCH.
+
+They got a mob together and went to that Lighthouse and hung her by the neck from the cross at the top of the light.  My Daddy was a bit of a blowhard, but he always said his Daddy, my Grandaddy Frank was the one who made sure she couldn’t speak and cast spells while they did it.  Legend has it that the light stopped working the moment she took her final breath and has never worked since.
+
+So you can imagine my fright yesterday when I moseyed by in my skiff and that sucker switched ON, bright as the sun on St. Christopher.  
+
+I immediately took my hand off the throttle of my tiller steer and stood up, I was so shocked.  Then I almost fell out the dang boat from the speed jutting to a crawl.
+
+I looked all around me and there was not a boat or soul to be seen in the distance.
+
+JUST THEN…
+
+I see a blonde haired woman in a white gown run out of the light house and JUMP OFF of the top deck.  That sucker is at least a hundred feet off the water.
+
+I YELPED, as she hung in the air before finally splashing into the water.
+
+I held my breath for the moment before she popped back up and started splashing…
+
+“Help!  HELP!” She screamed in a southern twang.  I panicked for a moment and tried to start my boat back up, but still it wouldn’t turn over.  I’m not a courageous man, but I quickly dove in after her.
+
+“Hang on! I’m comin’!” I yelled as I swam through the chop.
+
+Just before I reached her she went under, but I quickly dipped down and got her arm.  I pulled her up and luckily we were right next to the ladder up the beacon.
+
+“I got ya, girl. Get a hold of this ladder.”
+
+It was rusty and barnacled, like I’ve never seen, but it was all we could do, so we climbed and climbed…
+
+I wiped my forehead and that’s when I realized my hands were covered in blood.  
+
+I kept talking to her all the way up…asking if she was in danger, if she was hurt, why she jumped…but to no response.
+
+When she finally got up to the top she walked right inside the, living quarters beneath the light.  It was strangely decorated…by that I mean it was warm.  A carpet, a couch, a lovely fire roasting in the corner.  She ran to it and started warming her hands…
+
+I looked all around in a mixture of unease, shock and confusion.
+
+“How long you been here, ma’am?”
+
+She turned back towards and that’s the first time I saw her face…
+
+I SCREAMED.  **Her mouth was sewn shut with fishing line. Blood poured, as if it had been freshly done.**
+
+I turned and tried to run, but the door was shut.  When it was closed and locked, I cannot tell you.
+
+I banged and yelled something fierce.  My bloody handprints covering the walls.
+
+I heard her moving easily behind me and just as I figured I would turn and defend myself…she picked up a wooden, hollow triangle and tapped it with a stick.
+
+The lightest of dings echoed in the room and my body went LIMP.  I fell like a toad, flat on my back with a great slam.  My body was paralyzed…except for my head.
+
+It’s funny how somebody screams for help even when there is no hope or chance of anyone hearing.  I did it…
+
+“HELLLPPP!  HELLLLPPP MEEEE!”
+
+She lugged a large wooden bucket over towards me and kneeled next to me with pure happiness in her eyes.  She took a pin and pricked my arm…
+
+“OWW...”  I could still feel pain.  She grinned.
+
+“Gertrude…it is Gertrude, isn’t it?  Please let me loose.  I ain’t got no salt with you.  I ain’t but a man with two pennies to his name…”
+
+She looked me dead in the eye for a moment that felt like an eternity…and then she ran her finger along the etched fishing line through her mouth and then tapped my nose…
+
+My eyes went wide, as I could then see that etched on the wall of the lighthouse was **“FRANK”**.
+
+“No, it wasn’t me! My Grandaddy, MY GRANDADDY!”
+
+**Gertrude ripped my clothes off of me.**
+
+**She then reached into her bucket and pulled out the largest, Bloodsucker Jelly Fish I have ever seen.  She laid it on my torso…**
+
+I screamed something holy, I tell you.
+
+Then she grabbed another and placed it on my bleeding hands…
+
+Then my legs, my chest….
+
+Finally, as the pain was about to take me, she placed one on my face…
+
+…..
+
+I POPPED UP out of the well of my skiff screaming.  I almost fell overboard again. There was no light on at the lighthouse and no sign of Gertrude…but my hands bled. 
+
+I took one pull on my engine starter cord and that sucker came right to life and I sped home faster than I ever have.
+
+I didn’t tell anybody…I didn’t see how I could.
+
+Then this morning there is headline at the top of the Yorktown Gazette…
+
+**“Light Beacon 412 to be reactivated.”**
+
+I guess maybe I can be thanked for that.

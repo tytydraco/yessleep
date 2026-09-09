@@ -198,7 +198,7 @@ I glared at my husband, rage digging its hot fangs into the soft meat of my eyes
 
 “Actually! He could *already* be dead. No idea if the hospital called, ‘cause my phone’s been out of battery for hours.” I ripped the device from my pocket and lobbed it onto the table. Sam flinched as it clattered against his plate. 
 
-“Charge it. Figure out the neurologist appointment yourself. Call your Mom, or a friend, an Uber - I don’t care. I’m going to fucking hospital.” 
+“Charge it. Figure out the neurologist appointment yourself. Call your Mom, or a friend, an Uber - I don’t care. I’m going to the fucking hospital.” 
 
 I stormed outside and jumped into the car, blind with fury, 
 
