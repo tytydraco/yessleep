@@ -477,3 +477,5 @@ And where had Chazaqiel gone? Had he managed to save the enzyme? Was he creating
 I thought of the porcelain dolls that hung from tree branches. The four mutilated angels I’d seen drinking blood from copper spouts.
 
 A return to the city of dolls. What was waiting for us there? Just more suffering, or finally the answers I’d been looking for?
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/1wb5jza/im_a_former_black_hat_hacker_a_dying_billionaire/)

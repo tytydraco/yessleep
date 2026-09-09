@@ -1,0 +1,187 @@
+[https://www.reddit.com/r/nosleep/comments/1sbu5s0/i\_just\_realized\_i\_was\_raised\_in\_a\_deadly\_cult/](https://www.reddit.com/r/nosleep/comments/1sbu5s0/i_just_realized_i_was_raised_in_a_deadly_cult/)
+
+I know it’s been quite some time since my last post. I’ve linked it here for those who want context but for those that would rather not read all of that, here’s a quick summary of the previous part: I was raised in what most people would call a cult. We call ourselves the Messengers of Gabriel. My father, Father Kansas, is the prophet and leader of our faith, and he is the human incarnation of the angel Gabriel. I am his heir and the future leader of our people.
+
+I was recently initiated into an inner circle of followers known as the Anointed Ones. The Anointed Ones are called to help Father Kansas lead the Messengers. The Initiation took place in the Inner Chamber of the Great House where a lamb was snatched from my arms by an unseen presence. The experience left me terrified and filled with doubts and questions.
+
+I borrowed a secret phone from an Outsider convert and my best friend in the world, Esther. From there I uploaded the first part of my story. Some time has passed since then.
+
+The first few days after my Initiation I had decided to keep my thoughts to myself for a time. I had a meeting with Father Kansas scheduled just three days after and so I decided to ponder what questions I would ask him. It was one of the only times in my life when I would be permitted to ask such questions.
+
+The strangest part of those first few days was how the rest of the Messengers treated me. They bowed their heads and moved out of my way long before I ever asked and they referred to me as ‘Holy One.’ It was uncomfortable. Friends whom I had known since infancy were no longer friends but servants instead. Only Esther truly remained the same.
+
+She still smiled at me and joked with me and she never averted her eyes from me but we were rarely alone anymore. I was no longer a laborer like everyone else as now I was assigned to be an overseer. I was supposed to make sure that the laborers performed their duties and punish them if they did not. Father Kansas felt I needed to learn leadership and thought this was the best way to do so.
+
+I was given a revolver and put in charge of one of the fields where many of the children worked. This was an important job. I was to protect them and teach them the meaning of hard work early in their lives. For the most part they were very well behaved and did as they were asked but at times I would see them slacking and playing with one another. I could not bring myself to strike them as the overseers had done to me as a child so instead I took up their labors with them whenever I thought I could get away with it. Maybe it was wrong because it would teach them to be idle but my heart sank thinking of the alternative.
+
+Those three days passed quickly and my meeting with Father Kansas was soon approaching. I was excused from my overseer duties so that I could prepare to enter his presence alone. Though he was weaker in the form of a man it was still draining to enter his angelic presence. I fasted that morning and I sought out Esther.
+
+I went to the sewing room where I expected to find her but only Sarah was there. She pursed her lips and narrowed her eyes when she saw me.
+
+“Have you seen Esther?” I asked.
+
+“You really shouldn’t be seeing her anymore,” she spat. This surprised me. Normally she was so discreet.
+
+“Since when is it your place to question what one of the Anointed Ones do?”
+
+I felt bad using my rank to push back against her but I really didn’t want anyone to stop me from seeing Esther.
+
+“She’s at the outhouse on another one of her *breaks*,” she said with a hint of sarcasm.
+
+“Thanks.”
+
+I turned and immediately left. I hoped I would catch her on her way back and that we could go for a walk.
+
+When I reached the outhouse she was nowhere to be seen and there was no sign of anyone using it. I searched around for some time but could not find her. Eventually I ran out of time and had to go to my meeting. I figured I would be able to talk to her afterwards. I still had the whole day off.
+
+I approached the Great House where I would be meeting Father Kansas in his quarters. I knocked on the door and he answered. He smiled, “Hezekiah, my son. Enter.”
+
+I did as he said and entered. He gestured towards his couch and I sat. He pulled up a raised chair and sat across from me. I felt small looking up at him.
+
+He began, “I am sure that you have questions about your Initiation. All of the others did after their first time. It is hard for the mortal mind to comprehend. Go ahead and ask me whatever is in your heart.”
+
+I paused for a moment, trying to collect my thoughts.   
+“I still don’t really understand what happened... I really want to understand but why did it feel that way?”
+
+“And how did it feel?” he asked.
+
+“It felt... terrifying. Like I could be swallowed up at any moment into the void.”
+
+“Should we not feel small in the presence of divinity? We were created out of nothing. You are nothing. That is how it’s supposed to feel when you are in the presence of something so much greater than yourself.”
+
+Then he ceased to speak and waited for me to respond. The silence hung over us like a cloud.
+
+Eventually I mustered up enough to say, “I guess that makes sense.”
+
+He smiled.
+
+“It’s okay to feel confused, even fearful, my son. That is how we grow. Only the Outsiders avoid such things. They try to force the divine into a box that they can understand. We learn the truth by confronting the mysterious. You will grow to understand over time. One day after my body is gone, my spirit will fall upon you, and you will be filled with all the knowledge the Lord wants you to have.”
+
+I still didn’t understand but I trusted him. I finally breathed a little easier and I felt my muscles relax.
+
+“I just have one more question. Why did the lamb have to die? It seemed so helpless and innocent.”
+
+He gently placed his hand upon my knee.
+
+“Hezekiah, I need you to trust me that this is all for a greater purpose. You are my son and I know you are chosen for greater things.”  
+  
+Then he stood.
+
+“Now, I have things I need to attend to. I hope this helps you. I encourage you to become accustomed to these feelings. The more time you spend around it the easier it becomes.”
+
+He exited into the outer chambers of the temple, leaving me alone in his quarters. I sat there considering his words. It all made sense. I knew that he was right, these things just take time. Yet there was a part of me that could not let go of the terror I felt as that lamb was torn from my arms. I decided that Father Kansas was right, that I needed to confront the mysterious.
+
+Over the next few days I tried to do just that. I prayed, I fasted, I spent time in the Outer Chamber, and I saw increasingly less of Esther. Not by choice but I never seemed to run into her when I went looking for her. Sarah was painfully unhelpful whenever I spoke to her and no one else seemed to know where she was. I figured it was for the best. I could focus on what Father Kansas had told me and I was sure we would reconnect later. There were seasons even in this tight-knit little community where we would become too busy and hardly see each other.
+
+I tried to spend as much time as I could in the Outer Chamber. No one was permitted to enter the Inner Chamber without Father Kansas’s permission and it was under watch during the day and under lock at night. Yet, I never felt anything. No light, no voice, not even the terror I felt when the lamb was taken. None of it was enough and I knew I had to enter the Inner Chamber again. I decided I would that night.
+
+The compound was strangely still. Very few Gadites seemed to be patrolling and the only ones I saw were all near the perimeter. The area around the Great House was completely abandoned. Even in the living quarters there were no lights. I feared that all the doors would be locked but the first one I tried was open.
+
+I entered straight into the Outer Chamber. Sounds echoed in the halls from unknown sources and the air was hot and heavy. Not a soul seemed to be waiting for me but I didn’t feel like I was alone. I closed the door behind me and turned on my flashlight.
+
+I shone it upon the doors of the Inner Chamber. The golden knobs reflected back at me like eyes in the dark. I slowly approached and, with a shaking hand, reached towards them. I slowly and quietly opened the door. I took a deep breath, then stepped inside the Inner Chamber.
+
+I don’t know what I had expected but I thought there would be more. The ground inside the chamber appeared to be plain earth. Just flat compacted dirt. At first glance the room appeared to be completely empty. It felt so much larger in the dark but it was only about the size of a large bedroom. The walls were completely plain, which did not surprise me. Images were idolatry after all.
+
+On the far side of the room there was a stain on the ground. As I stepped towards it my head began to ache and my vision began to blur. I thought I saw a shadow slowly start to form and just when I was almost sure that I was seeing something I heard a whisper by my ear.
+
+“Hezekiah.”
+
+I nearly jumped out of my skin. I spun around and saw nothing.
+
+That was enough. I ran out of the Inner Chamber and through the Outer Chamber as quietly as I could. Whatever was in there, I wanted to get as far from it as possible. For the first time in my life I began to doubt my place in the Messengers. The most holy place in the world should not fill me with abject terror. It couldn’t be of God.
+
+I would find Esther, I would tell her what I experienced, and I would convince her to leave with me that night. But I never found her.
+
+When I returned to the barracks I saw all the lights were on and the Gadites were outside. At first I thought this was about my excursion into the Inner Chamber but as soon as I approached the building the Gadite chief Joshua walked up to me and put a flashlight in my hand.
+
+“Good, you’re here,” he said. “Your friend Esther is missing. We’ve searched everywhere around the compound. Do you know where she would have gone?”
+
+My heart dropped. She was already gone and I was still here.
+
+My voice was just above a whisper, “Maybe, but I should go alone. She’ll just run if she sees any of you.”
+
+Joshua nodded, “We won’t be far behind. If she’s going apostate she could cause us a lot of problems.”
+
+“She would never!” I insisted. “Just stay back.”
+
+I went to the one spot I knew she could be. The chances were slim but I had a sliver of hope that I would find her. Maybe she was waiting for me. But those hopes were dashed almost as soon as I crossed through our secret hole in the fence. I found a sheet of paper with a message on it.
+
+It was from her.
+
+*Hezekiah,*
+
+*I hope that you find this letter because the hardest part of leaving this place was leaving you. You are my best friend and I know that if I asked you to go you would leave with me. But I could not tear you from your family. You belong with your father and you will lead the Messengers one day.*
+
+*I could not be here any longer. Not that I didn’t love the Messengers and not that I didn’t believe but I could never fully fit in. There is still too much of the Outside inside of me. I miss my family too much and I couldn’t bear the thought of never seeing my mother again.*
+
+*Please don’t come after me. You have to follow your path and I have to follow mine but I will never forget you.*
+
+*All my love,*
+
+*Esther*
+
+The letter fell from my hand. It was true then. She was gone. I barely even noticed as Joshua approached from behind. He picked up the letter and skimmed.
+
+“You’re better off, kid. You can never trust an Outsider.”
+
+The next few days passed by in a grief-filled blur. In many ways it was like when my mother passed. She had cancer and by the time she died, well, I’ll just say it was a blessing for her. She’s in a better place and I hoped Esther was too. I hoped she made it back home to her family and far away from this place. Yet, unlike for my mother, I could not openly mourn her departure. She was declared a heretic for abandoning the Messengers and if I were to show my feelings, it would raise suspicion about my own commitment.
+
+I contemplated still running away but I could not find the strength to leave on my own. I wouldn’t know the first thing about living in the Outside world and if I wasn’t able to find Esther it would all be a waste. So, I returned to my duties. At first it was difficult but as days turned to weeks and weeks turned to months it became normal again. Even comfortable.
+
+I watched over the children in the field. I never struck them like some of the other overseers but I could feel myself becoming more stern with them. It would do them no good to teach them to shirk from their duties their whole lives. I occasionally had to raise my voice at them. Even the guilt from seeing the shock on their little faces lessened over time.
+
+I prayed with the other Messengers, I sang with them, and I worked with them. I started to get used to it when they called me “Holy One.”
+
+Father Kansas had me sit directly next to him on the stand during his sermons. He continued to preach of fire and the end but he spoke more of the Mantle of Gabriel than he used to. How it burdened him and how he looked forward to the day when this body could finally rest and the Mantle passed to me. He even had me occasionally speak.
+
+My sermons were a lot shorter and I focused on some different things. Like forgiveness, community, and loving one another. I was beginning to see my future. If I truly was to take over for my father I could one day soften the Messengers. I could teach them not to hate the Outsiders so much. I could even possibly stop the sacrifices to whatever was in the Inner Chamber.
+
+Perhaps my destiny really was to stay here. Among these people. It was all that I ever knew. I could live with the things I didn’t understand because I knew things one day could change. I believed that everything was going to be okay.
+
+But I wouldn’t be writing this if that were true.
+
+I wish I could say I found her on my own. That I went looking for her or that I even suspected something had happened. But no, Father Kansas told me.
+
+He summoned me into the Outer Chamber. I could feel the darkness emanating from the other room. I sat in the front pew while Father Kansas stood. Behind him was Joshua armed with an assault rifle. His face seemed grim. I had no idea what I was in for.
+
+Father Kansas began, “My son, I have seen how you’ve grown in the past few months and for the first time I feel secure about the future of the Messengers. I can see in your heart that you are nearly prepared for the Mantle of Gabriel to fall upon you and I must confess to you that may be sooner than you think.”
+
+His words struck me like a whip. To me that seemed a lifetime away.
+
+Father Kansas hesitated, but his intense calm never faltered, “There is a tumor... in my brain. This body is not long for this world. Soon, your soul will merge with the Spirit of Gabriel, and you will lead the people of God.”
+
+I felt sick. This was impossible. Father Kansas could never be sick. As much as I knew I was one day supposed to succeed him, another part of me believed he could never die.
+
+“There is one more thing,” Father Kansas announced. As he said this, I noticed Joshua’s grip tightening on his rifle.
+
+“In order for the Mantle to fall upon you it is imperative that you let go of your ties to the Outside world and there is a piece of the Outside more serious than the tumor inside my head. Your friend, Esther.”
+
+I froze. Where was he going with this? Why was Joshua here?
+
+“Esther never escaped. She has been here in the Great House the whole time.”
+
+I was on my feet before I even knew it and stepped towards Father Kansas but Joshua leveled his rifle towards me and I stopped.
+
+“What do you mean she’s been here the whole time?” I shouted. “What did you do to her?”  
+  
+Father Kansas sighed, “I hoped your time away from her would make you more understanding. As you can see she still controls you and I cannot have this. Do not worry, my son. I will soon free you from her influence. She will soon be given to the power of God in the Inner Chamber.”
+
+My first instinct was to attack my father, to wrestle the rifle out of Joshua’s hands, to storm the compound and find Esther but I knew that would result in nothing besides my death or incapacitation. Perhaps I inherited some of Kansas’s supernatural calmness and I performed a quick series of calculations in my head. If something happened to me now, there would be no one to help Esther. I needed to maintain whatever trust Father Kansas had in me and I needed to be free to roam the compound.
+
+I took a deep breath.
+
+“Father, I have always trusted you and I will trust you now. If this is the will of the Lord then I will follow what you say.”
+
+He smiled, “Then I would like for you to be there when it happens. This will show me and all the others of the Initiated that you are ready.”
+
+“Of course, father.”
+
+It took everything I had to remain composed.
+
+“The ritual will take place at midnight. Take some time to yourself to prepare. You must be in the right mindset.”
+
+As soon as he released me I left for the hill where Esther first showed me her phone. I needed to be out of earshot. As soon as I reached the top I screamed, I cried, I cursed until there was no air left in my lungs. Then I composed myself and started to come up with a plan. I would save Esther, we would escape the Messengers and go to the Outside world or I would die trying.
+
+If I succeed, I hope I will post again soon. If I fail well, this will be my last post. I only wish I had realized I needed to leave long ago.
+

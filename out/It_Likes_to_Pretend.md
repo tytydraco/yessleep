@@ -16,8 +16,6 @@ Over the next few weeks, we make as many posters as we can and scatter them arou
 
 “Oh my God! This again? I tell you that I have it under control, I’m not like my father! I know what I saw and I’m telling you, no animal took our son. It is a goddamn monster!” My words boom as I clench my fists. I just can’t understand why no one believes me. It’s not like I’m crazy. I see that thing turn around and smile with my own eyes.
 
-
-
 “Don’t get mad! I didn’t say you lied, I just think—” There is a loud knock on the front door.
 
 “And who’s that at this hour? I told the police to leave us the fuck alone already!” I storm out of the bedroom. My heavy steps make the floor creak with every move as I walk down the main corridor and fling open the front door. My heart drops as I see who stands on our porch, their naked body covered in mud and loose leaves.
@@ -25,8 +23,6 @@ Over the next few weeks, we make as many posters as we can and scatter them arou
 “Duncan!” My wife screams from behind as I hear her run down the hallway. She pushes past me, dropping to embrace her lost child. Tears stream down her face as she clenches him tight in her arms. I stand in disbelief, not moving an inch, while she pulls him inside and closes the door. I can’t believe my eyes. It is actually him. My son comes home even after everything I saw.
 
 We quickly take him to the bathroom and wash him in the tub, scrubbing every inch before wrapping him in a towel. “I’m so happy you’re okay!” My wife kisses his head at least a dozen times. After she is done, I put my arms under his and lift him up with more difficulty than before—like he gained weight while lost in the woods. I carry him to his room and lay him on the bed.
-
-
 
 “Can you tell us what happened out there? We were so worried!” My wife says while kneeling on the ground to be eye level with him.
 
@@ -86,12 +82,11 @@ Slowly raising the bottle to my lips, I take a swig of whiskey before putting th
 
 A few hours later, emergency services arrive and put out the fire as they haul me away in an ambulance. Police officers come to my room and begin asking questions I don’t want to answer. They find bullet holes in my son’s room, high amounts of liquor in my bloodstream, and the charred remains of my wife on the bed. It doesn’t help that they don’t believe my story. I can’t blame them. Who in their right mind would? It’s not every day that a skin-stealing monster kills your whole family. That’s why I am sentenced for the murder of my wife and kid. My appointed lawyer argues for insanity instead, meaning the rest of my days will be spent in an asylum rather than in prison. It doesn’t make a difference to me. I am going to spend the rest of my days waiting to die either way.
 
-That is until I receive a visitor. The asylum staff tie me to my bed and let him into the room as they leave, closing the door behind them. He wears a doctor's coat and carries himself with confidence as he walks beside my bed. Looking down at me with soft blue eyes, he takes off his hat and rests it on my chest. “Do you recognize me?”
+That is until I receive a visitor. The asylum staff tie me to my bed and let him into the room as they leave, closing the door behind them. He wears a doctor's coat and carries himself with confidence as he walks beside my bed. Looking down at me with soft blue eyes, he mutters “Do you recognize me?”
 
 “Never met you, so why are you here?” I bark back. He smiles.
 
-
-
 “What a shame. I hope you do. I’ve grown so much and it’s all thanks to you, Papa. Or should I say, honey?”
 
-“It’s you?” I mutter in disbelief before violently struggling against my restraints. “I’ll fucking kill you for what you did!” I scream. Workers flood into my room. They hold me down and jab my arm with a needle while I gnash my teeth at him. Sedatives quickly kick in, making my whole body go numb. The last thing I see is his ear to ear smile as he looms over me.
+“It’s you?” I mutter in disbelief before violently struggling against my restraints. “I’ll fucking kill you for what you did!” I scream. Workers flood into my room. They hold me down and jab my arm with a needle while I gnash my teeth at him. Sedatives quickly kick in, making my whole body go numb. The last thing I see of him is his ear to ear smile as he looms over me.
+
