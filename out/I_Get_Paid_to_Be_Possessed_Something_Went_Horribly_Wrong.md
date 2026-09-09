@@ -1,0 +1,287 @@
+I’m being paid to be possessed by spirits. 
+
+Yes. You read that correctly.
+
+If it sounds like a horror movie, it’s not. Despite what you may be imagining, there’s a lot of procedures and corporate involvement that makes it feel more like a gig than a ritual. Don’t get me wrong, it’s still a very odd and dangerous job. And it pays well.
+
+*Very* well.
+
+That’s all it took for me to play along. I was on the verge of homelessness when I stumbled upon the job. After a few pay days I stopped asking questions. When something like this brings you above the poverty line it’s hard to look back. No matter how strange it is.
+
+That is, until a few nights ago when it all went to shit.
+
+Before we get into that, let me explain what I mean by “possessed.”
+
+It all started when I was sifting through job listings on some shady website many years ago. I was a few weeks into a job search when I came across a strange headline that caught my eye.
+
+“Possessed Needed (Discretion Mandatory)”
+
+It made no sense at the time but the money was unreal. Curiosity got the best of me and I sent a message to the poster. 
+
+After a few days of back-and-forth, I found myself standing at the foot of an old gothic looking hotel nestled in the shadiest part of the city.
+
+After anxiously eying the outside for ten minutes I hesitantly entered to meet my potential ‘employer’ at the room listed in the job offer. 
+
+Despite the rough exterior, the inside was surprisingly pleasant. The entire building was dimly lit with a reddish ambient lighting. Geometric patterns adorned the walls and ceilings giving it a modern pop. It was well decorated and the staff were very polite. 
+
+I asked the concierge for directions to the room and took the elevator to the second floor. When I arrived, there were three well-dressed men in grey suits standing in the spacious hotel room. The first one offered his hand and welcomed me inside. The other two remained stone-faced towards the exit and remained silent for the duration of the welcome.
+
+The man cut to the chase almost immediately. He explained that his organization repurposed the hotel for discrete work they were doing for some really “high profile” clients of theirs. Real household names if you know what I mean. They were in the business of providing post-mortem reunions with past benefactors and their families. His words.
+
+“So you guys use AI or something to chat with dead people?” I asked. I couldn’t believe the words left my mouth, but I couldn’t make sense of anything he said.
+
+“Not quite.” The man said as he pulled out a set of papers from his briefcase.
+
+“We discovered that supernatural possession allows our dead benefactors the opportunity to visit their living relatives.”He said. “The benefactors leave us a large sum of money to experience this gift for many years after their passing. We host ‘reunions’ for the relatives until the funds run out or their relatives choose to stop attending. Whichever comes first.” He handed me a pamphlet that explains the process in more detail. I stared at it blankly as I was unable to process anything he was saying. A few pictures of old folks smiling and laughing with their family stood out to me. The words “Even In Death” were hanging above the image in a cheesy modern font.
+
+“So what do I do?” I asked plainly. Although, deep down I already knew the answer.
+
+The man smirked. “Well, you get the gracious honor of being possessed. For a generous fee, of course.”
+
+Before I could ask any more questions, the   
+man snapped his fingers and one of the men beside him turned around and sat in a chair in the corner. He popped some white pill into his mouth and got himself comfortable. The other man approached and began pulling out straps from hidden compartments throughout the chair and got to work restraining him.
+
+“I don’t expect you to believe me. I find it best to demonstrate.” He said.
+
+The man in the chair slowly drifted into unconsciousness as the three of us retreated to the other side of the room. After a few uncomfortably silent minutes, the man in the chair jerked awake.
+
+His eyes were pale white. His body convulsed against the straps as he began uttering loud and garbled speech. The words sounded angry and painful as they left his frothing lips.
+
+This went on for a few more minutes. The speech became clearer and less strained towards the end, but I still couldn’t understand him. Even so, I could hear the concern in his voice. He was probably asking where he was. Why he was here. Who we were.
+
+Then, it was done. The man in the chair returned. He shook his head a couple times and cleared his throat as the other man undid the restraints. 
+
+“See? Not a scratch on him. There’s no regulation on this stuff yet but don’t worry, we take care of our people.” He said, patting  my back. 
+
+“Who was that?” I asked.
+
+“Oh—the possessor? No idea.” He shrugged. “Just some loose spirit hanging around the building most likely. Don’t worry, it’s not like that on the real jobs. The family is responsible for bringing out whoever they came to see.” 
+
+I didn’t have anything else to say.
+
+I was terrified. I just witnessed a man being possessed and this guy was talking to me like I’m applying to work at the bank. He talked a few more minutes about logistics and company history but I didn’t hear it. I couldn’t stop thinking about the milky eyes and confused babbling of the dead man I just watched come back to life.
+
+“Well, I’ll see you Monday kid. We’ll fill out the paperwork then.” He said. “Here’s your first pay check for attending possession 101.” He chuckled and dropped a stack of bills into my hand before ushering me out of the room. I stood there in the dimly lit hallway dumbfounded.
+
+I fanned out the bills in my hand and gasped. It was more money than I expected. Way more than was listed on the website. And this was just for one day?
+
+I snapped out of it and made my way back home. I decided then and there I was happily going to be possessed. As long as I got paid, I couldn’t care less.
+
+First day was the hardest. I walked into a room filled with about ten people. Old folks, kids, babies—all shapes and sizes. It was very lively. The younger ones were running around while the adults held solemn looks on their faces. I could tell the possessor passed recently. 
+
+I popped the white pill into my mouth and got situated in the chair. I felt so awkward having all these eyes on me. I was nothing but a conduit to these people—a means to an end. I kept my gaze on the floor and waited for the pill to take hold so I could get this over with.
+
+A different man in a grey suit came in and started to get to work on my straps. As he worked, I noticed he holstered a small handgun under his suit jacket. Interesting. I started to wonder what he needed a gun for but I decided now was not the best time to ponder that question. After he finished, the room began to spin. The meds were kicking in. Everything became very muffled and my vision faded to black. 
+
+Then, I was awake again.
+
+The family was already gone and my restraints were undone. I groaned as the pain started up. The worst headache I ever had struck me square between the eyes. 
+
+The man from orientation knocked on the door and walked in, his face beaming.
+
+“Well, you finished your first day. Took that one like a champ.” He said. “Most of our possessed are in much worse shape after the first go around.” He handed me a glass of water and leaned against the wall beside me.
+
+“What happened?” I asked, my voice raspy.
+
+“Not much. You were under for awhile. After the first ten minutes or so the guy finally started making sense. Asked about his company and stock holdings before asking about his kids. Amazing how death can’t even stop these assholes from obsessing over money. Oh speaking of—“ he pulled out a large Manila envelope from his coat and tossed it to me.   
+“That’s about four hours of pay.” He said. “Most possessions will go about half as long but we got you a big spender for your first day.”
+
+“Wait—four hours? I was out that long?” The headache was starting to subside. I started moving the rest of my body and was met with a lot of soreness. It felt like I was just thrown around in a car accident.
+
+“Yep, time flies when you’re making money. Now you go ahead and go home. Make sure to eat and sleep before doing anything strenuous. Don’t want to exhaust yourself. Got you another gig lined up in two days.”
+
+He handed me some aspirin and I tossed it back with water. We chatted a little more about the upcoming gig before heading home.
+
+And that was the start of it all. For the past few years I’ve been a full-time possessed. I’ve gotten used to the day-to-day stuff. I arrive in a stuffy room with a bunch of people I don’t know and wake up to a wad of cash and a moderate hangover. 
+
+I’ve gotten to know some of the people I work with a little better too. The guy that hired me is named Gary. He’s kind of like a supervisor. Manages the staffing and daily hotel operations. I’ve tried hounding him a couple times about the company that started this whole thing, like who they are and how they figured all this out. He dodges the questions every time. The terrified expression on his face tells me I don’t want to know.
+
+I interact with other possessed only in passing. Most of them are more desperate for the money than I ever was and like to keep to themselves. However, their shaky demeanor and the scabby needle marks up and down their limbs tell me all I need to know about what they get up to outside of work. 
+
+Makes sense, after all. Work like this requires a certain kind of desperation. I’m a rare exception. Gary says he was like me too. Just interested in the money, not looking to support a habit. The company tends to promote possessed that don’t succumb to vices. There’s a future for me here if I can stick out the possession work long enough. Gary thinks so at least.
+
+And I believed him. Until last night.
+
+I had a longer session lined up with a new client. Not much details to go off of which was odd but they were paying top dollar. The company tends to let procedures slide if the price is right. 
+
+I stepped into the room to four grown men. They were all wearing matching coats and shared the same wide-eyed anxious look. Most of the men were fidgety and glancing around for danger. Whatever danger they were looking for I couldn’t know. 
+
+The man up front was the oldest and greeted me the moment I stepped in. He eyed me up and down before offering a weak smile and a firm handshake. 
+
+“Thank you for your service.” He said. “My family and I are grateful to you.”
+
+“Uh sure man, no problem.” I said.
+
+He waved me by and I took my usual seat. After a few moments of hesitation I popped the pill and tried to relax. The men formed a semi-circle around me with their arms fixed at their sides. 
+
+Joe, a possession assistant, pushed between them, staring daggers at them as he did. Joe has been working here many years and he doesn’t put up with funny business. I could tell these guys were setting off alarms in his muscled head.
+
+“Remember guys, talking only. Hands to yourselves. If anything rubs me the wrong way I’m shutting you down, alright?” He said with his back to the men. As he worked my restraints, he made a point to angle his holstered weapon towards them, just to remind them what they’re dealing with.
+
+“Thanks, Joe.” I whispered. 
+
+Joe nodded and patted my shoulder before stepping away. He took his usual position just outside the door. 
+
+The room started spinning. This time, I felt much more anxious than usual. My distorted vision made the men look devilish. Their features warped and stretched. Shades of red and green stained their forms. My breath slowed as the deformed figures faded to black and unconsciousness enveloped me.
+
+*Crack*.
+
+I was waking up, but I still couldn’t see. 
+
+The pain. 
+
+The pain was the first thing I felt. Not the usual headache this time. A dull, burning sensation tearing through my shoulder and across the back of my head. 
+
+I felt pressure along the front of my body and my face. Was something on top of me?
+
+No. I was pressed against something. I am on the ground?
+
+I forced my eyes to focus and was met with carpet in my face. I tried to lift myself off the ground but failed. My shoulder gave way and I returned to the floor.
+
+*What the hell happened?*
+
+I got up a second time using my good arm instead. My vision was slowly returning. All I could see was red. Blood. On me, my clothes, and the carpet below. 
+
+I made it to my knees. I used the chair beside me to try and stand but could only get myself seated. My body was so weak I could hardly hold myself up.
+
+Wait, this was my chair. How did I get out of it in the first place?
+
+That’s when the rest of the room came into focus.
+
+It was a blood bath. All four men were face down and scattered around the room. Three had visible injuries all across their bodies. The fourth was missing his head entirely. They all had some form of weapon in their hands or someplace near their body. Silver stakes, knives, and clubs. They were no longer wearing their coats. I’m guessing they must’ve only worn them to conceal the weapons. They all wore matching black dress shirts with thin white collars. Priests maybe?
+
+Then I noticed the rest of the room. Along with the blood splatters, there was considerable damage. Bullet holes and broken furniture were visible throughout. It looked like a fight broke out between the priests and hotel workers. But if that was the case, where were the workers? 
+
+Just then, a man burst through the door and slammed it shut behind him. He was an older guy. He had grey hair and a long beard. His eyes were wild and he struggled to get his weapon out of his holster as he became aware of the carnage that surrounded him. He raised the pistol towards me, trying to regain his composure.
+
+“Shit—raise your hands! Keep them high!” He yelled shakily. He was wearing a hotel uniform but I’d never seen him work this shift before. I couldn’t make out his name tag from here.
+
+“Okay! Okay! I don’t know what happened—these guys—they did this—“ I tried explaining myself but he interrupted me.
+
+“Shut up! Let me think.” He said as he looked around the room. 
+
+“I didn’t do this man let me out of here!” I yelled. I was starting to freak out. I didn’t understand why this guy wasn’t letting me go.
+
+He shook his head for a moment and motioned behind me with his gun. “So he did that to himself then, huh?”
+
+I turned around and gasped. Joe was slumped on the floor with his head pressed through the drywall. His chest was open and the innards were spilling onto his blood-soaked uniform. There was a trail of blood from his chest to right where I was standing. Blood stained both my hands all the way up to both elbows. I could see sketchy this looked now. 
+
+“Shit. Listen, I was possessed I don’t know what happened but I’m here now—“ I exclaimed.
+
+I turned around and the guy was dialing a cell phone. “Just stay there—I’m calling security. I’m sure they heard the gunshots already. They’ll get this sorted.” He said.
+
+I couldn’t stop looking at poor Joe. I only turned away when I felt bile rise up in my throat. He was a good guy. He didn’t deserve this. I can’t believe I…
+
+No. It couldn’t have been me. There’s more going on here. Something doesn’t feel right.
+
+“Yeah it’s me, Bobby.” The man said hastily. “I’m here in room 121. Something happened—god there’s so much blood…yeah, someone else is here. Says he’s a possessed…hey, what’s your name pal?” His gun was still fixed on me when he asked the question. 
+
+I didn’t answer. Something wasn’t adding up.
+
+This guy says his name was Bobby? I haven’t met a Bobby in all the years I worked here. And why did he lock the door behind him? Isn’t he waiting for security?
+
+“Hey, I asked you a question. What’s your name?” He said, visibly annoyed.
+
+“Are you talking to security? Is Adam there? He knows me.” I said. I knew everyone on the security team, so surely I would know if he was lying to me.
+
+He shot me a confused glance. “Hey, is Adam there? Okay sure. Please hurry.” 
+
+He dropped the phone back into his pocket and focused back on me.
+
+“Yeah, Adam’s on his way. I don’t like how you dodged the question there friend. Any reason you don’t want me to know your name?” He said. 
+
+A pit formed in my stomach. There was no Adam with security. This guy was lying. But why? Was he with these priests? If so, why didn’t he just kill me or get away?
+
+My expression must have given me away because Bobby’s face turned very sour.
+
+“Ah, there’s no Adam with security is there pal? Alright smart guy.” He said in a seething tone. 
+
+*Bang, bang, bang.*
+
+Someone was banging on the door now. I heard muffled speech on the other side. The real security must’ve arrived.
+
+“Looks like I gotta make this quick. I’ll give you ten seconds. All you gotta do is tell me your name. If you don’t, I pull the trigger.” He said. His voice was different now. Very plain and emotionless. All the fidgety and scared energy he carried before was all gone. He didn’t even pay any mind to the banging and yelling that was happening beside him.
+
+I looked around at the weapons on the floor. There had to be something I could use to disarm this guy. He started counting.
+
+“9…8…”
+
+Why did he need my name? It made no sense. I don’t have time to figure it out. I’ll just lie.
+
+“My name is Garry! Okay? Now let me out—“
+
+Bobby didn’t let up. I started to notice something changed in him now. His eyes appeared sunken and bloodshot. He adjusted his grip on the gun and I could see that his fingernails were black and sharp. He continued counting down.
+
+“5…4…”
+
+His voice was low and grisly, like a wild animal growling. 
+
+Shit—I’m running out of time. I have to just rush the guy. Maybe I can catch him off-guard—
+
+“…2…1….”
+
+*BOOM*.
+
+Just before I charged Bobby, the door splintered open. Three security guys filled the room with guns fixed on me. They winced and groaned at the bloody scene around them, but refused to take their eyes off me for more than a second.
+
+“Put it down!” John, head of security, yelled. He came to an abrupt stop just a few feet away from me. He held his gun aimed squarely at my face.
+
+I didn’t understand. “John? The man—Bobby—he’s one of these guys! He was right behind you—“
+
+John cut me off. “I’m not gonna ask again man. Put it down before I put you down, please—“
+
+It was at that moment I felt the cold steel against my temple. 
+
+Nothing was as it seemed.
+
+Bobby? He was nowhere to be found. The moment the door broke in, he was gone. And yet, I remained here. Holding a gun to my own head with nobody else in the room.
+
+I dropped the gun and kept my shaky hands above my head. “Jesus—I’m so sorry.” 
+
+Two guys rushed me and cuffed my hands behind my back. As I was carried out of the room, it all started to click. 
+
+There was no Bobby. He wasn’t real. These freaks came here to conjure something they couldn’t control and it ended up killing everyone. It ripped through the restraints, tore through the priests, and Joe…
+
+I may be conscious, but it never left. And it wants my name. I don’t know what that means yet, but I know it isn’t good.
+
+After a long debrief with security, I was sitting alone in the security room waiting to be sent home. I told them everything except for Bobby. I wasn’t sure what was worse, the company thinking I’ve gone crazy or them believing some malevolent entity is taking refuge in me.
+
+Gary walked into the room with a sad look on his face. 
+
+“Joe must’ve heard the commotion from outside and intervened. Poor guy. Place won’t be the same without him.” He said. 
+
+Images of Joe lying on the floor flashed into my mind. 
+
+“Any news on who these people were?” I asked, trying to put it out of my mind.
+
+“We don’t know anything yet. Probably just some religious wackos. Not the first time someone tried to abuse our facility for their own sick rituals.” His eyes went wide after he said it. I could tell he wasn’t supposed to tell the other employees about things like that. Company wouldn’t like it.
+
+“And it was just the four guys?” I asked. 
+
+“Yeah, why? did you see someone else get away?” Gary asked, raising an eyebrow.
+
+“No—I mean I don’t know.” My voice trailed off. “Something weird happened in there man. I’m still processing it.” I wasn’t sure if I could trust Gary. But I needed to tell someone.
+
+Gary glanced around the room uncomfortably. After he was sure nobody else was in ear-shot he swiftly turned the security camera off in the room and knelt down beside me. “Listen, that exorcism thing? Didn’t happen. Just a bunch of crazy people doing crazy things. Don’t talk about it again to anyone. Not to me, and definitely not to anyone else at the company.” His voice was stern and he had the same terrified look on his face anytime I asked him about who we worked for. 
+
+He gave the room another scan before continuing. “Whatever you do, do NOT tell it your name. You need to find out its name first and it will leave. If you don’t, things will get much, much worse. Understand?” He whispered sternly.
+
+I felt a chill run up my spine.
+
+I nodded. After a few moments, he got up and turned the cameras back on. He cleared his throat and continued as if nothing happened. “Crazy bastards got you good but I’m glad you’re safe man. You’ll surely get a promotion the way you handled these wack jobs. How about you go home and rest now. Take a couple days to recover alright?” He helped me up and walked me to the door. 
+
+His words hung heavy in my head as I made my way home. 
+
+Part of me wanted to forget all about it. Just leave the hotel behind and start fresh somewhere new. It wasn’t long before I realized I couldn’t just move on. Bobby wouldn’t let me.
+
+I don’t know what this guy is, but he’s still with me. I don’t see him like I did the other night, but he’s there. I feel his breath on my face just before I wake up. His long, black fingernails prick the back of my neck when I’m driving alone. I hear him giggling from the closet when I’m trying to fall asleep.
+
+I’m on a mission now. I need to find out his name before he tricks me into stealing mine.
+
+That’s why I need your help. 
+
+If you think you know something, please reach out. It could be a story you heard or some local folklore you grew up with. I have my own theories, but nothing has panned out yet. Demonology, witchcraft, aliens—there’s similarities but nothing specific.
+
+I’m still here, but he’s getting closer. Once I get this figured out, I’m going to be more critical of my life choices going forward. No amount of money is worth risking your soul over. The rich depend on you to be oblivious for their gain and they sure as hell don’t care if you get hurt in the process. 
+
+Stay safe. And if you ever consider being possessed for money, don’t say I didn’t warn you.

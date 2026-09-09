@@ -1,0 +1,289 @@
+I want to say up front that this isn't a story about the Softening. 
+
+Everybody has a Softening story and they're all the same story, and if you're under fifty you got it the way I got it, in a classroom, off a filmstrip. A cartoon drop of gravy in a hard hat named Pip. A man in a lab coat saying the word abundance about eleven times. A worksheet with a word search on the back. **YIELD. GRADE. TALLY. HYGIENE.** I found all four and got a sticker for it.
+
+So no. The world changed forty years before I was born and then it stayed changed, and that ain't the news.
+
+I'm a scraper. If you've never seen one of us, we're the crew in the mustard waders who shut your street at four in the morning and take the lid off a manhole and go down it, and come back up with the load. Then you buy it at the store in a shrink wrapped brick with Pip on the front, winking, thumbs up, and you make tacos with it.
+
+Eleven years I've been doing that, at Tri County Yield and Reclamation. For six of them my partner was a woman named Tolly. I'm writing this because Tolly is gone, and because every version of the incident report I've tried to hand in reads like something that gets a man sectioned.
+
+Ivar read the job out to us on Monday morning like he was reading a will that named him.
+
+"Marlow Cannery," he said. "Fourth and Delacroix. Sealed sub-basement, no entry logged since 1961."
+
+"Sixty-one," Tolly said.
+
+"Sixty-one."
+
+"Grade?"
+
+"Assessor says four."
+
+Somebody at the back of the ready room said a word you can't print, and Ivar held up the tablet so we could all see the thermal, which was a big orange rectangle with a colder orange rectangle inside it, and which meant absolutely nothing to anybody, but we all leaned in anyway.
+
+"Nine heirs," Ivar said. "Four lawsuits. One of them was a cousin suing over a parking easement for twenty-two years. Nobody's opened that door since before I was born."
+
+"So it's been marinating," Tolly said.
+
+"Don't say it like that."
+
+"Marinating." She said it slower the second time, and she rolled the R, and Ivar put the tablet down and left the room.
+
+Tolly had been scraping for twenty-six years. Five foot one, sixty-three years old, and she kept a Pip air freshener hanging off her respirator strap, upside down, because she said he had it coming. In six years I learned two things off her. She was never wrong about a bloom, and she would not shut up, which turns out to be a job requirement.
+
+Grade 4 is tonnage. Tonnage is the bonus. I had a transmission I'd been nursing since March, so on the drive home I was already doing the math, and I called my aunt Marilyn to tell her I'd be busy Tuesday.
+
+"You be careful down there," she said.
+
+"It's a basement, Marilyn."
+
+"It's a basement full of that stuff."
+
+Marilyn is a purist. She pays forty-one dollars a pound for chicken that a man in Delaware raises in a barn, and she'll talk about texture and dignity and what God intended for as long as you let her, and then she'll go through the drive-thru on Route 9 and eat a Pith-Pocket in the car with the radio off like the rest of us.
+
+"You eat it too," I said.
+
+"I eat it in a state of protest."
+
+Everybody eats it. Don't get precious. Ninety percent of the protein in this country comes up out of the ground under it, it's cheap, it doesn't drink water, and nobody has to look a cow in the eye about it. What it actually is, nobody knows. Sixty years of very smart people and the honest answer is still a shrug, and at some point the country stopped asking and started frying it.
+
+Anyway. Tuesday.
+
+We had the rig in the loading bay at ten past four in the morning. Rain coming down hard enough that the yard lights had halos. Tolly cut the padlock and it came apart in two pieces like wet chalk.
+
+"Sixty-one," she said, holding up the halves. "Look at that."
+
+"You want to keep it?"
+
+"I want to keep the whole building."
+
+We suited up in the bay. Waders, gauntlets, respirator, vest with the tally beacon clipped at the collarbone. Two hooks, two hand saws, the powered scoop, the sled, four hundred feet of hose down to the macerator on the truck, light rig, spare batteries for the light rig, spare batteries for the spare batteries. Tolly ran the beacon over both of us and the gear and the sled and tared it out.
+
+"Rules," she said, which she said every single time, because she'd trained me and because she was incapable of stopping.
+
+"Below the waterline only."
+
+"Why?"
+
+"Because pith grows below grade. If it's growing above the flood line it isn't pith and I don't touch it, I call it in, I go sit in the truck."
+
+"Two."
+
+"Tally in, tally out. Numbers match or the load burns."
+
+"Three."
+
+"Keep talking."
+
+"Four."
+
+"Nothing with a pattern. If it's arranged, I back out the way I came and I don't turn around."
+
+"Five."
+
+"If I whistle and something whistles back, shift's over."
+
+"Good boy." She snapped her respirator down. "Twenty-six years and I've never used four or five."
+
+"You've never used four?"
+
+"I've used four twice," she said. "I lied to make you feel better."
+
+The stairwell door was steel and swollen in the frame and took both of us and a pry bar and about six minutes of arguing with it. Twenty-two steps to the first landing. Sixteen more to the sub-basement.
+
+Then the light rig came up and neither of us said anything for a while, which technically broke rule three.
+
+The room was ninety feet long, maybe forty wide, and it was full from the floor to the joists. Pale, close to the color of a peeled almond, going pink where the lights hit it straight on. It sat in big soft folds that overlapped each other like a dropped duvet, and there was water dripping somewhere behind it, and the whole space was warm the way a compost heap is warm, which is normal, which is one of the first things they teach you, and which I have never once gotten used to.
+
+"Oh, you beauty," Tolly said.
+
+"Talk to me."
+
+"I'm talking. I'm saying look at that shoulder. Nobody's bothered her in forty years."
+
+"Fifteen ton?"
+
+"Twelve. Thirteen." She patted a lobe of it with her glove the way you'd pat a horse. "Don't be greedy. Get the hose."
+
+So we worked, and it was boring, and that's the part nobody puts in the documentaries. You cut wedges from the door inward. Saw, hook, drag, scoop, hose. Pith comes apart wet and quiet. It doesn't bleed, it weeps, clear and slow, and the cut seals itself over in a couple of hours, and if you leave a room half harvested and come back a year later you can't tell where you stopped.
+
+Tolly talked for five and a half hours because rule three is rule three.
+
+"So Danielle wants Aunt Rosemary at table six."
+
+"Uh huh."
+
+"Table six is by the doors."
+
+"Right."
+
+"Aunt Rosemary has a thing about doors."
+
+"Hook."
+
+"Hook. Aunt Rosemary has a thing about doors, so she calls me, at eleven at night, and she says, Tolly, I can't be by the doors, and I said, Rosemary, it's a wedding, it's four hours, and she said, four hours is a long time to be by a door."
+
+I want to be honest with you. For five and a half hours, the worst thing in that room was the chance she was going to start describing the cake.
+
+At twenty to ten we cut through to the north wall and found out it wasn't the north wall.
+
+There was an opening in it, six feet wide, where somebody had knocked the cinderblock out at some point in the building's life and never bothered to frame it. Rubble still on the floor under the pith. Our plans showed solid foundation and a utility chase. Beyond the opening the bloom kept going into a second space, and the light rig couldn't find the end of it.
+
+Tolly stood with her hands on her hips.
+
+"That's not on the plan."
+
+"No."
+
+"Call it in."
+
+I called it in. Ivar came back chewing something.
+
+"Say again?"
+
+"Unlogged volume off the north wall. It's continuous. Bloom runs straight into it."
+
+"How big?"
+
+"Can't see the end."
+
+There was a pause on the line, and in the pause he stopped chewing, and I remember thinking that was strange, and then I stopped thinking about it, which is a thing I'd like to have back.
+
+"Chief says assess and report," he said. "Don't cut. Sixty feet max."
+
+"Copy."
+
+Tolly was already through the gap.
+
+It was hotter in there. Not a few degrees. It hit my face the way stepping off a plane in a warm country does. The lights got swallowed too, and the pith wasn't slumped in folds anymore. It was smooth. Floor, ceiling, both walls, one continuous surface, and every four feet there was a ridge that ran all the way around the passage. Even spacing. Same height. Like the inside of a hose.
+
+Tolly stopped so hard I walked into her.
+
+"Rule four," I said.
+
+"Rule four," she agreed, and she didn't move.
+
+"Tolly."
+
+"I'm looking at it."
+
+"That's ribbing."
+
+"It could be structural." Her voice had gone flat and careful and in six years I had never heard her voice do that. "Long span, no support, the bloom's holding up its own weight, it might."
+
+She stopped.
+
+"It might what," I said.
+
+"No. You're right. Back out."
+
+And we would have. I want that on the record, because I've had four days to lie to myself about it and I'm trying not to. We both turned around. We took two steps toward the gap. Then my light swung across the left wall and caught something with an edge on it.
+
+You don't get edges in a bloom. Everything down there is soft and slumped and stupid. My hand went over on its own.
+
+It was a chair.
+
+Same pale material as the rest of it, grown out of the wall like a shelf fungus, and where the seat met the wall the two of them ran together like wax. But it was a chair. Four legs, a back, that exact ugly curve of a molded stacking chair, the kind that costs eleven dollars and lives in every waiting room on earth. Nobody had carved it. Nobody had put it there.
+
+Then the table next to it. Then the thing on the table, which was a coffee cup with a handle and no opening in the top, just solid all the way through.
+
+Then, on the right wall, a rectangle standing about six feet high, set into the pith like a relief carving. Door frame. Kickplate at the bottom. Push bar across the middle.
+
+Then the big square shape against the wall past it, with a flat blank panel in front where a window would go, and rows of little pale coils behind it.
+
+Nine rows.
+
+I stood in the heat with the saw in my hand and I counted them twice.
+
+I know that machine. I have kicked that machine. Row four, slot C takes your money and gives you nothing back, and there's a strip of masking tape under it that says **OUT OF ORDER SINCE THE NIXON ADMINISTRATION** in Ivar's handwriting.
+
+It was our ready room. Not a room like ours. **Ours**. The chairs in the wrong number and the right shape, the table, the yard door with the push bar, the machine with nine rows, all of it grown out of the floor of a sealed basement two miles from the depot that nobody had opened since 1961.
+
+"Okay," Tolly said, very quietly.
+
+"How does it-"
+
+"Don't."
+
+Her light was moving fast now. It stopped on the floor about fifteen feet further in, and I saw what she saw, and everything in me went cold in a hot room.
+
+A boot. A real one, company mustard, an old cut we stopped issuing fifteen years ago. It was sunk into the floor to the ankle and the pith had grown up around it in a smooth cuff, and out of the top of the cuff the shape kept going upward. Leg. Hip. Waist. Shoulders. All of it seamless and blank and unfinished, like something roughed in by a sculptor who got called away. The head was a swelling with a smooth front and no features on it, and it was tilted a little to one side, the way you tilt your head when you're listening to somebody through a wall.
+
+There were more of them further back. I could see them right at the edge of the light. Six, seven, standing up out of the floor, all tilted the same way.
+
+Tolly grabbed my vest strap.
+
+"Out. Now. Don't run."
+
+I want to tell you I was calm and professional. I wasn't.
+
+We went backward the first twenty feet because neither of us was going to turn around in there. Then we turned and walked fast, and the ridges went past, four feet, four feet, four feet, and the heat pushed on the back of my neck the whole way.
+
+Tolly talked, because rule three is rule three.
+
+"Nice and steady. Twenty feet to the gap. I'm buying you a beer tonight and you're going to drink it because I'm buying it, I don't care if you want it."
+
+"Okay-"
+
+"Fifteen feet."
+
+"Okay."
+
+"Ten."
+
+We came through the gap into our own room, into the mess and the sled and the hose, and she put her glove on the block work and she let out a breath, and then she whistled.
+
+Two notes. Down, up. Her all clear. She'd done it at the end of every run for twenty-six years and I don't think her mouth asked permission.
+
+Something back in that corridor whistled it back.
+
+Not an echo. I've thought about this for four days and I want to be exact. An echo comes back thinner than what you sent. This came back fuller. Two notes, down, up, and then a third note stuck on the end of it, going up again, like a question. The way you'd whistle if you were trying it out. If you were learning it.
+
+Rule five is the shortest rule on the card and it takes up half the space, because they set it in bold.
+
+We were up the stairs and out in the rain by twenty past ten, and I sat down on the wet concrete of the loading bay and couldn't make my hands work well enough to undo my own straps.
+
+"Give it here," Tolly said, and did them for me.
+
+Protocol is very clear from that point. We sealed the stairwell. Tolly called it in as an eight, which is pattern growth with morphological anomalies, and Ivar didn't chew and didn't joke.
+
+"Understood," he said. "Tally out and come home. Do not open the tank."
+
+We ran the beacon over the load. Site weight, 24,180 pounds. Career day. On any other Tuesday that number buys me a transmission and gives me a story to tell rookies for ten years. They weighed us on the pad before we could get out of the cab, which is standard, and the number goes up on the board over the bay doors so the whole yard can see it, which is also standard. I watched Tolly watch the board.
+
+24,314.
+
+A hundred and thirty-four pounds over.
+
+"Dump it," she said.
+
+They dumped it. Twenty-four thousand pounds of the best yield either of us had ever pulled went into the incinerator while I stood at the rail and felt nothing at all. The yard crew went through the tank and the hose and the sled and the bed and the cab, and they found nothing, because they never find anything. Ask anybody who's ever filled out a 12-B.
+
+We did the paperwork in the ready room. I was sitting in one of the eleven dollar stacking chairs with the clipboard on my knee and I was holding it together, honestly, right up until Tolly went quiet.
+
+She was looking at the vending machine.
+
+It has always been against the east wall, next to the yard door. Eleven years I've kicked it against the east wall.
+
+It was against the north wall, under the window. Which is exactly where the big square shape was standing in that hot smooth corridor under the Marlow Cannery, if you came in through the door frame with the push bar on it and turned to your left.
+
+Nobody moved it. I asked. I asked the day crew and the night crew and the guy who does the floors, and I got eleven versions of what are you talking about, it's always been there, and one guy laughed at me and asked if I was drunk.
+
+Tolly looked at it for a long time.
+
+"It's not copying us," she said.
+
+"What?"
+
+"It's not copying us. It's fitting us." She picked her jacket off the back of the chair. "That's what you do before you put something on."
+
+That was the last thing she said to me. She went home. She didn't come in Wednesday. She didn't come in Thursday.
+
+Her sister called the depot on Friday, and by then I'd already been in the 12-B archive for two nights, which we are absolutely not allowed to do. There are eleven other crews on record who dumped a load for coming back over weight. I've read all eleven. I know what they have in common now, and I know what the number means.
+
+I'll write the rest tomorrow night. I have to go back down into the Marlow in the morning.
+
+That's not a figure of speech, and it wasn't my idea.
+
+Part 2 to follow.
