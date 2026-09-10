@@ -24,6 +24,8 @@ The TV was showing static, and the entire house was dark.
 
 For a few seconds, I was completely confused. I looked at the clock on our radio, which was sitting on top of the TV, and it was around 3 AM.
 
+But I was only watching the TV for a few minutes.
+
 There was no way I had been asleep for four hours. It didn’t feel like I had been asleep that long at all. In fact, **I didn’t even remember falling asleep**. There was no moment where I felt tired, no memory of closing my eyes, and no memory of anything happening between watching that strange movie and waking up.
 
 I panicked and wasnt even thinking of investigating so I turned off the TV and ran to my room, which was just next to the living room.
@@ -63,4 +65,4 @@ There were a lot of things that bothered me.
 And if that movie or whatever it was never existed…  
 **then what the hell did I watch?**
 
-**I never shared this online before until now, maybe someone is experiencing something similar?**
+**I never shared this online before until now, maybe someone is experiencing something similar?i**
