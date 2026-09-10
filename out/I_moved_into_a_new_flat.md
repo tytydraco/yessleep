@@ -35,3 +35,5 @@ Nothing was there. I was expecting to be jumped at or something at least but the
 And then I had another thought. You probably had it too by now. I suppose in my sleepiness I just wasn’t thinking properly. I was a fucking idiot. I listened carefully for any noise and couldn’t hear anything. It was so fucking obvious why didn’t I think it?
 
 It could’ve just lowered its head behind the couch.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/y1ebWnowMe)

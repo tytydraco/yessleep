@@ -1,0 +1,155 @@
+[Part 1](https://www.reddit.com/r/nosleep/s/55RAKb64dm)
+
+I’m sorry for the last post ending suddenly. I was a bit preemptive. I posted it and then when I went to write this one realised there was a 24 hour wait before the subreddit would let me. It was handy though because it let me get my thoughts more in order. 
+
+I didn’t leave the room all night after the sofa thing. I was convinced that any second something would happen. Someone was going to come and get me. I’m not scared of the supernatural personally, people have always scared me more. I kept preparing to hear a floor board creak, the door handle turn, anything! No. 
+
+Eventually light started filtering in and I realised I’d spent the entire night sat watching the whites of my eyes turn red. It didn’t feel like it had been that long.
+
+I debated calling someone to ask to stay at theirs for the night but that felt worse than there actually being an intruder. My family relationship is strained and they live hours away. My friends would probably let me sleep a night but people only have so much goodwill, especially over what would read to most people as a pretty unremarkable event. People see shadowy figures in the dark all the time and do you know how many of those are anything other than a trick of the light? I don’t know either but I assume few. Besides, even if I asked to stay with someone I’d still have to leave this room. There is no option here but to confront it. 
+
+I flinched. My stillness finally broke when I heard a tap behind me. For some reason I couldn’t turn to face it again. The tapping was constant, but it started to get drowned out by my heart thumping in my ears even louder.
+
+I breathed in, slowly grabbed my laptop beside me and prepared to turn. Whatever was behind me was about to be bludgeoned. I counted to three and then…
+
+Nothing was there. But the tapping was still consistent. ‘It’s inside the walls!’ I thought, then I glanced up. Water was dripping from a leaky gutter surrounding the roof and landing on my window sill with a tap, tap, tap. At some point in the past few hours it had been raining and I just hadn’t realised. I don’t know how to explain it but for some reason this deflated my tension even though it was entirely unrelated to the sofa figure. Not to be cliche but seeing that there was a ‘rational explanation’ to the tapping assured me that the sofa was probably just an overactive imagination, nothing more.
+
+Still spent what felt like an hour standing in front of my bedroom door before I mustered the courage to open it though.
+
+Laptop still in hand as a makeshift weapon I walked out into the hallway. In daylight the fear was a bit dispelled. This place is large for a student flat but the room count is still pretty limited, there’s only so many places for an intruder to hide. I could tick off the larger bedroom without much thought, it was directly next to mine and I didn’t hear a sound all night outside my door. Walking further down the hall the bathroom door was wide open but knowing me I left it open. I turned on the light and took a quick glance in anyway, I regretted that quickly. The extractor fan came to life again and made it impossible to hear anything but. I walked over to the bath, pulled back the shower curtain and saw nothing. After I turned the light off immediately, the fan still mocking me. Back down the hall I reached the door to the living room. It was closed. I don’t remember closing it. 
+
+Count of three again. 
+
+One…
+
+I burst through the door, sprinted to the sofa with the laptop raised above my head and went to strike the intruder. My laptop bounced off the still damp sofa cushion with a thud. Sorry for not respecting the count to three, adrenaline outpaced decorum.
+
+I checked the kitchen but by this point I felt rather silly. I had just wasted an entire night over a shadow. Back in the living room and I spotted an open window. So that’s how the door closed, a gentle breeze. I closed the window out of spite.
+
+I sat on the sofa and my pajamas started to get soggy but I was too defeated to care. I really need furniture for this place, a place this big and empty is bad for my imagination. Also I need to ask my landlord if I can paint these walls. Who ever heard of a haunting in a room with pastel yellow walls?
+
+Opening my laptop I checked my calendar and realised to my chagrin that I have work tonight. My adrenaline faded and I laid on the sofa staring at the ceiling. Then the ceiling blurred more and more.
+
+After waking up from a brief nap it was time to head to work. That night we were hosting a birthday party. There were about 400 people in this cramped venue and they had a karaoke machine set up. Very ABBA themed evening, I think someone sang ‘does your mother know’ like 3 times, an increasingly drunken slur with each rendition. Another guy might’ve actually bankrupted himself with baby guinness, I made a few hundred and this guy just kept downing them. I pulled my manager aside at one point to ask if we’re assisting a suicide but she was too busy counting the cash register to notice.
+
+Just as I finished another tray of baby guinness the guy vomited down himself and then slipped in his own sick. He was too drunk to care but it was obvious he was concussed, that’s when the party started to die down. He was led out back by some relative and just disappeared leaving his purchase on the tray. 
+
+As the last partygoer left a coworker walked over to the karaoke machine to unplug it before stopping.
+
+‘Hey! Over here.’
+
+I was a bit preoccupied disassembling the coffee machine but he kept on shouting to me over and over. Eventually I waddled beside him on stage.
+
+‘Check it out.’
+
+He was flicking through the crappy display of the machine and that’s when I noticed. Every song was ABBA. I hadn’t noticed before but looking closer at the machine I spotted that it was branded top to bottom with this Mamma Mia wrap. Why do we have an ABBA Karaoke machine? 
+
+I didn’t get long to dwell on it because he already rushed back over to the bar and took two shots off the tray, handing one to me and then a microphone. Then he pushed a button, downed his shot, elbowed me, and started belting ‘under attack.’ He looked lonely singing alone so I joined in.
+
+Later the four of us sat at the bar together, close to sleep. The tray had long since been emptied communally and the drinks had let the wear of the 10 hour shift show. The bar was far from closed properly but my manager was too tipsy to care. She told us we could head off if we wanted and all at once us four stumbled from the stools to the exit. I fell over a step as I rushed out and the karaoke coworker caught me. He had a cigarette filter in his mouth and rolling tobacco in his non-saving-me hand. 
+
+After sitting me down he rolled the cigarette in one motion, lit it and stuck it between my lips.
+
+‘Will keep you from blacking out.’
+
+Patting me on the back he left me sitting there and walked off into the dark. The cigarette was a nice thought but my gag reflex can be pretty weak. After taking a drag I immediately vomited.
+
+I’ve always liked wandering the streets late at night drunk. It’s vulnerable as hell but drunk me doesn’t ever mind. You make a lot of friends when you’re tipsy. I was drunk after work before and immediately walked over to a long queue outside a club. I made lots of new friends in that line and we spent all night getting to know each other. When I woke up the next morning I regretted getting their socials.
+
+You can really see the difference in infrastructure at night. The wealthier neighbourhoods are bathed in modern white street lights, the poorer coloured with that faint orange type. You can guess what colour my neighbourhood was covered with.
+
+A couple approached me on the way and asked if I could bum a cigarette, I told them it was my only one and the guy looked genuinely distraught. A bus passed by me with ‘NOT IN SERVICE’ plastered on its display, the driver parked up and pulled out his phone before shouting at someone on the other end of the line. 
+
+Closer to my new flat a guy was sitting on a bench under the streetlight reading a book. It looked like a classic based on how dull the cover was.
+
+At my door I fumbled putting my keys in, they slipped out my hands and clinked on the floor. A second try, same result. Nailed it the third try.
+
+I felt a low hum coarse through my body, my nemesis, the extractor fan greeting me. Then my stomach started screaming, sight, sound, grace, all abandoned me as I found myself rushing to the bathroom. Slamming the door open and slamming the light switch on  I just about got to the toilet before vomiting again. It was all fluid, I had forgotten to eat today. After a while my legs decided to let me stand and went for my mouthwash, gurgling it and thanking god that I got the alcohol free variety. Spitting it out I just felt time pause as I looked in the mirror. Staring myself in the eyes I could see they were sunken, a bit of dry skin on my upper lip, bruises circled my left forearm and my hair dishevelled. I tried to will the person looking back at me to be different but they didn’t heed my prayer. This drunken dipshit was all that I had. 
+
+I looked down into the sink and turned on the tap, cupping a handful of water I splashed my face. Then again. Then with one last glance in the mirror I switched the light off and went to my bedroom. Beds are always cosier when you’re drunk, insomnia isn’t a factor to drunkards.
+
+Closing my eyes I tried to let the quiet take me but that fucking extractor fan had other plans. I tried to treat it as white noise but my brain decided to make that noise a sticking point of irritation. I can’t stand it. A few minutes passed and it switched off finally and I felt a bliss prior unknown. 
+
+Deeper into sleep I went. Deeper…
+
+Hm…
+
+I felt myself sobering up quickly but for what reason I couldn’t quite tell.
+
+Come on brain. Let me know what you’ve thought.
+
+You’re annoying me now, spit it out.
+
+Something…
+
+Something when I walked in? Something bathroom?
+
+Oh. Oh no.
+
+When I walked in the extractor fan was already on.
+
+And the bathroom light was off.
+
+Oh.
+
+It’s funny what instinct can do. I was back in the hallway now with my laptop at the ready once again. I didn’t even remember moving. The one door left open besides my bedroom was the bathroom. I stood a few feet away from the entrance and listened once more for any sound. Then I heard it. This is feeling more and more like a joke.
+
+Tap. Tap. Tap. 
+
+Stood at the entrance I caught my reflection in the mirror, as well as the eyes being sunken I now looked utterly drained. It was really accentuating the eyebags. No point in delaying now.
+
+Tap. Tap. Tap.
+
+I went to turn the lights on but stopped myself. The fan would drown out the direction of the tapping. Also if someone was still here broadcasting what room I’m in doesn’t seem smart. But then again if I leave the light off that doesn’t stop someone from finding me. Would I rather be attacked in a bright room or a dark room?
+
+Doesn’t matter regardless since I turned on the light by this point. I kept picturing someone being a few feet away from me and me being blind to see it.
+
+The fan was loud as ever and it’s true, it made the tap, tap, tap, barely audible. I slightly underestimated how loud the tapping was though, I could still just about hear its source and it was coming from the bathtub, with a shower curtain surrounding it.
+
+I used to be really into those videos of ‘phrogging’ when I was in my early teens. People would set up cameras around their property for peace of mind, or because they suspected animals, and then watching back the tapes they’d see a recording of a stranger climbing out of their attic at the time they were at work. Or coming out of their basement. Sometimes even under their bed.
+
+They’d call the police and the police would find some homeless person who’d been living in your house unnoticed for months, even years. Thankfully most of the time these people were very passive. They just wanted somewhere to live that’s warm and they noticed you have entire rooms you literally never use. Are you really using an attic, basement, closet or underneath of a bed to its fullest use? There are plenty who’d be happy to live there.
+
+Although despite the majority of ‘phroggers’ being passive, ‘majority’ doesn’t mean ‘all.’ There’s at least one famous story of a person living in a family's house for weeks before silently killing each one night. It was a dark and chilly winter apparently. The only evidence of the intruder’s presence was footsteps in the snow spotted by the homeowners a while before their deaths. The footsteps headed towards their property but there were no footsteps walking away.
+
+And obviously there are lots of myths about some crazed intruders being found under a person’s bed, a knife, duct tape and (depending on how provocative the storyteller is) condoms. I’m pretty sure this might be a myth, but most myths are based on at least some truth.
+
+Tap. Tap. Tap.
+
+My hand was on the shower curtain. I kept trying to make out some kind of shape behind the fabric but it wasn’t sheer enough to tell. What’s better? Slowly opening it or yanking it? I didn’t get a chance to answer because I closed my eyes and pulled it open so hard it practically fell off the rail. 
+
+But then I didn’t open my eyes. I think I’ve downplayed writing this just how scared I was. I was hyperventilating since entering the bathroom and was begging for the presence to just appear and get it over with. But once I was potentially faced with it I buckled. Stood vulnerable, my eyes closed, something tapping centimetres away, it all got too much.
+
+I listened to the noise. That constant tap. I could make out the tap so well… I… tap. Tap? Tap… Oh Christ…
+
+I was embarrassed to open my eyes but I shamefully did it. The bathtub’s faucet, tap, sink, whatever you want to call it was leaky and the drops were thudding against the plastic frame. Is it plastic? Whatever material it was very hollow, it thudded rather than dripped.
+
+Then I had a thought. ‘I haven’t bathed here yet and this is the first time I’ve heard the drip.’ That’s dumb, I’m sure I just didn’t process the sound of dripping in the bathroom. That explains it. Although it wouldn’t hurt to check something…
+
+I put my hand against the bottom of the bathtub. The bath was at an angle so those drips would never reach where I’m touching. It made it all the stranger that my hand came away wet then. This tub has been very recently used.
+
+FUCK.
+
+I’m such a dipshit, how the fuck am I always so daft. I walked into the hallway earlier and saw that this door was the only one besides my bedroom wideopen. 
+
+I left the living room door open when I went to work.
+
+I made sure the window was closed too.
+
+Well now standing in the doorway having just opened it I find myself looking at the window, wide open. The streetlight dimly illuminating the sofa. 
+
+I took a step forward, the floor creaked underfoot. Another.
+
+Any moment it’s going to pop its head above the sofa again, I’m sure of it.
+
+Another step forward. My pulse in my ears.
+
+Another. Cold sweat on my brow.
+
+I was standing at it now, if I lean forward I’ll have my answer.
+
+So that’s what I did, I leaned. At first just the fabric of the sofa, but then something else became more clear. Black fabric adorning something. I could see a tiny sliver. Maybe a bag? Maybe a pillow? Maybe a person?
+
+I leaned even further…
+
+And that’s when I dropped my laptop.
