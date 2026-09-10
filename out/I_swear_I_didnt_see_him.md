@@ -1,0 +1,321 @@
+I don’t think anyone could have seen him. The blurry darkness taunts my sanity as my wipers screech against the pouring rain. His red sweater dances through my mind. Did I see him? It doesn’t matter. I should just keep driving. Keep driving and forget about it, right? He was old, probably. He was going to die soon anyway. 
+
+The severed body consumes my thoughts. What if they find it and trace it back to my car? Does my car have damage? I slow down and pull over. The rain thumps against my car, mimicking the beating pulse in my ears. I press the button on my phone, but it’s still black.
+
+Dead. Great. 
+
+I grab my umbrella from the passenger seat and leave the safe haven of my car. The wind tears through me, nearly knocking me into the icy hell below. God, this sucks. 
+
+The front of my 2014 blue sedan looks normal, I think, but that doesn’t mean much coming from a girl who doesn’t know what the L stands for in PRNDL. There are no streetlights on this road, just the black expanse of the backroad ahead of me and the pale moonlight judging me from above. I sigh before making my way in the direction of the unknown. The gravel crunches beneath my feet, each step a cold, wet nightmare. The wind blows the rain sideways, plastering my damp hair across my face. I keep my left hand clamped around the grip of the umbrella while my right is glued to my chest to keep me warm.
+
+The metallic, copper stench hits me before anything else as it sneaks into my nose uninvited. I stop cold, almost dropping the umbrella. His upper half lays unnaturally against the curb, his head sunken in and his arms bent backwards. Intestines drool from beneath his shirt like a maze of thick, slimy ropes. My stomach turns and I drop to my knees beside him. The rainwater drags the pink ribbons of my vomit down the storm drain. When I finally lift my head, my eyes land on his lower half, resting a few feet down the road. His blue denim jeans are soaked in red.  
+
+Darkness swallows the road. No headlights, no cameras, no witnesses. Just me, the rain, and an unlucky man painted across the street. No one needs to know what happened. If I can get rid of this body, no one will ever know what happened. I scramble back to my feet and almost puke again. I step over to his upper torso, forcing myself to not look at his face. I reach down and grab underneath the wet fabric of his wool sweater. I pull up with all my strength. Nothing. The weight is dead, solid, and terrifyingly heavy. 
+
+“Come on,” I sob under my breath and try again. This time, I drop the umbrella and strain my muscles forward, hoping to push him towards my car. “Come on—” 
+
+“I can help,” a deep voice echoes from behind me.
+
+I spin around, almost slipping on the pavement.
+
+A tall figure stands a few feet away, obscured by the rain. He isn't rushing. He isn't panicking. He just stands there, watching. 
+
+“What…?” I somehow manage to mutter, grabbing my umbrella as a weapon.
+
+“I can help you,” he repeats, grinning. His voice is smooth and effortless.
+
+He waits a few seconds, then leans in closer and whispers, “I saw everything.”
+
+I freeze. “What do you mean, everything?”
+
+“I mean I saw the whole performance. The thud, the panic, the way you stared at what you did before trying to drag your problems away.” He tilts his head, examining me. “You’re not very good at cleaning up after yourself.”
+
+“Okay, but you don't have any... proof,” I say, backing toward my car.
+
+“I wouldn't be so sure,” he responds as he pulls out a phone from his right pocket and tilts it sideways, mimicking a camera. 
+
+He steps closer, leaning down slightly to catch my scent.
+
+“So where are you driving from?”
+
+I contemplate lying, but decide not to. “Just… a party.”
+
+“A party, hmm. Must’ve been a good one.” He lingers on the words.
+
+“Listen…” He nods to me.
+
+“Lily,” I interject.
+
+“Lily, you need me. You need me to help you, or you will be in a lot of trouble. Trouble that will haunt you for the rest of your life.”
+
+He steps directly under my umbrella, so close that I can feel the heat radiating off his skin. Slowly, he reaches out with his right hand and tucks a damp strand of blonde hair behind my ear, his knuckles brushing my cheek. “You’re… beautiful, Lily.” 
+
+I freeze under his touch. Up close, he’s young—maybe twenty-three or twenty-four. Dark hair, hazel eyes, and a faint shadow of stubble along his jawline. Tall enough that I have to tilt my head back. He’s smiling like we’re the only two people in the world. 
+
+“How old are you?” he asks softly.
+
+I clear my throat. “Twenty-one.”
+
+He smirks. “Right.” He doesn’t break eye contact. 
+
+“Well here’s what’s going to happen. I am going to pick up this man, well, both parts of this man, and you are going to hold the umbrella. Then we are going to walk over to your car and put him in the trunk. Does that sound like a plan?”
+
+I hesitate. “I… guess…”
+
+Without waiting for a real answer, he bends down. He slides one arm beneath the man's shoulders and another beneath his hips and lifts them off the pavement with terrifying ease. Blood runs down his sleeves, but he doesn't react.
+
+I hold the umbrella over him as he carries the pieces to the back of my sedan. I pop the trunk. He sets them inside, shuts the latch with a heavy thud, and turns to me.
+
+“Keys,” he says.
+
+“I can drive—”
+
+“You’re not driving.” He nudges me aside and grabs my keys.
+
+I want to resist. I want to push him down. If I get in that car, my life might be over. I impulsively tackle the man to the ground. He reacts instantly, grabbing my neck with his right hand and lifting me up with ease. He pins me against the side of the car. I can't breathe. After a few agonizing seconds, he releases his hand.
+
+“Try that again and I won't let go.”
+
+He grabs me by the waist and shoves me into the passenger side, slamming the car door behind me. I collapse against the headrest, gasping for air as my throat throbs where his fingers bit in. My eyes catch the red Solo cup in the center console. Trembling, I quickly kick it under the passenger seat before he sits down.
+
+“I’m Evan, by the way,” he says, offering up his right hand.
+
+“Lily,” I say, barely touching his fingers.
+
+“So where were you headed to, Lily?” he asks.
+
+“I was headed to my house—my parents’ house.”
+
+Evan rests his hands on the wheel, contemplating. “I can get rid of this body. I will get rid of this body, but only if you can help me out with one thing, Lily. One thing. Do you think you could do that?”
+
+My thoughts wander. “What thing?” I ask nervously.
+
+“I need us to go home, to go to your home, and I need you to pretend like I am your boyfriend. Pretend like we are a couple.”
+
+“What? Why?”
+
+“It’s part of the plan, just trust me. Trust me. Do you think you can trust me?”
+
+I wait before responding. “My parents won’t buy it,” I mutter. I haven’t brought a boy home in years, and I’ve only ever done it once before. This would be so sudden and unexpected. 
+
+“Well it doesn’t really matter, because you have no choice, really. Do you want to go to prison, Lily?” he asks so matter-of-factly.
+
+I swallow hard. “No.”
+
+“Well, then. Decision made,” he says. “So where do you live?”
+
+I should tell him the wrong address, right? I should tell him the address of the police station. No, wait, that wouldn’t be good.
+
+“I actually don’t know how to get there,” I lie. “I normally just use my phone maps.”
+
+“Oh, this phone?” he says as he picks up my phone from the center console between us.
+
+“It’s dead,” I say, shrugging my shoulders.
+
+“Convenient.”
+
+Evan pulls a thin black cable from his jacket. He plugs it into the dash, turns on the engine, and the screen flickers to life with a soft chime.
+
+He tilts the phone toward me. I turn away, but he grabs the back of my head and forces my jaw toward him. I shut my eyes in an attempt to sabotage, but it doesn't work. The face ID lock on the screen turns green.
+
+“There we go,” he hums, tapping the Maps application with his thumb. “Address labelled HOME. Easy enough.”
+
+God, who knew technology and location tracking would be the death of me.
+
+He puts the car in drive, and it stutters forward.
+
+“Tell me more about yourself—your hobbies, your passions. If we are going to be dating I need to know more about you.”
+
+I stay silent.
+
+“Are you in school?”
+
+I nod.
+
+“Oh, the community college right here?”
+
+I nod.
+
+“Sweet. Yeah, I applied there, but didn’t get in. What are you studying?” he asks. “Wait, let me guess, business? No wait—engineering, yes engineering!”
+
+I make eye contact with him.
+
+“Yes! Thought so,” he says, proud of himself.
+
+Evan’s voice sounds like it's coming from underwater. The dashboard lights blur into long smears of green and red, and my own hands in my lap feel like objects belonging to someone else.
+
+We make a right turn toward my house. My parents’ house.
+
+“What’s your favorite food?”
+
+I don’t answer that one either and stare through the windshield.
+
+He laughs softly. “We'll work on that.”
+
+We pull into my neighborhood. It’s quiet this late at night. My house is the third one on the right. The lights are still on because my parents are waiting for me to get home. Of course they are.
+
+We pull to a stop in the driveway and he shuts off the car.
+
+“Ready, baby?” he says, smiling.
+
+I ignore him and we get out of the car. I should really do something. But I am not in the right mind, and I can’t think of a coherent plan. All I can do is follow his orders. 
+
+All I can do is obey.
+
+“Wait. The blood.” He catches my wrist. “Let the rain clean it off.” We stand in the downpour for ten seconds, the cold water rinsing the dark stains from our skin and clothes.
+
+Once we get to the door, he holds my hand and squeezes it tightly. He doesn’t let go.
+
+I ring the doorbell.
+
+My mom opens the door in her flannel pajamas, shielding her eyes from the porch light.
+
+“Hey, Mom.”
+
+“Lily! Good lord, child, you’re drenched—” She stops short, her eyes darting from my dripping hair to the tall figure standing too close next to me. “Wait—who is this?”
+
+“Sorry for not telling you, Mom,” I manage to say. “But this is… Evan. My boyfriend.”
+
+I stare at her, pleading with my eyes, praying she’ll catch the unnatural stiffness in my shoulders or the way my voice cracks. She will know, right? She will save me. She's always saved me.
+
+“Boyfriend? How have I not heard of this?” Her eyebrows shoot up in a wave of shock and curiosity. “Well, come in! Come in!” she says excitedly. “Wait, let me get you towels.”
+
+She retreats and reappears a few seconds later with two towels. We use them to dry off as much as we can.
+
+Buster runs to the door and starts panting and wagging his tail. So much for a guard dog.
+
+“I'm a hugger,” Evan says, smiling as he opens his arms in invitation. “I'm Evan.”
+
+“Rose,” my mom replies and accepts the offer. “Wow, so tall.” She pats him on the chest and steps back, turning toward the staircase.
+
+“Honey, she’s home!” my mom calls upstairs. 
+
+Evan’s grip on my hand tightens just enough to bruise before he releases me, stepping smoothly past the threshold. He wipes his muddy shoes on the mat with practiced, polite care.
+
+Footsteps echo down the staircase, and my dad appears at the landing.
+
+“Who’s this?” he asks.
+
+“My name is Evan. Lily’s boyfriend.” His voice is warm and smooth, like a different person. Evan steps forward and offers his hand in perfect, calculated posture. Like he’s done this before. 
+
+“Dan,” my dad replies hesitantly.
+
+“Come, sit,” my mom says as she offers up the couch.
+
+When we sit down, Evan puts his arm around me.
+
+He touches my shoulder and doesn't let go.
+
+“Well Lily, this is unexpected. I didn't know you were going to bring a boy over. How long has this been going on?” my mom asks very curiously.
+
+I try to come up with a response, but it's hard. I want to yell and scream and cry all at the same time. I don't know what to say and my head hurts.
+
+“About a month,” Evan replies without a second of hesitation. “I am an engineering major as well. Mechanical.”
+
+“The only major worth studying,” my dad nods approvingly from the corner.
+
+“We actually met in Chem Lab,” Evan says smoothly, his fingers tightening on my shoulder. “We were working on organic decomposition. Lily was a bit overwhelmed by the weight of the material, but I stepped in to help her carry the heavy load.”
+
+“Wow, such a gentleman,” my mom approves. “Well how was the party? Were you there as well Evan?”
+
+“Yeah, I was there! It was a fun time, as usual. We have a lot of mutual friends. Lily Rose here may have had too much fun.” He laughs. “So I decided to drive her home.”
+
+I muster a smile. 
+
+“Lily, are you okay, dear? You don't look like yourself,” my mom says with concern.
+
+“Yeah, I'm okay. My head just… hurts,” I manage to say. I want to tell her everything. I want to cry in her arms. But I can't. Even if I did, she couldn't save me from the nightmare I've created. The only person that can save me is the one I fear the most.
+
+“Here, I can get you a painkiller, and… Gatorade! Yes, the red Gatorade always helped me the most,” my mom says, seemingly surprised by her own suggestion. She retreats into the kitchen and returns soon to hand me the hangover cure. The deep red of the drink reminds me of the blood. Of the two severed halves of an old man weighing down the trunk of my car. I wince.
+
+“You should probably get some rest, dear. And Evan, please spend the night!” my mom offers. “I don't want you driving so late! And with the storm!”
+
+Her southern hospitality may be the death of me.
+
+“Oh, no, I shouldn't—”
+
+“Please, I insist,” my mom demands. “I'll get the couch ready for you.” She opens the nearby closet and finds the extra sheets and pillow. We stand up and allow her to make the bed. Evan graciously helps. 
+
+“All right, good night, baby.” My dad hugs me and kisses me on the forehead. “I love you.” I hold onto the hug a little longer than normal. I can't look him in the eyes. “Good night, love you too,” I say.
+
+My mom finishes making the bed. “Don't stay up too late,” she says and hugs me goodnight. “And Evan, nice meeting you. Let me know if you need anything, we'll talk more tomorrow.”
+
+“Absolutely, nice meeting you as well,” Evan replies, smiling.
+
+They disappear upstairs, and it becomes quiet again. Evan looks at me in satisfaction.
+
+“Wonderful people,” he says. 
+
+“Yeah,” I whisper, “but what about the body?”
+
+“Don't worry about it, Lily, I'll handle it.” He walks closer to me and tries to hold both of my hands. I back away and don’t let him. He takes a step forward and grabs me around the waist. His stubble brushes my skin. “Good night, baby,” he whispers. He grabs my face, tilts it down, and gently kisses me on the forehead. “I love you.”
+
+I'm startled and push him away. I need to leave and get to my room. I run up the stairs into my bedroom and don't look back. My body is tired, but my mind is racing. I collapse on my bed in the pitch black darkness. I don't have the energy to change out of my damp clothes, but I pull the covers over me. Underneath my covers, I am safe. Underneath my covers, no one can hurt me. The only thing I can do right now is sleep. Sleep and deal with it tomorrow. Sleep and deal with it… tomorrow. Yeah that works. It isn't long before the darkness consumes me.
+
+Some time later, the hallway floorboard groans and I jolt awake. It's still dark, and I hear the brass doorknob of my bedroom door carefully turn. There’s no rush to it, just the slow mechanical click of the latch releasing. A silhouette drifts through the doorway without making a sound. The door is shut again and the room slips back to darkness. 
+
+It's only a few seconds later before I feel him in the bed with me. His warm hands slide slowly across my lower back. I hold my breath. Every nerve in my body is screaming at me to slam my heel into his knee, to yell until my vocal cords tear. But my muscles refuse to move. The memory of his hand crushing my windpipe on the side of the road holds me completely still. I lie there in the dark, paralyzed. I don't know what he's going to do next. I don't want to know. He grabs my hair, tilting my head back. I notice the moonlight illuminating my pink clock on the wall. I focus all my attention on the second hand, watching it slowly stutter in a circle.
+
+Tick. Tock. Tick. Tock. Tick. Tock.
+
+\*\*\*
+
+Saturday morning light hits my eyes like a punch to the face. My eyes are open, but I'm still sleeping. Still mentally dead. My body aches and my skin feels sticky. For a second, I convince myself that last night was just a liquor-fueled nightmare. I shift over to the left side of the bed and it's cold. Was it?
+
+I sit up and listen to my surroundings but don't hear anything. I almost puke as I smell the sweat-alcohol concoction emanating from my skin. I want to shower, but I don't have time. What happens today will impact me for the rest of my life. For worse or even worse. I run downstairs and head in the direction of a strong smell.
+
+“Good morning, sleepy head,” my mom announces as I enter the kitchen. “Evan cooked us breakfast! Quick, grab some before it’s gone!”
+
+I look over at the charismatic kidnapper and he smiles at me, “Good morning.”
+
+“Good morning,” I reply and break eye contact.
+
+Evan brings over a pan and dumps the breakfast on a plate. “Eggs and sausage, baby, I know it’s your favorite,” he says and hands me the food.
+
+“Yum, thank you.”
+
+“Lily, come sit,” my mom beckons me to the chair next to her.
+
+Evan comes and sits next to me and my dad is already across the table.
+
+“Eat, it’ll make you feel better,” my mom commands.
+
+I take a bite of the sausage. The meat is unusually rich, tender, and intensely savory—unlike anything I've had before. It has a heavy, metallic undertone that coats the back of my throat, but my starving stomach doesn't care.
+
+“Wow, the sausage is great,” my dad compliments. He’s not usually a food critic, but for some reason now he decides to be.
+
+“I agree,” my mom responds. “I wish you could cook this every day!”
+
+“Don’t tempt me,” Evan jokes and winks at my mom.
+
+I don’t know what to say, so I just smile and nod. Smile and nod. But the body in my trunk consumes my thoughts. Is it still there?
+
+“Evan was just telling us about the trip you guys have planned to Georgia.”
+
+“Trip?” I look over at Evan, then back at my mom. “Oh yeah, that should be fun.”
+
+“We went to a similar cabin back in 2002 with your dad’s family. We had a great time. Beautiful views. Hopefully for you it’s similar.”
+
+“Yeah, the cabin I booked has great ratings!” Evan confirms.
+
+My breath shortens. The room feels like it’s shrinking. “I… I need to use the bathroom.”
+
+I push my chair back and rush down the hall, slamming the bathroom door behind me. I lean over the sink, staring at my reflection. I don’t know who I am anymore. I envy the girl on the other side of the mirror because she doesn’t have to live my life. Live my nightmare.
+
+The door latch clicks. It’s Evan. He closes the door behind him.
+
+“Baby, what’s wrong?”
+
+“Stop it,” I sob, turning to face him, tears spilling over. “Where is the body? Is it gone?” 
+
+He looks at me, his eyes bright.
+
+“The sausage was good, right?” he whispers.
+
+I think about how the sausage tasted. My chest tightens. The room tilts. “Did we just…? Did we just eat the whole body?”
+
+A slow, wide smile spreads across Evan’s face.
+
+“Oh no, baby, that was just a finger,” he laughs.
+
+“We’re going to be together for a very… very… very… long time.”

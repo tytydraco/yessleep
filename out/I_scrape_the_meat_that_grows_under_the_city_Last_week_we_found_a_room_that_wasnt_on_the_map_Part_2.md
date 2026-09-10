@@ -1,0 +1,224 @@
+[(Part 1)](https://www.reddit.com/r/nosleep/comments/1wbs5ll/i_scrape_the_meat_that_grows_under_the_city_last/)  
+  
+I said I'd write the rest the next night.
+
+It's been... Some time.
+
+Friday night I sat in the depot lot with the heater running and eleven files spread across my knees, printed out of the 12-B archive before Ivar's password got revoked. Beside me on the bench were my clipboard, a cold cup of chicory coffee gone to sludge, and Tolly's upside-down Pip air freshener, which I had pulled off her locker door before the yard crew came through with the bolt cutters. I had it by midnight. The solution to this... Discrepancy.
+
+Here is how the beacon works.
+
+When you suit up in the bay you stand on the pad and it reads your vest and your waders and your gear and your flesh and it puts a green light on your collar, and that light is your name. It tells the gate who is driving. Then at the end of a run the rig rolls up on the scale and a second pad under the door reads the cab all over again, live, right there in the rain, and it takes off whatever it finds. The depot pays out on the tank and only ever on the tank.
+
+Tolly's last physical at Tri-County was filed on September fourteenth.  
+One hundred and thirty-four pounds, stripped down to her thermals.
+
+Tuesday morning the meter on the hose logged twenty-four thousand one hundred and eighty into the tank. When we came up on the gate the board over the bay door lit 24,314.
+
+The green light on the collar beside me said Tolly.
+
+The pad under the passenger door read nothing at all.
+
+She talked the whole way back about the wedding. She had her arm out the window in the rain the way she always did, and the bench never took her weight, not once, not on the turn at Delacroix and not over the tracks, and I have gone over it eleven times since and I cannot make it not true.
+
+They dumped the tank that afternoon on account of the discrepancy. I stood at the guardrail with my thumbs in my belt and watched the stack go up grey and then white and then clean, and the smell of it came down the yard and got in my coat, and I felt nothing at all, because I thought I was standing next to her.
+
+By three in the morning the rain had slacked to a drizzle and the air stayed thick and lukewarm, and I turned to the earliest file in the stack and looked at the date on it.
+
+1952.
+
+Four years before the Softening went public. Four years before the cartoon drop of gravy in the hard hat came smiling out at us off the filmstrips in every grade school from Maine to Oregon, with its little white gloves and its little tin voice, telling us that the ground had decided to be generous.
+
+My grandfather signed that file twice. Once as plant manager. Once as witness.
+
+Nobody in a government lab ever worked out how to turn subsoil fungus into cheap protein. Something a long way down under the limestone turned over in its sleep and put one pale finger up through the crust, and then it lay there in the dark being delicious, and it waited to see what we would do about it. We did what you would expect. We put it in cans. We put it in the school lunches and the church suppers and the Thanksgiving gravy boats, and we made a jingle out of it, and for forty years we have been eating our way down toward the hand that finger is attached to.
+
+Saturday at four in the morning Ivar was standing at my locker.
+
+No jumpsuit. No cap. A dark grey canvas coat buttoned clear to the chin in all that muggy air, and his eyes wet and red as a man coming off a wake. On either side of him stood two men I had never seen in eleven years at that depot. They wore seamless slickers the color of wet slate, and ribbed hoses ran from their collars down into brass filters clipped at the belt, and each of them carried a stainless rod eight feet long with a heavy brass bulb on the end of it that hummed the way a transformer hums on a pole in July.
+
+"Get your waders on." He would not bring his eyes up past the middle button of my shirt.
+
+"She's in the ash pit behind Bay Three." I said.
+
+One of the slickers drew a breath through his filter. It was a flat wet mechanical sound, like a sump pump clearing its throat in a cellar. He did not move his head. His eyes came around behind the face shield all on their own, pale blue and unblinking, set in skin that had the dry stretched look of the paper backing on a drywall joint.
+
+"The board knows." Ivar's voice had gone out of him and something level and grey had come in to take the shift. "The state knows. Everybody knows, Marlow, and nobody is going to do one thing about it, and you are going to put your gear on."
+
+"I'll take the truck. I'll drive to the coast-"
+
+"And tell who? Your aunt? You want to sit at Marilyn's table and explain to a seventy-two-year-old woman where the chickens come from? Well... Anyway. These gentlemen need a guide who knows where the seam broke."
+
+"What are the rods for?"
+
+The one on the left answered me. "Tuning forks." His voice did not come out of a chest or a throat. It sounded like two wet leather belts being rubbed together inside a tin can, and there was a hollowness under it, an echo where a man ought to have been. "We set the pitch before the heat spreads to Fourth Street."
+
+The box truck they put me in had no windows in the rear. We ran out along Route 9 through the fog with the tires hissing and nobody saying a word, and neither of those men swayed on the corner and neither of them braced at the pothole by the tracks. They sat there on the iron bench like sacks of grain stacked by a careful man, and their filters hummed a low steady B-flat that got into the fillings in my back teeth and stayed.
+
+When Ivar backed us up to the cannery the storm had gone to a warm fog. The padlock we had cut on Tuesday was lying where we left it on the bay floor, except the two halves were not two halves anymore. They had grown together. Pale threads finer than hair had crossed the gap and wrapped the shackle and knitted the hardened steel back into one continuous piece, and when I put my thumb to it the metal gave like stale licorice and came back.
+
+I stepped over it. My waders felt like somebody had filled them to the knee with wet sand.
+
+"Rule three. Keep talking."
+
+The right-hand one had come up behind me on the concrete without making any sound at all. Neither of them ever offered a name, so in my head they have been the Left and the Right ever since. "Rule three does not apply down here today. Do not whistle. Do not speak above a murmur. Do not give it raw data."
+
+Twenty-two steps to the first landing. Sixteen to the sub-basement.
+
+I counted them with my boots the way I have counted them a thousand times.  
+Sixteen.  
+Seventeen.  
+Eighteen.  
+Nineteen.  
+The risers had stretched in the night and gone long and shallow, and they threw my knees out of true and made me walk down them like a man crossing a field of loose shale. The stairwell had been industrial green cinderblock since 1961. Now my shoulder brushed the corner and the corner gave four inches with a wet suction sigh and then pushed itself back into the shape of a corner behind me, patient as bread.
+
+"It's growing."
+
+"It is settling," The Right did not slow down. "Like water finding its level."
+
+The sub-basement door had no frame left to it. The opening had gone round as the mouth of a culvert and it was lined all the way through with heavy overlapping pleats of pale tallow, and in my beam those pleats were moving, one after another after another, a slow ripple running away from us down into the dark like something swallowing on a long delay.
+
+The heat came out to meet us. Not the warmth of a compost pile. Ninety-five degrees and wet as a steam room, with a mouth to it, hot copper and scorched lard and something brine-cured and very old underneath, the bilge of a wooden ship that has been standing in the sun since before anybody now living was born.
+
+The twelve tons we had cut on Tuesday were gone. Not harvested.  
+Healed.  
+The great pale mounds that had sat there like duvets dropped off a bed were not almond anymore. They had gone pearlescent and translucent and faintly pink, threaded through with dark capillaries that twitched and drew back whenever the light crossed them, the way the pupil of an eye draws back, the way something flinches that has learned what a beam of light means.
+
+I swept the room and my beam never found the far wall. It went out across the space and bent downward instead and ran away into a long descending curve that had no business existing anywhere under Fourth Street. By the map we were standing beneath the foundation of the commercial bakery across the alley. There was no concrete over our heads. There was a ribbed arch of wet pale lard going up past the reach of my light and pulsing along its whole length, slow and regular, the way a sleeping animal goes on breathing while men stand around it deciding what to do.
+
+"The breach is straight ahead. Through the gap in the north wall-"
+
+"There is no north wall." The Left brought his rod up and struck the floor with the brass bulb.
+
+**CLANG**.
+
+There was no echo. The sound went into the tallow and vanished like a stone dropped into a bucket of warm fat. But something underneath our boots answered it, a long wet resonant sigh that came up through the soles and the shins and lay down in the pit of my stomach, and my bowels drew up tight as a fist and stayed that way for the rest of my life.
+
+Then the floor tilted.
+
+I do not mean the building settled. I mean the horizon of that room rolled six degrees to the left and my center of gravity did not go with it. My inner ear had me standing plumb and square, my light showed me the walls at a steep and impossible slope, and my brain threw up a hot spurt of nausea that tasted of bile, and for one second I understood that the room and I no longer agreed about which way the world hung.
+
+"Stay on the ridge." The Right had my shoulder in a grip like the jaw of a vise. "The troughs are soft."
+
+Every four feet a ridge ran around the passage. The same height. The same spacing. All the way down as far as the light would carry, regular as the rings inside a throat.
+
+On Tuesday the ready room had been a crude sketch of a place. A table. Four chairs. A vending machine. One boot standing upright out of the floor with nothing in it.
+
+In four days it had become a museum of every shift that ever clocked out.
+
+There were fifty chairs now and every one of them was molded out of that same pale hard marrow. Some were the eleven-dollar stackers we sit in at the depot. Others were high-backed office chairs whose armrests ran out at the base into thick weeping tendrils, the way a candle runs when you leave it burning by an open window. Three vending machines stood shoulder to shoulder against a wall that curved upward like the inside of a hull, and behind a pane of clear hardened cartilage the bags sat in their coils, labeled in raised smooth letters that made no words at all.
+
+**YIELD. GRADE 1. GRADE 2. GRADE 3.**
+
+Through the wrappers I could see what had been bagged. Thumbs. Small and perfect and pale, dozens to a bag, and they were moving.
+
+"Jesus- Jesus God-"
+
+"Quiet." The Left did not raise his voice past a murmur.
+
+"Look at the floor." Ivar's voice had broken somewhere back on the stairs and never come back together.
+
+I put my light down.
+
+Boots. Hundreds of them. All of them company mustard and all of them cut in the old patterns, the fifties and the sixties and the seventies and the nineties, and out of every single one of them a leg came up, and a hip, and a torso, standing out of the floor the way saplings stand out of a swamp with the water gone black around their roots. Most were only roughed in, plain logs of meat with a smooth knob where the head belonged, waiting on some detail that had not arrived yet.
+
+One of them, five feet from where I stood, was very nearly finished. It was anchored at the calves. It wore a copy of my own vest, and the tally beacon on the collar had been molded out of solid white bone.
+
+Its face was moving. It went through features the way a slide projector goes through a carousel with the tray unlatched, a woman's nose, a mustache, an old man's sunken jaw, and then it stopped, and my aunt Marilyn's face settled onto that head and sat there and looked at me.
+
+Her lips came apart, pale pink and dry as an envelope. Her jaw dropped open to an angle that no jaw goes to, and what came out of her was not a voice. It was the sound of an air brake letting go on a Mack truck, one long pneumatic hiss with nothing behind it, the noise of pressure leaving a system.
+
+Then the face slid back down into a smooth blank oval of lard.
+
+"Why is it making Marilyn?- She lives on Route 9!"
+
+I had him by the front of the coat with both fists. He did not push me off. He reached up and unclasped my fingers one at a time like a man taking burrs out of a dog's coat, and through the fabric his arm was cold as a meat case in all that heat.
+
+"She eats the yield. Everything anybody eats gives it a reading."
+
+"That's not an answer!"
+
+"It is the whole answer." He turned away toward the far dark.
+
+He walked. The chairs said nothing. The boots said nothing.
+
+Behind me the smooth blank oval had begun to work, slowly, the way a tongue works behind a closed mouth when a man is trying to remember a word.
+
+At the far end of that chamber the wall opened up into a cavern so large that my rig could not find the top of it nor either side, and the beam simply ended out there in the middle of the air, used up.
+
+Hung in the center of all that dark on thousands of thick glistening cables that ran away into the gloom like the standing rigging of some enormous ship was a heart the size of a four-story building.
+
+It was made of us.
+
+Faces and elbows and boots and vending machine panels and steering wheels and street signs, compressed into overlapping layers and packed together tight as meat in a terrine, and out of the whole slow shuddering mass there came a steady clear waterfall of liquid tallow, falling and falling into a pale lake beneath it. It hung there the way a cathedral hangs a bell. There was no belfry over it and no rope down from it and no town beneath it that had ever asked to be told the hour.
+
+Embedded in the front of it to the waist, set the way a figurehead is set into the bow, was Tolly.
+
+Her respirator was gone. Five foot one of her, whole and unmarked. Her skin had gone pearlescent almond, smooth and shining as polished horn, and the tallow ran down over her shoulders and off her fingertips in threads.
+
+"Tolly-"
+
+Her head came around. Not smoothly. It clicked through three positions like the hand of a tower clock going through its gears, and stopped. Her eyes were gone. In the sockets sat two round lenses of clear hard tallow, the same kind they set into the side of a macerator so a man can read the level from the catwalk, and behind those lenses two drops of yellow liquid rolled slowly back and forth, tracking the beam of my light.
+
+**"Marlow."**
+
+It did not come from her mouth. Her mouth had been sealed over with a fine dry membrane like the skin on scalded milk.
+
+It came from the vending machines behind us. It came from the chairs and from the walls and from the floor under my waders and from the ceiling I could not see, a thousand small wet speakers hidden in all that tissue, every one of them arriving on the name in the same fraction of the same second.
+
+"Tolly. Please-"
+
+**"Four hours is a long time to be by a door."** The room came back at me louder, and the pitch of it slid up and down and around itself like a choir warming up in an empty cathedral, finding each other in the cold. **"I'm buying you a beer tonight and you are going to drink it, because I am buying it, and I do not care whether you want it."**
+
+"Shut it down!" Ivar had gone down on his knees on the soft floor with his hands clamped over his ears. "Set the pitch! Set the pitch!"
+
+They moved with a speed that had nothing human anywhere in it. They did not look at Tolly. They did not look up at the heart. They stepped to the margin of the lake where the bloom lay weeping into itself and drove eight feet of steel down into the soft of it, and they raised their lead mallets and brought them down on the tops of the rods together.
+
+**DING**.
+
+A high clear sickening note that hung in the air over that lake like a pane of glass held up in a doorway. F-sharp.
+
+The heart shivered from the cables down.
+
+Every face in its surface opened at once. Thousands of them. Scrapers and factory hands and mothers and the children off the filmstrips and men in lab coats, and one man in a plant manager's collar whose photograph has been hanging in my aunt's front hall since before I was born.
+
+They did not scream. They whistled.
+
+Not two notes and not three. Thousands, complex and harmonic and climbing over one another, swirling through that heat like wind coming around a headland, and it was beautiful, and that is the part I cannot put down. It was ten thousand miles of pale soft meat waking up under the asphalt of every town between here and the coast, and the news going out through all of it that the doors above had finally been left unlatched, and it came out of them as a hymn.
+
+The floor under Ivar's knees turned from hard tallow to wet cream in half a second.
+
+He did not sink the way a man goes into mud. The floor simply took him. His waders melted down into it and his coat ran off him like wet paint and his chin touched the surface, and the marrow came up over his lips and into his nostrils and closed smooth across the crown of his head without leaving a seam.
+
+Where he had been kneeling a fresh pale ridge rose out of the floor. Four feet wide. Perfectly spaced. Running away in a seamless circle around the passage to join all the others.
+
+"Out!" The Left's speaker tore itself into static. "It is not a Grade Eight! It is an Awakening! Out!"
+
+He turned to run and his boots stayed where they were. The rubber had already gone into the ridge and become the ridge. He went down hard and his faceplate shattered against a molded chair, and through the cracks in it I watched the pale capillaries come out of that chair and into his cheek and into his open mouth and weave themselves through his tongue like thread going through the eye of a needle.
+
+I did not help him. I did not look for the Right.
+
+I went back up the slope with the whistling coming up behind me, and the steps gave under my boots like wet foam and pulled at my heels on every stride, and as I came past the ready room the figure in my vest turned its head and it had my face on it now, finished, every line of it, and it was smiling at me the way you smile at a man you have been waiting on all morning.
+
+Fourteen.
+
+Sixteen.
+
+Twenty-two-  
+And through the door frame into the loading bay, flat on my chest on cold concrete, and then out on my hands and knees into the warm grey rain of Fourth Street.
+
+I lay there on the wet asphalt for ten minutes gasping like a landed fish and let the rain take the sweet greasy smell off my face. My light rig was gone. My saw was gone. My waders were shredded at both knees where I had dragged myself over the sill. I dropped my keys twice in the gutter before I got the door of the pickup open. When I was in the cab I made myself look back at the building.
+
+The brick was still there. The white paint four feet high still said MARLOW CANNERY. QUALITY CANNED MEATS. 1922. It has said that my whole life and I never once read it.
+
+The second-story windows did not take the dawn. They had gone blank and white, packed from the inside with thick smooth sheets of tallow pressed up hard against the glass, and while I sat there with my hands shaking on the wheel the panes began to crack, one and then another and then another, slow and unhurried, with the small dry sound of twigs snapping somewhere back in a quiet woods.
+
+The transmission slipped twice and ground its iron teeth at me. The engine caught. I drove home to Route 9 with the fog opening up and closing behind me.
+
+I have not turned the kitchen lights on since I got back. I have not opened the pantry to see what is stacked behind the flour tins. There is a humming down there against the baseboards, low and steady, and patient.
+
+I will get the grease out from under my fingernails. I will put what is left of the files in the bed of the truck and go up toward the ridge before the whistle blows at the plant.
+
+We will talk again tomorrow.
+
+Maybe.
