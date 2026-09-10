@@ -1,0 +1,41 @@
+I don't have time to write this well, so I'm just typing as it happens. I'll clean it up later if there is a later. It feels like there might not be.
+
+I came back to my own apartment after the last post. My mom and my aunt have been calling constantly, wanting to know if I'm dreaming, if I've seen anything, if the well has come back. I've been answering every single time. It's felt like the one thing keeping this from spinning completely out of my hands, them knowing exactly where I am in my own head every night.
+
+My dad showed up two hours ago. He's never just dropped in before, not once.
+
+There was a thermos in his hands. A different tea. Darker, almost brown.
+
+He said this one stops the dreams. That watching me go through this has been killing him. That my mom and my aunt mean well but they're treating the symptom instead of whatever's actually causing it. 
+
+He held the cup out. I had it halfway to my mouth before something in the back of my head caught up with me, and I stopped.
+
+Because he's the one who told me not to do this. He said it himself, after I found the notebooks. I told him that. I said, you told me not to let the dreams stop, and now you're standing here asking me to drink something that does exactly that.
+
+He didn't get angry. He got very calm and said that was before he understood what the dreaming was actually for. That it was never protecting me. All these years I have been fed something wrong. 
+
+I thought about the diaries, about my mom and aunt but I drank it anyway. I don’t know why. 
+
+That was almost two hours ago now, but I thought it was forty minutes. Time has been doing something strange since and I only just noticed the gap.
+
+For the first while nothing happened. We just sat there. My dad made small talk about work, about the weather and I remember being grateful for how normal it felt. I have a cup in my hand that’s empty but I don't remember how it got there.
+
+My mom called three times in that stretch. I let it ring out every time, telling myself I'd explain after. After what?
+
+Somewhere around the ninety minute mark I started to feel it. Like a sickness spreading.
+
+My phone buzzed. My aunt. One line.
+
+Did you drink something from him
+
+I haven't answered. I've read it maybe fifteen times now and my hands still won't move.
+
+My dad's stopped making small talk. He's just sitting there now, very still, checking his phone every few minutes in a way that's started looking like a countdown. A little while ago he said something under his breath I don't think he meant for me to hear. Something about the others not needing to know yet.
+
+I asked who the others were. He said I'd meet them soon enough, and that it would be easier for me if I wasn't afraid when I did.
+
+I keep glancing at the corner of the ceiling above my front door. I don't know when I started doing that. I just know I've checked it more times than I can count in the last twenty minutes. I check the clock instead of the ceiling.
+
+I can’t see the time.
+
+My dad just stood up. He's walking toward the door and he hasn't looked back at me once, and the doorbell hasn't even rung yet but I know it’s going to, and I don’t understand how I
