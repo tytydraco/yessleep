@@ -1,0 +1,69 @@
+And not like tag or something,  I mean, actually being chased down by someone or something.  
+  
+That feeling of your legs aching but not being able to stop, and the heart pounding fear and massive pump of adrenaline.  
+  
+That is something I had not truly ever felt before until last night.  
+  
+I was coming home from my job; what I do for work doesn't matter, as I hate the job anyway.  
+  
+I ride a bike home from work every day, I hate driving, and I don't feel like spending money on gas either.  
+  
+It was completely empty on the streets that night. I love it when there isn't anyone about at night, so I decided to take a detour as I wasn't too tired from work.  
+  
+I cut through an alleyway to ride down one of the prettier streets at night, and that's when I heard it.  
+  
+The best way I could describe it was the sound of someone walking through crunchy autumn leaves scattered on the ground.  
+  
+A sucking crunch every couple of seconds, my eyes adjusted more to the dark of the alley, and I noticed there was something leaking above me.  
+  
+Looking up, I saw it, or something.  
+  
+Whatever it was, it had two glowing white eyes, and it was the source of the noise.  
+  
+It was then, meeting the eyes of that thing, that I felt it, true fear.  
+  
+I tell you, I've never felt something more exhilarating in my entire life, the true utter terror that shot through my body.  
+  
+That moment of fear, where I was frozen in place, I was prey staring up at a predator above, and it looked like a god looking down upon an ant. Time felt as if it had paused.  
+  
+It dropped what it had; a human head hit the ground with the most disgusting, putrid sound I'd ever heard before.  
+  
+Then, as of a will that I'm not sure was my own, but my body, begging to not meet that fate I slowly moved my bike ever backwards.  The moment I heard the movement of the beast, I pedaled as fast as I could.  
+  
+I heard it, moving from building to building, above me trying to get closer for the second course.  
+  
+It was quick and efficient. If there was ever something above us in the food chain, this was it.  
+  
+Tipping the bike, hitting something, or even slowing down too much on a turn meant certain death, and I was loving every second of it.  
+  
+I was only a block or so away from my house when I heard it directly behind me. It was desperate; I heard the desperation in the moaning noises it made, as if it was on the cusp of getting a good meal after starving for a long time.  
+  
+I knew there was only one way to escape this; I knew that part of town as I had grown up there, so I turned down another alley, and then, praying I was right, squeezed down the tightest gap between budlings in the hole city.  
+  
+I heard the beast stop, so I stopped, looking over my shoulder, I saw it.  The face was almost human, like if I drew one without knowing what one was.  
+  
+It was reaching its long arms through to try to reach me, but it was too large to fit.  
+  
+I laughed; I've never laughed so hard in all of my life. The relief I felt was almost as satisfying as the chase itself.  
+  
+I saw it make a face, and it looked angry, and after the tears cleared from my eyes from laughter, it was gone.  
+  
+I'm not stupid; I stayed in that spot for an hour or so making sure it was gone, then rode home.  
+  
+  
+Ever since then, life has been horrible.  
+  
+Whenever I'm out with friends, or when I'm doing my job, I feel sick to my stomach and I feel stuck.  
+  
+Because I know I will not have that power, that ability to laugh in the face of death again like I did that night.  
+  
+I'm now going on nightly rides around, but I haven't been able to find it again.
+
+Maybe if the meal looked more appetizing, it would come out, and I could get that feeling of freedom from confinement again.
+
+So, this is my confession.  
+I've invited some of my coworkers out for a ride tonight, and the path I've chosen will go through all of the places I believe the creature would be hiding.
+
+I think the addition of other competitors in this race will make the feeling even more amplified.
+
+Wish me luck!

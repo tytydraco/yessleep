@@ -1,0 +1,211 @@
+I watched myself walk up their porch before I ever touched the stairs.
+
+That is the sentence the other place deleted. They said it was a fantasy. They said it was a threat. They said if it was real I should call the police, which I already did, which did nothing, which is why I am typing this on a phone with the lights off in a Super 8 bathroom while a man in the hall talks to the night clerk in a voice I have heard on a GoPro.
+
+I am going to tell it in order so I don’t skip the part where I was stupid. I was stupid. I know. If you have a person and they vanish, you do stupid things. That is the whole industry of being alive.
+
+Nate is 32. I am 30. We were supposed to look at venues in November. He went on a “guys trip” with three coworkers from the shop. Hunting. Northern Pennsylvania. He had been before. He sent me a photo of a gas station pizza and a middle finger and love you, don’t wait up, and then his texts turned into those little gray delivered stamps that sit in your stomach like coins.
+
+Day three I called Brett.
+
+Brett is the one with the nice-guy beard and the Facebook that is all fish and his mom’s dog. He said Nate met a woman at a bar in town and took off, left his bag, you know Nate, and he laughed in a way that was trying to pull me into a joke I did not want to be in. He said they were packing up. He said don’t drive out, it’s a long way, we’ll bring his stuff.
+
+I used Nate’s Apple login. He is the kind of man who uses the same password as his email because he thinks he is not important enough to be hacked. Find My had his phone in the woods. Not in town. Not moving. Same pin for four days.
+
+I drove.
+
+Four hours. Dark the last two. GPS dying into a dirt road that looked like every other dirt road until it didn’t. I had a charger, a pocket knife I have never used on anything but tape, and a hoodie with a bleach stain on the cuff. Remember the hoodie. I want you to remember the hoodie.
+
+The cabin was a real cabin, not a movie. Sodium light over a porch. Three trucks. Music. I sat in my car with the engine off and watched their shadows cross the windows like it was a normal Saturday. I texted my friend Kelsey the pin. She said be careful and I said it’s probably a girl in town and I am going to feel insane.
+
+Brett opened the door before I knocked.
+
+Beer in his hand. Surprise that was too fast. “Alyssa. Holy shit. You drove?”
+
+Behind him: Chris on the couch, phone in both hands, not looking up. Daryl in the kitchen with no shirt and a dish towel over his shoulder like a husband. The air smelled like meat and wet socks and a candle trying to win.
+
+Brett hugged me. His hoodie was Nate’s. I know Nate’s hoodie. I have stolen it for years. I went stiff and he felt it and let go and laughed.
+
+“Yeah, he left this too,” Brett said. “I got cold. Sorry. That’s weird. Come in, you must be wrecked.”
+
+I went in.
+
+Four pairs of boots by the door. One of them was Nate’s, the left sole worn on the outside because he walks like a duck. I looked at those boots and Brett looked at me looking and Daryl said from the kitchen, “We told him not to run off like a dick.”
+
+Chris still did not look up.
+
+I said I wanted Nate’s bag. They gave me a duffel that smelled like detergent. Folded shirts. No phone. No wallet. No charger with the tape on it Nate uses because the cable is dying. A bag someone packed to look like a bag.
+
+I went to the bathroom and threw up quietly and ran the tap. I texted Kelsey if I don’t call you in 30 minutes call the cops to this pin I am not kidding. She started typing and I put the phone in my bra because I am a woman and we learn that before we learn anything else.
+
+I told them I left my charger in the car.
+
+Brett said he’d get it. I said no, I need air. I went out. I sat in the driver seat with the keys in and I almost left. I almost left. I want that on the record. I had the engine on. Then I opened Find My again and the phone was twenty feet from me, inside, still, 3% battery.
+
+You do not leave a phone at 3% if you ran off with a woman in town. You take the phone. You are a person in the world.
+
+I went back in. I said I had to pee again. Brett’s mouth did a little thing. Chris looked up for the first time. His eyes were red like he hadn’t slept or like he had slept too much. He said, “It’s the door on the left.”
+
+I went right.
+
+Bedroom. Two twin beds. A drawer that stuck. Inside: socks, a bottle of lube, a hunting license, and Nate’s phone with a cracked corner I have felt in the dark a thousand times.
+
+3%. Recording.
+
+The camera app was open. It had been open for eleven hours. Before that, a folder in Photos called weekend that was not Nate’s naming. Nate names things like img\_4471.
+
+I sat on the floor between the bed and the wall with the brightness down and an earbud in and I watched from the start because I am the kind of idiot who needs the story to make sense.
+
+First video. Thursday. Daylight. The four of them unloading beer. Nate is laughing. He looks at the lens and says tell Alyssa I didn’t die and Brett says yet and everyone laughs and it is nothing. I have watched this part six times since. It is still nothing. That is important. Evil does not always arrive in the first frame. Sometimes it arrives in the way Chris is already not drinking.
+
+Second video. Night. Inside. Nate asleep on the couch with his mouth open. The camera is close to his face. Someone’s finger enters the frame and lifts his eyelid. Nate does not wake up. A voice, Daryl, whisper-laughing: bro he is out. how much did you put. Brett: enough. Chris: don’t touch his mouth you’ll leave marks. The camera watches Nate breathe. For a long time. Someone offscreen says I want to see if he feels it.
+
+I am telling you this without cleaning it up. They deleted me for this.
+
+Third video. Basement. Concrete. A drain in the floor that is the most expensive thing in the world because it means they thought about liquids. Nate is awake. His hands are behind him. I am not going to draw you a diagram of how. You do not need it. What you need is his face. He is crying in the way men cry when they have decided it will not help and they cannot stop. Snot. A split lip. One eye filling with blood like a tick.
+
+Brett is talking to him like a coach.
+
+“You keep looking at the door. Nobody is coming. Alyssa thinks you’re fucking a bartender. I told her. She said okay. She said okay, Brett. That’s your girl.”
+
+Nate says my name. Not like a prayer. Like a correction. Like if he says it right the room will have to become a different room.
+
+Daryl steps into frame with his pants open.
+
+I am not going to write every second of what they did to him because I had to watch it, and if I write it like a list I will start screaming and the man in the hall will hear me. I will write what made it get deleted, because you asked for that, because it is the truth.
+
+They took turns. They filmed the turns. They said things about his mouth and my mouth like we were the same hole they had been thinking about at work. They used a beer bottle when they got bored of themselves. Nate threw up and they made him lick it. Chris never took his turn with his body. Chris held the camera and told Nate to look at it. Chris said if you look away I will cut the other one and then he showed Nate a hunting knife and Nate’s left nipple was already a mess of tape and blood and Chris said good listener in a voice I have only heard in videos that get taken down.
+
+They laughed when Nate shit himself. Daryl said that’s the drain baby that’s why we paid. Brett wiped Nate’s face with the stolen hoodie, my hoodie, the bleach-stain hoodie, and I looked down in the bedroom and I was wearing it.
+
+I started shaking so hard the phone tapped the wall.
+
+Fourth video. Daylight through a high window. Time has passed. Nate is thinner in the face. They are feeding him leftover steak with their fingers. He eats. He is trying to live. Brett is on the phone in the background, my voicemail, my voice tinny through the speaker saying just have him call me, Brett, please, and Brett is nodding along like he is sad for me. After he hangs up he says to the room, “She’s gonna come. They always come if you leave the ping on.”
+
+Chris says, “Don’t say always.”
+
+Brett says, “Third time’s a pattern, dude.”
+
+Third time.
+
+I sat there with my fiancé’s blood in a drain on a screen and understood I was not a person in a tragedy. I was inventory.
+
+Fifth video is shorter. They are drunk. They pan the basement. There is a second mattress. Empty. Daryl slaps it. “Hers.” Chris says they should not have used her name on the file. Brett says it doesn’t matter, the folder is local. Chris says it matters if she opens the phone, Brett. Then they all look at the camera like they forgot it was on, and Brett smiles, and he says, “Hi, Alyssa. If you’re seeing this, you should have stayed home.”
+
+The last forty seconds.
+
+The image cuts. Not basement. Outside. Color of the sodium porch light. Timestamp in the corner: today. 8:51 p.m. My headlights. My car. Me, sitting behind the wheel with the engine on, almost leaving. Me turning the engine off. Me walking up the steps in the bleach-stain hoodie with the pocket knife doing nothing in my jeans. Me stopping. Me looking at the door. My face in their porch camera, stupid with hope.
+
+The last two seconds are a hand reaching toward the lens from the inside and the video ends.
+
+The bedroom door was open.
+
+Brett was standing there with my charger. He had actually gone to the car. He had been polite. He looked at the phone in my hand and at my face and he did the annoyed little mouth thing from earlier, like I had opened a present before Christmas.
+
+“You weren’t supposed to skip ahead,” he said. “We had a whole thing.”
+
+I went through the window screen. I did not decide. My body decided. Glass, then the bush, then the dirt, then I was running with no air in me. Behind me Brett did not shout. He said, almost gentle, “Chris.”
+
+I did not go to my car. They wanted the car. I went around, low, toward the bulkhead because the videos had a bulkhead, because Nate was under my feet, because I am stupid in a new way now.
+
+The bulkhead was unlatched. Of course it was. They are not geniuses. They are men who found a drain.
+
+The basement smelled like the videos. Copper and shit and the candle from upstairs losing. Yellow bulb. Nate on the mattress.
+
+I have to say what he looked like or this is just a ghost story.
+
+He was naked except for the tape. He was the color of old chicken skin. His mouth was a hole with the lips split into four. The left nipple was gone, not taped anymore, just a dark wet circle. His thighs were a map of round burns the size of a car lighter. He had a plastic bucket. He had been using it. His eyes found me and for one second he was Nate in our kitchen stealing fries off my plate, and then he was not, and he mouthed run without sound because they had done something to his tongue that made the word a wet shape.
+
+I cut at what was holding him with the pocket knife. I am not going to describe the hardware. It did not matter. The knife was for tape. The hardware was for animals. I got one hand free. His fingers were broken. They did not close on me. He hit my wrist with the back of his hand to push me away. He mouthed run again and a sound came out of him like a kid’s toy dying.
+
+Footsteps on the kitchen floor above.
+
+I said I love you. I said I will come back. He looked at me like I was already a video.
+
+I went out the bulkhead into the trees.
+
+This is the part that is supposed to be exciting. It was not exciting. It was branches in my eyes and my own breath like a beacon and a flashlight behind me that went on and off, on and off, not panicking, hunting. I fell in a hole that was just a hole. I bit dirt. I got up. I heard Daryl laugh far to the left, the kitchen laugh, and Chris did not make a sound, which was worse.
+
+I hit a road.
+
+A truck came. I stepped out because I am still, even now, a person who believes in roads. The high beams were Daryl’s truck. I saw the fish sticker. I went back into the ditch and the truck rolled past slow, window down, and Daryl called my name like we had lost each other at a concert.
+
+I walked in the ditch until a Honda came. A woman. Fifties. She saw my face and she unlocked. I said hotel, town, please, and she said Jesus, honey, and she did not ask enough questions, which is the only reason I am typing.
+
+She left me at a gas station. I called 911. I gave the pin. I gave names. I gave the word basement. I gave the word video. The dispatcher was a person doing a job. She said stay where you are. I did not. I walked to the Super 8 because the gas station had glass on all sides.
+
+Two cops went to the cabin. I know because they called me at 12:40 and said the place was empty. No trucks. No duffel. No Nate. A drain that had been bleached. A nice-guy cabin with a candle. They asked if I had been drinking. They asked if Nate and I were fighting. They asked if I had the phone.
+
+I had the phone. 1%. I showed the cop in the lobby the last forty seconds of me on the porch.
+
+He watched it twice. His face did a thing. He said we will take this as evidence. He said do not post this online. He said it will hurt the case.
+
+He took the phone.
+
+I am on my phone. Mine. 14% now. I bought this hoodie in the lobby because the other one had Nate’s blood on the cuff from when I held his broken hand and I could not keep wearing it like a costume from their video.
+
+I watched the copy I airdropped to myself before the cop took it. I am not an idiot in every direction.
+
+I had missed something in the last forty seconds because I was looking at my own face.
+
+After I walk up the porch, the camera pans, just a little, like someone inside turning their wrist. It shows the living room TV. The TV is on. The TV is not football. The TV is a laptop screen mirrored. The laptop is showing a webcam. A hotel lamp. A notepad with a red Super 8 logo. A woman in a hoodie sitting on a toilet with the lights off, typing.
+
+The timestamp on that little picture-in-picture is 1:17 a.m.
+
+It is 1:17 a.m.
+
+I looked up. The hotel TV was dark. The webcam light on the lobby-computer-looking thing on the desk was green. I did not put a laptop in this room. I did not.
+
+I pulled the blinds. The parking lot. Daryl’s truck is not there. A white van is. It could be anyone’s van. It is not anyone’s van.
+
+Nate’s number just texted me.
+
+The text says: part 2 doesn’t need him.
+
+The second text is a photo. It is this bathroom. It is me. It is now. It is taken from the ceiling corner, from a wide angle, from a device I did not install.
+
+The third text says: knock knock.
+
+Someone is knocking.
+
+They said housekeeping. It is 1:19 a.m.
+
+The night clerk in the hall laughed. I know that laugh. I have heard it with a drain.
+
+I am not opening the door.
+
+I am posting this because the cop has Nate’s phone and the cabin is empty and the file is going to become a story about a crazy fiancée who drove four hours in a hoodie, and because Brett said third time’s a pattern, and because if I die in a Super 8 bathroom I want the first sentence to still be true.
+
+I watched myself walk up their porch before I ever touched the stairs.
+
+If you are Kelsey and you are reading this, I did not call at thirty minutes. You know what to do.
+
+If you are not Kelsey, and you are looking at a pin in the woods, and a nice man is telling you he left with a girl from town—
+
+Do not go in.
+
+Do not wear the hoodie.
+
+Do not watch all the way to the end.
+
+They need you to watch to the end.
+
+The knob is turning.
+
+They have a key.
+
+I have the pocket knife and a shower rod and I am not going to be a second mattress.
+
+If this gets deleted it is because it worked.
+
+If it stays up, I am still in here.
+
+If I do not add a comment in an hour, I want you to look at every Super 8 off I-80 between here and Ohio, and I want you to look at the ceiling corners, and I want you to not believe anyone who says the cabin was clean.
+
+The door is open.
+
+Brett says hi.
+
+He says I wasn’t supposed to skip ahead.
+
+He says they have a whole thing.

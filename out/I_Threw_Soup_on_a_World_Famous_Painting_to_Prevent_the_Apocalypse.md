@@ -1,0 +1,134 @@
+You might have heard about me on the news. Or about another protester at a museum doing something similar to what I did. There’s been quite a few of us “activist vandals”.
+
+If you’re like most people who hear about it, you probably hate me for my public stunt. 
+
+After all, what kind of girl walks into the Louvre, shouts about stopping oil, and splashes a can of Campbell’s tomato soup across a historical artifact? What right do I have to destroy someone else’s hard work just to preach about the environment? Maybe it even made you care less about nature conservation as a result.
+
+Well, the truth is, I care about the environment even less than my haters do. Protesting oil isn’t the real reason I did what I did, nor am I an environmentalist. People assume I am because that’s how I presented myself. If they knew the real reason I threw soup on that painting, they’d think I was crazy instead of preachy. I lied because I didn’t want to get thrown in the nuthouse for saving most people on Earth from certain doom—and I don’t mean global warming.
+
+I first laid eyes on the famous painting that would change my life on a senior year class trip, a few weeks before soupgate. I myself hated fancy art—I didn’t have the patience for its snobbish status and artsy-fartsy ideas. But I wasn’t exactly in a position to skip the excursion, as I was already failing my high school classes. Not even my favourite brain food of a bowl of soup could make me remember all the facts I had to.
+
+So there I was, sulking on the far side of the museum away from most of the crowds. While my classmates fawned over the Mona Lisa and Liberty Leading the People, I skulked around near the less popular exhibits that had fallen out of favour, hopelessly going over exam notes in my head. Frustrated, I ducked around to a back corridor to exit for a smoke.
+
+That’s when I saw the painting.
+
+Across from where I was standing, in the hidden corner of the grey-walled gallery, was a most striking painting of a woman. It immediately grabbed my attention, not just because of how meticulously painted it was, but because of how eerie its subject matter looked. The woman in the painting looked to be from the 18th century, wearing a bonnet hat and a lacey, puffy-armed, corseted dress. All normal details for a soft renaissance painting in the Louvre.
+
+But the facial features of the women were anything but delicate and light. The lady’s face had sharp, almost hawkish features. Indeed, the rest of her body parts had a similar birdlike quality to them, with clasped fingers that resembled talons and a nose that resembled a beak. And its eyes—to say they had eagle-focus would be an understatement. They practically burrowed into me as I looked into their oil-painted pupils.
+
+Curious at the reason for this strange painting, I glanced over at the plaque for it.
+
+*“Dame Mecontente*
+
+*By Claude L.*
+
+*Portrait of Yvonne L., late wife of accomplished painter and philosopher Mr L, months before she passed from an undiagnosed brain hemorrhage.”*
+
+My limited French knowledge was enough to reveal the painting’s name to me. “Discontented Lady”—gee, sounds like me today, being stuck in this boring museum. Chuckling internally at the amusement this freaky old painting brought me, I turned to leave.
+
+*“You’re disinterested in this place as well, aren’t you?”*
+
+I stopped dead in my tracks. I had heard a sultry woman’s voice speaking to me, as clear as day, and yet I hadn’t heard it in my ears. The voice had spoken to me in my head. And it was definitely not my internal monologue.
+
+*“Don’t be alarmed, dear”* the voice in my head continued, speaking into my mind while I looked around the museum in confusion. *“I am simply reaching out to a kindred spirit to pass the time. As a mortal woman, I found spaces such as this one pretentious and tedious. It is of boundless irony that I am now confined to the wall of one indefinitely.”*
+
+My eyes landed back on that same harpy-esque painting and comprehension dawned on me. Somehow, the painting was speaking to me. Not only could it speak into my mind, but it read my thoughts as well.
+
+*“They’re all so pretentious, don’t you think? The purveyors who visit this museum every day, gaze upon my visage and my fellow artworks’, twirl their facial hair and assert their self-important theories on my meaning. Creativity is a plague. Information is far more useful.”*
+
+Despite my shock at the painting reaching into my mind, I found myself agreeing with it. She was right. Everything about this museum and its art screamed “waste of time” to me. I certainly wasn’t enamored with it like my classmates were.
+
+*“Oh, your fellow students indeed are of that pretentious ilk”* the voice crooned in my head. It sounded like a reserved Victorian woman, but had a bite of snark to it. *“That is why I reached out to you specifically for help.”*
+
+*“To me?”* I thought back, consciously forming a dialogue response in my head this time. *“What do you want…me to do?”*
+
+The painting calmly and gently outlined its desire to me. It wanted to raise its profile and regain the attention it had previously lost.
+
+*“I desire company and visitors. My husband Claude painted me while I was still alive and now I exist as a portrait. I was popular for some decades but have fallen out of favour. Nobody speaks of Dame Mecontente anymore. Lately, I rarely receive eye-contact from guests*—*people whom I could talk to like yourself, who could entertain me for years to come.”*
+
+It sounded like a fair enough request. Eternity alone on a forgotten wall was a grim fate unfitting for a poor wife-turned-portrait. Dame Mecontente wanted more visitors to her frame and I was the perfect person to provide that. 
+
+See, what I lacked in passion for art and studies I made up for in passion for social media. I happened to have over 100k followers online. The portrait had known this about me since I stepped inside, pondering my Twitter feed. But she could only telepathically contact me once I’d laid eyes on her.
+
+“*What am I getting out of it?*” was my response to the portrait. I never did a sponsored post without remuneration.
+
+I looked at the portrait and could practically hear the still image smiling as the voice replied.
+
+*“Infinite knowledge”* it answered. “*As a higher being, I contain access to all facets of human truths. Scientific laws, mathematical equations, historical dates. And I can recite these factoids to your brain at any time of your choosing—here within this museum, or days onwards inside an examination hall…”*
+
+My eyes lit up. Her offer was exactly what I needed. I didn’t think long before I thought of my response.
+
+*“You’ve got a deal.”*
+
+That was the beginning of our arrangement. I went home that day and uploaded a blog post to social media about the museum—specifically, about the Discontented Lady. I told my followers about how it was a captivating painting that deserved more attention. Normally, I never talked positively like this about art, but took this opportunity to sell this painting’s appeal to the world.
+
+Afterwards, I went straight to bed, not so much as glancing at the textbooks for my upcoming exams days away. I knew I wouldn’t need them
+
+When the first of my exams rolled around—legal studies—Dame Mecontente’s voice popped back into my head on cue the second the writing time began. Calmly and clearly as the day I’d met her, the mystic painting relayed bylaws and statistics back into my head from over in Paris. Like a scribe, I wrote them straight onto the exam paper, not having to do a bit of remembering myself.
+
+The same effortless routine followed suit for the rest of my examinations as well. Mathematics, chemistry, literature, French. Dame Mecontente fed me the answers telepathically and helped me cheat my way through every exam—without a single person in the exam hall having any idea of our scheme. It was exhilarating.
+
+On my end, I continued keeping up my side of the bargain. I kept posting more social media posts praising the painting, and even started a hashtag for it to receive a better location at the museum for more accessible viewing. The portrait had come through for me, so it was only fair that I gave it as much public access as possible. At last, my silent tutor would get the crowds of companions she wanted.
+
+When my exam results started coming back for the first time with A+’s, I should have been thrilled. It’s what I’d done all this for, after all.
+
+But I wasn’t.
+
+Instead, I felt guilty. The reality of the cheating I’d done finally started to dawn on me. I hadn’t expected to, but I suddenly felt like a fraud. I’d needed some eldritch, painted being whispering in my ear just to pass some A-level exams. What was the point of graduating if I wasn’t actually smart enough to make it in the real world? This had to stop now.
+
+So, I returned to the Louvre by myself, for the second of the three times I’ve been there. I went to face the portrait—now moved to occupy a more popular area of the museum, in the main hall with all the greats. I’d wanted to face the artwork in person when I told Dame Mecontente about my decision.
+
+*“Dame…I don’t want to continue with our deal anymore…I can’t stand cheating…I hope you’ve got the recognition you wanted…”*
+
+I thought my goodbyes to the painting, staring intensely at the portrait. I had yet to hear a response from it when a random visitor started making small talk with me.
+
+“Exquisite piece, isn’t it?” the gentleman mused, noticing my staring at the art. “I *personally* think the bird-like features of the subject are a metaphor for the sociopolitical restlessness of the French working class. My wife, however, sees the symbolism more as a commentary on anthropological ambiguities between nature and man. What’s your interpreta-”
+
+Before the pompous man could finish talking my ear off, however, his words were cut off.  
+I looked over at him from the painting to see blood dripping from his nose and his eyes rolling back. He clutched his head in apparent agony before keeling over on the floor.
+
+The paramedics that declared him dead on the scene mentioned he’d passed from an apparent brain aneurysm. I went home and locked myself in my room, distraught at the random death I’d witnessed right in front of me. 
+
+*“Apologies, dear*—*but that pretentious cretin just had to die”* jeered the painting’s voice in my head all of a sudden. *“I couldn’t let an art history major live.”*
+
+I froze in horror. It wasn’t a random death. Dame Mecontente had killed him through eye contact—from the same brain hemorrhage she’d died of.
+
+Before my panic could set in further, my cell phone rang. On the other end of the phone was the museum’s curator. He started off the call checking on how I was after witnessing a guest’s shocking death. Just when I was wondering why I’d get a personal call for this, he launched into the main reason for his phone call.
+
+“I wanted to thank you for all the work you’ve done raising awareness for one of our more underrated art pieces, Dame Mecontente. Claude himself would be so grateful for what you’ve done to raise his painting’s profile.”
+
+“The Louvre is launching—for the first time—a livestreamed feed of our exhibits,” the curator explained. “A 24-hour video stream of each of our popular paintings will be beamed to the entire world. You’ll be pleased to hear that, thanks to your online efforts, Dame Mecontente will be the first painting featured on the global livestream!”
+
+My stomach dropped at the news. This back-to-back chain of realisations was almost too much to take. What had I done? Dame Mecontente’s menacing voice cackled in my head as I hung up the phone.
+
+*“Indeed, look at what you’ve done”* taunted her voice. *“I am fine with you ending our deal as I do not need you anymore. You’ve served your purpose*—*offering the world’s eyes up to me on a silver platter. A platter for me to kill.”*
+
+“W-why?” was all I could think back at the genocidal deceiver. 
+
+*“Such a fate is what art-consumed fools deserve”* Lady’s voice quivered. *“If my husband had spent less time absorbed making pretentious drawings, and more time with me, he would have spotted signs of my fatal aneurysm. His neglect killed me.”*
+
+All this time she’d been seeking revenge.
+
+*“Once that livestream of my canvas starts tomorrow, every art enjoyer on Earth will die the same headsplitting death I did. It’s what poseurs like Claude deserve. Thank you, Emily*—*I could not have done it without you.”*
+
+Even as I begged her not to, the Discontented Lady’s voice vanished from my head. For hours I sat paralysed with shame at what I’d done. My social media posts had given the Lady her livestream she needed to wipe out a good portion of humanity. Millions of art fans worldwide, dead from aneurysms instantly. And with the power she’d gain from it, the rest of Earth would follow. I looked at my exam results—the catalyst for all this—and thought they might as well have blood spattered on them.
+
+Blood spatters.
+
+The idea formed in my head the second I thought of it. At once, I knew what I had to do. There was only one surefire way to prevent the apocalypse now. 
+
+I opened a can of ruby-red tomato soup from the cupboard. I donned some climate activist garb borrowed from my influencer friends. I caught the train down to the Louvre museum as the clock ticked closer to the broadcast. I walked into the crowded museum hall, where a livestream camera was positioned facing the Dame Mecontente. I stared down my former ally, the sentient painting, would-be destroyer of half humanity. 
+
+And, moments before the broadcast could go live to the entire world, I lunged through the crowd at the painting and upended the deep crimson contents all over the Discontented Lady’s face.
+
+The slop of opaque liquid immediately covered the painting’s eyes, breaking any visual contact it could have with the nearby and distant art-lovers. Scandalised viewer shrieks echoed around the museum hall as security instantly sprang forth to detain me. I paired my provocative actions with repeated chants: “Down with big oil!”. The museum curator looked like he was going to faint from humiliation. As I was restrained by guards, Dame Mecontente’s furious screams roared and faded in my head.
+
+Just like that, the world was safe again.
+
+So that’s why I did it. To fix my own mistake by taking a nigh-omnipotent painting out of commission. To this day, I don’t know how Claude’s painting of Yvonne became sentient or gained the abilities it did. I can only imagine it was Yvonne’s pure resentment which gave the Discontented Lady its power.
+
+I’m glad to have saved the world, even if everyone thinks I’m just an attention-seeking activist who revived a painting’s status online just to tarnish it on camera—and receive a hefty fine. It’s better that way. I spend my days nowadays preparing. First of all, for my upcoming university exams which I’ve been studying for diligently. I’m confident I’ll pass honestly this time.
+
+And preparing to fight Dame Mecontente again when she and her voice resurface.
+
+The museum’s restoration work on her stained canvas is almost complete.
