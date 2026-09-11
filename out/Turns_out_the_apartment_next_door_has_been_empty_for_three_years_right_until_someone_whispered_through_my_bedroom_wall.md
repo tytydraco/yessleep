@@ -1,0 +1,47 @@
+I realized the apartment next door was occupied exactly three weeks after I moved into Room 4B. 
+
+The building is an old brick walk-up with walls so thin you can hear your neighbors breathing. During those first three weeks, 4A had been entirely empty—no furniture, no curtains, just bare, echoing hardwood. I enjoyed the silence while it lasted, thinking I had lucked out with a quiet corner of the floor.
+
+Then, the midnight movements began.
+
+Every single night, precisely at 3:14 AM, I would wake up to a heavy, dragging sound of metal and fabric sliding across the floorboards next door. It sounded like someone was dragging a heavy, open cardboard box filled with old rusty pipes or heavy tools. The sheer friction of the noise grated on my nerves night after night, vibrating right through the floor and straight into my mattress. 
+
+After a week of lost sleep, I finally snapped. I walked down the dim, flickering hallway and knocked firmly on the door of 4A. No one answered. I tried again, pounding much louder this time.
+
+The scraping inside suddenly stopped. The silence that followed was heavy, sudden, and absolute. I waited for a full minute, holding my breath, before I sighed and walked back to my apartment. The exact moment my door clicked shut, the dragging began again right on cue.
+
+The next morning, I bumped into the building manager, Arthur, a gray-haired veteran, down in the lobby.
+
+"Hey Arthur, do you know who moved into 4A?" I asked, sipping my coffee and rubbing my tired eyes. "They've been moving heavy items in the middle of the night."
+
+Arthur stopped sweeping. He looked up at me, his face turning pale and completely unblinking. "Son, nobody lives in 4A. It's been locked and vacant for three years, ever since the old tenant passed away in there."
+
+My stomach dropped, but my rational mind kicked in. "Come on Arthur, I hear them every single night. Maybe someone broke in? A squatter?"
+
+Arthur frowned, pulled a heavy ring of metal keys from his belt, and ordered me to follow him. We walked up to the fourth floor. He slid the key into the lock of 4A. It turned with a heavy, metallic click. He pushed the door open.
+
+The apartment was completely empty. Thick layers of gray dust coated the floorboards. There were no tracks, no footprints, no indicators that a living creature had stepped foot inside for years. It was completely undisturbed.
+
+"See?" Arthur said softly, closing the door. "No one."
+
+I went back to my apartment shaken, but I tried to rationalize it. I must be experiencing some sort of audio illusion, or a trick of the acoustics in this old building. 
+
+I went to bed early that night. By midnight, I fell into a deep, heavy sleep.
+
+Precisely at 3:14 AM, the sound returned.
+
+Dragging. Heavy metal dragging.
+
+It was closer this time. It was moving from the empty apartment's living room wall, straight toward the shared wall of my bedroom. The scraping grew into a loud, dry friction of something heavy dragging against plaster. I sat up in bed, staring blankly at the empty wall in front of me, paralyzed by fear. Then, without warning, the scraping stopped.
+
+In the dead silence of my bedroom, I heard a new sound. It made my skin crawl. 
+
+From the other side of my bedroom wall, right where my headboard was, I heard a wet, raspy breath.
+
+\*Haa. Haa. Haa.\*
+
+Then, a voice, closer than ever, whispered through the thin drywall straight into my ear:
+
+"I don't like when I'm left out. I moved into 4B years ago."
+
+I bolted out of bed, grabbed my phone and my jacket, and ran out into the street. I didn't even lock my door. I've been sitting in this 24-hour coffee shop down the block for hours now, typing this out under the harsh fluorescent lights. The sun is starting to come up, but I can't shake the chill in my bones. If I moved into 4B three weeks ago... who has been living there for years? I don't think I can ever go back to that room.

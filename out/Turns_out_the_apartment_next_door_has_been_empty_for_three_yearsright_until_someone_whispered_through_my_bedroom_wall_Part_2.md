@@ -1,0 +1,43 @@
+The coffee shop is starting to fill up with the early morning rush, but the clinking of porcelain and the mundane chatter of commuters feel a million miles away. The harsh fluorescent lighting above me hums with a low, vibrating drone that seems to rattle right through my teeth. I’ve been staring at my phone screen until my eyes burn, re-reading the last sentence I posted to Reddit over and over again.
+
+If I moved into 4B three weeks ago... who has been living there for years?
+
+A terrible, suffocating realization is beginning to take root in my chest. I think back to the day I signed the lease. The building manager, Arthur, had been almost manic in his eagerness to hand over the keys. He barely looked at my background check. He just kept repeating how glad he was to finally have someone "fill the space." I remembered how his hands had trembled when he handed me the brass key to 4B. I had written it off as old age. Now, a sick, greasy wave of dread washes over me. He didn't just know. He was hiding it.
+
+I look down at my clothes. I'm wearing a thin jacket and mismatched shoes. My wallet, my laptop, my passport—everything is still up on the fourth floor. I can't run away forever with nothing. But the thought of walking back into that narrow, flickering hallway makes my throat close up entirely.
+
+Suddenly, my phone vibrates so violently against my palm that I drop it. It clatters against the plastic table, the screen flashing bright in the dim corner.
+
+.It is an unknown number. No digits, just an empty caller ID.
+
+My thumb shakes as I swipe open the message. It’s an image file.
+
+The picture is dark, taken in a low-resolution grain that makes the shadows look like they are crawling. It takes me a second to recognize the peeling, water-stained wallpaper. It's my bedroom. It's 4B. The camera angle is resting flat on the hardwood floor, right at the baseboard where my headboard touches the wall. It’s the exact spot where the wet, raspy breathing had whispered into my ear. In the center of the frame is my unmade bed, the sheets tangled and frozen in the shape of my sudden escape.
+
+But it’s the bottom of the photo that makes my heart stop.
+
+Peeking into the very edge of the frame, resting on the floorboards right next to the lens, is a pair of bare feet. The skin isn't white or gray—it's a mottled, bruised purple, caked in thick, yellowed dust. The toenails are split and black, torn away as if they had been repeatedly dragged with immense force across raw wood.
+
+A text message bubbles up immediately beneath the image:
+
+"You left your door unlocked. We don't like a draft.
+
+"My stomach violently heaves. I look up, gasping for air, desperately trying to lock eyes with the barista or any normal human being in this shop to anchor myself to reality. But everyone is a blur. The coffee shop suddenly feels like a fragile glass cage.
+
+Before I can even process the first photo, the phone vibrates again. Another image.
+
+This one is brighter. The flash had been turned on. It’s a shot of the narrow hallway right outside my apartment door. Arthur is in the frame. He is standing completely still, slumped awkwardly against the wall of 4A. His sweeping broom is lying uselessly on the floor beside him. His head is lolling back at an impossible, unnatural angle, his neck broken so severely that his chin is resting on his shoulder. His eyes are wide open, bloodshot and completely unblinking, staring blankly at the ceiling.
+
+Behind him, the heavy wooden door of 4A is standing wide open. The pitch-black interior of the vacant apartment seems to swallow the camera's flash entirely.
+
+A final text message appears:
+
+"Arthur tried to lock us back out. But we’ve been here so much longer than him. We're coming down the block now. We see the bright lights.
+
+"I look out the plate-glass window of the coffee shop. The sun is just starting to pierce through the morning smog, casting long, distorted shadows down the empty street. And there, at the very end of the block, emerging from the dim entryway of my apartment building, a figure begins to move. It isn't walking. It is flat on the pavement, its limbs moving in a jerky, spider-like crawl, dragging its lower body forward with a heavy, scraping friction that I can hear in my head even through the glass.
+
+And it is looking straight at the coffee shop.
+
+Part 1 link...
+
+https://www.reddit.com/r/nosleep/s/KUWPD2l7Z2
