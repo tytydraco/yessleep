@@ -1,0 +1,59 @@
+I grew up in a happy nuclear family: Mom, Dad, and Macduff, my black cat. At first glance, my family seemed to have no problems at all. I thought so too, until I realized we were no longer invited to reunions like we used to be. My cousin Lillie, who was in my class, also seemed to be distancing herself from me. She would still smile when greeting me and make small talk by asking how Macduff was doing, but then she would quickly look away. I asked my close friend Beth about it, and she figured Lillie was just still in shock from seeing me get hit by a truck last month. Everyone thought I was dead, but they were wrong! Hahaha!
+
+Fortunately, there didn't seem to be any weird rumors circulating about me at school. At most, some people thought I was a zombie.
+
+Yes, I had been in an accident while crossing the street at a quiet intersection. Apparently, a water bottle had jammed the truck's brake pedal, making it impossible to stop, and it was too late for the driver to swerve. I woke up with a fractured femur, yet a week later, I was already walking again without a wheelchair. The doctors called me a medical miracle. They had initially given up hope for me; they thought that even if I survived, I would be paralyzed for life. But here I am, walking cheerfully into class just like anyone else.
+
+Maybe I have nine lives, I thought at that time.
+
+Mom and Dad spoiled me even more after the accident. Whatever I asked for was granted (except for requests that only the Genie from *Aladdin* could fulfill). Macduff still greeted me by rubbing against my legs and, once or twice, bringing me a dead bird. Thinking back on it now, it makes me sad.
+
+However, after the accident, I sensed something strange about my grandparents, my aunts and uncles, and my cousins. They weren't as warm toward me as they used to be, and I often caught them shooting sharp glances at my parents. Not everyone kept their distance; some watched me as if I were a newly discovered animal species, while others looked at me with pity, as though I were a victim of domestic abuse. Sometimes they’d invite me out to play or grab a bite to eat, but I knew they just wanted to distract me while the others grilled my parents.
+
+“Uncle Jerry, why does everyone suddenly hate Mom and Dad?” I asked.
+
+Uncle Jerry was momentarily taken aback. He probably hadn't expected me to be so observant of everyone’s behavior. He took a sip of his iced lemon tea to compose himself, then replied, “You’d better just finish your fried chicken. It’ll get cold.”
+
+Classic adult behavior. “Fine, if you don’t want to answer,” I retorted before biting into my favorite crispy chicken thigh.
+
+Uncle Jerry seemed unsure if he could keep dodging me. “Josie,” he said after a moment of silence, “do you believe in forbidden arts?”
+
+“Well, sometimes I see my friends playing Ouija or Charlie Charlie Are You Here, or trying to curse people using hair clippings stolen from their combs. But I think it’s silly. There’s no proof that any of it actually works.” I was only eleven, but I was a bit of a know-it-all. You can laugh at my naivety back then; I don’t mind. I feel like laughing and crying myself when I think about it now.
+
+Uncle Jerry chuckled. “You’re a smart kid.”
+
+“Thanks, Uncle!” I really needed praise like that.
+
+“But remember this one thing: sometimes, the things we don’t believe in end up having the biggest influence on our lives.”
+
+“Like what, for example?”
+
+“I used to not believe your dad could ever marry a beautiful woman. Look at him now. Robert really got lucky.”
+
+Uncle Jerry was lying. He didn’t think Dad was lucky at all. I could hear his tone turn somber on that last sentence. “Do you hate Mom, Uncle?”
+
+Uncle Jerry’s mouth fell open slightly; then he smacked his lips awkwardly and shifted his attention to the television in the dining area. “Maybe ‘hate’ isn’t the word. Some things can’t just be seen in black and white. You just have to understand. But…” “Maybe ‘hate’ isn’t the right word. Some things can’t just be seen in black and white. You just have to understand. But…” His brows furrowed. He didn’t hate Mom; he was angry with her. That was a different feeling.
+
+He cleared his throat before slurping down the rest of his iced tea—so fast he started to choke. “H-hurry up and finish your meal. If we stay out here too long, your parents might get worried.”
+
+We came home at the wrong time. Just as Uncle Jerry’s truck pulled up in front of the house, the shouting, which they had tried to shield me from, rang out even louder. I could hear Aunt Luciana, Dad’s sister-in-law and Uncle Jerry’s wife, declaring something I never would have imagined her doing.
+
+“Then I’m taking this cat right now! I don’t care about the feelings of people as selfish as you lot anymore!”
+
+Aunt Luciana’s stout figure stomped out of the house, clutching something... something black and squirming. Macduff!
+
+“Aunt Luciana!” I scrambled out of the truck, my voice croaking as I fought back tears. “Aunt Luciana! What are you doing?! What are you going to do to Macduff?! Don’t take Macduff, Aunt Luciana!”
+
+“That crazy woman wants to torture Macduff!” Mom screamed.
+
+“Nonsense!” Aunt Luciana snapped back. “You’re the one torturing him! I’m not the one using this poor cat to bring Josie back to life—”
+
+The secret they had struggled so hard to hide was suddenly laid bare. Perhaps Uncle Jerry should have taken me for a longer walk... or maybe, quite by accident, he had done exactly the right thing?
+
+They were forced to explain everything to me, an eleven-year-old kid. It was they who made me realize that Uncle Jerry wanted to reveal everything that had weighed on him since my accident. I had died during surgery—*clinically dead*, the doctors said, meaning my heart had stopped beating. Mom and Dad couldn't bear the bad news, so they decided to do something that led to them being cursed and ostracized by the extended family: giving me one of Macduff’s nine lives.
+
+They didn't tell me how they did it. Perhaps that was a detail I didn't need to know. They said Mom and Dad hurt Macduff, but Mom and Dad insisted he was fine once the ritual was over. The life forcibly taken from Macduff lasted only nine days; after that, the ritual had to be performed again.
+
+My family remains at odds with Uncle Jerry and Aunt Luciana to this day. I don't know what to do, especially with the information I now have. I thought I was ready to hear whatever they had to say, but it turns out I was too arrogant. The nine days were nearly up; my body was becoming immobile, and my vision was blurring. I heard Macduff meow in pain from across the room just before my vision cleared and my body felt revitalized. I felt no joy at all.
+
+I am almost twenty now. Macduff was already long gone, and my parents use new cats to keep me alive. I don't know how much longer I have to go on like this. Someday, I will find the courage to stop Mom and Dad and ask them to let me go.
