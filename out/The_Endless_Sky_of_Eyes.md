@@ -288,7 +288,7 @@ Breathing became difficult. I gasped for air until my lungs felt they were on fi
 
 *More darkness, but I couldn’t feel my body. No light came for what felt like hours. I couldn’t feel anything. I was lost. My thoughts being my only company. I tried to move an arm or a leg but found I couldn’t. I couldn’t even feel them. I searched for a taste in my mouth but found nothing. I was an empty, soulless being*.
 
-*I was nothing.* 
+*I was nothing.*
 
 After sometime, I was finally able to open my eyes. Light overwhelmed my vision and I shot my body up. I had a massive migraine and every movement felt like a stab to my head. I searched around frantically but I was able to calm down when I noticed where I was. I was laying in the middle of my living room.
 
@@ -302,7 +302,7 @@ How was I supposed to live now?
 
 How was I supposed to go throughout my daily routine normally knowing what awaits me on the other side?
 
-I checked my phone and saw the time. Only an hour had passed, I hadn't been there for long. While my time in that place was very limited, it was enough to permanently scare me. At first I tried to tell myself it was just a nightmare, but when I searched my apartment, I found Damien's fedora still sitting on my coat rack.
+I checked my phone and saw the time. Only an hour had passed, I hadn't been there for long. While my time in that place was very limited, it was enough to permanently scar me. At first I tried to tell myself it was just a nightmare, but when I searched my apartment, I found Damien's fedora still sitting on my coat rack.
 
 That was enough for me to push those thoughts out of my head.
 

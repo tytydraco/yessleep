@@ -1,0 +1,199 @@
+The howling of that horn could be heard above the shrieking winds that wafted through the moors like restless spirits searching for the Afterlife.
+
+ It could be heard over the baying of the hounds as their masters drove them to seek the blood of the noble fox.
+
+ It could even be heard over the cries of war as those great armies of Gauls pushed back against the great swell of the Legions of Rome.
+
+ But few have ever heard this majestic instrument be used for its true purpose. 
+
+ I have. 
+
+ My name is not important to this tale. What is important is knowing that I am of true and pure Gaelic decent. Every last ounce of my blood is green. 
+
+ I was away on holiday when I received word that my Grandfather had taken ill, and that I was to come at once to his estate deep in the darkest, blackest hills one could ever imagine. I was the only one of this generation of my family that he trusted or even remotely liked, so I was instructed to come alone. 
+
+ Our family had owned and held this land for hundreds of years, and had thrived and prospered on its fertile, lush grounds. With each successive generation, new dynasties were forged. 
+
+ But there was one place on this land where no sane man would set foot, if they had known of its existence.
+
+ And I was the unlucky member of my generation to stumble upon it one bright day in June.
+
+ Being in my late twenties, I had an adventurous spirit, so after getting settled in, I went to inform my grandfather that I planned to go hiking for the day. 
+
+"Go and enjoy this land." He said with a smile. 
+
+"But stay on the paths, and do not stray. There are things in these old woods that would send a chill through a Banshee." 
+
+ I looked at him, puzzled. But then laughed it off as a playful warning from an old man meant to scare me. 
+
+ As I left the room though, I felt his steady gaze watch me, and it felt as if he could see right through me. 
+
+ Of course, being the young fool I was, I took one of the many marked hiking trails, but when I was out of sight of the mansion, I veered off to forge my own path. I was skilled with a compass, and it was not even noon yet, so I had plenty of time to explore. 
+
+ After hours of glorious wandering, I came upon a knoll. And when I reached the top of the knoll, I found myself looking down into a small, verdant valley which ended in a rather large foothill. But my eyes were immediately drawn to the large gash at the base of the foothill. 
+
+ I wasted no time. I knew what the rest of my trip would entail. I crossed the valley, and stood on the edge of this great scar. And what I saw was breathtaking. 
+
+ Through the crevasse, I saw a cave that could have been mistaken for a stone cathedral. It was almost perfectly domed; every inch of wall was smooth, and curved upwards until they connected. A chandelier of stalactites hung from the center, which cast a luminescent glow over this holy place.
+
+But I was transfixed by the centerpiece of this hallowed ground. 
+
+ In the very center of the room, surrounded by a moat of crystal clear water, stood a great, umbral tree. 
+
+ Its bark was black as pitch, and was gnarled and twisted like the hands of an ancient mariner. It had no leaves, and featured only five thick branches which extended to the cave walls; locking themselves in place in the ancient stone. 
+
+I stood dumbfounded, and my heart raced with excitement. I believed I had made some significant discovery and that I would be famous, which is exactly what all young men want and wish for. Few achieve such heights, though. And for good reason. Most discoveries are terrible things to behold. 
+
+ I reverently made my way forward towards the nexus of this megalithic chapel, and after looking unsuccessfully for something I could use to cross the moat, I waded in. 
+
+ As I trudged through the knee high water, I jumped as something brushed past my pant leg.  I looked down to see what it could have been, but there was absolutely nothing save for the clouds of silt and sand I was kicking up. 
+
+ Vaguely worried, but undeterred, I climbed the bank onto the little island that the tree called home. It was merely a sandbar that surrounded the tree, but it supplied enough space for me to stand. 
+
+ Once I was face to face with it, I could appreciate a deeper level of the beauty and strangeness of this wonder. The bark was like ornate filigree. At a glance, various shapes and angles seemed to form faces or figures, but on second inspection the shapes and angles were abstract. 
+
+ Looking up at the limbs, I noticed they seemed to be perfectly spaced. Each was the exact same distance away from the next one all around the tree. My mind fancied them to be in a star pattern, with the head point of the star facing in the direction of the mansion. 
+
+ I was dazzled by this insane specimen, and after a moment longer spent in its presence, I cautiously waded my way back through the moat, hopped onto the opposite bank, and made my way back into the known world. 
+
+ My trip to the mansion was filled with excitement and enchantment. Everything looked green and good, and the sun was just beginning to start on its downward arch. But as I got closer, I noticed the green begin to dim. The light also seemed to become strained and less-vibrant. 
+
+ I was puzzled by this sudden shift, and I quickened my pace.
+
+ When I arrived back to the mansion, my Grandfather was waiting outside for me. This was decidedly curious, for he was already in his mid-seventies, and his failing health prevented him from staying outside for long. 
+
+ My wide, boyish smile fell dark as I looked upon the face of my grandfather. His eyes were burning a dull, rusty flame. And his lips were quivering from tremors of rage. I had never seen him like this. 
+
+ "You are a smart lad, Nathan. And a good person. And being such a lad as that, you should know better than to go wandering into places that are best left forgotten. I know where you've been. And I know that smile. It is the smile of a rogue. All rogues hang eventually." 
+
+ He then came close to me, and grabbed my wrist with all his might. He had the grip of a man twice as young as he, and I could feel his rage pulsating through his fingers as he tightened his vice. I felt like crying, but I just held his gaze, and said nothing. 
+
+ "You don't know What lives below these woods. Be a good lad, and forget what you saw. Forget anything you did today. And for the love of all things holy, cleanse yourself tonight. I will help you."
+
+ "I did nothing of the sort!" I stuttered. "I have absolutely no idea what you are talking about, nor do I believe you are in your right mind." 
+
+ These words tumbled out of my mouth with no power behind them. My Grandfather just continued to hold my gaze until he seemed to believe me. 
+
+ He let go of me then, and I quickly ran for the house. For the remainder of the day, I avoided him like the plague. But I couldn't help but feel like he was watching me. Everywhere I would go, I felt the fire of his gaze upon my back. And it soon proved to be unbearable. 
+
+ Before the night fell, I decided enough was enough. I ran to his door, and rapped sharply over and over until he pulled it open in a flurry of bathrobe and bedcovers. He had forbade his nurses from entering his room at any point, or even standing outside the door, so I had him all to myself. 
+
+ "Grandpa, what the hell are you doing to me? I'm nervous and jumpy, and I feel like I'm being watched! What were you going on and on about this morning? Help me understand!" 
+
+ He grabbed me by my shirt collar, and threw me inside his room. He then promptly shut the door, and, after locking it thoroughly, turned to me, and spoke quietly. 
+
+ "My dear boy, you have been followed from that accursed place. Have you not felt what is behind you?" 
+
+ I felt shivers issue forth from every atom inside of me. Was there really something behind me? Had I been shadowed by some shade ever since leaving that sanctuary? 
+
+ I quickly spun my head around to see if I could catch a quick glance at my silent companion. 
+
+ "You cannot see Him. He will only show himself to those who have been touched by evil. I have witnessed Him before." 
+
+ "What, what, wh-what," I stammered, trying hard not to faint. "What is behind me?" 
+
+ "Something foul." Was all he replied.
+
+ I immediately began calling on every saint I could remember from my days as an altar boy. 
+
+ "...help me..." I whispered like a frightened child. 
+
+ "Come with me." He said without another moment's hesitation. 
+
+ I walked with him through his room at a slow, deliberate pace. I tried to concentrate on him, but I could feel the hairs on my back standing straight up, as if my body could feel a presence getting closer. Our short journey ended at the behemoth, brick fireplace that stood near the back of the room. It was dusty and ill-kept, and hadn't been used in what looked like decades. 
+
+ My grandfather wasted no time in his search. He feverishly ran his left hand over the bricks until he found what he was looking for. One of the bricks was loose. He used both of his hands to pry it out, and then probed inside of the space where it once had occupied. When he retracted his hand, he was holding a small, black key. 
+
+ He replaced the brick, and took my wrist in another grip. 
+
+ "Take this key to the attic. Look for a long, black chest. It should be in the far right corner from the door, and it should be covered with a green cloth. Do not mind the etchings, nor take heed to the scrolls or patchworks inside of the box. What you need is at the very bottom of it. I cannot say any more. It is not wise to speak of cursed objects." 
+
+ In my present state of true terror, his words only dully bit at my mind as I mechanically turned and ran for the door. 
+
+ The attic had been my favorite place in the house when I was a boy. I knew it very well. But even so, I had never seen the specific chest that he had spoken of. 
+
+ Faster than my legs could carry me, I ran up to the third floor, and made a dash for the old servant's quarters. Then I stumbled to the rickety iron spiral staircase that led up to the attic. 
+
+ When I finally flung the door open, I paused for a moment to catch my breath. And I regretted it instantly, as I felt something lightly brush across the back of my neck. 
+
+ I uttered a choked cry, then bolted to the far right corner. Frantically, I looked all around, prancing from side to side in an all-out panic. Then my eyes caught the green cloth, and I dove for it. 
+
+ The chest was large indeed. And the cloth was old and ragged. I threw the cloth aside in a hailstorm of dust and dead insects to reveal a beautiful, antique red cedar chest. It was covered in markings as Grandfather had said, and many of them sent shivers down my already tense spine. 
+
+ I knew enough about occultism and esotericism to know that whatever was in this box was either holy, or truly profane. Christian symbols and Hindu symbols littered the lid, and a pentangle was carved into each side. 
+
+ Reluctantly, I lifted the lid. Inside were stacks upon stacks of scrolls and papers as mentioned. As I pulled corded bundles out by the fistful, I realized they were all in another language entirely. There were no letters or symbols I could recognize. It was a harshly written language, with many slashes and dots. 
+
+ Finally, I reached the bottom. There was nothing but solid wood. But I knew something this special would not be free-floating. I probed around for a latch, which I found. The bottom lifted up, and I laid my eyes upon my salvation and my damnation. 
+
+ I was staring at a bronze boar head. It's mouth hung open, and its eyes were wild with rage. It looked to be as ancient as this land, but was shockingly well kept. It was pristine, and beautiful. 
+
+ The head was mounted on a long tube. And there was another tube set carefully next to it. This was an instrument. This was a horn. 
+
+ I gently reached in and grabbed it; it's cold metal stinging my hands as I carefully raised it to my arms. I didn't bother returning the false bottom or any of the papers. I made one final check to see if I had grabbed everything, and upon a satisfactory inspection, I ran back towards my Grandfather's room in a whirlwind of motion and fear. 
+
+ He was waiting for me outside of his room when I got there. He held up one hand to stop me, and before I could say anything, spoke to me thus: 
+
+ "I only know of any of this from legend. No member of this family has ever had to go on this quest. But I know that what you hold is powerful. And is cursed. Lord above! The filth that haunts you is not alone anymore. There are several now! Go! Swiftly into the forest! Retrace your steps, and blow the horn whence you have reached the end of your journey. Prepare yourself, young man. Such things as you may see are not meant for us." 
+
+ Pale, weak, and shivering, I turned my back on him and was gone without a word. 
+
+ Through the great double doors of the mansion I flew. Down the garden path, up a ridge, then into the forest. The night was threatening to overtake me, but I had a little light left. I prayed it would be enough. 
+
+ I ran as fast as my legs could carry me. Jumping over rocks and across logs, through meadows and densely packed thickets. I got caught up once or twice, but I struggled loose from the thorny grasp of Mother Nature. 
+
+ I was halfway to the crevasse when I noticed the dark shapes in the woods off to my right and left. Huge, towering, indescribable shapes. Some seemed to tower as high as the clouds far above. And they were all moving towards me. 
+
+ I half expected the forest to quake and fall to pieces with this stampede of darkness, but not a tree moved. Whatever these visions were, they were not of our plane. 
+
+ I fixed my eyes ahead of me and ran harder than I ever thought I possibly could. And just when my strength was about to be depleted, I spied the knoll. And finally, I saw my destination. 
+
+ I crossed the valley in a heartbeat, and stood for a moment to catch my breath at the precipice of the natural world and the world beyond. Then I dove in headfirst.
+
+ I landed hard on my knee, but I had to keep moving or I knew I surely would be devoured by the darkness which had begun to crowd the corners of my vision. 
+
+ I tried to jump over the stream, praying I would land close to the other bank. But my foot landed on a slick patch, and I fell into the water, dropping the horn as I did. 
+
+ Panic and true terror set in as I spent a quiet, mournful moment under the surface. And in that moment, I grasped at anything and everything around me, seeking desperately for my Grandfather's gift. 
+
+ I decided I would rather drown then resurface until I found the pieces, so I fought the rising tide of bile that swelled at the feeling of my lungs beginning to burn. I searched, and searched, and finally I found the headpiece. But I was still missing the extended tube. 
+
+ My lungs were beginning to sting and fight back as if they were caged animals. But I fought harder. On and on my search went, until in a moment that was truly divine, I found the piece. 
+
+ In a blast of spume, I rose to the surface, connected the two pieces, and wildly swung the horn around me to ward off anything nearby, and to empty it of any water. 
+
+ I wish I could forget what I saw when I rose from the moat. But I never will, for as long as I live. 
+
+ Pagan gods and acolytes stood before me. The Fomorians, as my ancestors would call them. Vile, wicked, malformed creatures from the darkest and most disgusting pits of Hell. 
+
+ Faces from the mind of Satan looked upon me with vile contempt and utter hatred. Leering, glowering, sneering, snarling; they malevolently mocked all that is holy by their mere existence alone. 
+
+ I screamed in horror, and brought the horn to my lips in one motion. I blew with all my might, and after a wheeze and a splutter, a sound pierced the air that was ear shattering. 
+
+ The horn sounded out its battle cry with the force of a lightning strike and the bone-shuttering rumble of a thunder crash. It worked instantly. The hords of the Land of Darkness all screamed and writhed at the great blast. One by one, the creatures retreated into the shadows all around, until I alone was left in the chamber. 
+
+ I used every last breath I had, and then some, until I could feel consciousness give way to darkness. 
+
+ I awoke to the caress of the morning sun on my face, and I knew that I had somehow survived. With a leap, I looked around me frantically, expecting to be surrounded again. But I was alone.
+
+ I surveyed the room to see if anything had changed, but I saw nothing. It was exactly as I had found it the previous afternoon. 
+
+ After a moment of composing myself, I picked up the horn that had fallen with me, and started my treck home. 
+
+ The forest seemed leagues away from the sinister place I had run through the night before. It was calm, and peaceful. And I thanked God with every step. 
+
+ My gratitude ceased as I crested the ridge overlooking the mansion. Somehow, I had not smelled the smoke on my journey back.
+
+ Our beautiful ancestral house was ablaze from the bottom to the top. It was uncontrolled, and horrific to see. My legs gave way and I fell to the ground, sobbing at the travesty that I was witnessing. 
+
+ I should have known the Legions would not leave empty-handed. I should have known that my Grandfather was only doing what he knew to do from a wealth of compiled knowledge passed down through the centuries. Of course, he would be unaware of the possible outliers and outcomes.
+
+ I drove the Hord away from me, straight to this once proud house. 
+
+ Never again would I see my Grandfather. Never again would I feel the comfort that that mansion brought. Our history was gone. My family name meant nothing anymore. 
+
+ All for the love of wandering, I have been nameless, homeless, and heartless for the past seventy years.
+
+ At the call of that great horn, Satan's sons and daughters were warded away. And I pray that tonight, as I re-enter that forsaken crevasse where the realms collide, and play it once more, that its strains would reach the Gates of Heaven, that God would know my wrath. 
+
+ 

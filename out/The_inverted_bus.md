@@ -1,0 +1,49 @@
+It was the night after a New Year party. 
+
+I am not a drinker, so when my boss asked if I could come back and fix the problem right away, I said yes. He promised an extra bonus.
+
+I was driving from my hometown back to my apartment because of emergency work.
+
+The road was calm, with a little fog. 
+
+I turned on radio to listen to music. 
+
+At 1:45 a.m., a big pair of headlights poured toward me. It was a bus. Maybe a tour bus for New Year. Its just a normal looking bus, i cant see the driver because the light is really strong.
+
+The bus and I got closer, and then I started to hear a weird sound. It was like flame, mixed with screaming in agony. I couldn’t believe it. At first I thought my car speakers was broken. It still gave me a chill.
+
+The bus in the other lane came closer, and the sound came closer with it. I still wasn’t sure what it was.
+
+The moment my car passed that bus, I saw the passengers, but they were inverted. They looked like they were hanging, but their hair, hands, and clothes stayed intact. They just sat to the upside-down seats. Nothing was flying around. They looked normal. Some were sleeping. Some were leaning their heads on the window. Some were still talking. Some even looked at my car. The only abnormal thing is that they upside-down. 
+
+And that sound, the flame, the screaming, the agony, that hell sound was so loud it covered my music.
+
+The bus passed me in only two or three seconds. I don’t know. It was the longest seconds of my life.
+
+I slowed down. I couldn’t believe what I had seen. That flame sound and the scream, faded as the bus went away. I couldn’t take my eyes off the rearview mirror. I watched the bus pass, then fade into the fog.
+
+That was the weirdest thing I had ever seen. I changed the radio to a funny podcast and turned the volume up.
+
+I arrived at my workplace around 3:00 a.m. That goosebumps feeling was still there, but luckily one of my colleagues was already in, so the work after that weird experience was not that scary.
+
+I finished the emergency work around 5:00 a.m. and went back to my apartment to sleep.
+
+I woke up that afternoon.
+
+The chilling, scariest feeling was gone after the good sleep.
+
+I made coffee and scrolled on my phone until I found a news story.
+
+A New Year tour bus had crashed. The whole bus flipped. The flames ruined everything. All the passengers were dead.
+
+That gave me heavy goosebumps.
+
+The police said it happened around 2:00 a.m. The tour bus suppose to taking people to a hotel after a New Year party.
+
+I stopped reading immediately. The sound that i heard, the passengers that i seen fade back to my memory. The goosebumps feeling is back, my body is chill again.
+
+Was I seeing a ghost?
+
+No. I remember I passed the bus before 2:00 a.m.
+
+So maybe it was some kind of omen. A bad one.

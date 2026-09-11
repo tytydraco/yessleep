@@ -104,11 +104,11 @@ With everything I had, I took Jake's lead and pulled my glove hand free, mangled
 
 He smashed Jake's face so hard I thought he'd killed him, then, after restraining his hand, turned to me with a heavy, giant steel clamp. I gritted my teeth as he forced my hand into the vise and twisted. I howlowed in fury and pain, feeling the bones break. He suddenly stopped twisting and turned to Sarah, picking up one of those fucking keys.
 
-I began slamming the clamp against the wall, doing more damage but it was loosening. Jake was manic at this point—how he was even alive was baffling, but that didn't matter. What mattered was he was still breathing, and he needed his base covered. I never let him down before and I wasn't about to now. I watched Frank as he pointed the key into Sarah's now open chest and exposed, beating heart. He tried to turn it and frowned.
+I was manic at this point—how he was even alive was baffling, but that didn't matter. What mattered was he was still breathing, and he needed his base covered. I never let him down before and I wasn't about to now. I watched Frank as he pointed the key into Sarah's now open chest and exposed, beating heart. He tried to turn it and frowned.
 
 "Engine's still cold, need to try a different chassis."Frank went back to dig through those awful keys, and Sarah, with the last of her strength, looked both of us in the eyes.
 
-"Promise me guys....promise me you'll find a way out of...out of....."And that's all she could manage. The life left her instantly and her heart stopped beating.
+"Promise me guys....promise me you'll find a wbegan slamming the clamp against the wall, doing more damage but it was loosening. Jake wasay out of...out of....."And that's all she could manage. The life left her instantly and her heart stopped beating.
 
 "SARAH! SARAH FUCK! FUCK YOU FRANK!" Jake cried through his tears. Through my own, I gave her a silent swear that I would keep my promise, just as the clamp broke open.
 
