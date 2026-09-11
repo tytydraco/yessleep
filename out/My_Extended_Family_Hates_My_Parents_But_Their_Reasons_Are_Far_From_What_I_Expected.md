@@ -32,7 +32,7 @@ Uncle Jerry chuckled. “You’re a smart kid.”
 
 Uncle Jerry was lying. He didn’t think Dad was lucky at all. I could hear his tone turn somber on that last sentence. “Do you hate Mom, Uncle?”
 
-Uncle Jerry’s mouth fell open slightly; then he smacked his lips awkwardly and shifted his attention to the television in the dining area. “Maybe ‘hate’ isn’t the word. Some things can’t just be seen in black and white. You just have to understand. But…” “Maybe ‘hate’ isn’t the right word. Some things can’t just be seen in black and white. You just have to understand. But…” His brows furrowed. He didn’t hate Mom; he was angry with her. That was a different feeling.
+Uncle Jerry’s mouth fell open slightly; then he smacked his lips awkwardly and shifted his attention to the television in the dining area. “Maybe ‘hate’ isn’t the right word. Some things can’t just be seen in black and white. You just have to understand. But…” His brows furrowed. He didn’t hate Mom; he was angry with her. That was a different feeling.
 
 He cleared his throat before slurping down the rest of his iced tea—so fast he started to choke. “H-hurry up and finish your meal. If we stay out here too long, your parents might get worried.”
 
