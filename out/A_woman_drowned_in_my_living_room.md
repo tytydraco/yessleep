@@ -190,7 +190,7 @@ We pulled into the driveway around nightfall. Juniper scampered out of the vehic
 
 I was taken aback. Wasn’t like him to ask for my opinion so sincerely. 
 
-*“She’s been so quiet,”* he went on, *“not her normal quiet, where you can tell she’s deep in thought or daydreaming. Doesn’t seem like she’s upset, either. She just seemed…I don’t know. I can’t put my finger on it.”* 
+*“She’s been quiet,”* he went on, *“not her normal quiet, where you can tell she’s deep in thought or daydreaming. Doesn’t seem like she’s upset, either. She just seemed…I don’t know. I can’t put my finger on it.”* 
 
 Patiently, he waited. 
 

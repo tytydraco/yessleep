@@ -1,0 +1,28 @@
+I grew up in a small town. The kind of place where everyone knows everyone and the biggest excitement is the annual high school football game. My house backed onto a pretty dense forest. We called it the Old Woods. It was just a regular forest filled with oaks and maples and the occasional deer. I spent my whole childhood exploring it. Building forts climbing trees. It was my backyard playground.
+
+  
+Now I'm thirty-two. I moved away for college then for work but I came back last year when my mom got sick. She passed a few months ago and I've been staying in the old house. It's quiet. Too quiet sometimes. The forest is still there of course a familiar dark line behind the backyard fence. But it's not the same.
+
+  
+I noticed it first about a month ago. I was out walking my dog Buster a scruffy terrier mix. He loves sniffing around the edge of the woods. Usually he'd dart in for a bit then come trotting back out. But that day he stopped. He stood there rigid staring into the trees. His hackles were up and a low growl rumbled in his chest. I called him but he wouldn't move. He just kept staring. After a minute or two he whined and backed away. Not slowly. More like he was being pulled. He pressed against my leg trembling. I didn't see anything unusual. Just trees.
+
+  
+I thought maybe he'd seen a coyote or something. He's always been a bit skittish around wildlife. But the way he reacted it was different. Like he was seeing something I couldn't.
+
+  
+A few days later I was out in the yard doing some gardening. I looked up and saw something new. A tree. It was taller than any of the other trees in the Old Woods. Its bark was a strange dark grey almost black and it had no leaves. Just bare branches reaching up like skeletal fingers. I'd never seen it before. And I know that forest like the back of my hand. Every tree every path. This tree was alien.
+
+  
+I tried to shrug it off. Maybe it was always there and I just never noticed. But I knew that wasn't true. I'd climbed almost every large tree in those woods. I would have remembered that one. It was too striking too different.
+
+  
+Over the past few weeks more of them have appeared. These tall leafless grey trees. They're slowly spreading. Like a disease. They don't look healthy. They look like they're sucking the life out of the forest around them. The regular trees near them seem to be wilting. Their leaves are turning brown and falling off even though it's still early autumn.
+
+  
+I've tried walking into the woods a couple of times. Just to see. To get a closer look. But every time I get near those grey trees a feeling of intense dread washes over me. It's not fear exactly. More like a deep primal warning. My body just screams at me to turn back. Buster refuses to go anywhere near them. He'll dig his heels in and pull away yelping.
+
+  
+Last night I couldn't sleep. I kept thinking about those trees. I got up and looked out the window into the backyard. It was a clear night. The moon was full and bright. I could see the forest silhouetted against the sky. And I saw them. More grey trees. They seemed to have grown even taller. Their bare branches swayed in a breeze that I couldn't feel from inside the house. And it almost looked like they were moving. Not just swaying. But like they were slowly reaching. Stretching towards my house.
+
+  
+I know it sounds crazy. I know it does. But it feels like the forest is changing. Like something is taking it over. And whatever it is it's not natural. It's not part of the Old Woods I remember. And it's getting closer. Every day a little closer. I don't know what to do. I don't know who to tell. They'll just think I'm crazy or grieving. But I know what I'm seeing. And it scares me more than anything ever has. I feel like I'm watching my childhood disappear swallowed up by something alien and hostile. And I'm starting to wonder if it's going to stop at the edge of my backyard. Or if one morning I'll wake up and one of those grey trees will be standing right outside my window. Reaching.
