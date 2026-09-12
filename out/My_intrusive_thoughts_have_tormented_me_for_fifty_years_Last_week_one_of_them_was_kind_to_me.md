@@ -1,5 +1,3 @@
-My intrusive thoughts have tormented me for fifty years. Last week, one of them was kind to me.
-
 On Monday, Day One, if you're counting, and I'm always counting, I closed my front door. My front door takes three. Bolt, chain, then my palm flat against the wood. I know the palm part doesn't do anything. I do it anyway, because three is the number that lets me walk away from the door. On bad mornings three isn't enough and it turns into nine, and nine is why I missed the 7:40 bus again this morning and clocked in eleven minutes late.
 
 Eleven minutes was enough. My supervisor handed me a final written warning at lunch. Twenty-two years counting stock at the same warehouse, and here's the joke: the thing that made me good at that job is that I check everything three times. The thing that's getting me fired is that three keeps turning into nine.

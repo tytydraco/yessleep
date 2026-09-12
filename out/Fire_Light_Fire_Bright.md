@@ -1,75 +1,91 @@
-Weird shit happens in the forests of upper Oregon. Especially in the sweet spot between Mount Hood and Adams. The forests are dense and when you’re in the thick of it, it’s easy to imagine strange things stalking those woodlands.
+I eased my bleached green van into the lot above Wahtum Lake. I put it in park, killed the engine, then leaned over and punched the glove box open. The contents spilled onto my passenger seat: wadded receipts, unpaid traffic tickets from several states, sleeping pills, and crumpled notepaper with poorly scrawled letters to friends and family. I picked through the mess for my pre-rolled joints and lit up. Beneath the junk lay the carefully preserved get-well-soon card, tucked into the lip of its powder blue envelope.
 
-I spent my summer traveling the state, fishing and living out of my van, but now I was back on the road home. I wasn’t in a rush. College started in a week, so I could spare a couple of days and decided on an impromptu camping trip at this cozy little horse camp near Wahtum Lake, about an hour from my hometown. High enough in elevation, the light pollution of Portland didn’t reach you. And as dark a night sky as you could want. Perfect for stargazing and during the day I could get in some last-minute fishing at the lake. It’s a good lake for trout.
+I took another hit and opened the card. I’d played this scene out too many times. Even though I already knew the ending, the twist still hit hard.
 
-I woke up before dawn, fixed a quick breakfast and a thermos of coffee, then started my hike to Wahtum lake’s parking lot.
+She didn’t mince words. Maybe that’s what bothered me the most.
 
-The place was a wreck. Trees stripped of bark, their branches strewn across the lot, the trailhead marker lay on its side, the post still connected to the concrete base.
+‘Sorry about the health issues. I think we should see other people.’
 
-I considered the debarked trees, thumbing the buttoned pouch that held my bear spray. Suddenly, I wasn’t too keen on the fishing trip. But this seemed less like a bear and more like the work of drunk teens. So I continued down the trail.
+I read them again. The words made my chest itchy. So, I scratched it, my fingers brushing the plastic monitor over my heart.
 
-A small stream carved its home along the center of the path, causing the log steps to bloat and rot from months of soaking in water. I stepped carefully; a punky log could lead to a broken ankle.
+I took another hit and blew the smoke directly at the card. *Fuck her then,* I thought, not meaning it enough to say it out loud. I snubbed out the cherry and popped what was left into my pocket, along with a handful of pills, my lighter, and a bottle of whiskey, which I shoved into my daypack. I didn’t bother locking the van.
 
-Eventually, the stream overtook the trail, and I hiked along its edge until it flattened out into a massive puddle. From there, a series of switchbacks eased you down to the edge of the lake where a widowmaker had fallen, connecting the mainland to a small island.
+It was shaping up to be a real burner. It usually was this time of year. Sometimes you get a decent breeze, but today I wasn’t that lucky.
 
-I crawled halfway out onto the tree and cast my line into the water and listened to the splash of a trout jumping for low-flying bugs echo across the lake.
+Densely packed fir trees, ferns, and chokecherries surrounded the trail. Specks of light forced their way through ancient branches and dotted the ground like flecks of gold. Birds chirped and flitted above me. Somewhere, a chipmunk barked.
 
-By the time the sky turned pink I’d caught my limit, plus two extra. *No one else around, why not?* I thought.
+A stream carved a channel down the center of the path, forcing me to bushwhack my way down to the lake.
 
-A whistle cut across the water followed by the *whoosh* of a rock missing my head and ricocheting off the wood.
+At the water’s edge was a widowmaker, its broken branches stretching over the lake. I crawled halfway out onto the smooth trunk of the tree and took off my pack. The view was perfect, as a picture. Steam swirled in thin, lazy wisps off the water as the sun warmed it. Low-flying bugs hovered like drunk airplane pilots, and occasionally one dipped low enough for a jumping trout to gobble it up, its splash echoing across the lake.
 
-From the other side of the lake, I could make out the vague shape of someone amongst the pines.
+I stayed that way, lost in my thoughts, building up my courage to do the thing I’d come here to do.
 
-The second rock struck the water, showering me in cold spray. I scrambled towards the shore, slipping on the tree's wet moss. The third caught my ankle, and I fell into the water. Another rock flew past, and the figure whistled again.
+The letter replayed in my mind. Such harsh, short words from someone who always sent loving texts a paragraph long. I wondered what changed. My fingers traced the edge of the heart monitor, and a tightness formed in my chest.
 
-By the time I reached the shore; it was gone. My shoe felt tight and I could tell my foot was swelling. I decided it was time to leave. I needed to get back to camp.
+I fished the pills out of my pocket and popped a handful in my mouth, too many to swallow, so I chewed and choked them down with three healthy plugs of the whiskey from my pack, leaving me coughing. The alcohol burned good in my stomach. I took another gulp. Then leaned back on the old tree. In the fading light, the darkening forest cut a saw-tooth pattern along the edges of a rich sherbet-orange sky. I admired the beauty one last time.
 
-My ankle made walking hard and darkness came quicker than I expected. At some point the stream forked, and after a while of hiking I lost the trail, instead following a second stream. One I didn’t notice on the way down.
+It didn’t take long. My breathing slowed, and my thoughts turned fuzzy. I didn’t move; I couldn’t. A two-ton blanket of drowsiness draped over my body, covering me in an overwhelming sense of relaxation. I smiled and closed my eyes.
 
-I tried backtracking, but in the dark, it was impossible and my ankle hurt more with every step. A short distance from the stream was a small clearing, and I figured this was a good place for a makeshift camp. Besides, I needed to see the damage to my ankle.
+A whistle cut through the air, echoing across the water. My eyes took their time to open on a bleary, watercolor world. Smoky shapes of orange and green mixed with dark blots of ink. I stared at the far side of the lake, and the forest shadows stared back. I exhaled, and my lids dropped. Curtains. Then someone whistled again.
 
-At the center of the clearing were two large rocks sandwiched together, so the middle created a cubbyhole. Perfect.
+I whistled back. From the darkness came a horrible, whooping howl. The brain fog lifted; my world refocused, crystal clear. Above me, the sky filled with a flurry of wings and squawking.
 
-I collected some firewood from the nearby logs, and soon I had a campfire. I removed my shoe and examined my foot, which nearly doubled in size from the swelling. This was bad. I wasn’t going anywhere tonight. I tried to rest despite the pain.
+A rock sailed through the air, landing in the water with a splash. A second cracked against the widowmaker. The jolt shook my pack from the tree and knocked the whiskey from my hand. Both tumbled into the drink. I scrambled to my feet, stumbled, and fell, introducing the ground to my chin. A pop of light, followed by darkness, and a second later I realized I was on my stomach. I stood, but the pain in my ankle knocked me back on my ass. I pulled my sock down, revealing the round purple plum connecting my leg to my foot.
 
-The night passed slowly, but I felt safe tucked in my crevice and sheltered from the dark by my campfire. It was the best I could hope for.
+Another whistle echoed from the other side of the lake.
 
-Then, a strange knock, knock sound echoed from deep within the woods. The sound came again, closer this time. A wooden, rhythmic knock, knock.
+This time when I stood, I favored my left side. It made standing easier, but the moment my right foot touched earth, fire danced up my calf.
 
-I pushed myself deeper into the crevice and stared into the forest. It’s nothing, I told myself; normal woody sounds, like the creaks and groans of a house settling — just normal sounds.
+I pushed through the pain and made my way towards the woods, fighting drowsiness. If it wasn’t for the big hurt in my foot, I’d be losing the war.
 
-Suddenly, a howl erupted from the darkness. My stomach tightened. That was not a normal woody sound.
+Above me, the daylight was burning out and night was settling in. I made my way through the forest in the direction I thought the trail was, but it never materialized. Things were getting hard to see, and what I could see didn’t look familiar. I knew I was lost.
 
-Before long, the knock-knocks were even closer. Bushes rustled, branches cracked, and something massive moved through the dark. I strained to see beyond the firelight.
+I stumbled over a downed log and took a rolling dive through branches that grabbed at my skin until I’d flipped myself into a small clearing. At the center was a collection of rocks that jutted out at an angle so you could squeeze beneath them and sit. I hobbled my way over and, as I did, grabbed as many branches and sticks as I could carry. Luckily, the place was full of them. With my arms full of wood and plenty more within reach, I settled into the cubbyhole and fished the lighter from my pocket.
 
-Something grunted from deep within the woods. A wet burble sound. I fumbled for the pepper spray, thumbing at the button on the pouch, and found it empty. I must’ve lost it when I took my spill into the drink earlier in the day.
+It didn’t take long to get the flames burning strong. I carefully removed my shoe and examined my ankle. The plum color traveled down my now swollen foot. I gently poked it. The skin was soft and mushy, and a pop of hot pain flared beneath my finger. I yanked my hand back.
 
-The bushes parted, and a large dark mass emerged, stepping from the brush into the light of my fire to sit down, resting on the balls of its large, flat feet. Its body was a hunched shaggy mass of dark matted hair and mud in the shape of a large ape. The mouth hung open. Its limp lips were thick and pockmarked like an old denim jacket. It stunk to high heaven. The smell hit me like a punch to the gut.
+The day’s heat carried into the night. I tugged at the collar of my shirt with the grace of a newborn. The warmth of the fire filled the already hot indentation, and I’d begun to sweat. I leaned against the rock and exhaled, then closed my eyes.
 
-We stared at each other. It looked from me to the fire, then back. Its mouth flapping silently, like it was talking to itself, trying to work something out, mulling a thought around in its brain.
+A wooden, rhythmic knocking echoed from deep within the darkness. I snapped awake. The woods were silent. Even the crickets stopped chirping. I pulled my legs close to me.
 
-We continued our staring contest, and then its lips pulled back into a smile and I realized what had happened. I let the fire die.
+*Knock, knock, knock.*
 
-It reached for me.
+A stick cracked against my rock shelter, right above my head. Then another. And another. Sticks flew from the edge of the treeline, striking me and my fire, sending showers of sparks into the air. They broke against the jagged rock of my cubbyhole. I raised my arms to shield my face.
 
-I grabbed a log from the pile and threw it on the fire in a shower of sparks. The ape yelped, then sat back.
+“Leave me alone!”
 
-I side-eyed the wood laying beside me. There wasn’t much left, maybe a couple of hours.
+The sticks stopped.
 
-Then the creature looked at my pile of wood, grunting and bobbing its head. Our eyes met again, and I knew we were thinking the same thing.
+I strained to see past the fire, but could only make out a world of soft shapes. Smudges of firelight danced across tall organic pillars of pine. I rubbed my eyes, hoping to clear my vision. But it did nothing to combat the growing effects of the drugs.
 
-The staring contest continued. The ape reached for me whenever the fire died, and I’d throw on more wood. He’d sit and wait and watch.
+Through the haze, my eyes caught the movement of a huge, lumbering shape right at the edge of the darkness. It paced back and forth before it stopped in front of me. A mass of shaggy hair stepped out of the darkness, not quite a man; its body too big and limbs too long. A musky, sour, sweet stench of wet hair and damp, mildewed earth hung over it like a wet blanket, forcing me to breathe through my mouth to keep my stomach from emptying.
 
-Before long, the fire dimmed again, and I reached for wood but felt dirt. I used it all. The ape noticed, and that big smile returned. The jig was up.
+Tremors traveled down my arms to my fingers. I pressed my hands to my chest, trying my best to fight the shakes, but fighting only made them worse.
 
-In an instant, it grabbed for me. I Panicked and snatched my backpack, flinging it on the fire. The fabric caught, and the flames blazed high. The ape howled, huffing and slapping its hands on the ground. Then settled back on its haunches.
+It settled into a sitting position across from me, resting on the pads of its feet, its palms on the ground. The thing's inky, wet eyes fixed on me with a casual intensity. The firelight flickered in those sunken pools. Drool dripped from the tip of its thick, pockmarked lips; its mouth flapped silently, like it were talking to itself, trying to work something out.
 
-Pretty soon, I had burned everything but my underwear. I was cold, tired and my eyes felt heavy. I fought to shake the sleep off, but couldn’t. After a while, I’d doze off again, then jerk awake seconds later. As the fire grew weaker, my eyes closed for longer and soon I fell asleep.
+We stared at each other. Neither of us looked away. I rubbed my bleary eyes. My head dipped, then I snapped awake with a startled yell. I saw the dwindling fire. My eyes darted from the glowing embers to the creature; its lips pulled back into a smile.
 
-That morning, two kids from the trail repair team found me. They’d snuck off for a recreational smoke and stumbled across my body. I was barely conscious and suffering from hypothermia.
+In an instant, it grabbed me. The tips of its fingers caught my collar and yanked me forward. My hands scrabbled for a handful of tree branches. I threw them on the fire. Sparks exploded into the air, landing on the thing’s arm. It yelped and let go. The thing huffed and slapped its hands against the ground, then rocked back on its haunches into a comfortable sitting position. Its gaze drifted from me to the fire before settling on my pile of wood. The thing grunted and bobbed its head. Then settled its cold stare back on me, our eyes locked in a mutual understanding.
 
-They brought the crew lead, who came with a thermos of coffee, and the kids let me have their bag lunches, which was nice of them.
+Whenever the fire died, the creature reached for me, and I’d throw more wood on the fire. Then he’d settle back on his haunches and wait.
 
-During our drive to the hospital, I told him my story, but he chalked it up to paranoia and hallucinations and suggested I don’t tell the doctor.
+I couldn’t keep this up. No matter how hard I tried to fight, I knew I wouldn’t make it through the night. Either I’d run out of wood or succumb to my suicide concoction. In the end, the result was the same.
 
-Weird shit happens in the forests of upper Oregon; strange things live deep within the woods. I still fish in Wahtum Lake, but when I hear the knock-knock sounds, I know it’s time to pack up and leave.
+“Please,” I said. A series of shakes wracked my body as I choked out the last bit. “I don’t want to die.”
+
+I looked into the creature’s doll-like eyes and spoke again, slower, praying it somehow understood me. “I don’t want to die.”
+
+It didn’t respond. I slumped back against the stone wall and cried while it watched.
+
+The night continued, and my eyelids were heavy. My head dipped, snapped back up, then dipped again. Each time, my eyes closed for longer. Exhaustion draped itself over me, and my body grew heavy; my head sank between my knees.
+
+ 
+
+ 
+
+I bolted upright, my eyes blinded by the bright light. I raised my arm to shield my eyes from the sun. Birds chirped. Pine boughs rustled in a warm breeze as the heat of the day settled into the clearing. It would be another burner.
+
+Smoke from the fire, now white ash, drifted in thin, lazy arcs. I scrambled out of my cubbyhole. The pain in my ankle sang, and I fell to the ground. I stifled a yell and rolled back onto my ass. My heart pounded in my chest. I scanned the clearing. The creature was gone, my whiskey and day pack in its place, both still wet from when I’d lost them in the lake. My hand fumbled at my chest, brushing the heart monitor, but it didn’t register.
+
+“I’m alive.” And for the first time in a long time, I was thankful.
