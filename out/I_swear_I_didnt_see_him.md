@@ -1,18 +1,18 @@
-I don’t think anyone could have seen him. The blurry darkness taunts my sanity as my wipers screech against the pouring rain. His red sweater dances through my mind. Did I see him? It doesn’t matter. I should just keep driving. Keep driving and forget about it, right? He was old, probably. He was going to die soon anyway. 
+I don’t think anyone could have seen him. The blurry darkness taunts my sanity as my wipers screech against the pouring rain. His red sweater keeps flashing through my mind. Did I see him? It doesn’t matter. I should just keep driving. Keep driving and forget about it, right? He was old, probably. He was going to die soon anyway.
 
-The severed body consumes my thoughts. What if they find it and trace it back to my car? Does my car have damage? I slow down and pull over. The rain thumps against my car, mimicking the beating pulse in my ears. I press the button on my phone, but it’s still black.
+Then the thought hits me. What if someone saw me? What if they find him and trace him back to my car? I can’t lose everything over this. I slow to a stop, my pulse pounding in my ears. I press the button on my phone, but it’s still black.
 
 Dead. Great. 
 
-I grab my umbrella from the passenger seat and leave the safe haven of my car. The wind tears through me, nearly knocking me into the icy hell below. God, this sucks. 
+I grab my umbrella from the passenger seat and leave the safe haven of my car. A violent gust catches me off guard, nearly knocking me into the ditch below. God, this sucks. 
 
-The front of my 2014 blue sedan looks normal, I think, but that doesn’t mean much coming from a girl who doesn’t know what the L stands for in PRNDL. There are no streetlights on this road, just the black expanse of the backroad ahead of me and the pale moonlight judging me from above. I sigh before making my way in the direction of the unknown. The gravel crunches beneath my feet, each step a cold, wet nightmare. The wind blows the rain sideways, plastering my damp hair across my face. I keep my left hand clamped around the grip of the umbrella while my right is glued to my chest to keep me warm.
+The front of my sedan looks to be damage-free, I think, but that doesn’t mean much coming from a girl who doesn’t know what the L stands for in PRNDL. There are no streetlights on this road, just the black expanse of the backroad ahead of me and the pale moonlight judging me from above. I sigh before making my way in the direction of the unknown. The gravel crunches beneath my feet, each step a cold, wet nightmare. The wind blows the rain sideways, plastering my damp hair across my face. I keep my left hand clamped around the grip of the umbrella while my right is glued to my chest to keep me warm.
 
-The metallic, copper stench hits me before anything else as it sneaks into my nose uninvited. I stop cold, almost dropping the umbrella. His upper half lays unnaturally against the curb, his head sunken in and his arms bent backwards. Intestines drool from beneath his shirt like a maze of thick, slimy ropes. My stomach turns and I drop to my knees beside him. The rainwater drags the pink ribbons of my vomit down the storm drain. When I finally lift my head, my eyes land on his lower half, resting a few feet down the road. His blue denim jeans are soaked in red.  
+The metallic stench hits me before anything else as it sneaks into my nose uninvited. I stop cold, almost dropping the umbrella. His upper half lays unnaturally against the curb, his head sunken in and his arms bent backwards. Intestines drool from beneath his shirt like a maze of thick, slimy ropes. My stomach turns and I drop to my knees beside him. The rainwater drags the pink ribbons of my vomit down the storm drain. When I finally lift my head, my eyes land on his lower half, resting a few feet down the road. His blue denim jeans are soaked in red.
 
-Darkness swallows the road. No headlights, no cameras, no witnesses. Just me, the rain, and an unlucky man painted across the street. No one needs to know what happened. If I can get rid of this body, no one will ever know what happened. I scramble back to my feet and almost puke again. I step over to his upper torso, forcing myself to not look at his face. I reach down and grab underneath the wet fabric of his wool sweater. I pull up with all my strength. Nothing. The weight is dead, solid, and terrifyingly heavy. 
+Not a single set of headlights pierces the darkness. No cameras, no witnesses. Just me, the rain, and an unlucky man painted across the street. No one needs to know what happened. If I can get rid of this body, no one will ever know what happened. I step over to his upper torso, forcing myself not to look at his face. I reach down and grab underneath the wet fabric of his wool sweater, pulling up with all my strength. Nothing. The weight is dead, solid, and terrifyingly heavy.
 
-“Come on,” I sob under my breath and try again. This time, I drop the umbrella and strain my muscles forward, hoping to push him towards my car. “Come on—” 
+“Come on,” I sob under my breath and try again. This time, I drop the umbrella and strain my muscles forward, hoping to push him toward my car. “Come on—” 
 
 “I can help,” a deep voice echoes from behind me.
 
@@ -46,7 +46,7 @@ I contemplate lying, but decide not to. “Just… a party.”
 
 “Lily,” I interject.
 
-“Lily, you need me. You need me to help you, or you will be in a lot of trouble. Trouble that will haunt you for the rest of your life.”
+“Lily, I’m the only one who can help you now. Without me, you’re in a lot of trouble. Trouble that will haunt you for the rest of your life.”
 
 He steps directly under my umbrella, so close that I can feel the heat radiating off his skin. Slowly, he reaches out with his right hand and tucks a damp strand of blonde hair behind my ear, his knuckles brushing my cheek. “You’re… beautiful, Lily.” 
 
@@ -98,7 +98,7 @@ My thoughts wander. “What thing?” I ask nervously.
 
 I wait before responding. “My parents won’t buy it,” I mutter. I haven’t brought a boy home in years, and I’ve only ever done it once before. This would be so sudden and unexpected. 
 
-“Well it doesn’t really matter, because you have no choice, really. Do you want to go to prison, Lily?” he asks so matter-of-factly.
+“Well it doesn’t really matter, because you have no choice, really. Do you want to go to prison, Lily?” he asks with unsettling calm.
 
 I swallow hard. “No.”
 
@@ -132,7 +132,7 @@ I stay silent.
 
 I nod.
 
-“Oh, the community college right here?”
+“Oh, the university right here?”
 
 I nod.
 
@@ -148,7 +148,7 @@ We make a right turn toward my house. My parents’ house.
 
 “What’s your favorite food?”
 
-I don’t answer that one either and stare through the windshield.
+I keep my eyes on the windshield and say nothing.
 
 He laughs softly. “We'll work on that.”
 
@@ -172,7 +172,7 @@ My mom opens the door in her flannel pajamas, shielding her eyes from the porch 
 
 “Hey, Mom.”
 
-“Lily! Good lord, child, you’re drenched—” She stops short, her eyes darting from my dripping hair to the tall figure standing too close next to me. “Wait—who is this?”
+“Lily! Good lord, child, you’re drenched—” She stops short, her eyes darting from my dripping hair to the tall figure standing too close to me. “Wait—who is this?”
 
 “Sorry for not telling you, Mom,” I manage to say. “But this is… Evan. My boyfriend.”
 
@@ -216,9 +216,9 @@ I try to come up with a response, but it's hard. I want to yell and scream and c
 
 “We actually met in Chem Lab,” Evan says smoothly, his fingers tightening on my shoulder. “We were working on organic decomposition. Lily was a bit overwhelmed by the weight of the material, but I stepped in to help her carry the heavy load.”
 
-“Wow, such a gentleman,” my mom approves. “Well how was the party? Were you there as well Evan?”
+“Wow, such a gentleman,” my mom approves. “Well, how was the party? Were you there as well, Evan?”
 
-“Yeah, I was there! It was a fun time, as usual. We have a lot of mutual friends. Lily Rose here may have had too much fun.” He laughs. “So I decided to drive her home.”
+“Yeah, I was there! It was a fun time, as usual. We have a lot of mutual friends. Lily here may have had too much fun.” He laughs. “So I decided to drive her home.”
 
 I muster a smile. 
 
@@ -234,7 +234,7 @@ Her southern hospitality may be the death of me.
 
 “Oh, no, I shouldn't—”
 
-“Please, I insist,” my mom demands. “I'll get the couch ready for you.” She opens the nearby closet and finds the extra sheets and pillow. We stand up and allow her to make the bed. Evan graciously helps. 
+“Please, I insist,” my mom demands. “I'll get the couch ready for you.” She opens the nearby closet and finds the extra sheets and pillow. We stand up and allow her to make the bed. Evan graciously helps.
 
 “All right, good night, baby.” My dad hugs me and kisses me on the forehead. “I love you.” I hold onto the hug a little longer than normal. I can't look him in the eyes. “Good night, love you too,” I say.
 
@@ -250,11 +250,13 @@ They disappear upstairs, and it becomes quiet again. Evan looks at me in satisfa
 
 “Don't worry about it, Lily, I'll handle it.” He walks closer to me and tries to hold both of my hands. I back away and don’t let him. He takes a step forward and grabs me around the waist. His stubble brushes my skin. “Good night, baby,” he whispers. He grabs my face, tilts it down, and gently kisses me on the forehead. “I love you.”
 
-I'm startled and push him away. I need to leave and get to my room. I run up the stairs into my bedroom and don't look back. My body is tired, but my mind is racing. I collapse on my bed in the pitch black darkness. I don't have the energy to change out of my damp clothes, but I pull the covers over me. Underneath my covers, I am safe. Underneath my covers, no one can hurt me. The only thing I can do right now is sleep. Sleep and deal with it tomorrow. Sleep and deal with it… tomorrow. Yeah that works. It isn't long before the darkness consumes me.
+I'm startled and shove him away. I need to get upstairs. I need to get to my room. I race up the stairs and don't look back. My body is exhausted, but my mind won’t stop racing. I collapse onto my bed in the pitch-black darkness. I don't have the energy to change out of my damp clothes, so I pull the covers over me. Underneath my covers, I am safe. Underneath my covers, no one can hurt me. The only thing I can do right now is sleep. Sleep and deal with it tomorrow. Sleep and deal with it… tomorrow. Yeah. That works.
 
-Some time later, the hallway floorboard groans and I jolt awake. It's still dark, and I hear the brass doorknob of my bedroom door carefully turn. There’s no rush to it, just the slow mechanical click of the latch releasing. A silhouette drifts through the doorway without making a sound. The door is shut again and the room slips back to darkness. 
+It isn't long before the darkness consumes me.
 
-It's only a few seconds later before I feel him in the bed with me. His warm hands slide slowly across my lower back. I hold my breath. Every nerve in my body is screaming at me to slam my heel into his knee, to yell until my vocal cords tear. But my muscles refuse to move. The memory of his hand crushing my windpipe on the side of the road holds me completely still. I lie there in the dark, paralyzed. I don't know what he's going to do next. I don't want to know. He grabs my hair, tilting my head back. I notice the moonlight illuminating my pink clock on the wall. I focus all my attention on the second hand, watching it slowly stutter in a circle.
+Some time later, the hallway floorboard groans and I jolt awake. It's still dark, and I hear the brass doorknob of my bedroom carefully turn. There’s no rush to it, just the slow mechanical click of the latch releasing. A silhouette drifts through the doorway without making a sound. The door closes with a soft click, and the room slips back to darkness.
+
+It's only a few seconds later before I feel him in the bed with me. His warm hands slide slowly across my lower back. I hold my breath. Every nerve in my body is screaming at me to slam my heel into his knee, to yell until my vocal cords tear. But my muscles refuse to move. The memory of his hand crushing my windpipe on the side of the road holds me completely still. I lie there in the dark, paralyzed. I don't know what he's going to do next. I don't want to know. He grabs my hair, tilting my head back. I notice the moonlight illuminating my clock on the wall. I focus all my attention on the second hand, watching it slowly stutter in a circle.
 
 Tick. Tock. Tick. Tock. Tick. Tock.
 
@@ -262,7 +264,7 @@ Tick. Tock. Tick. Tock. Tick. Tock.
 
 Saturday morning light hits my eyes like a punch to the face. My eyes are open, but I'm still sleeping. Still mentally dead. My body aches and my skin feels sticky. For a second, I convince myself that last night was just a liquor-fueled nightmare. I shift over to the left side of the bed and it's cold. Was it?
 
-I sit up and listen to my surroundings but don't hear anything. I almost puke as I smell the sweat-alcohol concoction emanating from my skin. I want to shower, but I don't have time. What happens today will impact me for the rest of my life. For worse or even worse. I run downstairs and head in the direction of a strong smell.
+I sit up and listen to my surroundings but don't hear anything. I almost vomit as I smell the sweat-alcohol concoction emanating from my skin. I want to shower, but I don't have time. What happens today will impact me for the rest of my life. For worse or even worse. I run downstairs and head in the direction of a strong smell.
 
 “Good morning, sleepy head,” my mom announces as I enter the kitchen. “Evan cooked us breakfast! Quick, grab some before it’s gone!”
 
@@ -306,7 +308,7 @@ The door latch clicks. It’s Evan. He closes the door behind him.
 
 “Baby, what’s wrong?”
 
-“Stop it,” I sob, turning to face him, tears spilling over. “Where is the body? Is it gone?” 
+“Stop it,” I sob, turning to face him, tears spilling over. “Where is the body? Is it gone?”
 
 He looks at me, his eyes bright.
 
@@ -317,5 +319,7 @@ I think about how the sausage tasted. My chest tightens. The room tilts. “Did 
 A slow, wide smile spreads across Evan’s face.
 
 “Oh no, baby, that was just a finger,” he laughs.
+
+He places both his hands lovingly on my belly before continuing.
 
 “We’re going to be together for a very… very… very… long time.”
