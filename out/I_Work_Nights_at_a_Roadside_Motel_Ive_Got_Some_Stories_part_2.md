@@ -1,0 +1,210 @@
+Hey everybody,
+
+I’m almost done for the night and figured I would give you all a recap. I have to say, tonight’s shift has been rough. Things started pretty much from the word go. Almost immediately after I clocked in, Gary came in and needed my help.
+
+The motel is old and understandably has old motel problems. A couple of customers on the second floor reported that their rooms were having electrical problems. Gary and I went up to check them out. Room sixteen had multiple outlets not working and room fifteen’s lights were constantly flickering on and off so we went to go check the breaker box.
+
+This motel has a long, hidden maintenance corridor with an entrance beside the elevator on each floor. It has always creeped me out and unfortunately, that’s where the breaker box was.
+
+Gary started going down the list of room numbers on the panel while I held the light. He paused on an old, handwritten fourteen.
+
+“What?” I asked.
+
+Gary looked at me, “What?”
+
+“You stopped.”
+
+“I’m old. I stop sometimes.”
+
+And he went right back to work.
+
+When we came out of the corridor though, there was a five-year-old standing there at the end of the hall. His parents weren’t anywhere around. Gary and I walked up to the kid and asked what he was doing out in the hall.
+
+“I don’t know,” he said.
+
+We walked him back to the front office and tried to figure out what the hell this kid was doing out this late. He said he didn’t remember anything aside from coming to while standing out in the hall. I asked what room number he was in and looked up the reservation. The room was registered to Ms. Simmons so I picked up the phone and gave her a call.
+
+“He…hello?” she said, obviously just waking up.
+
+“Ms. Simmons, this is the front desk. Do you have a son?”
+
+“Yes. Why?”
+
+“Well Ms. Simmons, we found him standing out in the hallway. He’s in the front office with us now.”
+
+“Wait, what? No he isn’t. He’s in the bed next to mine.”
+
+“No ma’am. He’s right…” and I stopped. When I turned, the kid was no longer there.
+
+I started to frantically search the office while Gary went into the back room. Nothing. I had Ms. Simmons stay on the line while we searched. She turned on the light and confirmed that he was still in bed. What she said next is what really stuck with me though.
+
+“He says he knows you.”
+
+“What?”
+
+“My son. He said you brought him downstairs.”
+
+I told Gary what she said and he just stood there.
+
+“Did you hear what I just told you?”
+
+“Yep.”
+
+“Any ideas?”
+
+“Nope.”
+
+We asked if we could come up to the room and she said yes. When she opened the door, there he was. Same kid. Same pajamas. He just stared at Gary and me. We just told them both to have a good night and walked back to the front office. Neither of us said a word.
+
+Things stayed quiet for about an hour after that until Kevin came in.
+
+Kevin is a regular of ours. He travels a lot for work and about once a week he comes and stays with us. He’s an alright guy. We usually bullshit for about ten minutes when he checks in before he heads up to his room. He asked how things were going and I explained the electrical problems we were  
+having.
+
+“Still haven’t fixed that, huh?”
+
+“Yeah. It’s an old building man, you know how it is.”
+
+“Yeah. Used to happen all the time back when it was called the Fredmont.”
+
+I hadn’t ever heard that name. About that time, Gary came out.
+
+“Haven’t heard anybody call it that in a long time,” Gary said, coming out of the back.
+
+“What the hell is the Fredmont?”
+
+Gary stopped.
+
+“This place.”
+
+“Since when?”
+
+“Long time ago.”
+
+Kevin laughed. “See? Told you.”
+
+“How long ago?”
+
+Gary shrugged. “Before you worked here.”
+
+They chatted for a bit longer and then Kevin headed up to his room. He called the front desk about 45 minutes later. He claimed that he couldn’t sleep because there was a group of people talking out in front of his door. I checked the security cameras and there wasn’t anyone standing there. Twenty minutes later, he called again with the same complaint.
+
+“Kevin, there isn’t anyone there.”
+
+“Yes there is, I can hear them.”
+
+“I’m looking at the camera right now and don’t see anyone.”
+
+“Well they just said my name.”
+
+“What did they say?”
+
+“Just my name.”
+
+“What about it?”
+
+“Hold on.”
+
+He went quiet for a few seconds.
+
+“Kevin?”
+
+“They're talking about me.”
+
+He then went on to explain that apparently they knew what car he drove, that he came there all the time, his entire routine. I figured I should go up there and check things out. When I got up to the room, I still didn’t see anyone there but I knocked on his door.
+
+He let me in and we talked for a couple of minutes. I was just about to leave when I heard footsteps coming down the hall that seemed to stop outside his door.
+
+“There! You hear them? They’re talking again.”
+
+I didn’t hear anything, just the footsteps. Kevin suddenly stopped talking.
+
+“What?”
+
+He didn't answer.
+
+“Kevin?”
+
+He looked at me.
+
+“They're talking about you now.”
+
+“What are they saying?”
+
+Kevin looked at the door.
+
+“They're trying to figure out which one of us is going to open it.”
+
+Neither of us did. We just stood there for about five  
+minutes. I still couldn’t hear anyone talking. I worked up the courage to look through the peephole but I didn’t see anything. When I finally opened the door,  
+still nothing. Just an empty hallway. I told Kevin goodnight and walked back down to the office. I wanted to tell Gary what happened but he was out back dealing with Richard.
+
+He walked back into the office about fifteen minutes later but before I could get the story out, the phone rang. It was Kevin’s room.
+
+“Are they back, Kevin?”
+
+“No.”
+
+“Then what’s up?”
+
+“They’re heading downstairs.”
+
+I looked at Gary, who instinctively locked the front door. We waited for a while but no one ever came.
+
+A couple of hours later, I woke up to knocking on the front door. Apparently, Gary never unlocked it. An old lanky man walked into the front asking for a room. I tried not to draw attention to how strange he looked.
+
+The man was pale and gaunt. He looked like someone had put a suit on a corpse. He spoke slowly and deliberately and asked for a room for the night, his long fingers stretched out with his ID in hand. He stared at me constantly while I punched his information into the computer.
+
+“How many guests?” I asked.
+
+“One.”
+
+“Okay, just one.”
+
+“For now.”
+
+To be honest, he creeped me out but the ID was normal and the credit card worked, so I handed him a key and he slowly walked out. I walked back over and locked the door again. Immediately I went back to the cameras.
+
+I watched as this guy grabbed bag after bag from his car. Way too many bags for one walking corpse. I must have watched for thirty minutes before I had to stop and go to the bathroom. I was startled when I came out of the bathroom to see him, standing outside the door looking in. I walked over and unlocked the door.
+
+“Yes sir?”
+
+“Another key, please.”
+
+“You need another key?”
+
+“Yes.”
+
+And that’s when this tiny, bubbly lady came into the office. She was his daughter. Her plane had been delayed, and she had just arrived. Apparently, they were supposed to go on a road trip together after he picked her up. Due to the delay, he got a room since we’re not that far from the airport and she took a cab here after she landed.
+
+So yeah. Turns out he wasn't a walking corpse coming to collect another victim. He was just a weird-looking dad who apparently packed enough luggage for a six-month expedition.
+
+I felt a little bad about locking him out twice.
+
+The last incident made me question whether a somewhat above minimum wage job is worth it.
+
+Around 5 a.m., I got another call about the electricity in a different room. Gary had gone home for the night, so it was just me. I really didn’t want to go back into the corridor but can’t exactly tell the customer to get over their fan and AC not working either. I turned on my phone’s flashlight and willed my way into the corridor.
+
+I got down to the breaker box and flipped the breaker for the room when I heard the entry door open and close again.
+
+Now, that door can only be opened with a key, and I was the only employee here. I hoped I had just been hearing things. Just then I started to hear footsteps approaching me from the door.
+
+I turned and aimed my flashlight down towards the entrance. There wasn’t anyone there. I walked towards the entry when I heard the footsteps again.
+
+This time, they were at the other end of the corridor, but they were closer. I turned again, still nothing.
+
+Then they came from near the entrance again.
+
+They were even closer now.
+
+Then once more from behind me.
+
+I didn’t wait to see what was going to happen next, I just took off running.
+
+When I did, the footsteps started running too.
+
+Both of them.
+
+I finally made it to the door and after fumbling with the knob, got it open. I slammed the door behind me, bracing for some type of impact or something. Nothing. No monster trying the handle. No knocking on the door. No footsteps or voices. Just silence and the sound of my breathing filling the hallway. I got back to the front office and locked the door again.
+
+I have been sitting at the desk since then and the morning guy just showed up. He can deal with the damn electricity himself.
