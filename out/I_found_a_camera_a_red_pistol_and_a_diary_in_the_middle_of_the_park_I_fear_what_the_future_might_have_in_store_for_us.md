@@ -1,0 +1,115 @@
+Me llamo Adam, pero no voy a meterme en una introducción larga porque no tiene nada que ver con por qué estoy publicando en este foro; mejor te cuento lo más extraño que me ha pasado en mis dieciocho años de vida.
+
+Estaba dando un paseo tranqui por el Parque La Molina cuando me encontré con tres cosas: un libro medio gastado y una cámara, aunque esa cámara no se parecía en nada a las que tenemos hoy; era algo más… futurista, digamos. Pero lo que más me llamó la atención fue una pistola roja; no parecía un arma convencional, tenía una forma más o menos esférica, como de una película.
+
+Decidí llevármelas a casa. Intenté encender la cámara, pero la batería estaba muerta; por suerte tenía un cargador que le quedaba, así que la conecté. Luego decidí leer el libro. Ese fue el momento en que mi curiosidad se convirtió en intriga por lo que estaba leyendo. Esto es lo que decía:
+
+4 de marzo de 2037. Acababa de salir de mi campamento para regresar a mi horrible realidad, saludado cada mañana, como siempre, por ese cielo gris. Todavía no podía creer que, solo hace diecisiete años, el cielo era un azul clarito; ahora era así: sin color, sin vida.
+
+Así era Lima ahora: un cielo hipergris lleno de nubes negras, edificios y casas en ruinas, sin ni un rastro de vida, y basura tirada por todos lados, ni hablar de la lluvia ácida que amenazaba con acabar con las pocas plantas que quedaban.
+
+Me puse mi traje protector; ya estaba listo para ir a la base de ese tipo, Ernesto. Por suerte, había logrado conseguir esa pistola roja.
+
+¿Y qué era esa pistola roja? Todavía no lo sabía, pero el hombre me había pedido que se la llevara, diciendo que sería vital para darle la vuelta al mundo. Yo dudé en ese momento, pero la plata que me ofreció fue suficiente para hacerme aceptar. Sí, una economía basada en el dinero es de las pocas cosas que sobrevivieron en este mundo, aunque, claro, yo no vivo en ninguna de las comunidades que quedan; soy lobo solitario.
+
+Encontré el arma en una casa abandonada. Tuve suerte de que no anduvieran por ahí esas… criaturas; lo único que me molestaba eran unas moscas de la fruta zumbando por el lugar, campantes.
+
+Ahora me estoy por ir. Espero tener suerte.
+
+…
+
+Logré llegar a la base de Ernesto, aunque no sin dificultad.
+
+En el camino tuve otro encontrón con esas criaturas, nacidas de la negligencia humana y la contaminación.
+
+Mientras caminaba, escuché un sonido como un aullido; saqué rápido mi escopeta y revisé los alrededores. Después empezó el sonido de pasos, no muy lejos: primero a la izquierda, luego a la derecha.
+
+Por fin, la bestia apareció detrás de mí. Por suerte, me di la vuelta y la maté antes de que pudiera alcanzarme. Era una cosa monstruosa medio esquelética, envuelta con tiras de papel y con dientes hechos de madera.
+
+Estas cosas—nacidas de desechos tóxicos y de algún proceso químico que todavía no termino de entender (tal vez un experimento fallido de esa "Corporación Oxford")—han aparecido desde que el aire se volvió difícil de respirar. Son la razón principal de que hoy queden tan pocos humanos en el planeta.
+
+Respiré hondo para calmarme después del golpe repentino.
+
+Seguí mi camino por la ciudad abandonada. Al final llegué a lo que antes fue Habich, el gran puente que antes le daba vida a la población de la zona. Ahora estaba desgastado, con una infraestructura peligrosamente frágil. Y del resto del lugar, aunque los edificios estaban sorprendentemente enteros, se sentía un ambiente fantasmagórico; no porque hubiera fantasmas de verdad, sino porque no quedaba ningún alma viva ahí, salvo Ernesto.
+
+Me dirigí a un edificio abandonado, que antes era un hotel pequeño. Vale la pena notar que Perú no es exactamente famoso por hoteles de lujo o icónicos, pero eso no le quitaba nada al horror de la escena: un lugar que antes ofrecía descanso se había convertido en un refugio de miedo, donde solo volaban moscas y otros insectos amantes de la basura, sin importarles nada; por alguna razón, los monstruos no los atacaban como atacaban a otras criaturas vivas del planeta.
+
+Estoy por entrar a su base; no voy a escribir más por ahora.
+
+…
+
+Now I’m going to tell you a little about Ernesto.
+
+Antes del apocalipsis, él era solo un mecánico normal, pero en su tiempo libre se dedicaba a construir robots y a innovar máquinas nuevas, como el robot que le sembraba cultivos, o el que cocinaba \*carapulcra\* (menciono ese plato en específico porque el robot no sabía cocinar nada más).
+
+Pero el momento clave no llegó hasta el 2020, cuando aparentemente descubrió un mensaje del futuro diciendo que la pandemia terminaría en 2021. Lo importante era esto: en vez de difundir la noticia, se dedicó a estudiar cómo era posible algo así. A mediados de ese año encontró una especie de gema que, increíblemente, le permitía viajar cinco minutos al pasado. No le dijo a nadie; tenía miedo de que el gobierno se la quitara y hiciera sus propios experimentos con eso, así que se lo guardó para él. No sé si esa fue la decisión correcta a largo plazo, pero con la ayuda de un amigo lograron encontrar la forma de aprovechar ese poder dentro de un componente. Cuando empezó el apocalipsis, supo que la necesitaba para intentar cambiar el futuro. ¿Recuerdas esa pistola roja? Bueno, ahora ya sabes por qué el hombre la estaba cargando.
+
+De vuelta en el presente, Ernesto me recibió con calidez; de verdad estaba feliz de que yo hubiera llegado, sabiendo que nadie más podía habérsela llevado.
+
+Ernesto agarró la pistola roja y la colocó sobre su mesa de trabajo. Ahí fue donde puso la gema.
+
+\-"A ver, dime," -le pregunté, -"¿por qué me pediste que te llevara esa pistola?"
+
+\-"Mira, esta pistola es la única que puede manejar y complementar la energía de esta gema, y es la única que puede desbloquear el poder del viaje en el tiempo"-dijo Ernesto
+
+\-"Ya, pero si es tan importante, ¿por qué en la tierra la dejaste en tu otra base?"
+
+\-"Porque no me imaginaba que iba a pasar todo esto, además, claro, soy medio despistado. Pero no importa; lo que importa es que podemos mandar un mensaje al pasado, esperando que la gente escuche y actúe."
+
+\-"¿Un mensaje?"
+
+\-"Un mensaje, o un vistazo, algo para que la gente sepa qué tiene que hacer para evitar que todo esto pase."
+
+Ernesto me pasó una cámara.
+
+\-"Cuando ya la tengas lista, tienes que ir al pasado y mostrar la evidencia a toda la gente que puedas, sería mejor si son personas con influencia. Pero acuérdate de tener cuidado al moverte por el pasado; si cambias aunque sea la cosa más mínima, podrías provocar eventos que ni te imaginas, y potencialmente causar problemas muchísimo peores que los que estamos enfrentando ahora."
+
+\-"¿Y yo tengo que hacer esto solo?" -le pregunté.
+
+\-"Estoy demasiado viejo para ir, y no tengo el estómago para enfrentarme a mi yo del pasado."
+
+\-"Solo acuérdate de tener cuidado con el arma; es un objeto delicado. Si se rompe, no podrás regresar al presente, y no es recomendable quedarse mucho tiempo en el pasado."
+
+\-"Está bien, lo tendré en mente."
+
+\-"Excelente. Parece que al final sí podríamos salir de esto victoriosos."
+
+Ahora estoy descansando un poco antes de salir para la misión, solo…
+
+…
+
+No puedo creerlo. Ernesto está muerto.
+
+Un temblor sacudió el lugar, ¿qué tipo de temblor? Era un monstruo enorme moviéndose por el piso de abajo; de repente aparecieron tentáculos hechos de metal y cuerda.
+
+\-"¡Tenemos que salir de aquí!"-grité.
+
+Ernesto sacó un dispositivo, como un taladro, y corrimos hacia las escaleras, pero uno de los tentáculos lo agarró.
+
+\-"¡Ernesto!"-grité.
+
+"Lleva mi arma, viaja al pasado y haz que todos mis amigos se enteren; hazlo," -dijo, arrojándome el taladro antes de que la criatura lo arrastrara por completo con sus tentáculos.
+
+Corrí directo hasta el piso de abajo, donde vi al monstruo responsable de todo: una bestia horrible y redonda, con ojos hechos de vidrio. Intentó atraparme, pero yo me fui corriendo hacia la parte de atrás del edificio, usé el taladro para romper la pared, y salí corriendo; uno de los tentáculos se enganchó con el taladro, así que lo solté para zafarme de las garras de la criatura.
+
+No me detuve hasta llegar a una mansión abandonada. Me quedo aquí un momento; quería desahogarme y ponerme a llorar, pero sabía que la misión en sí era lo más importante. Voy a empezar a grabar pronto para tener el mensaje listo antes de viajar al pasado; solo espero que no haya más sorpresas malas.
+
+…
+
+Ese fue el final de la entrada del diario. Me quedó la idea de que tal vez era una especie de broma, pero luego revisé la cámara y vi que ya estaba cargada, así que decidí echarle un vistazo; ni te imaginas el terror que sentí cuando vi lo que había en ella.
+
+El video mostraba la ciudad de Lima, sucia, abandonada y en un estado lamentable. El hombre hablaba de cómo la ciudad había terminado así y explicaba que lo mismo había pasado en todo el mundo; nos dijo que mucha gente había muerto, ya sea por la contaminación o a manos de monstruos.
+
+Por un momento, él mismo encendió la cámara; su cara se veía demacrada, parecía un hombre de mediana edad y tenía una cicatriz en la frente y una oreja ligeramente deformada.
+
+De pronto apareció detrás de él un monstruo delgado, moviéndose con patas rápidas, con brazos hechos de botellas de plástico, y se lanzó hacia él.
+
+El hombre tuvo que correr, pero la cámara seguía grabando; yo podía escuchar sus quejidos y los chillidos del monstruo. Era horrible, de esas cosas que aparecen en las pesadillas.
+
+Por los breves pedazos que alcancé a ver, parecía que el hombre se había refugiado en una casa abandonada. Dejó la cámara a un lado y yo podía ver clarito cómo cerraba la puerta y metía una parte de un mueble contra ella para mantener al monstruo fuera, antes de volver a levantar la cámara para ocultarse.
+
+Yo lo vi mientras el monstruo usaba sus garras para intentar entrar, sin lograr romper del todo, pero consiguiendo meter una parte de sí mismo adentro. Podía ver su piel, asquerosa y repulsiva, como si fuera la personificación viva de la basura. El hombre recargó su escopeta lo más silenciosamente posible, pero igual el monstruo lo detectó; aun así, alcanzó a disparar un tiro antes de que la criatura se lanzara.
+
+Parecía que ya había terminado. El hombre abrió el portal y estaba listo para saltar, pero justo cuando iba a apagar la cámara para ahorrar batería, un sonido, como un silbido, le llamó la atención. Se dio la vuelta con la cámara, y ahí, otra criatura oculta, con un pico hecho de tenedores y ojos como cáscaras de naranja en descomposición, se le fue encima y lo agarró por la cabeza. La cámara, el arma y el diario de su chaqueta cayeron por el portal, aterrizando en ese parque: el mismo parque de La Molina. Antes de que la cámara se apagara, captó a dos hombres conversando; uno de ellos, bien tranquilo, tiró su botella al suelo, y luego el registro se cortó.
+
+Lo vi todo con pánico; así que, ¿lo que acabo de ver era un mensaje del futuro? Ahora no sé qué hacer. Me da miedo que nadie me crea, pero sé que tengo que hacer algo pronto porque ya se está acabando el tiempo, y lo sé porque, esta mañana, se reportó que una corporación había creado un químico capaz de controlar células y formar una masa.
