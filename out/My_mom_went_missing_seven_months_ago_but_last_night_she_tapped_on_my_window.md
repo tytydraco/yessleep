@@ -1,0 +1,34 @@
+Look, if you ever take Route 9 out through eastern Kentucky, you’ll hit this dead stretch called Blackwood Ridge. It isn't on the GPS. No streetlights. Just one beat-up Shell station that cuts the pumps at six-thirty every evening.  
+At six-forty-five, the fire siren goes off. It screams for three minutes straight. If you live out there, you know the drill. Lock the deadbolts. Pull the heavy curtains shut. Kill the porch lights. Nobody stays outside past seven. Not in the winter.  
+I was sixteen when my dad finally made me get it. Mom had been gone seven months. Dad never talked about it. He just told folks she vanished when their truck broke down by the old county bus lot.  
+That night, I was running behind on my chores. Dad stood by the front door, staring at the digital stove clock. He told me to drop my stuff, lock every back window, and yank the thick curtains shut. I asked him why we needed the curtains if the doors were already locked.  
+He didn't yell. He just looked completely beat down. He told me the curtains weren't to keep things out. They were to keep us from looking out, talking to whatever walked up, or answering when they called your name. He said people had answered before. None of them were around anymore.  
+Around seven-fifteen, I was in the back den fixing a curtain rod.  
+Three knuckles tapped the glass.  
+I pulled the cloth back just an inch. My mom was standing right there in the gravel. Same faded flannel jacket she wore the day she went missing. She didn't look dead. She just looked worn out. She saw me, smiled, and asked why I was hiding from her.  
+My throat went dry. I asked through the glass how she was even there, since Dad told me she was dead. She gave this quiet laugh. She told me Dad lied because he was scared stiff. She said she just got lost in the woods, and she needed me to open the kitchen door right now because she was freezing.  
+I stopped thinking. I walked into the kitchen, threw the lock, and pulled the door wide open.  
+Nobody was there. Just freezing fog rolling over the floorboards, smelling like wet dirt and pine. I called out for her.  
+Before I could step onto the deck, the kitchen light clicked off. A hand clamped over my mouth and dragged me down behind the counter. Dad. His eyes were wide, teeth clenched, holding a finger to his lips. He reached up, pulled the door shut without a sound, and hauled me into the pantry, pulling that thick door shut behind us.  
+Right on the porch, her voice started up through the siding. Loud and sharp. She asked why I ran. She asked why Dad was keeping me from her. Then the doorknob started rattling hard, shaking the whole frame. Dad just shoved his hands over my ears. He told me to stare at the floor and keep my eyes shut till morning.  
+By six-thirty, the sun came up and the noise stopped. We checked the kitchen. Nothing. Not even wet footprints on the deck boards.  
+That afternoon, I couldn't sit in that house. I walked down to the Shell station. A guy named Bob was by the air pump, leaning on his Dodge Ram. Bob lived in a beaten-up trailer right across from that junked county bus sitting in the weeds.  
+Bob was giving the cashier hell, saying the seven o'clock siren was pure garbage made up by old folks. But then he saw me. He smirked. He brought up the night Mom went missing, pointing out my dad walked away without a scratch while Mom never came back.  
+That pissed me off. I followed him to his truck. I asked him straight out what he actually saw, since his trailer sits right in front of that rusted bus.  
+Bob stopped with his hand on the door handle. He chewed on a matchstick and looked at me. He said he saw the whole thing from his window. He said my folks were running for that bus around four in the morning in the pitch black. Dad got inside and pulled the doors shut. Mom stopped outside because a little girl was standing by the bumper, crying for help. Mom tried to walk the kid up the steps. But the kid looked up, stopped crying, and laughed. Seconds later, six things came out of the tree line.  
+Bob said they weren't animals, but they weren't people anymore either. Just folks who'd gone missing in the woods over the years. He said they tore her up right there in the dirt. But none of them could step foot on that bus. They spent the rest of the night slamming the yellow metal and screaming, but they couldn't cross the door line.  
+Right then, the siren started up. It was six-fifty. My place was two miles uphill. Bob swore, grabbed my coat, and shoved me into his truck. He told me if I ran for it, I’d be dead on the blacktop before the second curve.  
+We hit his trailer right as the siren cut out. He locked the storm door, yanked the blinds down, and tossed me a water bottle.  
+Around seven-thirty, gravel crunched outside.  
+Bob didn't hide. Left the lights burning. He walked to the window, pulled the blind back, and looked out. Mom was standing right in the porch light.  
+Bob cracked the window and yelled out to her like it was nothing. He asked what she was doing pacing his yard. She smiled through the glass. Sounded sweet, teasing him back, telling him to open the door and let her in to catch up.  
+Bob reached down and flipped the lock.  
+My stomach turned over. I grabbed his arm and told him not to touch the door. Bob shook me off, kicked the door wide open, and told her to come on in.  
+Mom stood at the bottom step. Her face went totally blank. Her jaw hung open. Arms went stiff. She didn't move an inch.  
+Bob leaned on the frame and asked what she was waiting for. She didn't say a word. She just tilted her head toward the woods and made this dry, clicking sound in her throat. Four little kids walked out from behind that rusted bus into the gravel. Barefoot in the frost. Gray skin. Blank eyes.  
+Mom looked right past Bob, staring straight at me. Her voice was flat, totally wrong. She asked if I wanted to come outside and play with the kids.  
+I backed up until my spine hit the wall, sweating straight through my shirt.  
+Bob looked back at me, reached up, and hooked his thumb at the doorframe. Hanging from a bent nail above the screen was a loop of thick, knotted wooden prayer beads, black with grease and dirt.  
+Bob told me he went inside that junked bus the morning after Mom died. He wanted to know why those things couldn't bust through the thin doors to get my dad. He found those beads hanging off the rearview mirror. Some old logger put them there thirty years back before the routes died out.  
+Bob stepped inside, kicked the storm door shut, and threw the latch.  
+Those things stood out in the gravel for three more hours. Didn't move. Just stared at the glass until the sun finally came up over the ridge.
