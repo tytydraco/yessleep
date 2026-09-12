@@ -111,7 +111,7 @@ All this time she’d been seeking revenge.
 
 *“Once that livestream of my canvas starts tomorrow, every art enjoyer on Earth will die the same headsplitting death I did. It’s what poseurs like Claude deserve. Thank you, Emily*—*I could not have done it without you.”*
 
-Even as I begged her not to, the Discontented Lady’s voice vanished from my head. For hours I sat paralysed with shame at what I’d done. My social media posts had given the Lady her livestream she needed to wipe out a good portion of humanity. Millions of art fans worldwide, dead from aneurysms instantly. And with the power she’d gain from it, the rest of Earth would follow. I looked at my exam results—the catalyst for all this—and thought they might as well have blood spattered on them.
+Even as I begged her not to, the Discontented Lady’s voice vanished from my head. For hours I sat paralysed with shame at what I’d done. My social media posts had given the Lady her livestream she needed to wipe out a good portion of humanity. Millions of art fans worldwide, dead from aneurysms instantly. And even more deaths when the live broadcast is featured on the news. I looked at my exam results—the catalyst for all this—and thought they might as well have blood spattered on them.
 
 Blood spatters.
 

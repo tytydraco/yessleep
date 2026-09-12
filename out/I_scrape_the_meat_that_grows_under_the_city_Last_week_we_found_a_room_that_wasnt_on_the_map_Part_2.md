@@ -1,5 +1,5 @@
-[(Part 1)](https://www.reddit.com/r/nosleep/comments/1wbs5ll/i_scrape_the_meat_that_grows_under_the_city_last/)  
-  
+[(Part 1/3)](https://www.reddit.com/r/nosleep/comments/1wbs5ll/i_scrape_the_meat_that_grows_under_the_city_last/)
+
 I said I'd write the rest the next night.
 
 It's been... Some time.

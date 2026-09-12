@@ -1,0 +1,138 @@
+I’m going to die with regrets. I know that much.
+
+When I was a teen, I thought that I would be a star. That I would live in Beverly Hills or even Hawaii. I would’ve been disappointed to see myself end up living in bumfuck nowhere in Oklahoma.
+
+It’s not that I didn’t do enough in my life, of course. I’ve been all over the continent, I’ve tried a billion things. I was an electrician, soldier, and sailor all within the span of 5 years.
+
+I was a jack of all trades, master of none.
+
+The only reason I live on this ranch is because of old money. My father passed away when I was 54, and I didn’t really have anywhere else to live. My fiancé had just broken up with me, and I was failing to meet rent, so I moved out.
+
+The house is nice. Isolated and boring, but nice enough. I’ve lived here for about 15 years at this point (give or take), and I’ve just been doing odd jobs to get myself groceries. It’s been tough due to my limp I got from a wound in the army, but I’ve been getting by. 
+
+It’s a quiet life. As I get older and my days get fewer, I find myself resenting this house. If I do die, it would take weeks for anyone to find me. Not like anyone would care, of course.
+
+
+
+I closed my book. It was some boring shit about hell being a farm. A waste of money. I looked out the window. It was like the long days I spent sailing to Mexico, where I would look outside and see nothing but sea. Except here, it was endless fields of grass.
+
+The sun was setting, and the yellow sunlight drenched the landscape, excluding one tiny spot.
+
+I squinted as hard as I could. It was still a little blurry. “What *is* that?” I thought. I quickly grabbed my long-distance glasses off a nearby counter. I put them on, but they were foggy and dusty. The spot looked about the same. I rubbed on the lenses as quickly as I could, but when I looked up, it was gone. 
+
+It was all I could think about for the rest of the day. I found that weird. It could’ve been anything, really. It was most likely a stray buffalo that had wandered off its reservation. I don’t live far from one, and it wouldn’t be the first time. But why was I thinking about it so much? 
+
+That night, it took me a minute to fall asleep. I tossed and turned a lot, so much to the point that I got a Charliehorse. I ultimately took some medicine to help me fall asleep. I was growing a sort of dependence on medicine to fall asleep. That must’ve started… 5 or so years ago? I had already taken a pill for tonight, but I supposed that I was building a tolerance, and I would either have to up the dosage or take something more powerful. 
+
+For now, I just upped the dosage.
+
+
+
+At the same time the next day, I was dusting my porch. Convenient, as I saw the weird blob again. I had my long-distance glasses on this time, so I got a better look at it. Its shadow was tall; even though the sun was considerably higher than it was. It was vaguely humanoid in shape, but not quite there. None of its features were discernable, but it was a lot larger than it was yesterday.
+
+ I stepped forward, but tripped on a loose floorboard and stumbled. I caught myself on the railing, but just like yesterday, it was gone. I pried myself off of the railing, but my gray sweater from my days in the army got caught in it and began to unravel. I ripped it off, and saw a tear had formed in the shoulder where it got caught.
+
+ I wasn’t the superstitious type, but I made a mental note to sleep with one eye open, or buy some cameras the next time I went into town.
+
+I didn’t feel tired at all that night. I hadn’t been to the doctor much, but this insomnia of mine was getting much worse. I decided to take one pill again (my supply was running out, and going into town is a pain). At about 2:00, I decided that enough was enough and I took another. 
+
+It still took another 30 minutes to fall asleep.
+
+
+
+On the third day since this figure’s appearance, I decided to grab some binoculars to get a better look at it. I got to the porch at half past five, and waited. 
+
+The house had seen some better days. Despite my dusting yesterday, the porch was incredibly grimy, the wood boards stained from who-knows-what. They constantly creaked and seemed like they were about to give way. Roaches occasionally joined my watching experience.
+
+At sundown, lo and behold, it was there. I used the binoculars. 
+
+It was wearing glasses.
+
+It was much less blurry than before. Not completely clear, but I could see many of its features. Its color was a sort of grayish-peach, and it appeared much more human than before. Its gait was irregular, like it had hurt one of its legs. As I watched it, it took off its glasses and rubbed them on… something. 
+
+I realized it was getting bigger because it was much closer than it was yesterday.
+
+ On the first day, it was about a half mile away. Now, it was a quarter mile. 
+
+
+
+The next day, I went into town. I picked up two times the medication that I normally take to fall asleep. I told the doctor that the insomnia was worsening, but she attributed it to my age.
+
+I asked around about any bison or people who had wandered too far off from town or the reservation, but no one had been near my home.
+
+I purchased some cameras from a dying camera store. It struck me as odd when I saw no one in there, because when I had first moved in, it was a thriving business. There was one other shopper, and he was inconsolable about the store closing. 
+
+Lastly, I bought a shotgun. You never forget how to shoot.
+
+
+
+That sundown, I sat on the porch again. The shotgun lay in my lap. Two shells were sitting on the counter. I had not yet installed the cameras, but if that fucker got too close to my property, I wouldn’t have to.
+
+There it was. It wasn’t much closer… but it was closer. I assumed in a day’s time I wouldn’t need my binoculars. A butterfly fluttered around in my stomach when I saw that it was wearing a sweater with a tear in the shoulder. 
+
+It had brought its own pair of binoculars.
+
+I loaded the shotgun and cocked it. I stood up from my chair a lot faster than usual, not taking my eyes off the thing. It jumped. I treaded slowly. My eyes started to hurt. I needed to blink, but I knew that if I did, it would disappear. 
+
+When I reached the bottom of the stairs, it disappeared. I blinked multiple times. I was still looking at it. It vanished right in front of me. 
+
+
+
+That night, I took my two pills, and tried to sleep. It wasn’t happening. Something gnawed away at me. I had set up the cameras in front of my property, but something was off. I passively thought that maybe I shouldn't've bought that shotgun, that maybe it was a waste of money…
+
+No. No. No, no, no no no.
+
+
+
+The next day, I felt incredibly groggy. It was one of those nights, where you can’t fall asleep, and you blink and it’s 7:00 AM already. I knew I had slept, but I felt like I got none. 
+
+Terrible feeling.
+
+I reflected on my second thoughts about the shotgun. I should’ve bought a sniper instead. 
+
+
+
+It was sundown before I knew it. “Time flies when you’re having fun”, I thought.
+
+Where was it though? I hadn’t seen it yet. I wasn’t sure if it was late, or if my timing was off. 
+
+Maybe I had scared it off with the shotgun?
+
+I looked through the window. When I looked back, it was in front of my house, almost in my yard. A younger me could’ve hit it with a rock. 
+
+“State your business! You are tresp…” I yelled.
+
+It had a shotgun. Just like me. 
+
+It was wearing the same glasses, the same pants, the same sweater and the same shoes. 
+
+It lowered its binoculars. It was like looking at a cracked mirror. It was me, but… wrong. It could pass as me from a distance, but if you look at the finer details, you’d realize it’s an imitation. 
+
+I was struck with a sort of terror I had never felt before. I was heaving. All I could hear was my heart pounding. 
+
+I cocked the shotgun.
+
+It just stood. *He* just stood. 
+
+I shot.
+
+The barrel crashed into my collarbone with unimaginable force. They told me in the army that shotgun kickback wouldn’t break any bones, but I seriously reconsidered after I fired. 
+
+When I regained focus, he was gone. I checked all over the house. He wasn’t there. I cursed under my breath the whole time. 
+
+Oddly enough, I felt really tired. 
+
+My searching fervor died down about an hour after the sun had set. I lumbered to my bed and collapsed onto it. I didn’t brush my teeth, shower, or even change my clothes. I simply fell asleep.
+
+
+
+I slept like a rock. I woke up at 9:00, much later than I usually do. When sundown came, I was very tired. He didn’t show, so I just headed off to bed.
+
+The next day, I woke up even later. I didn’t even make it to sundown before turning in for the night.
+
+Today, I woke up at 2:00. I’m not sure what’s happening to me. I’m not sure where he went. The last couple of days have been hazy, to say the least. I’m asking all of you on the internet to help me. What has happened to me?
+
+I feel really tired. 
+
+I think I’m gonna turn in for the night.
+
