@@ -48,4 +48,4 @@ I keep thinking about my last conversation with Stacks, something he said. He sa
 
 The humming just stopped. Please pray for me.
 
-[\[PART 2\]](https://www.reddit.com/r/nosleep/comments/1w9v2a0/theres_an_unwritten_rule_on_death_row_never_hum/)
+[\[PART 2\]](https://www.reddit.com/user/Diligent-Border-3329/comments/1wedhlx/theres_an_unwritten_rule_on_death_row_never_hum/)
