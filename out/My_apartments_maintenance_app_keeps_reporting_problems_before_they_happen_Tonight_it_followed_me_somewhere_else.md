@@ -1,0 +1,589 @@
+My building switched to a new maintenance portal about three weeks ago.
+
+
+
+Nothing fancy. You report a leaking faucet or broken appliance, attach a description, and somebody from maintenance updates the ticket when they're coming.
+
+
+
+Last Tuesday I got an email saying:
+
+
+
+"Your request has been completed."
+
+
+
+I hadn't submitted anything.
+
+
+
+The ticket was for my kitchen sink draining slowly.
+
+
+
+The weird part was that my kitchen sink actually had been draining slowly. Not enough for me to complain about it, but enough that I'd noticed.
+
+
+
+I assumed management had created the ticket during an inspection or carried something over from the old system.
+
+
+
+When I got home, the sink drained normally.
+
+
+
+So, fine. Weird, but useful.
+
+
+
+Two days later I got another completion email.
+
+
+
+"Hall closet light flickers intermittently."
+
+
+
+Again, I hadn't reported it.
+
+
+
+I opened the closet when I got home. The light looked normal.
+
+
+
+Then I remembered that the closet has one of those switches that gets pressed when the door closes. I held the switch down with my finger.
+
+
+
+The light went off.
+
+
+
+Then came back on.
+
+
+
+Off.
+
+
+
+On.
+
+
+
+It flickered four times before staying dark.
+
+
+
+That bothered me enough that I called the leasing office Friday morning.
+
+
+
+The woman I spoke with pulled up my account and said she could see both tickets. According to her, they had been submitted through the resident portal under my login.
+
+
+
+I changed my password.
+
+
+
+She told me to enable two-factor authentication.
+
+
+
+I did.
+
+
+
+Saturday afternoon, another ticket appeared.
+
+
+
+This one hadn't been closed yet.
+
+
+
+"Bedroom door sticks when attempting to exit between 2:00 and 3:00 a.m."
+
+
+
+I actually laughed when I read it.
+
+
+
+Not because it was funny. More because it was such a weirdly specific sentence that my brain didn't know what else to do.
+
+
+
+My bedroom door didn't stick.
+
+
+
+I tested it probably twenty times.
+
+
+
+Opened perfectly.
+
+
+
+I called maintenance. The guy on duty sounded confused and told me nobody on their side had entered that request.
+
+
+
+I asked if someone could have access to my account.
+
+
+
+He said maybe, but the ticket showed as coming from the resident portal just like the others.
+
+
+
+That night I almost slept on the couch.
+
+
+
+Instead, I told myself I was being ridiculous, locked my bedroom door and went to bed.
+
+
+
+At 2:26 a.m. I woke up needing water.
+
+
+
+I unlocked the bedroom door and pulled.
+
+
+
+Nothing.
+
+
+
+The handle turned, but the door wouldn't move.
+
+
+
+I pulled harder.
+
+
+
+Still nothing.
+
+
+
+That's when I got scared.
+
+
+
+There wasn't anything blocking it. The door opens inward toward the bedroom, so even something sitting in the hallway shouldn't have mattered.
+
+
+
+I yanked it maybe four or five times.
+
+
+
+Then it opened normally.
+
+
+
+No pop. No scraping. Nothing.
+
+
+
+The hallway was empty.
+
+
+
+I slept with every light on.
+
+
+
+Sunday morning the maintenance ticket had been marked completed.
+
+
+
+The resolution just said:
+
+
+
+"Condition verified."
+
+
+
+I packed a bag.
+
+
+
+My friend lives about fifteen minutes away and told me to stay with him, but I had work Monday and stupidly convinced myself I'd deal with the leasing office first.
+
+
+
+At 11:08 Monday morning, while I was at work, another ticket appeared.
+
+
+
+"Entry lock fails to secure after resident returns at approximately 18:20."
+
+
+
+I stared at that sentence for a long time.
+
+
+
+Then I checked the time.
+
+
+
+Obviously nowhere near 18:20.
+
+
+
+For the first time I had proof that the tickets weren't describing problems that already existed.
+
+
+
+At least not all of them.
+
+
+
+I called the office again and told them everything.
+
+
+
+The person I spoke to clearly thought I was either confused or messing with them until she pulled up the tickets herself.
+
+
+
+She confirmed the newest one was there.
+
+
+
+I asked her to delete it.
+
+
+
+She said she couldn't because it had already been assigned.
+
+
+
+"Assigned to who?"
+
+
+
+There was a pause.
+
+
+
+She said the technician field was blank.
+
+
+
+I did not go home at 6:20.
+
+
+
+My friend picked me up from work instead.
+
+
+
+We went back to my apartment together around 7:30 because I needed clothes and my work laptop.
+
+
+
+I was expecting the front door to be open.
+
+
+
+It wasn't.
+
+
+
+The lock worked perfectly.
+
+
+
+Nothing inside looked unusual.
+
+
+
+My friend checked the windows while I packed.
+
+
+
+At 8:03, the ticket updated itself.
+
+
+
+"Unable to reproduce issue."
+
+
+
+I showed him.
+
+
+
+That was the point where he stopped suggesting this could be some kind of software migration problem.
+
+
+
+I went home with him.
+
+
+
+Yesterday morning there was no new ticket.
+
+
+
+Yesterday afternoon, nothing.
+
+
+
+I started wondering whether physically leaving the apartment had somehow broken whatever was happening.
+
+
+
+Then at 1:17 this morning, my phone buzzed on my friend's nightstand.
+
+
+
+New maintenance request.
+
+
+
+My apartment number was still listed at the top.
+
+
+
+The description said:
+
+
+
+"Carbon monoxide detector chirps three times at 02:11. Resident removes battery."
+
+
+
+My friend read it twice.
+
+
+
+We checked the time.
+
+
+
+1:18.
+
+
+
+He asked if I wanted to call the police.
+
+
+
+I said I didn't even know what I was supposed to tell them. That my apartment's maintenance software was predicting appliance problems?
+
+
+
+So we stayed awake.
+
+
+
+At 2:10 I was sitting on his couch looking at the clock on my phone.
+
+
+
+At exactly 2:11, something chirped.
+
+
+
+Three times.
+
+
+
+Not from my phone.
+
+
+
+From his hallway.
+
+
+
+His carbon monoxide detector.
+
+
+
+Neither of us moved.
+
+
+
+I have never felt fear hit me that physically before. My hands went cold so fast I could barely unlock my phone.
+
+
+
+My friend immediately called emergency services.
+
+
+
+The detector didn't go off again.
+
+
+
+We did not remove the battery.
+
+
+
+At 2:14 my maintenance ticket updated.
+
+
+
+"Resident did not complete expected action."
+
+
+
+Then another line appeared underneath.
+
+
+
+"Manual access required."
+
+
+
+My friend told me we were leaving.
+
+
+
+While he was grabbing his keys, we heard his front door handle move.
+
+
+
+Just once.
+
+
+
+Slowly downward.
+
+
+
+The deadbolt was locked.
+
+
+
+The handle returned to its normal position.
+
+
+
+Then somebody, or something, knocked twice.
+
+
+
+Not loudly.
+
+
+
+We didn't answer.
+
+
+
+The police arrived maybe eight minutes later. There was nobody in the hallway or stairwell.
+
+
+
+They checked the apartment.
+
+
+
+Nothing.
+
+
+
+The carbon monoxide detector tested normally.
+
+
+
+No gas issue.
+
+
+
+No sign anyone had forced the door.
+
+
+
+We went to another friend's place after that.
+
+
+
+I turned my phone off on the way because I couldn't stand watching the maintenance app anymore.
+
+
+
+This morning I turned it back on.
+
+
+
+There was another ticket waiting.
+
+
+
+This one doesn't have my apartment number on it.
+
+
+
+Under "Property," it shows my friend's building.
+
+
+
+The one we're staying in now.
+
+
+
+I have never entered this address into the maintenance app.
+
+
+
+The request was submitted at 6:44 this morning.
+
+
+
+The description says:
+
+
+
+"Resident has relocated again."
+
+
+
+There's no repair description underneath.
+
+
+
+Just a scheduled appointment window.
+
+
+
+Tonight.
+
+
+
+11:30 p.m. to 11:45 p.m.
+
+
+
+The leasing office says they can't see this ticket at all.
+
+
+
+On their end, my account has no open requests.
+
+
+
+On mine, it says the technician is already assigned.
+
+
+
+I'm definately not going to be at this address at 11:30.
+
+
+
+What scares me is that I'm starting to think leaving is exactly what it expects me to do.
