@@ -4,31 +4,31 @@ Seems like the midnight hour’s been a busy time for a lot of diamonds.
 
 I’ve been putting out feelers around a few places trying to make sure I’ve got it right, and a few odd ducks have told me their war stories in the process. From neighborhood dive bars to VFW lodges up north, I’ve heard pretty much the same spiel. So far, so good; the ropes people have been telling me jibe with pretty much the way I remember the tales as a kid. Here are the rules I’ve gotten more-or-less everyone to agree on:
 
-1. *You can play at pretty much any baseball field. No field owes you anything, but it’s easier to get a chance to play if someone nearby has recently lost a bet- the worse, the better.*
+*1. You can play at pretty much any baseball field. No field owes you anything, but it’s easier to get a chance to play if someone nearby has recently lost a bet- the worse, the better.*
 
 I heard from Fred over in the east hills that the very first Game of Midnight Baseball happened in 1919, a few weeks after the Black Sox threw the World Series. Never let a good crisis go to waste and all that. Kenny and I tried our own luck sophomore year, in the fall of 2008. As you might remember, there were a lot of people losing bets around then.
 
-1. *Between midnight and 3 a.m., approach home plate. If the Game wants to play with you too, there will be a bat waiting. There will also be a ball on the pitcher’s mound. Don't bring your own. If they're not there, you don't get to play that night. Go home. Some fields are lit, others aren’t, but there’s not an advantage either way.*
+*2. Between midnight and 3 a.m., approach home plate. If the Game wants to play with you too, there will be a bat waiting. There will also be a ball on the pitcher’s mound. Don't bring your own. If they're not there, you don't get to play that night. Go home. Some fields are lit, others aren’t, but there’s not an advantage either way.*
 
 Being a little bit of a pansy, young me picked a dark diamond on purpose. I’d heard about what sometimes stands beyond the lights, and I knew I’d lose my nerve if I could see it.
 
-1. *There’s one pitcher and one batter. Whichever you are, bring a friend who you trust to be the other.*
+*3. There’s one pitcher and one batter. Whichever you are, bring a friend who you trust to be the other.*
 
 For me, that was a no-brainer: Kenny had been my roommate since freshman year, and there was nobody I trusted more.
 
-1. *The batter and the pitcher each make a potential wish. The batter’s wish is granted if he gets home; the pitcher’s is granted if the batter uses all three pitches without making it home.*
+*4. The batter and the pitcher each make a potential wish. The batter’s wish is granted if he gets home; the pitcher’s is granted if the batter uses all three pitches without making it home.*
 
 As far as I know, nothing is off the table. I’d known what my wish was gonna be since I met Brenda in US History I the year before.
 
-1. *Either both of you lose, or one of you wins, and no Game is ever played with the same players twice. In other words, you each get one chance at it. You can’t try again with another wish, another partner, or the other position. All or nothing, no do-overs.*
+*5. Either both of you lose, or one of you wins, and no Game is ever played with the same players twice. In other words, you each get one chance at it. You can’t try again with another wish, another partner, or the other position. All or nothing, no do-overs.*
 
 Kenny had been the quarterback of his high school football team until a nasty shin injury ended that. When I visited his house there were pictures of him in a wheelchair. By the time we were roommates he did one-arm pushups and walked with a limp. A great arm and a bad leg: both good reasons for him to be the pitcher.
 
-1. *Bring a fistful of something related to your wish. If you’re the batter, trail it behind you to drop at each of the bases. If you’re the pitcher, it doesn’t matter where you keep it.*
+*6. Bring a fistful of something related to your wish. If you’re the batter, trail it behind you to drop at each of the bases. If you’re the pitcher, it doesn’t matter where you keep it.*
 
 I took the movie stubs from my first date with Brenda and shredded them into four little piles, one for each base. By the time Kenny and I were taking the subway out to the field I had picked in Coney Island, I had one pile in each pocket. Couldn’t let my nerves have me emptying the entire symbol of my wish on the run to first base. Kenny kept his token in his pocket. I never asked what it was.
 
-1. *You get three pitches. The pitcher wins if you use all three without making it home. The batter only needs to make it home once. Anything else still uses up one of your three. Break one of the other rules, though, and your own wish is forfeit. That's how you can both lose.*
+*7. You get three pitches. The pitcher wins if you use all three without making it home. The batter only needs to make it home once. Anything else still uses up one of your three. Break one of the other rules, though, and your own wish is forfeit. That's how you can both lose.*
 
 My first swing whiffed completely. “Good start, slugger,” Kenny called from the mound. I flipped him off. He laughed. “You know I can see that, right? Not all of us have night vision as shit as you do.”
 
@@ -40,11 +40,11 @@ From what little I could make out of him in the moonlight, Kenny looked loose no
 
 “Come on,” he called. “One more.” It sounded like encouragement.
 
-1. *If you're the pitcher, both feet stay on the mound until the Game is over. Whatever you hear, whatever you see, whatever happens, you stay there. Step off and your wish is forfeit.*
+*8. If you're the pitcher, both feet stay on the mound until the Game is over. Whatever you hear, whatever you see, whatever happens, you stay there. Step off and your wish is forfeit.*
 
 All the versions I heard of this were weirdly specific about keeping both feet on the mound. 
 
-1. *If the pitcher misses the hit, the batter runs. Drop your tokens at each base and stay on the baseline. Something will try to tag you before you make it home. If it taps you before you make it home, that's another strike. Return to home plate if you have any strikes to spare. Never look behind you to see what touched you.*
+*9. If the pitcher misses the hit, the batter runs. Drop your tokens at each base and stay on the baseline. Something will try to tag you before you make it home. If it taps you before you make it home, that's another strike. Return to home plate if you have any strikes to spare. Never look behind you to see what touched you.*
 
 My third swing was the one that got past Kenny. I ran. The moon was bright enough to pick the bleached-out bases against the toasty dirt, but not much else. I dropped the first piece of Brenda's movie ticket over first.
 
@@ -78,7 +78,7 @@ Then I heard the cheering.
 
 Nobody was in the bleachers, I could see enough of the steel under the moonlight to be sure of that. But my God, it sounded like there were hundreds of, well, something. I could hear yelling, whistling, clapping and stomping against the aluminum benches. I could see Kenny's silhouette on the mound, shoulders slumped. When he finally walked over, his limp was worse than it had been on the way in. I felt a little bad for him, but we both knew going into it that there could only be one winner.
 
-1. *You can't deliberately throw the Game to give the other person the win. If you do, neither of you gets anything. It knows.*
+*10. You can't deliberately throw the Game to give the other person the win. If you do, neither of you gets anything. It knows.*
 
 According to the stories from some of the guys I talked to, though, the opposite doesn't seem to bother it. Players have lied to each other, distracted each other, even tried to make the other person break a rule, and the Game still counted. Maybe that's the point. It doesn't want cooperation. It wants a winner.
 
