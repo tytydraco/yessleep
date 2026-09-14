@@ -1,0 +1,143 @@
+I do the headcount at a boarding school. Last month the number was finally right.
+
+I keep a variance book. It's a habit from eleven years managing a builders' merchant in Shrewsbury, where if your count doesn't match the system you write the difference down before you go home, because in the morning you'll have decided you were tired and it was fine.
+
+I've kept one since I started at the school. Nobody asked me to. It's a red notebook in the drawer under the kettle and there's nothing in it but dates and numbers.
+
+That notebook is the only reason I know Immie Parr existed.
+
+I'm going to tell this in order, because if I tell it out of order it sounds like something that happened to my head rather than something that happened.
+
+I'm forty-four and I've been houseparent at Hartley House for six years. Small independent boarding school on the Welsh border, not posh so much as stubborn. Hartley is the smallest of the three houses, twenty-one on the books. My wife Jo and I live in the flat off the back, which sounds grim and mostly isn't, except our kitchen shares a wall with a stairwell that twenty-one teenagers use at seven in the morning.
+
+My job is pastoral. That's a word that means nothing. What it means in practice is that I know where children are. Sign-out sheets, prep, lights out, evening check at half nine.
+
+I count. That's the job.
+
+Immie was thirteen, Year Nine, and I'd have told you at the time she was mildly the worst of them. She could not get up. Not in a difficult way, in an almost medical way. She kept propping the east fire door with a shoe so she could sit out on the step after lights out, and I took that shoe out of the door maybe thirty times and she never once pretended she hadn't put it there. She had a plastic otter on her bag and she wanted to be a marine biologist, which I wound her up about constantly, because we are about as far from the sea as it's possible to get in this country.
+
+Jo bought her a mug for her birthday in February. Otter on it. Immie kept it in our kitchen because she wasn't supposed to have it in the house, and she thought that was the funniest thing that had ever happened.
+
+On the 3rd of April I counted twenty-two.
+
+I want to be clear about how boring that was. I assumed I'd double-counted somebody moving between rooms, which happens constantly, because children don't hold still for you. I went round again, got twenty-one, wrote 22/21 in the book out of habit and went to bed.
+
+It happened again on the 6th. Then the 7th, the 9th, and then every night for the rest of that week.
+
+Denise Pugh has been at Hartley longer than the current headmaster. She does the check with me Tuesdays and Thursdays, and when I told her I kept getting an extra she laughed at me, which was fair enough.
+
+"You count twice, you," she said. "Every time. I've watched you do it. You count them, you don't believe it, then you count them again and get a different number because they've moved."
+
+She's right that I do that. She counted twenty-one that night and I counted twenty-two, and she was so cheerful about it that I felt stupid rather than worried.
+
+So I changed method. That's the stock man in me. If your count's unreliable the answer isn't counting harder, it's counting differently.
+
+Hartley has six rooms. Two on the ground corridor with four in each, two on the middle corridor with three in each, and two upstairs with four and three. I started doing it by doorframe. Hand flat on the frame, count the bodies in that room, say the number out loud, move on. You cannot double-count somebody that way unless they physically get past you in the corridor.
+
+Twenty-two.
+
+On the 16th of April I did the check late, about eleven, because I'd been on the phone to a parent. The house was properly dark by then. I didn't put the corridor lights on because the light comes through the glazed panel above each door and wakes them, and a fourteen-year-old woken at eleven is a problem you have to solve for forty minutes.
+
+So I did it by ear.
+
+You can do it. I'd never tried before, but you can stand in an open doorway of a room with four girls in it and separate four different people breathing. They don't breathe at the same rate. One of them snores a bit. One of them was awake and doing that careful shallow thing they do when they want you to think they're asleep.
+
+Room one. Four.
+
+Room two. Four.
+
+Middle corridor, room three. Three.
+
+Room four. Three.
+
+Upstairs, room five. Four.
+
+Room six is the small one at the end under the roof and there are three boys in it.
+
+I stood in that doorway in the dark with my hand flat on the frame and I counted four.
+
+I stayed there a long time. I don't know how long. Long enough that my eyes adjusted and I could see the shapes of three beds and the shapes of three boys in them, and I could hear four people breathing in that room, and I was aware in a very calm and practical way that all I had to do was reach six inches to my left and put the light on.
+
+I didn't put the light on.
+
+I went downstairs and wrote 22/21 in the book and sat in the kitchen until about two.
+
+That was the night it stopped being an admin problem, and it's also the night I decided not to tell anybody, which I've thought about a lot since.
+
+I had ordinary explanations and I believed them for about three weeks, and I'd still defend that. A day pupil hanging about after hours. Somebody's brother from the village. A kid from Ellesmere House wandering over to see a girlfriend and hiding in a bathroom when I came round. All of those things have genuinely happened. None of them are strange.
+
+The problem was that I never found anybody. You'd think that in a building with four corridors, if there's one extra person, you eventually open a door and there they are.
+
+The fire drill was the 28th of April.
+
+We do them properly. Everyone out, down the side path, onto the tennis courts, in house lines, fobs swiped at the muster point so the system does the roll call for you. Four minutes, and they complain about it for the rest of the evening. Immie complained about it into the next week.
+
+I counted the line twice while we waited. Twenty-two both times. Denise, standing eight feet from me, looking at the same line of children, counted twenty-one.
+
+The system said twenty-one names present.
+
+It also said twenty-two swipes.
+
+One swipe was logged with no name attached. Just a fob ID, four seconds after the last of mine went through, in a lit car park, in front of me, while I was watching the line.
+
+I took it to Mr Orme, who runs boarding, and he was very reasonable and said it was an IT thing, which is the most persuasive sentence anybody has ever said to me. Of course it was an IT thing. Cloned fob, ghost record, dead card somebody found in a coat pocket and swiped for a laugh. He said he'd raise it with the office.
+
+I was relieved. I went back to the flat and told Jo about it like it was a funny story and she said something about the school still running Windows 7, and we watched most of a film, and I slept fine.
+
+That lasted two days.
+
+The counting got bad after that. Not the numbers. Me.
+
+Half nine, then again at eleven, then again when I got up for the toilet, standing in a dark corridor in my dressing gown counting other people's children. At breakfast. After prep. During Saturday activities. Once on the minibus back from a hockey fixture, where I made the driver wait while I went down the aisle touching the back of every seat.
+
+Jo asked me what was wrong twice and I lied twice. We've been married sixteen years and she knows exactly what I look like when I'm lying. She thought it was the job. She'd been telling me for a year the job was too much and I'd been telling her it wasn't, so I wasn't going to hand her the evidence.
+
+On the 6th of May I did the check at half nine with the lights on and I did it out loud, room by room, the way I'd been doing it for a month.
+
+Four. Four. Three. Three. Four. Four.
+
+I stood at the top of the stairs and said, "Twenty-one," out loud, to nobody, and I went down and wrote 21/21 in the book, and I felt something come loose in my chest that I can only describe as gratitude.
+
+I got about halfway through a cup of tea before I did the addition again.
+
+I want whoever reads this to understand that I wasn't tired and I wasn't confused. I had been counting for five weeks. I know what four and four and three and three and four and four comes to. I said twenty-one because I wanted it to be twenty-one so badly that my mouth just did it, and the terrible thing, the thing I still can't get past, is that for about four minutes it worked.
+
+I went back up and did it again properly and got twenty-two, and I sat on the bottom step of the main stairwell for a while.
+
+On the 12th of May I counted twenty-one.
+
+I did it four times. Doorframes, then out loud, then the sign-in sheet against the fob log, then the breathing, which by then I could do. Twenty-one every time. I wrote 21/21 in the book and I did not feel relieved, because I'd learned two nights earlier exactly what that number felt like when it was a lie, and this one didn't feel like anything at all.
+
+The register has twenty-one names on it. It has had twenty-one names on it since September.
+
+Immie's isn't one of them.
+
+I checked the sign-out book, the medical file, the laundry list, the seating plan, and the photograph of the whole house taken in the first week of term that's been pinned in my office since before any of this started. There are twenty-one children in that photograph. I know all their names and none of them is hers.
+
+I asked Denise. I did it carefully, like I was just chatting, and I've never worked so hard to sound normal in my life.
+
+She said, "Who?"
+
+I asked Jo that night, standing in our kitchen, and Jo said she didn't know an Immie and had I meant Amy over in Ellesmere. Then she opened the cupboard for a cup of tea, took down the otter mug, used it, and said it had been in there for ages and she thought it came with the flat.
+
+She isn't lying to me. She's not being strange about it. She has simply never met her, and the mug is just a mug.
+
+So I've got nothing. No photograph, no name on any list, no other adult on this earth who knows what I'm talking about. What I've got is a page of a red notebook with five weeks of 22/21 on it in my own handwriting, one line where I wrote 21/21 and had to cross it out, and one line where I didn't.
+
+Here's the part I'm sure about, and it's the only part.
+
+The count was high because both of them were in the building.
+
+Which means one of the twenty-one children asleep above my head right now was not here in March, and I have spent four weeks trying to work out which one, and I can't. Every one of them has always been there. I taught all twenty-one of them to cook pasta in September. I have specific memories of every single one.
+
+Last week I came in from the car with the shopping and stopped in our hallway and counted the people in my flat.
+
+Two. Obviously two. It took me about a second and a half and then I had to put the bags down.
+
+That's the thing I'd want you to understand, if you've ever been counted onto a coach, or lined up on a field while somebody ran a finger down a row of you and got to the end and nodded. The count isn't there to protect you. The count is a number, and a number can be made correct.
+
+I did the check last night. Doorframes, hand flat on each one, out loud, lights on.
+
+Twenty-two.
+
+I'm doing it again in an hour and I don't want the number to be right.

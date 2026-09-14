@@ -1,0 +1,105 @@
+It was late in the night, the moon already sinking behind the gnarled oaks that surrounded the property and descended back into the woodland behind, when I finally finished my work. Finally back in my room after a week of camping, I was eager to sleep in a bed again. I closed my laptop with a thud, the thrumming fan switching off with a click, the room going silent, barring the *tick tick tick* of my old grandfather clock downstairs. I padded to the curtains, barefoot on the sunken wooden floors of the old house, preparing to draw them closed. The streets were always quiet at this time of night, perfect for a night owl like myself. But when I began to *screech* the curtains along the rod, I looked out to my neighbours house. The curtains were open? At this hour? I had seen the neighbour come and go to her mailbox, but she was a frail old lady, she never went far. Every evening she would pull her curtains closed, the slivers of light surrounding them glowing orange with a bedside lamp. She would even sleep with it on. But this night, the light was off. I frowned, peering closer, my nose almost skimming the frosted glass. Her curtains were open, the light off, the room dark and vacant. I *screeched* the curtains further closed, as I prepared to change for the night.
+
+
+
+I pulled on my pyjamas, turning out my own lamp. As I settled into bed, pulling up the cool covers, I soon found myself tossing and turning. I never slept well, but tonight, something about my neighbour’s house unsettled me. Perhaps something had happened to her? I reluctantly stood, heading to the curtains to check just once more. In the darkness of the room, I saw her. She was stood by the window, or someone was at least. I could see their shape, unmoving, watching. I leant closer, squinting. Perhaps my eyes were playing tricks on me? I slowly closed the curtains again, but I got no sleep that night.
+
+
+
+The next morning, with the sun filtering in, I pushed myself up. I dragged myself to the mirror, combed out my hair, before pushing open the heavy curtains once more. Looking out, beyond the yard, through the twisted, bare limbs of the trees, I could see her. Plain as day in the morning light. She was stood by her bed, eyes fixed on me. I paused once again. Had she not moved all night? Had she seen my curtains twitch and sprung from her bed? I had seen her walk down the drive, small pattering steps, she couldn’t move that fast. After a moment, I did all I could think of doing. I waved. A hesitant, slight wave. I watched a moment, my other hand clutching the curtain. Then, slowly, she lifted a wrinkled, old hand, waving it like a branch in the wind. I waited a second longer, she just kept moving her hand. Back and forth. Then again. I thought to myself, perhaps she’s unwell? Concern brewed in my gut, as I decided to go check on her.
+
+
+
+I closed the curtains firmly, pulled on my clothes and boots, heading down the creaking stairs of my house. I trudged across the yard, leaves dragging across the damp grass. I went down the side of the fence and onto the pavement, the air cool and damp with the season. As her house stood before me, it looked empty. Each window was dark, no noise but the clanking of old wind chimes on the porch. I looked to her mailbox, seeing a letter stuffed haphazardly in by the postman. I crunched up her driveway, up onto the porch, paint pealing off in ribbons from the rotten wood. I knocked, calling out. She’s an old girl, I couldn’t expect her at the door anytime soon. I wandered absentmindedly across the porch, my eyes travelling. An old rocking chair, a damp rain chain, a few shrivelled, brown plants in pots, crayon scribbles colouring their floral patterns. As I stepped back to the door, I heard no approaching, shuffled footsteps, no clinking of keys. I knocked again, louder. She was bound to be hard of hearing. That must be it. But after some time, I gave up. She mustn’t be able to hear me upstairs. I tried the door handle, feeling no give, locked. I plodded down the steps, a cool wisp swirling up the leaves, as I trudged back to my house.
+
+
+
+The next morning, with the house still in shadows, I crunched down my gravel drive to my mailbox. As I opened the rusty door, I glanced over to my neighbours house once again. The letter was still there, now soaked from last nights rain. I glanced to the windows, still dark. No noise, no light, no life came from the house. Now, more concerned, I quickly walked to her front door once again. Back on the old porch, the wind chime twinkling with each footstep on the rickety porch. I glanced to the doormat, a newspaper sat atop it, tossed onto the porch by the paperboy. I knocked again, calling out, asking if anyone was in. I leant over to one of the windows, cupping a hand to see better into the dark room. In the darkness, I could make out her sitting room. There, just beyond the doorway, she stood. I knocked quickly on the window, the rapping getting her attention. She looked over slowly, and I said as loud as I could “are you ok?” I waited, before bringing up my hand, beckoning her to the door. “Can you open the door?” I called through the glass, gesturing again. She stood a moment longer, just a silhouette, but unmistakably her. The nightdress, the bun she pulled her wiry hair into. I watched her raise a gnarled, wrinkled hand, making a beckoning motion. I frowned, gesturing more firmly to the door. “The door is locked” I called, “open it and I can come help”. But she didn’t move, except for her hand again and again and again, *come in, come in, come in*. I leant back onto the porch, clicking my back. I knocked once more for good measure. Before tromping down the steps and back onto the street. I pulled out my cellphone, flipping it open and dialling 911. But I hesitated, doubt gnawing at me. I flipped the phone shut again.
+
+
+
+The rest of the day, I kept glancing to her mailbox. The letters were still there, soggy and smudged. More dread began to chew away at me. Had she become forgetful? Had she taken a turn? But that night, as I went to close my curtains, I saw her again in her bedroom window, her silhouette barely visible in the darkness. I could see movement, her hand reaching out, then drawing in. Again and again and again. Finally, I ripped the curtains closed and pulled out my phone. I punched in my other neighbour’s name in, typing, “hey, hope you’re doing ok? Have you seen the lady who lives in the yellow house next to mine recently? She’s not answering the door, but I think she needs help?” I sit down on my bed, watching the screen for a reply. One minute became two, then three, then a reply popped up.
+
+
+
+“Hi. I think the house was foreclosed? I saw her son packing boxes last week.” 
+
+
+
+I frowned. I was out of town last week, but foreclosed? I typed back quickly, “foreclosed? But why did he leave her in an empty house?” I questioned, concern rising. My phone vibrated with a reply.
+
+
+
+“I’m sure of it. She had a nasty fall last week and was taken off in an ambulance, the house was emptied 2 days later. Sorry for the bad news.” I froze, the phone feeling heavy in my numb hands. 
+
+
+
+I glanced to the closed curtains, with her silhouette no doubt still beckoning beyond it. I texted back, “so how did she get back in the house?” Thumbs fumbling on each press, how did she get back in the house? With no response, I darted up to the curtains. I drew them back, just a sliver, peering out. There she was, or what looked like her in the darkness, just a shadow, hand moving. I crouched down, clutching the curtains closed. What the hell was this? If she was dead, who the hell was that?
+
+
+
+I darted down the stairs, feet thudding. I texted frantically again. “Do you have his number?”
+
+
+
+“Whose?” Comes back.
+
+
+
+“The sons?” I reply immediately. 
+
+
+
+With no response, I rushed to my desk. My face felt numb. I didn’t believe in the supernatural, but the dread in my stomach made me think one thing. That was the dead I had just seen. Whatever memories, whatever energy remained in that house or had returned to it to remain within its walls. Suddenly, my phone vibrated again, the number. I sat down, hands shaking as I fumbled it in. There was no time for pleasantries in my panic. I typed, “This is the neighbour of your mother. You need to come to the house, there is someone in there”. I waited anxiously, looking out to the clock in the hall, that peeked down under the doorframe. He might not reply this late in the evening. I tap my heel, a rhythmic *thud thud thud* on the rug, waiting. I couldn’t tell him I thought I saw a damn ghost. I text again. “I thought I saw someone in your mother’s house. I am going to call the cops” I warn him. I drummed the ends of my fingers on the armrest, glancing to the clock, picturing that figure, the old lady, her hand waving like a weathered branch in the autumn wind. The longer I sat, the more I stewed, the more fear and dread settled into my chest, deep and constricting. I took a breath, trying to calm myself. Ghosts weren’t real. I picked up the phone again. There must be a logical explanation. “I’m sorry, but did your mother pass away? I heard from a neighbour” I typed. I placed the phone on my desk, eyes glued on the clock. Finally, a buzz. I fumbled open my phone, reading the message.
+
+
+
+“Someone in the house?” It reads “I’ll be over now, call the cops” then, my eyes widen as I clutched my phone tighter, “she had a bad fall, but she’s stable now. Hopefully moving to a care home soon. Thanks”. 
+
+
+
+I froze, before sagging in relief. Alive. I chuckled to myself, rubbing a hand over my face, exhaustion hitting me as my heart calms. Hell, I knew there was no such thing as ghosts.
+
+
+
+But as I sat there, the dread re-emerged, crawling and twisting back between my ribs. If that wasn’t her and wasn’t a ghost, then who the hell was that? I darted up, heart beginning to thud. That **had** been her yesterday, I saw her! I punched 911 into my phone again, pushing the phone to my ear as I bolted outside. One ring, two, three, then dispatch on the other side. As I hurried onto the pavement, I repeated myself again, there was *someone* in that house. There was someone in that house who was not meant to be there. After stammering out the address, I pushed my cellphone back into my pocket. I waited by the mailbox, eyes glued on the house, flicking from window to window, for any sign of a wrinkled face, a looming figure. Soon, I heard sirens in the distance. I sighed, barely glancing from the house to see a police car pull up. I watched the officer step out, one hand on his belt, the other holding out a flashlight.
+
+
+
+The beam trailed along the ground, up to the windows of the house, each pane of dusty, smudged glass illuminating one by one.
+
+
+
+“You called about a trespasser?” He asked. 
+
+
+
+I nodded, swallowing the nerves in my throat. “Yes, I thought I saw someone in the window.”
+
+
+
+The office trudged up the drive, up onto the porch, shining his light into the windows, then the glass of the door. “Did you get a good look?” He asked.
+
+
+
+I nodded firmly, “there is someone in there” I said with conviction, “I saw them in compete daylight, it was a person”. I watched the officer nod, before pounding on the door.
+
+
+
+“Police!” He called out, pounding again. 
+
+
+
+I could see neighbouring lights down the street flicker on at the commotion, curtains twitching to see what was happening.
+
+
+
+The officer called out again, “police! Open the door!” 
+
+
+
+His hand drifted down to his gun. Then, movement. I heard something, a heavy, scrabbling scuffle on wooden floors then the rustling of bushes and flurry of branches breaking. The officer banged again, preparing the break it down. He slams once, twice, then the door gives. He pushes it open, gun drawn into the darkness. Through the house, the silver light of the moon illuminated the hallway. I took one step up the porch, peering over his shoulder, one hand resting on the rotting wood of the banister. Along the worn rug of the hall, along the gaping door into the kitchen, I saw the back door open. No, not open, swinging from a remaining hinge, the moonlight filtering in over the trees and into the home. I freeze, before leaning closer, as the cop marches in, shouting. I step into the doorway, following the marks of the floor, muddy scratches and scuffs, down the hallway, the whole house still. Down to the kitchen door, the back door creaking and swinging by its last thread. I look out to the woods beyond, the moon dipping low once again.
+
+
+
+The police found nothing in the house. When the son came by, the only thing that saved my version of events was the broken back door. His mother never fully recovered from her fall and passed away last spring. I still don’t know what I saw, what ran into them woods, but I moved soon after. I watched, loading boxes into my car, as a locksmith fitted new locks and replaced the back door. When I pulled away, those old oaks’ branches waving me off, I was only glad I didn’t see her in the tree-line, beckoning me.

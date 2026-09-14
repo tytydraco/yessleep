@@ -1,0 +1,463 @@
+To say I’m obsessed with the *Savage Sam* movies would be an understatement. My bedroom is decorated solely with *Savage Sam* paraphernalia; my desk littered with miniatures featuring most prominently The Mortician, The Baron, and Cruel Carissa (the evil despots Sam defeats in movies two, six, and three respectively); my walls pockmarked by tacks holding up posters for all seven films (including the limited release Japanese version for movie four which starred J-pop star Tadaka as Sam’s new ally, The Nameless Samurai); my closet bursting full of cosplay outfits and memorabilia, enabling me to dress as nearly any character featured in the films. My most treasured artifacts of course reside in my war chest, where I have replicas of Sam’s mattock (not to be confused with a pickaxe, the mattock has a blade on one side and a hammer on the other), The Nameless Samurai’s legendary blade Arashi, The Mortician’s Morningstar, and even Richard the Wrathful’s enormous flamethrower (though that lives outside in my mother’s shed). 
+
+There’s a simple reason I love Savage Sam so much. Its world is much more logical than my own. The world I live in doesn’t make sense. Its rules are arbitrary and keep me from elevating my status to anything above the equivalent of a poverty-stricken town fool. My life is tedious, unfulfilling, awful if I’m really honest. But the world of Savage Sam… its rules are well-defined and easy to follow. There’s only one. 
+
+Fight to survive. 
+
+In the post-apocalyptic, endless forest wasteland of The Understory, Savage Sam and his fellow citizens know only of brutality. There’s no polite society, no laws, only how much you can take from your fellow man and get away with. Living in that world sounds so much simpler than one burdened by rules and laws. 
+
+Because for me, working at the McDonald’s half a mile from where I was born and lived all my life, the golden rule of The Understory doesn’t apply. If a customer, or more likely my shithead boss Derek, disrespects me, I have to follow the ridiculous societal ideas of nonviolence. That may as well be servitude. When Derek asks me to clean out vomit in the restroom and laughs when it gets on my uniform, I should be able to challenge him physically. I should be able to pick up the mattock I have named after Savage Sam himself and bludgeon Derek’s ugly face. But instead, I have to show deference to this loser fuckwad who for some reason holds power over me. In The Understory, I would be completely in the right to kill Derek. In fact, I’d be looked down upon if I didn’t. And God, I long to live in a world like that.
+
+I don’t falsely believe myself to be some master fighter. I know I’m scrawny, both too tall and too skinny. But what I lack in muscle, I make up for in practice. Hours and hours I’ve spent in my backyard, utilizing each and every weapon replica I’ve gathered, studying each film to see the techniques used by my heroes (as well as those they’ve defeated). I’ve put in my hours, and if the world worked how it should, then I’d be the fucking unequivocal King of this shitty town, and everyone I’d ever met would have to bow down to me and lick my dirty boots. 
+
+My algebra teacher who embarrassed me in front of my classmates would be hung for all to see. The fat prick who broke my nose in gym class would have his nose broken again and again each night for the entertainment of all. And Derek… oh, Derek would be tortured privately, slowly – *very slowly* – for my and only my pleasure. 
+
+That’s the world I want to live in. That’s the world I’m *owed*. The one where I’m no longer Nick Carson, but instead… King Nick the Nasty. 
+
+But it’s not the world I was born into, as I’m reminded that very day, scrubbing a disgusting, shit-flecked toilet with my bare hands after Derek conveniently ran out of those yellow cleaning gloves. Derek hadn’t even bothered to hide the smirk on his face when he gave me this task. 
+
+The only saving grace of work is Jennifer. I have no delusions she would ever pay me romantic attention, but I'm grateful for the kindness offered by my beautiful former classmate. It isn’t something I’m used to receiving in any other facet of life. Even my mother takes me for granted and treats me like a slave. Though Jennifer never takes sides between me and Derek for fear of endangering her own employment, she always offers me sympathy, and that’s enough. 
+
+When I finish cleaning the bathroom, I spot Jennifer sitting with her boyfriend Brad. She’s on break, and Brad is hanging around like he always does. Brad graduated high school a few years before me and Jennifer and was the type to keep coming back to flirt with teenage girls, hence his current relationship status. Though Brad and Jennifer are far enough removed from high school by now for their age gap to be considered normal, I’ll never forget the creepiness of their romance’s origin. 
+
+As I pass them, Brad fervently whispers something, and Jennifer dismisses him. She raises her hand, gesturing for me to come closer. I reluctantly do.
+
+“We’re having a party tonight,” Jennifer says.
+
+I stare back for a moment. “Okay,” I utter, unsure why she’s telling me.
+
+“Do you want to come?” she asks, as if I should’ve already gleaned her meaning.
+
+“Oh!” I’m frozen for a minute, the thought of this invitation truly something that had never crossed my mind. “Um… okay.”
+
+“Great! You remember where I live, right?” she asks.
+
+I nod as I try to ignore Brad’s scowl. I quickly wander off, mumbling something about checking the fryer. In the kitchen, I wrestle with my feelings. I’m strangely excited about being invited to a social gathering even though it’ll surely be filled with people I hate. Even if there are people I don’t know there, I know I’ll end up hating them. I hate everyone I’ve ever met. Except for Jennifer… and she’s the one who invited me.
+
+“What the fuck are you smiling about?”
+
+I turn to see fucking Derek smirking at me. “Nothing,” I spit back at him.
+
+“Good. Then get back to work.”
+
+⚔️
+
+When I get home that night, I begin my typical routine – fighting with my disabled mother about which frozen dinner she wants to eat, showering in scalding hot water to try to scrub the smell of burnt fryer oil off my sore body, and firing up the next *Savage Sam* movie in my rotation. 
+
+But as the DVD loading screen plays the drum-heavy score of *Savage Sam VI: Blood of the Baron*, I remember Jennifer’s party invitation. Tonight is no ordinary night. I look to my TV, where Savage Sam stands shirtless with his mattock, waiting for me to join him in The Understory. He beckons toward a world that makes sense, a world I understand. 
+
+But my thoughts turn back to Jennifer. The Understory is a wonderful dream, but it’s never going to be more than that. Maybe it’s time to try to improve what little life I have.
+
+That’s how I find myself dressed in ill-fitting, uncomfortable clothes. My button up shirt is too big, slacks too tight, shoes all wrong. I frown deeply at the ugly reflection staring back at me. I don’t even know if I’m dressed appropriately, I have no idea what people wear to parties. I wish I could wear something out of my *Savage Sam* collection, but I know how that would go. I’d done it enough times in high school. Back before I was properly prepared to defend myself. 
+
+I move slowly through the house toward the front door, not wanting to attract the attention of my immobile mother, watching her nightly game shows in her recliner. 
+
+“Where the hell are *you* going?” her voice rings out, eyes not moving from the television.
+
+“I… got invited to a party,” I admit.
+
+She nearly barks out a laugh. Though I’m her sole caretaker and the only one who earns any money in this house outside of her measly disability checks, my mother still shows me no love or respect. She blames me for my father leaving and has never and will never forgive me for it. 
+
+“Be honest, Nicholas. Where are you really going?” she says with a cruel grin.
+
+I immediately get defensive and angry, like she always makes me. I hate that about her, this ugly person she turns me into. “I’m going to a FUCKING party, Mom. You don’t have to be such a bitch about it.”
+
+“There he goes, calling his mother a bitch again.”
+
+God, I hate when she does that, talking about me like I’m not there. “I wouldn’t have to if you didn’t act like such a bitch all the time.”
+
+“Answer me this, genius. If you go out to a party, if that’s what you call the circlejerk under the bridge you’re probably actually going to, then who is going to give me my nighttime pills?”
+
+This is what life has given me. My only living blood relative, the only person in the world who’s supposed to automatically love and care about me, is possibly the person who thinks the least of me. And everything she does, everything she says, it just makes me into this fucking loser that she sees me as. It’s a self-fulfilling prophecy that I can’t help playing into.
+
+I walk through the room and kneel down to her. “You can get your own fucking pills,” I say, enunciating each word right into her face.
+
+I try to pace for the door quick enough to avoid her getting another word in, but of course I’m not fast enough, not for my mother’s smart mouth.
+
+“When I die, it’ll be your fault, Nicky boy.”
+
+SLAM! The door nearly flies off its hinges with the force of me shutting it behind me. How would Savage Sam have dealt with that, I wonder? Sam doesn’t seem the type to use violence against a family member, but he always does what he has to, and there are rumors The Baron is Sam’s half-brother. Sam hadn’t hesitated to cut him down despite that possibility. Just thinking about that, I long to go back inside and watch more Savage Sam instead of attending this party. But I force myself to take a deep breath and resolve to forget about my mother. 
+
+I’m going to this party, and I’m going to enjoy it.
+
+⚔️
+
+My shoe scrapes against the sidewalk, my bruised ankle dragging helplessly behind me as I limp back to my house. I should’ve known this was going to happen. I *did* know, but I let myself be tricked by the bittersweet taste of optimism. 
+
+Flashes of the party fill my mind as I struggle to summit the last two uphill blocks of the dirt road. Jennifer greeted me warmly, her alcohol intake fueling her kindness. But what vodka tonic had done to make her more pleasant, it had in turn made Brad even more *un*pleasant. And the sight of me speaking to his girlfriend in this setting, outside of our pathetic shared job, it set Brad off. 
+
+One block to go. I push harder, knowing only one thing can make me feel better now.
+
+A flash of Brad’s fist coming toward my face nearly knocks me back on my ass again. Brad had attacked me savagely, and for all my big talk, for all my fantasies of The Understory, when the moment came where violence was an option for me, I failed. 
+
+But it’s only because I’d been so concerned about blending in at the party, I hadn’t even considered bringing a weapon. And without one, Brad easily pummeled me. He hit me in the jaw so hard, one of my teeth had come loose. He punched me so ferociously in the ribs, I was still short of breath even at this moment. He stomped on my ankle in such a vicious manner I could now barely make it back to my own house.
+
+Pausing on my doorstop, I pray my mother fell asleep in the time it has taken me to get the shit beaten out of me and walk back home.
+
+But of course, as I swing the door open, her leering eyes find me right away. They practically light up at the sight of my bruised and battered body, a smirk coming to her lips. “Some party…”
+
+Ignoring her, I pace to my bedroom unevenly, not even bothering to get an ice pack for my ankle. All I want is to get into my bed and hit play on my 4K disc. I need to be transported to my real home – The Understory with Savage Sam, where everything makes sense. 
+
+As I watch the next one-hundred and sixty minutes of violence and bloodshed, I vow in the future to always be prepared like Sam is. I will never again go somewhere so populous without a weapon. Had I had anything from my war chest (but especially my Savage Sam mattock), things with Brad would’ve gone very differently. And the way Jennifer screamed at Brad and begged him to stop, I believe I could’ve won her over to my side. She would’ve cheered me if I’d had the ability to fight back.
+
+On my TV, I watch Sam deliver the killing blow to The Baron, his blood army dropping all around him now that their originator has died. Sam is no comic book superhero. He doesn’t arrest the bad guy and hope for better next time. Savage Sam fucking demolishes evildoers. He puts an end to them and makes certain they can’t harm anyone again. That is a real goddamn hero.
+
+As the credits roll and my eyes drift off to sleep, I wish I could live somewhere like The Understory, somewhere that makes sense, somewhere I could be a hero like Savage Sam. 
+
+⚔️
+
+When my eyes open, several things are clear at once. I’m no longer in my bed or even my bedroom. I’m outside, bright sun pushing through massive clusters of treetops. I’m in a place I instantly recognize, somewhere it shouldn’t be possible for me to be. But there’s no denying it. 
+
+I woke up in The Understory. 
+
+Getting to my feet slowly, I look around in wonder at the endless forest I’m so familiar with from the movie screen. It’s just as vibrant as I imagined it to be. The dense trees prevent me from distinguishing any direction from another, something Sam uses to his advantage constantly. But right now, it’s a hindrance. Despite my familiarity with this space, I’m still a newcomer to actually being in it, and the density means I can’t tell if there’s anyone hiding nearby. In The Understory, you can be attacked at any moment, something I know very well, but much like at the party with Brad, I find myself again without any weapons.
+
+Choosing a direction at random and moving carefully across the forest floor, I shuffle slowly, scanning the treeline for any movement. My heart pounds, a mixture of excitement and trepidation. I don’t understand how I arrived here, but this is what I had always dreamed of, and I’m not going to fuck up the opportunity. I was born to be in The Understory, and I will find Savage Sam and prove my greatness to him–
+
+SNAP! CRUNCH! Pain pummels me, my body collapsing to the ground, seizing and writhing. A shrill scream escapes my lips against my will, my breath tightening in my lungs, squeezing my chest. I’ve never experienced agony such as this, and it takes me several seconds to even register what happened. But the sight of my foot leaves no question as to the culprit of this pain – a homemade bear trap ensnares my right ankle tightly and blood gushes down the severed leg of my jeans, pouring into my shoe and onto the ground below. I nearly pass out from the sight of it, my gnarled, already blackening foot. I know instantly it will never be usable again.
+
+“HEAVE!” comes the yell from my right, and suddenly I’m upside down, wailing again as the full weight of my body now hangs from my injured foot. Bare raw tendons and muscle are all that hold me in place. The pain I felt before is nothing compared to this, my entire being pulling on my halfway sundered ankle. If I hang here much longer, it’ll rip off entirely.
+
+But I don’t get to dwell on that, because from the grouping of trees directly in front of me emerges a dozen of the largest men I’ve ever seen, armored and wielding bright, sharp weapons of varying deadliness. Some look familiar, but it isn’t until the last steps out that I realize why.
+
+*Savage Sam*. There he is, in the flesh. 
+
+My pain is momentarily forgotten as time slows at the sight of my hero walking toward me, scowl on his face, famed mattock strapped to his back. Despite my circumstances, a smile comes to my face. Savage Sam is right in front of him. He’s really here, mere feet away–
+
+WHAM! Sam’s gloved fist strikes me in the gut. All the air leaves my lungs as I swing backwards, the momentum pulling further on my foot. I can feel the tearing of tendons. My ankle isn’t going to hold on much longer. I scream at the top of my lungs as the agony overtakes all my senses.
+
+“Where is The Necromancer?!” Sam screams in my face. 
+
+I fight to recover my breath so I can respond, but before I can, Sam delivers a kick to my face. A horrifying crack lets me know my nose is broken. The blood flowing down from my ankle is joined by more emerging from my nostrils.
+
+“Please!” I force out, fighting through the pain. “Please… I don’t know who that is.” My voice sounds far away, choked. My nasal passage is severely damaged. 
+
+“You would lie to Savage Sam?” 
+
+Sam’s men spit out laughs at that question.
+
+“Never! I’m a… I’m a huge fan, sir.”
+
+“You’re a *fan*?”
+
+“A supporter, I mean,” I protest.
+
+Sam moves closer, menacing. “Then what are you doing in The Necromancer’s stretch of The Understory, boy?”
+
+“I just woke up here. Please, I swear.”
+
+“And you know not of The Necromancer?”
+
+“I don’t. I have no idea who that is.”
+
+Sam stands to his full height, turning his back on me. “Then you are of no use to me. Someone cut him down.”
+
+“No, wait! I want to help–”
+
+CHTCH! One of Sam’s men swings his sword offhandedly, and it connects right below the bear trap, severing what remains of my ankle’s connective tissue. As I slam to the ground, my gaze aims straight up – at my ankle, still in the bear trap, no longer connected to my body. Another bloodcurdling scream comes out of my mouth before I can stop it.
+
+“Someone shut this pig up! The Necromancer is not going to make himself known with all this noise,” Sam commands.
+
+I watch helplessly as an iron mallet hurtles toward my face. I close my eyes, accepting my fate–
+
+WHAM! The mallet lands beside my head, not connecting. The man who’d been holding it kneels beside me, focusing on the stump of my right leg. I was so concerned about the ankle I’d left behind, I hadn’t even registered that the place it came from is gushing blood like a fountain. My eyes roll back in my head as I take it in. But Sam’s man is unfazed by this sight, and another lackey hands him a torch, which he presses hard into my stump. As it sizzles and pops, my throat is made raw by the cry that emerges, and then everything goes black.
+
+⚔️
+
+Drip, drip, drip. Awakening once more on the forest floor, I find drops of liquid striking my face. As I come to, I realize it’s blood dripping from my dismembered ankle, still in the bear trap above me. Quickly rolling away and wiping my face, I look down to my stump, no longer bleeding, cauterized by Sam’s man. As I search for Sam and his men, I see I’m alone again. Or at least appear to be. The Understory has a way of making you feel hidden, secure. But I now know well how untrue that is. 
+
+I push myself slowly to my ~~feet~~ foot, balancing carefully on my nondominant ankle. I jump to a nearby tree for assistance in standing, but a root leaps out at me, and I trip, landing right on my stump. 
+
+Like deja vu, another scream precipitates a blackout, and I’m again in the dark.
+
+⚔️
+
+The next time I wake, I’m no longer in the forest. Now, I find myself in a dark, dingy laboratory. Torches line the walls, providing minimal light to the space. Various beakers and potions are littered across the workstations. Someone’s done a lot of work here and isn’t very organized. 
+
+I feel much better than before, assessing myself. To my surprise, there is now a wooden peg placed perfectly in the stump of my leg. I reach up and feel that my broken nose has been given a splint. Very gently, I set myself on the ground, favoring my left leg, testing the weight I can put on this new peg. It’s horribly painful, but it’s stable. I’ll get used to it. Everyone has their scars from The Understory, and I’m almost proud to get my first one. Though I haven’t had time to process the heartbreak it occurred via my hero Savage Sam. Our first interaction did not go as planned, but there’s time yet for me to prove myself. Now that I’m in The Understory, I will not let anything stop my team up with Sam. This is what I’ve been training for. If anything, a misunderstood first meeting means I’m sure to be Sam’s new accomplice. This is how these things always work. 
+
+“That feel alright?”
+
+I turn at the voice, and a hooded figure stands in the doorway of the lab. After what I’ve been through, I’m on edge, searching quickly for a weapon, choosing a beaker full of some sort of sparkling liquid.
+
+“Oh, I wouldn’t do that,” the figure says. “You wouldn’t want to waste the last of my regeneration serum.”
+
+“Who are you?!” I demand, trying harder this time to bring the aggressive force and vigor required for an interaction in The Understory.
+
+“Me…?” the figure says “Some call me… The Necromancer.”
+
+I raise the beaker of liquid higher, ready to attack. *This* is who Sam was looking for – his new nemesis. 
+
+“Savage Sam warned me about you.” I did my best to sound intimidating.
+
+“Savage Sam is also the one who took your leg, is he not?”
+
+“That was a misunderstanding! And if you’re his enemy, then you’re mine too.”
+
+“So be it. Feel free to leave, but please put that down first.”
+
+I’m not compelled to comply now that I know whatever I’m holding is valuable to The Necromancer. “I’ll put it down… if you give me a weapon to replace it.”
+
+The Necromancer nods, leaving the doorway and returning moments later with a mace. From several steps away, he slides it to me.
+
+Carefully, my eyes never leaving The Necromancer, I hoist the heavier than expected mace over my shoulder. This is no replica, that’s for certain. I place the beaker back down on the nearest table to The Necromancer’s relief.
+
+“Thank you,” The Necromancer says.
+
+I simply point the mace at him, moving toward the doorway. “We will meet again, Necromancer. Next time, Sam will be by my side and together we will stop whatever evil you’re doing here.”
+
+Once I reach the doorway, The Necromancer finally removes his hood, giving me a look at his face. It’s horrific, grotesque, a ball of scarred skin peeled back to reveal far too much of what lay underneath, a face made of gums, eyeballs, and exposed muscle. I have to fight not to recoil.
+
+“I believe we will meet again, Nick, though not the way you say.”
+
+I’m sickened by this thing in front of me. I have to find Sam and tell him where The Necromancer’s lair is at once. I take one last look at that horrifying face, not wanting to forget what I’m up against, and then I flee up the stone steps, bursting back out into The Understory’s bright landscape.
+
+After five misfires, I finally find the markings representing the pub Savage Sam is known to spend time in, and I knock on the tree trunk, waiting for its hollow base to open. When it does, I descend in wonder through what looks like an ordinary tree down the steps hiding inside to a dark tavern straight out of my TV screen. This is where Sam and his crew hang out in between their fighting, where men can recoup and drink and brawl with abandon. This is one of the places I always dreamed of visiting.
+
+And so it’s with a heavy heart, I immediately find myself in mortal peril again as a short, squat man coated in body armor pins me to the wall, beefy forearm digging into my tender throat, my mace falling harmlessly to the floor before I can even think of swinging it.
+
+“Who the fuck d’you think you are walking in here, bub?”
+
+I choke out an answer, “Nick.”
+
+“Nick? Nick what?”
+
+I’ve been waiting for this moment too. “Nick… *the Nasty.*”
+
+The trollish man gargles out a laugh, looking me up and down. “Only thing nasty about you, boy, is that pathetic leg there.” The troll kicks my bad leg out from under me, sending me straight to the floor. He delivers a kick to the peg for good measure, which sends a lightning bolt of pain shooting through my spine.
+
+As I lie there writhing, the troll takes his place behind the bar as if nothing happened, dragging my mace behind him and tossing it into a chest of other weapons. “You best buy a drink.”
+
+I force myself to sit upright and get to my feet. How I’m going to pay for a drink I have no idea, but I also don’t want the troll to do anything worse to me. I stumble closer to the bar, leaning against it. After that kick, I can barely put any weight on my missing limb.
+
+“I will definitely be purchasing something, sir. But first, I wanted to ask…” I lean closer to the troll, trying to look my most polite. Until I have my mace back, I need to avoid any physical confrontations. “...might Savage Sam be here somewhere?”
+
+BAM! The troll immediately grabs my collar and slams my head into the counter. The tooth Brad loosened pops out, shooting down my throat. I choke loudly.
+
+“What business do you have with Sam?”
+
+“I have information. Please. I’m trying to help.” I can barely breathe, my face pressed into the dirty woodwork. How is such a small man so much stronger than me?
+
+“Help who?”
+
+Before I can respond, that majestic voice emerges again, “I’ll take it from here, Reg.” 
+
+I find myself free to move, and I look up once more into the face of Savage Sam. Even after being maimed by him, I can’t help being emotional seeing my hero up close.
+
+But Sam narrows his eyes as he recognizes me. “You again…”
+
+I put his hands up to signify I come in peace. “Sam, please, I’m here to help.”
+
+Sam looks me up and down, noticing the peg leg, nodding at the sight. “Well, perhaps I was too quick to dismiss you. Come upstairs with me, the rest of my men are out there. You can tell us exactly how you want to help.”
+
+I breathe an enormous sigh of relief. “Thank you, Sam. You don’t know how long I–”
+
+“C’mon then.” Sam grabs me by the arm and pushes me toward the stairs. 
+
+“Oh, um, if you don’t mind, I…” I look back at the weapons crate behind the bar, my mace already far out of reach.
+
+“Won’t be needing that, son. We’ll arm you even better.”
+
+My eyes widen at the thought. My hero Savage Sam arming me. This is exactly what I always dreamed of. We had our first misunderstanding of an encounter, but now we are really going to team up–
+
+BAM! As soon as I exit into The Understory, Sam hits me in the back with his paddock, knocking me down to the dirt. 
+
+I try to catch my breath enough to say anything, but the blow has taken it out of me.
+
+Sam stands over me, the rest of his men joining from the trees. “Look what we’ve got here, boys. This little prick thought I wouldn’t recognize the work of The Necromancer.” Sam kneels down, gently touching my peg. “This could’ve only been fashioned so quickly by one man.”
+
+I fight for breath. “Please… you don’t… understand…”
+
+“Oh, I understand very well,” he says, before calling out again. “Grichuk!”
+
+From the back of the pack, a man who looks like he could be a Hall of Fame linebacker steps toward Sam, and in his hand, he holds a fire poker, burning bright red from their camp’s fire pit. 
+
+I push myself backward, trying to crawl away, but Sam steps on my peg, holding me in place.
+
+“Please!” I scream. 
+
+Sam accepts the fire poker, moving it toward my face menacingly. “Here’s what’s going to happen. You’re going to tell us where The Necromancer is, or…” He gestures with the poker, pushing it within an inch of my cheek.
+
+“I’ll… tell you… I swear…” I promise.
+
+Sam laughs heartily, turning to the rest of the group. “What do we think, boys? Is he going to tell us?”
+
+“NO!” rings out the chorus from the savage band of men. 
+
+My eyes bulge in horror as I realize what that means for me.
+
+“Sorry, boy, but we’re gonna have to make you talk.”
+
+WHOOSH! The poker moves through the air, and I see it happen in slow motion, unable to stop it from making contact–
+
+SZZZT! The poker goes clean through my left eye. It pops and sizzles right there in my head as I let out my most bloodcurdling scream yet. 
+
+Finally, Sam rips the poker back and in one burst, out comes my eye with it, on the end of the point like a marshmallow getting roasted in a fire. 
+
+Sam drops the poker, and I’m forced to watch with what’s left of my vision as my own eyeball turns black and explodes. 
+
+Savage Sam once more kneels down to me. “And now… I’ll bet you’re willing to talk.”
+
+⚔️
+
+When I wake up in The Necromancer’s lab for a second time, I’m immediately brought to tears. How could Savage Sam treat me like that? 
+
+And why is the person Sam sees as his new enemy the only one helping me?
+
+A shuffling from the door alerts me to The Necromancer’s presence. He’s just entered the room and is now watching me cry. Embarrassed, I try to stop, wiping my face with the back of my hands. I look up at The Necromancer, trying not to stare at his scarred face, unsure what to say.
+
+Finally, The Necromancer speaks for me. “I understand.”
+
+“But why would Sam do this to me?” I whine. My physical pain manifests into this emotional cry. I feel a horrible pulsing pain from where my eye used to be and I can tell immediately how damaged my depth perception is with only one eye to see from. First my foot and now this. I’ve not just been injured, I’ve been *broken*. By Sam no less. And the worst part is, I could tell he enjoyed doing it. He *liked* it. 
+
+The Necromancer gestures to the horror that is his face. “Who do you think did this to me?” he asks. 
+
+Several things click for me then. Each of Sam’s villains is someone he had previously injured in some way. Sam creates all of his villains, and now here I am in the middle of another Savage Sam adventure, just not on the side I expected. Because Sam created The Necromancer, yes… but he also had now created me.
+
+“Wait!” I suddenly realize something. “I told Sam where to find your lab.”
+
+The Necromancer simply shakes his head. “He won’t find it until I want him to. Trust me.”
+
+“So, we’re safe here? Safe from…?” I can’t even finish the thought. I can barely believe I’m having it. 
+
+“Yes, we’re safe.”
+
+Forcing myself to my feet, I stop feeling sorry for myself. “How did you know I’d be back?” I ask The Necromancer. 
+
+“I could tell you were going after Sam again. And I knew what would happen if you did. I know you admire the man, but Savage Sam… he only understands brutal violence, even with those who wish to work with him. You know, here in The Understory… we say it isn’t always wise to make the acquaintance of those you admire, lest you leave disappointed.”
+
+I suppress a chuckle. “Yeah, we have a similar saying where I’m from…”
+
+There’s a bonding moment between us in the silence that follows. 
+
+Then a question occurs to me. “What’s your name?” The Necromancer looks confused, so I clarify. “Your real name. What did they call you before all this?”
+
+The Necromancer smiles sadly, like he’s remembering a nice dream he once had. “Christian was my name once.”
+
+I take a step closer to Christian. “Christian… I like it.” Another question occurs to me. “And why do they call you The Necromancer?”
+
+Now Christian really smiles. “I’ll show you.”
+
+⚔️
+
+My heart falls into my stomach as I try to process what Christian is showing me. He's revived not just one, not just two, but all seven of Savage Sam’s worst enemies. It's a nightmare.
+
+“How could you do this?” I finally ask. 
+
+“I know it’s hard to understand, but all of these people have justifiable grievances against Sam the same way you and I do.”
+
+“No! These people are evil. They were extinguished by Sam for the good of The Understory and now you’ve brought them back!”
+
+“Nick… please, you must understand. You’ve experienced it now. Sam masquerades as a man of the people but he is a terrible force in this world. He must be stopped. And this was the only way I could think to do it.”
+
+“But these people…” I say again. I can’t imagine working side-by-side with The Baron or Cruel Carissa. It’s unthinkable. 
+
+But is Christian right? Does Sam need to be taken down? The brazenness, the carelessness, with which he crippled me… is he doing that to other innocents with such reckless abandon?
+
+“I know you’re used to seeing things from Sam’s point of view, but look where it’s gotten you. Open your mind, Nick. Consider the possibilities of what I’ve created here.”
+
+I look in at them all. The Mortician talking to Brutus the Bear. Cruel Carissa sparring against Lotus Lantern. It’s bizarre. 
+
+“How did you even do this?” I ask.
+
+Christian looks away, avoidant. “I… I tried unsuccessfully to bring someone else back, someone Sam took from me. I could never get it quite right with her, but for some reason, when I decided to try on them… it worked.”
+
+Seeing the pain on Christian’s face, I have a thought I never expected to: *Savage Sam must be stopped.*
+
+“Okay,” I say. “Let’s do this.”
+
+⚔️
+
+Christian and I go to battle. I fight each of Sam’s mortal enemies, learning different maneuvers and fighting styles. At first, I pretend I’m Sam going to war with them, but I soon find myself looking at each one as an ally, my animosity turning to comradery. 
+
+One day, Christian and I look in at The Baron and Lotus Lantern as they brutally attack each other, training relentlessly. 
+
+“They’re even stronger than the last time they faced Sam,” I remark.
+
+“I made them that way,” Christian says.
+
+“Can you make me that way?” I ask hopefully. I’d been improving but I am nowhere near the leagues of these people.
+
+“I was only able to remake them because they had perished. The same would go for you.”
+
+“Well…” I say. “Let’s hope that never becomes the case.”
+
+Christian nods in agreement.
+
+Though the journey of the following week is the test of my life, after enough training, I eventually find myself fit to wear the moniker of warrior.
+
+And Christian had been proven right. Despite the information I’d given up, Savage Sam did not find us during this readying process.
+
+So, finally, myself, Christian, and the many foes of Savage Sam prepare to do battle. We don our armor and sharpen our weapons. I go with a mattock like Sam’s, not to honor him, but to match him. Chainmail is forged for my person and fits me just so. And lastly, perusing Christian’s treasure trove of helmets, I find one that looks much like a crown, one that will make me look exactly like–
+
+“King Nick the Nasty,” I declare. “This time, Savage Sam will be fighting not just every enemy he’s ever faced, but also their new leaders. King Nick the Nasty… and The Necromancer.”
+
+Christian smiles at the thought.
+
+⚔️
+
+The battle is briefer and more gruesome than expected, but that’s the nature of the weapons this world uses against soft human flesh. Blood and sweat fly across the dirt floor of The Understory as men and women fall on both sides. Bones are broken, skulls are smashed, lives are snuffed right out. It’s unlike anything I’ve ever seen. 
+
+And I do well, taking down several of Sam’s men, escaping with little injuries to speak of. Until– 
+
+–Richard the Wrathful confronts me, eager to show me my favorite device in person. I’m torched from head to toe by Richard the Wrathful’s enormous flamethrower, the very same of which I own a replica. My skin boils and bubbles like a roast duck in the oven. The screams unleashing from my throat make the previous ones seem like whimpers. 
+
+But I don’t stop. My mattock swings into the flamethrower, knocking it to the ground, rendering Richard the Wrathful a pathetic, unarmed man. My burns don’t prevent me from landing the sharp side into Richard’s head, his shocked expression now permanently etched onto his face.
+
+And then all that’s left is me, Christian, and Sam. The others had helped take down Savage Sam’s men, but Sam had fought them all before and he knew how to defeat them. So it’s left now to the two new friends.
+
+“You little shits will not be the end of me. I’ve defeated far more difficult enemies with far less,” Sam says with an enormous amount of bravado. But there’s no mistaking the nervousness running through him at the prospect of a two-on-one battle. This is a side of Sam I’ve never seen before. Perhaps he isn’t so savage after all. 
+
+But I also can’t be counted as a full one in that two-on-one. It’s torture just to remain standing with the state of my burnt body, and Sam obviously knows he can take me down first. He doesn’t hesitate to swing his mattock at my head. The sudden movement of my dodge tears open my newly scaly skin, and the painful bleeding that ensues sent me right to his knees. 
+
+Christian stands alone against Sam, sword in hand, and I watch, with a better view than I’ve ever had before, as Savage Sam once again fights off his latest archnemesis. But this time, my allegiance has shifted. 
+
+Christian’s sword and Sam’s mattock send sparks into the air as they hit against each other over and over. I want to get to my feet and help, but it’s all I can do to stay conscious at this point. My burns are now in control. 
+
+It isn’t long before Sam sends Christian into the dirt, his mattock driving hard into his ribs. Christian fights to catch his breath, and I watch in horror as it seems my friend’s demise is inevitable. 
+
+With the last of my strength, I fight to my feet, raising my mattock. Sam laughs at the sight. 
+
+“Okay, you first,” Savage Sam declares.
+
+And then he comes at me, mattock landing with a sharp, wet thud into my chest. I fly back to the dirt, feeling my broken ribs stabbing different internal organs. It’s like nothing I’ve ever felt before. Every time I think I’ve felt the worst pain imaginable, more is lumped on.
+
+“Looks like you’re no king after all. Pity,” Sam says as he stands over me, sharp side of his mattock ready to come down.
+
+And just as it swings–
+
+–WHOOSH! WHAM! It instead lands beside me, and next to it sits… *Savage Sam’s head.* 
+
+Standing over me now is Christian, his sword wet with Sam’s blood. He falls to his feet, reaching for me.
+
+“You’re alright, you’re alright,” Christian insists.
+
+But I know I’m not. I’m taking some of the last breaths I ever will.
+
+“It’s okay…” I say. “I got to see The Understory. I got to fight here… It’s okay.”
+
+Christian shakes his head, not accepting it. “No. I will bring you back. You will wake up even stronger, my friend. I promise you.”
+
+But I shake my head right back. “It’s okay… I’m ready to go.”
+
+And then for the last time… everything goes black. 
+
+⚔️
+
+When I next regain consciousness, I’m in bed at home. My return from The Understory comes with none of the scars I earned while there. I wake up with all my limbs intact, every sense restored to what it had been, my body entirely without evidence of the journey I took. 
+
+But I can still feel it all the same. The pain in my right leg as I walk upon the peg that, with every step, bites into the musculature where my ankle previously resided. The blinding fire in my left eye from the hot poker that plucked it out. The bitter taste of blood from my broken ribs massacring my insides. And of course, the tender, blackened skin covering my entire body thanks to the flames that licked every inch of me. All of it is still there, invisible, under the surface. 
+
+And it is my fuel. 
+
+Though I find myself back in the world I thought I left behind, my journey hasn’t been for nought. All this time I wanted to get to The Understory, to the world of Savage Sam, because I thought it’s where I belong. 
+
+But my time in The Understory taught me how untrue that is. Maybe I should’ve learned cruelty isn’t the answer, that a hero isn’t someone who resorts to violence. But that’s not what my takeaway is. What I realized is I don’t need to go to some other world, I need to change my own. I’ll remake this world as I see fit, and I won’t stop until I live in the world I want. 
+
+*A better world.* 
+
+And so I go to work. I drive down the street. I put on my uniform. And moments after my arrival, when Derek’s blood runs down the Golden Arches on my shirt, I finally feel peace. I’m establishing the new rules of this place, one person at a time. I take Derek’s newly severed head and place it on a spike, putting it in the parking lot for all to see, for all to know who rules this town. 
+
+The flashing scream of sirens outside doesn’t even dampen my spirits, for I know when they saw what I’ve done, they will know–
+
+–this place is now and forever ruled by **King Nick the Nasty**. 
