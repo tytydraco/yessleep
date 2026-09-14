@@ -1,0 +1,38 @@
+I do mean to emphasize that this story is a real story; I have had my parents and aunts tell me otherwise, but I know it to be true. My native place is in a remote village in Tamil Nadu, a state in India. Out of everything in my native place, I remember my grandfather's house the best. It was a Chettenad mansion, a unique type of square bungalow which has two floors, and in the center there was a courtyard with a large water fountain. It was never distant from the paddy field, nor was it far from the forest; each night you could hear the sounds of the crickets or the sounds, or the *‘churr, churr, churr’* of the Indian Nightjar. I had always found the sounds annoying; if you did not fall asleep at 9:00, you were stuck all night hearing chur, chur of that darn bird…  
+
+
+
+
+My great-grandfather had inherited acres of farmland, but by the time my grandfather grew up, the old man had lost every bit of it to gambling debts. Marriages are expensive in India, mostly for the bride. My great-grandfather had arranged the wedding of my grandfather; the bride's father was to settle the debts my scoundrel great-grandpa had acquired, and he was also supposed to give a mansion at the end of town. The mansion became our family mansion.  
+My grandfather soon found out something was wrong with his wife. She would spend hours alone screaming; sometimes she would make nonsense words, and other times she would stay in the same position for hours. My gramps, being the young man that he was, got tired of looking after her. He had hired two maids to take care of his wife, and he himself had decided to sail onwards to Lanka.
+
+During those days, it was common for men to take a boat and just sail to Lanka, trying to find riches or wealth. My grandpa had decided he would stay in Lanka for as long as it took, and he did; he stayed there for four years. For every month of the first year, he would diligently mail the money to the maids; then by the second year, the frequency of the mail slowed: he would mail them every two months, then every three months, and four, and then finally, in a letter to them he wrote:  
+*‘I have found a new woman in Lanka; I thank you for the help. You may go now.’*
+
+That woman became my grandmother. In those days, it was not uncommon for people to quietly kill those different from them; sometimes they would simply stop feeding them, and sometimes, the person would just ‘disappear’ in the forests. It was seen as a ‘mercy’; the hired help had simply locked the door, with the woman still inside.  
+It was said that when my grandfather left for Lanka, the woman had gained a sudden fondness for him; she would talk to the maids about how, when she would reunite with her husband, she would start a family, she would have kids.  
+In the last days of her life, it was said that the woman desperately screeched at the wooden door, screaming my grandfather's name, *‘Muttu, muttu, muttu’...*  
+My grandfather had come back to India a rich man, and with a wife. He now had the money to hire dozens of helping hands; he cleaned all the rooms, and when they found the body. My grandfather had arranged a funeral; it was a moderate affair. Only the girl's mother and my own grandfather showed up.
+
+That is the background, the story of my grandfather's first wife. It has mostly been forgotten, except by some old aunts(who I myself got it from).  
+Now, this brings me to the relative present: it was a wedding, and in my culture weddings are a grand affair. Three hundred of my relatives were cramped in the old house. A dozen or so people were taking a single room. I had woken up, in what seemed to be midnight, to the sound of the Nightjar and my uncertain bladder not letting me go back to sleep. The most fascinating aspect of traditional Indian architecture is that the bathroom is located outside the house.  
+I had gotten out of the house, the chills of the night and the humidity of the equator both competing. The sound of the night was distilled by the sound of critters, and there I saw her. I assumed her to be a cousin. She wasn't much older than me; perhaps she was in her late twenties. She was looking into the distance, and I had decided that she must have come for the same business as me.  
+She looked at me; her eyes seemed kind, and a smile was plastered on her face. She came near and held my cheeks.  
+‘Dear,’ she said.  
+She must be a relative I have forgotten about. ‘Oh hello, akka, how are you? ’  
+‘It's been so long. I haven't seen you for a long time, dear’.  
+I was creeped out. I told her that I was sleepy, that I would meet her in the morning,  
+‘Dear, why did you leave me? Her grip tightened. I was creeped out. ‘Akka, you're holding too tight.  
+She smiled at me, the smile too far. ‘Akka…’  
+Suddenly she began screaming. Her grip tightened as she twisted her wrist, and when I looked down, I saw a piece of my own cheek torn away in her palm.  
+‘Dear, dear, dear…’ she began muttering, her dead eyes locked into mine,  
+I woke up, sweat layering my forehead. It must have been a dream, yet for whatever reason I could feel a slight tension in my cheek.  
+It was in the morning that I saw a ceremonial photo in the hall; it was the same woman I saw yesterday, and at the bottom it was written, *Mrs. Muttu.*
+
+This was not the last time I saw the spectre; it was the last day of the wedding. I had come home early and locked myself in a room. I was reading a novel—Agatha Christie, I think. When I heard a knock on the door, I was about to open it. When I heard a familiar sound,  
+‘Dear…’ it said — I stood frozen.  
+‘Dear…’ it repeated louder; it was scratching at the door,  
+‘DEAR!’ it screamed; the door rails were rattling. I was beyond terrified; my heart, I think, had completely stopped.  
+From the other end I could hear weeping and a distinct shrill wail, ‘why, why, why’. It repeated my grandfather's name, ‘Muttu, muttu, muttu’; then the sound faded.  
+When I told this story to my aunt and my parents, they all laughed. ‘Perhaps it's because you look exactly like your grandfather when he was younger,’ they teased.  
+But I swear, even now, when I am in the family home, I can hear a woman's voice, faintly crying and wailing, *‘Muttu, muttu, muttu…’*
