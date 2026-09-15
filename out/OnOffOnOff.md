@@ -1,0 +1,134 @@
+My lights keep flickering whenever I feel the darkness coming.  
+On. Off. On. Off.
+
+I’ve been through some awful things in my life, and wherever I go, they seem to follow me.  
+For years, I hated that flickering.  
+I thought it was a warning. Some horrible little sign that something awful had happened.  
+I’d look up at the ceiling, and there she’d be.  
+Flickering the damn lights.
+
+The first time I miscarried, I remember looking up at the ceiling and begging God for forgiveness. I don’t even know what I thought I’d done wrong. I just remember crying and asking Him why.  
+Then the light above me flickered.  
+On.  
+Off.  
+On.  
+And for just a second, I saw her.  
+The first time I was s-assaulted, I lay completely still afterwards, staring at the ceiling.  
+She was there again.
+
+The first time somebody nearly killed me, I remember desperately trying to follow the light towards what I thought would be my final moment.  
+Then the light flickered directly in front of my eyes.  
+I was startled back into breathing.  
+At the time, I thought she was tormenting me.
+
+Eventually, I couldn’t take it anymore.  
+I decided that if something terrible was going to happen to me, at least this time I’d be the one making the decision.  
+I won’t go into how I tried to do it.  
+I just remember the room becoming strangely quiet.  
+Then I saw her.  
+My sister.  
+She had died years before.  
+Her dark curly hair seemed to move in a breeze that wasn’t there, and her perfect hazel eyes looked directly into mine.  
+She didn’t say anything.  
+She didn’t have to.  
+I woke the next morning.  
+Alive.  
+I thanked my sister for saving me.
+
+I saw a doctor. Then a therapist. Eventually, I started putting my life back together.  
+It wasn’t perfect.  
+It still isn’t.  
+But I survived.
+
+And ever since the last day I saw my sister physically, I’ve noticed she’s still around.  
+Not always.  
+Just when I need her.
+
+During the birth of my first child, I remember lying exhausted in the delivery room, convinced I couldn’t do it anymore.  
+I looked up.  
+The light flickered.  
+On.  
+Off.  
+On.  
+I kept going.
+
+When I had to escape my child’s father through a tiny basement window, I looked back.  
+The little light behind me was flickering.  
+On.  
+Off.  
+On.  
+Off.  
+I don’t know why, but somehow I knew she was telling me to keep going.  
+So I did.
+
+Later, that same man tried to have my child taken away from me.  
+He was standing beneath the kitchen light when it started flickering.  
+On.  
+Off.  
+On.  
+Off.  
+Faster.  
+Faster.  
+Then the bulb exploded.  
+Glass went everywhere.  
+He survived.  
+And after that he left us alone.
+
+Eventually, I settled into what I thought was an amazing relationship.  
+For a while, I actually believed I’d finally found peace.  
+Then one night, while I was lying in bed, I noticed the light above me had started flickering again.  
+On.  
+Off.  
+On.  
+But this time, something felt different.  
+I stared at the light.  
+Then I looked towards my partner’s wardrobe.  
+The light flickered again.  
+On.  
+Off.  
+On.  
+I don’t know why I listened to her.  
+I just did.  
+Inside the wardrobe, I found a box.  
+Drugs.  
+Needles.
+
+Things I never wanted anywhere near my child.  
+I sobbed into my pillow that night while my baby slept peacefully beside me, completely unaware of what was happening.  
+His little night-light flickered softly.  
+On.  
+Off.  
+On.  
+The next morning, we left.
+
+What I thought was going to be my escape turned into another nightmare when my ex followed us across state after state.
+
+Eventually, we ended up hiding in a dingy hotel I’d never even heard of.  
+Somehow, he found us.
+
+That was the last time I ever had to face him.  
+My son was asleep beside me when the hotel door suddenly exploded inward.  
+I screamed and squeezed my eyes shut.  
+Everything went white.  
+For one horrible second, I thought I’d died.  
+Then…  
+Nothing.  
+No footsteps.  
+No shouting.  
+No pain.  
+Slowly, I opened my eyes.  
+There he was.  
+Glass was embedded in his face, blood running down his cheeks. He wasn’t moving.  
+Above him, the light was flickering.  
+On.  
+Off.  
+On.  
+I stared at it.  
+And finally understood.  
+She hadn’t been warning me.  
+She’d been protecting me.  
+My sister was never the darkness.  
+She was the light.  
+And she was still watching over us.  
+We were free.  
+Once more.

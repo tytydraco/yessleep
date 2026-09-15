@@ -1,4 +1,4 @@
-I got braces at twenty-eight. I'd wanted them since I was eleven, which meant almost two decades of pressing on my crooked front tooth in the dark every night, just willing it to shift. It never did. My parents didn't take us to the dentist growing up unless something had gone seriously wrong. We weren't neglected, just poor, and dental care got pushed down the list unless someone was bleeding. Braces weren't a conversation we had.
+I got braces at twenty-eight. I'd wanted them since I was eleven, which meant more than two decades of pressing on my crooked front tooth in the dark every night, just willing it to shift. It never did. My parents didn't take us to the dentist growing up unless something had gone seriously wrong. We weren't neglected, just poor, and dental care got pushed down the list unless someone was bleeding. Braces weren't a conversation we had.
 
 My teeth were bad. The overlapping bottom row. The front tooth that sat slightly behind the other. The canines that came in too high and jutted outward. I learned to smile with my mouth closed, to cover it when I laughed. There's a photo from my college graduation where everyone else is grinning and I'm doing the closed-mouth thing, head slightly down, looking slightly left. I remember thinking I'd ruined it. I remember thinking that even on a day like that, I couldn't just smile like a normal person.
 
@@ -256,4 +256,4 @@ It never gives.
 
 I spent years wishing I could smile like this.
 
-Now I can't stop.  
+Now I can't stop.
