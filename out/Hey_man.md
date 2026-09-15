@@ -302,7 +302,7 @@ I ran.
 
 The voices followed me between the graves, surrounding me from every direction.
 
-Beneath them all, hundreds of voices began chanting together.
+Then hundreds of voices began chanting together.
 
 “JOIN US!”
 

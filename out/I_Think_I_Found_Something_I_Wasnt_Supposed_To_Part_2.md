@@ -1,3 +1,5 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/1vxp3i3/i_think_i_found_something_i_wasnt_supposed_to/)
+
 I spent the morning with the map flattened out on the kitchen table next to a printout of the property lines I pulled off the county site, trying to get some sense of scale before I actually went walking around out there like an idiot with no plan. My grandfather's map isn't drawn to any real proportion, some distances are squished together and some are way stretched out, as if drawn from memory. I am also not even sure when this map was drawn. Either way it wasn’t exactly lining up to the counties.
 
 Once I had something workable I grabbed Otis and headed out, figuring he might as well come along. Except he did his usual thing, planted his feet right at the tree line and would not budge no matter how much I coaxed him. So I ended up walking him back inside and heading out on my own.
@@ -19,4 +21,3 @@ I didn't touch anything else out there. Bagged the wallet, took some pictures of
 Part of me wants to just bring this into the sheriff's office in town, except all I've got is a rotted wallet and a symbol I've never seen before, on my own property, that my dead grandfather apparently marked on a hand drawn map however long ago. Doesn’t really scream sufficient evidence of anything really.
 
 I'm going to actually sit down and read through the journal properly tonight, front to back this time instead of skimming like I did before. I know I've been putting that off a little. I really wanted to explore the map first.
-
