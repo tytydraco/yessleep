@@ -1,0 +1,175 @@
+This text was not written to satisfy the morbid fascination of anthropologists, sociologists, or other so-called professionals, nor that of carefree, curious dilettantes who might be drawn to the tragic fate that my family history has entailed.
+
+Nor is it intended to seek fame through a sensationalist, crude, and exaggerated story meant to entertain idlers in need of some form of entertainment to consume. I share this simply because it is the exposition of a truth—my truth—which, unfortunately, has fallen to me in particular in the lottery of coincidences and causalities that is the course of life.
+
+I am a normal person—or at least that is what I have believed for as long as I can remember my actions. I have never considered my disposition to be twisted, nor have I found in my blood any trace of mysticism or superstition. My upbringing was largely secular, and if I were to be exposed to any form of deism, it would have been through influences outside my immediate family. I state this for the sake of context regarding the story I intend to tell.
+
+My parents had me when they were already quite old, even though today, as I write these pages, I am relatively young—not yet in my thirties, though I won’t be far from it. I am an only child; I grew up in southern Spain, near the southern tip of the Iberian Peninsula. Unfortunately, neither my father nor my mother enjoyed good health in their later years, and they consequently passed away within a couple of years of each other—first my mother, from pancreatic cancer, and just four weeks ago, my father was taken by heart problems. I loved them both as one would expect from a grateful son toward parents who always rewarded my academic achievement, discipline, and affection.
+
+Although our relationship was obviously not flawless—as I believe it shouldn’t be, since living together inevitably leads to friction and arguments—they were both considerate and understanding, and I have nothing bad to say about them, for they were just as human as I was.
+
+My comfortable and privileged financial situation, rooted in a family tradition of entrepreneurship in the energy sector, allowed me to study at the finest educational institutions, where I was nourished by the most exceptional teachers and knowledge—like ambrosia for the intellect. Since I recently completed my studies in what has always been my literary passion—and have also recently found myself an orphan—I was not troubled by the need for a conventional job, as since my mid-twenties I have devoted myself to buying and selling antiques, as well as managing the real estate and rental income from my family’s estate.
+
+I never met my father’s side of the family; I didn’t have any known relatives on that side. Holidays were always celebrated exclusively with my maternal aunts and my three cousins, with whom I’m still in touch despite our age difference—they’re all quite a bit older than I am.
+
+I remember asking my father just once why there were no close relatives on his side of the family. He replied curtly that my grandmother died very shortly after giving birth to me due to complications from blood loss during labor. He met my mother in high school, and as soon as they could, they moved in with my mother’s parents—that is, my maternal grandparents—whom I never met, since they both died long before I was born. It wasn’t a burden for them, given their affluence; they could afford to take in their daughters’ fiancés in their large homes, provided they were men of good character and virtue—to the extent that they would never mistreat any of their children.
+
+That is how my father hurriedly left behind his home in the Basque region of France, right next to the border in the Pyrenees. As I came to understand the geographical and linguistic situation of that unique region, I asked him—out of sheer restless curiosity—why he had always spoken to me and raised me in Spanish, never once mentioning French or Basque, and he told me that such things brought back “bad memories.” He told me he came from a family of Spanish Basques who had moved to the French side of the mountains due to some kind of persecution—which he never clarified to me—and I didn’t press him on the matter once I realized the pain that tormented him, evident in his teary eyes. At first, I assumed he was obviously referring to the emigration caused by the Civil War...
+
+Now I understand why they were surely so distressed during those endless nights when, in silence, those sweet elders shared the pain and anguish of the imminent news and the fact that they would have to give me some explanations. Now that they have both passed away, they no longer need to worry, for it fell to me to investigate the event. A couple of days after my father’s funeral, I also received a notice from a French notary regarding another death. My paternal grandfather had died. And under inheritance law, it now fell to me to take charge of his estate as well, which I would have to claim in France, where I traveled as soon as possible.
+
+Thanks to my aforementioned affinity for literature and languages, I had learned French to a very high level during my high school and college years, so I would have no trouble reading documents or clarifying matters with the relevant officials handling the case.
+
+As this mystery arose, an ancestral feeling stirred within me; a need to know and unravel this mystery—which had taken root in my mind so subtly, yet latently, that I had dreamed of it in some of the madness and delirium of winter fevers—spread through my composure. It wasn’t a matter of great importance to me, but it gnawed inexorably at me due to the lack of information and the secrecy of my parents.
+
+Once in his opulent office, the French notary addressed me to confirm that the only thing officially recorded regarding my grandfather was that he had lived in a large house located—practically, in the literal sense—in the middle of nowhere, far from any settlement—not just an urban one, but even a small town—deep within the Pyrenees themselves.
+
+He couldn’t give me a key or any of his belongings; he told me that, based on what they’d been able to find out, my grandfather was a frugal farmer who had no contact with either his neighbors or the French authorities, who didn’t even bother much about him given how little he earned selling his own produce to a few neighbors; the notary assumed he lived off his own crops.
+
+His body was found by some hikers not far from his own home; they reportedly notified the authorities when he had apparently been dead for about three days, according to the autopsy. He must have been taking a walk in the vicinity. The notary asked me if I wanted him to arrange for me to view the body at the morgue, though I refused and told him that as far as I was concerned, they could cremate him and scatter the ashes—it would be as if they were doing it to a stranger. That was just a shell of flesh that no longer held any meaning for me, unlike his possible belongings, from which I might be able to deduce something.
+
+I signed the acceptance of the inheritance, and that’s how I ended up with a couple of papers certifying my right to a small plot of land measuring several dozen square meters, although it’s already clear at this point that government oversight and control are somewhat blurred when it comes to these rural matters—due to the lack of activity in areas far from their jurisdiction and which don’t seem to be a source of interest.
+
+The map included, marked in red, the square representing the plot of land, so off I went, toward the French Basque Country, from Toulouse.
+
+During my stay, I had picked up a backpack and various supplies from stores I’d passed by, just in case I needed or wanted to stay for a couple of days. I couldn’t predict how much I would enjoy what had once been my ancestor’s home. Obviously, my solid financial situation allayed any temporary concerns about the stay. What troubled me wasn’t exactly that, but other things that would soon come to light.
+
+After several bus rides, taxi trips, and walks, I arrived at the large house. The last town I’d been in was about an hour and a half away on foot. It was almost noon; the weather was pleasant—spring, with a gentle, cool breeze and the song of little birds flying back and forth among the mountain vegetation. It wasn’t too cloudy, with just a few patches of cloud floating by. I found myself among towering mounds and arrived alone before the imposing house. To my surprise, it was much larger than I could have imagined. It was two stories tall, with a very rustic appearance, clearly showing that it had been built by hand, the work of masons.
+
+The materials used were rather rough: not very polished stone blocks, narrow, vertically elongated windows without glass, but covered with rusty iron bars.
+
+Scattered here and there among the grass were piles of logs and scattered pieces of firewood, swollen and wet. An old axe, half of whose blade was rusted, lay embedded in a stump a few meters to the west.
+
+I walked over to the front door; it was made of dark, rotten wood and reeked of dampness.
+
+I tried to open it by pushing against it, since it had no latch or handle—it was more like a large slab of weathered wood wedged there to serve as a threshold. It turned out it wasn’t sealed shut, but rather jammed against the floor. I braced my body weight against it and managed to pry it open just enough to create a small gap through which light from outside seeped inside.
+
+I grabbed the exposed side with both hands and strained to lift it so I could slide it open; this task was quite difficult because of how firmly it was anchored, but I managed to create enough of a gap to get inside.
+
+The interior exuded an irreconcilable air of decay, neglect, and corruption in every sense and from every perspective. The appearance, the stench. A terrible heaviness hung in the air, befitting the decay of the place. There was trash and filth everywhere—rotten fruit peels, small blackened chicken bones, open and overturned cans of various foods—all of which attracted swarms of flies, mosquitoes, and other flying or crawling insects that flitted or scurried about, trying to devour those decayed delicacies.
+
+The large main room on the ground floor was open and airy, with a pair of columns made of thick, worm-eaten wooden beams, arranged in a square to distribute the weight. Apart from that, it contained nothing more than a fireplace with only a few lingering embers, a couple of wicker chairs, and a rough, homemade wooden table overflowing with more expired food, piled high and infested with bugs and vermin. Extremely dirty and sticky plates on which even the corpse of a cockroach floated in the grease of a half-eaten chicken.
+
+I then noticed that, next to the table, set into one of the interior walls, there was a pair of hinged doors behind which lay a small, rickety staircase that descended a couple of meters to a storage room filled with salt for preservation; I found a light switch as I made my way down, running my hand along the sides of the staircase. The faint yellowish light from a single light bulb tied to a frayed cable hanging from the ceiling illuminated the room.
+
+It was a bit cooler in there, and the provisions looked edible, though I wouldn’t have dared to take a bite or prepare anything because of what I was already carrying with me. I had no need or reason to do so, which was a relief. “Better safe than sorry,” I thought.
+
+I’ll reiterate at this point in the story that I am not—and never have been—a superstitious person; I worship reason and reason alone. I have no interest in spreading mystical or esoteric ideas, and I’m certain it was my frazzled nervous system that played a trick on me, causing me to mistake a nearby noise for a faint laugh with a woman’s voice.
+
+At that moment, I startled slightly, as one might expect in my situation; I spun around, scanned the stairs leading upward—the dimly lit steps, the doorway
+
+to the storage room—and stood there dumbfounded, paralyzed, as if I were waiting for something or someone to appear and begin slowly descending toward me in that trap with no escape. But none of that happened.
+
+I tried not to let my imagination get the better of me, turned off the light, and headed back toward the kitchen area. I noticed the lack of cabinets to store dishes and realized that surely there was nothing more than that pair of glasses filled with grime and murky water and the four plates scattered across the table. If he lived alone, I suppose he’d think he didn’t need anything else.
+
+The stairs leading to the upper floor were at the end of the living room; they were made of a greenish wood and heavily moldy. I stood there for a moment gazing at the backyard visible through the rear windows; there was a small, carefully tended garden, with some plants that had already borne fruit that hadn’t been harvested. Tools and implements were scattered across the surrounding ground—a shovel, a hoe. At a glance, I could make out tomato plants, above all.
+
+Beyond the property lay an unfathomable expanse of dense shrubbery and trees—places that have inspired the bloodiest and strangest legends and myths—that treacherous, impenetrable, and wild nature that instills an instinctive fear in the hearts of men, promising the unknown and the risk of never returning from that journey undertaken against such an indecipherable enemy.
+
+I neither wanted nor needed to leave the house; as I’ve said, beyond it there was nothing for me. I would finish inspecting the house, take some notes if necessary, and head back to civilization.
+
+I climbed the stairs; they creaked terribly, like hellish wails, and I felt my shoes sink slightly into their soft surface. I reached a doorframe with no door; the room upstairs was the same—an empty space, but with everything scattered across the floor in some sort of order that I suppose only my grandfather could understand in his own little world.
+
+The floor here was made of gray ceramic tiles; in one corner, a mattress lay on a rusty box spring. The cotton padding was torn in places, and there were extensive urine stains on it, giving off a nauseating stench. I wondered if this was due to incontinence from old age or if he was doing it on purpose to avoid having to go to the bathroom outside the house.
+
+As I made my way through the room, I found a pile of woolen blankets stacked near another corner, with swarms of ants scurrying over them to snatch up the breadcrumbs he’d apparently scattered on the fabric—likely from eating while in bed.
+
+Hanging on a black wooden coat rack were several items of clothing that were very old and out of style. Winter coats, light jackets, a black hat, jeans, shirts. All showed signs of neglect: dark stains, grease, fraying, tears, dust, and broken seams. I didn’t want to take any of these items for myself—not out of
+
+any aversion or superstition about taking a dead man’s clothes, but because it would have been a pointless act of vanity to take them, since, once again, as far as I was concerned, this man was a stranger to me.
+
+Turning toward the bed to complete my inspection from top to bottom, I soon noticed that there were three large shoe boxes under the bed. I dragged them out and lifted their lids. Inside, there were several volumes—to refer to them in some conventional way—though in reality they were nothing more than piles of small, yellowed papyri arranged as if they were the pages of a book, bound with hardened leather covers.
+
+From his cardboard boxes, I salvaged about five booklets in all. Without further delay, I tried to read one at random, since they had no titles or distinguishing features on their covers.
+
+I was immediately confronted with something utterly unintelligible, and I’m not referring to the author’s handwriting, which—though scrawled and of terrible quality—I could understand given my extensive experience reading and deciphering all kinds of literary and historical manuscripts that I studied throughout my academic career. I had thus acquired the mastery and versatility of an eye accustomed to all kinds of scripts and forms of writing in various alphabets.
+
+It was precisely my lack of knowledge of the language used in the writing. It was Basque, that mysterious language—so ancient and strange that my father had refused to use it—native to the Basque lands, with no known origin and bearing no resemblance to either the Romance or Indo-European languages.
+
+Lost in thought, I took all my notebooks downstairs, cleared the table of odds and ends, and pushed them aside onto the floor. I set my backpack on one of the chairs, bolted the front door again, and that’s when I realized there was no door leading to the backyard garden—though that architectural inconsistency could wait for now.
+
+I took my cell phone out of my pants pocket and used the camera’s automatic translation feature on whatever was in focus—a feature I’d used a few times over the two years I’d owned the device. Ironically, the camera was unable to recognize the written characters and only offered a few garbled translations—scattered, isolated words. “Forest,” “old,” “ancient,” “codex,” “gods”—these were some examples I recall.
+
+But nothing provided me with a clear meaning or any information that would shed light on the subject matter of those texts, so, huffing and puffing, I set about manually transcribing the first few pages of one of the notebooks simply to find out what it was— whether it was a diary, notes on agriculture, or a story born of the tedium of rural life. I toyed with all those possibilities in my head, though the one that sparked the most curiosity and excitement in me was the last option—even though a personal journal would also serve as a kind of psychological profile of my ancestor.
+
+Accustomed to this sort of maneuvering, it didn’t take me long to transcribe the first page. The text, now saved in a note-taking app, could be copied and pasted into various online translators via the internet. What took the longest was the terrible cell service in that area—a situation that only served to heighten my anxiety as I grew more and more impatient to discover the content.
+
+I ran it through a couple of websites that translate Basque, and then, in my role as an improvised translator, I formulated a comprehensible text that would go something like this:
+
+“The old gods are dead/banished. And I am devouring their entrails/remnants/relics. Those who populated these forests with their demons/spirits are now memories and longings. I know that because of their influence, I am cursed/enchanted. I have spoken at length with them. With their legion. Their corpses lie here, on ancestral/ancient ground. I must not allow them to torment/torture anyone else. My son was right to disown me/hate me and flee.”
+
+The truth is that the result surprised me greatly the first time I had to read it. Many conclusions crowded my mind—a multitude of theories, lines of reasoning, oddities. I couldn’t help but furrow my brow and make a face of utter bewilderment.
+
+It must have been around noon by then. I was feeling a little hungry, so, as a snack, I ate a can of delicious pitted olives, picking them out directly with my fingers so I wouldn’t have to use any utensils from the house. 
+
+I threw the tin can in with the rest of the trash; one more wouldn’t be noticed or cause any trouble.
+
+I walked around the house and made my way to the vegetable garden. Since I’m not a professional, I can’t give a detailed account of its condition, but from what I saw with an amateur’s eye, the plants were in good shape, with vibrant colors and not too many insects on their leaves. They looked sturdy; I didn’t see any rotten fruit. As I turned around, at the back of the house, I noticed that lying nearby, among the tall grass surrounding me, was a long, handmade ladder—a makeshift structure made of irregular, uneven wooden planks serving as rungs. I suppose it goes without saying that this ladder was also rotten and swollen from moisture; perhaps it had absorbed countless liters of rainwater over the course of its useful life. It didn’t look all that reliable.
+
+At that point, I thought my visit was over—there was nothing left to explore or investigate; everything visible of the estate had been inspected. Glancing up at the sky, I noticed from the billowing black clouds that a storm was creeping in from the mountains, so I went back inside the ranch house; it wasn’t as if I’d been out there too long—barely forty minutes. The storm caught me off guard; the weather I’d anticipated hadn’t included such a downpour. 
+
+I cursed the unpredictability of the weather and the weather experts who couldn’t predict it reliably.
+
+On the other hand, taking shelter for a while would give me time to translate a little more; I had quite a bit of work ahead of me if I wanted to decipher all the notebooks, so I set to work and spent a little over two hours immersed in the task. The sound of the drizzle and the thunder
+
+comforted me; it was simply nature manifesting itself and following its course. Inside a man-made structure, I should be safe. It had been a long journey to get there, so I didn’t mind spending a little more time at my destination. I was well wrapped up; the cold and damp didn’t bother me at all.
+
+I finished translating the first notebook I’d chosen, and as a result, a fundamental question arose that I had to resolve as soon as possible. Much of the text was nothing more than scribbles, improvised drawings, lines without geometry or meaning, circles, pencil marks, as well as symbolic depictions of the landscape; horns, reptiles like lizards, silhouettes of foxes, trees of various types, and even an anatomically striking detail of a wolf—my relative had drawn it so well that I thought that, if he hadn’t traced it from a photograph, he must have had a very good and detailed memory and an even better hand for drawing.
+
+However, even though I try to downplay the significance by attributing these to my grandfather’s recreations, what really caught my attention at the time was, obviously, the meaning contained in those fragments. I was surprised to find that he wrote poetry; several pages consisted solely of his own original verse. Although I suppose the translation lost some of the charm of the rhymes and the semantic essence, it was clear that the main themes were the spirits of the forest and some of his made-up stories, such as those about the spirits that inhabited the mountains and did favors in exchange for something. They had no form or sound, but one could tell when one was facing them, my grandfather wrote. I was already beginning to worry that his isolation from rural and urban centers might be taking a toll on him; I thought about cabin fever and how it fit his lifestyle. The nearest neighbor must have been kilometers away. I couldn’t have said whether such effects were due to loneliness or something else. He had lost his wife and son, after all—could I really blame him for spending his time imagining and fantasizing about these things?
+
+The most puzzling thing was how fragments of real-life tasks and notes were practically hidden or mixed in with all the rambling and other drawings. That’s how I discovered, thanks to these pieces of the puzzle, that my grandfather had dug an underground shelter near the house, “right next to the stone opening of the old well,” in his own words. “Fearing another of those great wars he’d heard so much about in his youth,” he must have built the hideout… with that supposed motivation.
+
+As the storm began to die down a bit, I ate a little more—a small jar of pickles in vinegar. I made sure it was just barely tingling, then went to fetch the ladder and carry it with me while I searched for the entrance to the shelter. It took me about half an hour to survey the surrounding area without straying too far and, in turn, find what I was looking for. The well in question was nothing more than a structure of stone blocks stacked on top of one another to form a circle on the ground.
+
+Inside, it was flooded with rainwater; several leaves floated on the surface, their shadows glimmering wistfully as they danced on the water. It took me another ten minutes to search thoroughly enough to stumble upon the shelter’s hatch, hidden behind overgrown bushes and several piles of mowed grass thrown over it to conceal it even further; I only found it because of the distinct sound my shoes made when I stepped on it—barely perceptible.
+
+The small door, about sixty centimeters square, was made of metal that was almost completely rusted, including the handle in the center. I pulled on it until it was fully open. Next, I slid the ladder through the opening as carefully as I could so as not to break any of its parts, since beneath the metal lay only a dark abyss descending into the bowels of the Earth. Once the bottom of the ladder touched the ground, I set it up, secured it, and made sure it was firmly anchored in the opening.
+
+I sighed deeply and made my way down into the darkness, as cautiously as possible, shifting my weight, feeling more fear and gentleness than anything else. The distance was several meters, matching the height of the staircase perfectly. Finally, I stepped onto the threshold of that crypt, wiped my hands by rubbing them together a bit, and then grabbed my cell phone to turn on its flashlight. Before me lay a passage carved directly into the stone, stretching out like the gloomy corridor of an abandoned mine.
+
+It reeked of dampness and stagnant air; ventilation in that place was, as I could confirm, nonexistent. I could hear intermittent dripping, invisible things crawling and crackling. I came across trash on the damp floor where my shoes squelched slightly—metal bars, bicycle wheels, hand saws, hammers, nails, and pieces of wood. I walked at least five hundred meters before there was a significant change—I began to stumble over bone fragments. Lacking precise anatomical knowledge, I couldn’t tell what kind of animal those bones belonged to.
+
+They were elongated; most were not intact, lying broken into splintered pieces. I walked about a hundred meters before reaching a wider section. I couldn’t believe how big that cave was, though I figured that, over the course of his long life, my grandfather had managed to accomplish such a feat of manual labor—one of highly dubious legality.
+
+I reached what looked like a sort of chamber or widening; it wasn’t much higher, though it was wider. I could barely stand upright. I shone the light to both sides; my heart began to sink when faces became clearly visible from the gloom. Piles of faces carved into the stone—ominous, terrifying, enigmatic, prehistoric. They weren’t detailed at all; rather, they were symbolic, with exaggerated human features—symbols, seeming more like symbols than artistic representations. Some were larger than others; some had soft, feminine cheekbones, while others were rough and crude, like those of Neanderthals. I could hear the air whistling somewhere. All those stony faces were watching me from the eternal silence of a catacomb plunged into darkness.
+
+I’d be lying if I said otherwise, but I still find myself imagining those faces lurking around me when darkness has claimed my vision. What a horrifying memory! That terrible whistling sound that set my frayed nerves on edge!
+
+I moved quickly and awkwardly toward the end, so carelessly that I slipped on something and fell face-first. I recovered quickly and desperately searched for the flashlight app, which was dark since my phone was lying face-up. When I managed to find it, I also brushed against something stiff and light, as if it were stiffened. I raised the flashlight and discovered it was a
+
+cardboard shoe box behind a large boulder; half of it was charred. It looked as though someone had tried to burn it in a small, makeshift campfire, but—as if the fire had been smothered, or for whatever reason—the fact was that it contained instant photos. A few were damaged by burns, but only a couple were unrecognizable. They were yellowed, dusty, and sticky; the most recent one, I think, was at least fifteen years old, especially considering the type of camera they must have been taken with. I barely paused to make out the figures captured in them.
+
+I took one last look to see if there was anything else, and I noticed that, at the far end of the cavern, the rock changed in color, texture, and the sound it made when struck. It was concrete, as if a large block had been poured to seal off some later descent.
+
+I heard a loud clap of thunder outside, so I hurried out in case another storm was beginning, with its fury and flooding.
+
+Agitated, I left the sealed entrance behind me, as if I were closing once more the gap between the rational world and those disconcerting, gloomy depths—that ritualistic, Faustian underworld in the worst sense of the word. And I use such precise and illustrative terms for good reason.
+
+I gathered all my belongings along with my discoveries in the same spot and packed them into my backpack. I stood there so long in the main hall, afraid of everything, that I cannot fathom the long minutes I spent in complete stillness, fearful of everything.
+
+I did not dare then to make sense of the evidence in a structured way or to piece together the dark secrets that that paraphernalia might conceal; I did not want to understand, I did not want to do anything.
+
+The rain didn’t stop until well into the night—a night that was terribly dark, disheartening, and menacing. I couldn’t bear to stay in that house any longer, so much so that when I realized it had been five minutes since the storm had let up, I ventured outside, trying not to lose my way back. I was barely thinking about anything; my mind seemed to have gone on vacation to some distant place, while my body, with its feet on the untouched earth, continued to stride forward with angry strides. The sounds of animals didn’t frighten me at all, for it wasn’t the common, well-known beasts that were robbing me of my peace of mind.
+
+Such was the unease clinging to my gut that I didn’t want to acknowledge or engage with the reality around me; I simply kept walking, using my phone’s flashlight to illuminate wherever I stepped.
+
+The humidity made the cold feel even worse, and a violent shiver penetrated my bones, recurring annoyingly throughout the entire trip back. I didn’t want to look at or talk to anyone about what I had found, and I was right to avoid doing so until I had returned home. In the days following my return, I fell prey to a terrible respiratory infection; fever and indescribable delirious dreams plagued my sleep. I imagined things as I had never imagined before—what I had witnessed, what I suspected, what I did not want it to be—and I can assure you that never in my life had I felt such dread, pain, and despair.
+
+And yet, even with all the ominous horrors that hovered over my soul, I could not even begin to fathom the true revelations that awaited me once I regained my strength and finally set out to unravel what lay hidden in the past—what unspeakable phenomena were buried in the collective consciousness of my ancestors.
+
+And yet, I still had serious doubts about whether to dive in and try to solve the puzzle or to leave the mystery unsolved. However, I’m afraid my tainted curiosity—sparked by what I had already glimpsed—won out.
+
+And I cannot lie to whoever reads this testament, for although I tried to write this conclusion in many different ways, I cannot—nor do I wish to—do justice with my vocabulary to everything I read and saw. I wouldn’t even know where to begin to describe what my grandfather had done. I can only pray that, if there is any higher power that is not impious like those my ancestor referred to and revered... I ask God to have mercy on all the harm and terrible wounds my grandfather inflicted on vagabonds, nomads, night owls, and the rest of the innocent who were guilty of nothing more than the terrible misfortune of encountering a monster clad in human bones, muscles, and skin.
+
+I cannot begin to describe what those photographs contained... The state of those corpses, which had been subjected to unspeakable torture, mutilation, and cannibalism. Such ritualistic acts, of such extreme cruelty, depravity, and absurdity that I question the impact that accursed sight had on my sanity.
+
+What could possibly lie beneath that grave sealed with cement? I, for one, have absolutely no desire to find out...
+
+Now the true test of my resolve lies in whether I’ll be able to hand this over to the relevant authorities and ensure an investigation takes place. I have no idea what course the police will take—and, what I fear most, how the media will cover it. Should I really force the relatives of the disappeared to confront the unimaginable fate that befell their loved ones? The thought gnaws at my brain. Is immaculate ignorance truly better than a poisonous knowledge that would ruin one’s life forever?
+
+What disturbs me most is not the supposedly supernatural nature of the essence, but rather civilization’s ignorance of everything this man had done over so many years—and while to the outside world these seemed like ordinary disappearances that occurred from time to time during hiking trips (when known), the reality that absolutely no one suspected was, by far, shockingly worse. I can’t help but wonder: how many crimes of the worst kind have been committed in the dark and never brought to justice? How many innocent people have been cast aside without anyone providing them with redress or justice, while their executioners have fled unpunished, going on to live lives just like anyone else’s? It is said that God knows the secrets of the ego’s heart, so my last remaining hope is that He—an unyielding yet benevolent judge—will mete out justice for the world’s deeds. Please.
+
+Whether it was a genetic defect, the schizophrenic effect of loneliness, or some other intrinsic or external motivation, my grandfather firmly believed that the Mephistophelean creatures of those forests and
+
+unknown, inhospitable lands spoke to him, and he acted accordingly. Within his own worldview, it made sense, and he swore to himself that this was why he had lived so many years beyond his doctor’s prognosis for coronary heart disease—that he had, presumably, lived many years past what should have been his original date of death—because those friends of his, the inhabitants of the far reaches, were helping him as a reward for his macabre tasks.
