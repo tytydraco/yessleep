@@ -1,0 +1,71 @@
+I am writing this on my phone, aboard a train crossing North Africa toward the coast. The connection is spotty, but I need to get this out as fast as possible. I am not looking for theories, and I don't want to discuss the paranormal. I am posting this as a warning, because I know the kind of reach this site has.
+
+If you live on the East Coast of the United States, look up at the sky tonight. If you hear the turbines of a heavy military aircraft flying low, with no navigation lights, lock your doors, tape your windows, and pray it doesn't land near you.
+
+Working as an air traffic controller at a clandestine airstrip in the Maghreb was a job dominated by absolute boredom. The facility operated off the public grid. It was a blind spot in the desert, built to facilitate the logistics of corporations and groups that... couldn't clear customs, if you catch my drift. Perimeter security was handled by lean local mercenaries wrapped in their shemaghs, who spent their nights smoking hookah outside near their horses. Inside the bulletproof glass tower, I managed radio communications and the radar system, while the air conditioning fought a losing battle against the heat of the sand.
+
+There was an inherent unease to that arid vastness—the constant, lingering feeling that if a catastrophic failure occurred, the desert would simply swallow us and the evidence, leaving no trace behind.
+
+The night before last, in the early hours of the morning, radar picked up an unscheduled approach. It was a massive cargo plane. No transponder, no radio contact. We weren't expecting anyone at that hour. I engaged the runway lights manually. The metal giant touched the pavement with a mechanical smoothness that was surprising for its size, rolling silently into the unloading yard right below my tower. The rear ramp lowered with a hydraulic whine, revealing a cavernous interior bathed in warm light.
+
+Four men disembarked. They were wearing biohazard containment suits—you know the type. Bulky, screaming-yellow hazmat gear, equipped with heavy self-contained breathing apparatuses on their backs. None of the local security approached; the mercenaries knew damn well to keep their distance when the "yellow crew" showed up in the middle of the night.
+
+A winch was operated from inside the aircraft to lower the cargo: a solid steel box, armored I presume, about the size of a small shipping container. Everything seemed to follow protocol until we heard the snap. The steel winch cable tensed to its absolute limit and snapped like a whip. The sound was a dry crack of thunder that echoed across the entire yard.
+
+The box plummeted from a height of nearly twenty feet, slamming into the concrete runway. The impact crushed the steel structure, twisting the metal like aluminum foil. From inside, something spilled out: a massive cylinder that looked like it had been carved from some kind of black glass—pure obsidian—completely wrapped in heavy lead seals.
+
+But the fall had cracked those seals. There was a shrill hiss, like an industrial pressure cooker. A dense mist, resembling an extremely fine coal soot, spewed from the artifact under an absurd amount of pressure.
+
+The containment team's reaction was immediate and entirely useless. They fell back, scrambling to get inside the belly of the plane. I thought it was some poisonous gas or maybe a virus, but now I don't know anything anymore. That thing shot toward the men in yellow, enveloping them and forming a dense cloud.
+
+I expected their heavy respirators to save them, or at least buy them some time. Instead, the black soot seemed to act like a million microscopic blades, or perhaps some highly corrosive chemical. Through the tower glass, with binoculars pressed hard against my eyes, I watched the thick containment material of those suits melt and shrink.
+
+The mist clogged their oxygen valves in a matter of seconds. The acrylic visors went opaque, and thick blood began to spray inside the helmets, bubbling against the glass before the four men dropped to their knees on the concrete, choking, tearing at their own throats in a primal, futile reflex.
+
+Silence reigned for a second or two, cut only by the continuous hissing of the leaking cylinder on the ground. I stood there, paralyzed in fear and absolute shock at the scene. I noticed some of the guards cautiously approaching to figure out what had happened.
+
+They barely made it ten paces before the bodies in yellow started thrashing on the ground. These were sudden, violent convulsions. Even through the double-pane glass of my cabin and from dozens of yards away, I heard the heavy, wet sound of their bones snapping and splintering.
+
+The four men stood up simultaneously. Their necks lolled backward, completely limp, yet they remained upright. The black soot was now leaking through the ruptures in the suits and the severed oxygen hoses, pumping beneath the fabric.
+
+The mercenaries shouted, backing away, and raised their rifles. Automatic gunfire lit up the runway. Bullets tore through the yellow suits and whatever was left of the human flesh inside, but the bodies didn't even register the impact.
+
+Moving at a speed impossible for an injured human being, the yellow figures lunged forward. They didn't bite like zombies, nor did they try to throw punches; they simply grabbed the guards by the throat, and the thick mist spewed from their (now-shattered) visors straight into the mercenaries' faces.
+
+The screams of pain stopped instantly, replaced by gurgling chokes. The dark smoke crept across the asphalt like a living swarm, advancing toward the stables where the horses began to whinny and kick in blind panic.
+
+My breath caught in my throat. I reached out to trigger the general containment alarm, but the main panel flickered and died. The lighting across the entire yard went out all at once. The desert darkness swallowed the facility, leaving only the red emergency lights of my tower on. And Allah, it turned me into a beacon.
+
+That's when they looked up. All of them. The men in yellow and the newly-risen mercenaries stopped moving, craned their shattered necks, and stared dead at my cabin.
+
+They marched toward the base of the tower. It didn't take long for me to hear the metallic thuds. The armored access door on the ground floor was being battered. The sound was rhythmic, precise. They were using the heavy emergency blowtorches and lug wrenches left in the yard, cutting through the hinges of the steel door. That thing was intelligent...
+
+The smell of battery acid mixed with something deeply caustic flooded the cabin. The soot was climbing up the ventilation system, corroding the rubber seals of the dormant air conditioner.
+
+There was no time to think. The hissing from the ceiling grew louder as the A/C grate began to give way, its edges melting off. Tiny flakes of that black soot drifted down into the cabin. I watched my chair's upholstery smoke and burn a hole clean through the moment the material touched the fabric.
+
+I unlatched the emergency hatch on the cabin floor—the only route that dumped me onto the external iron fire escape and bypassed the ground floor—and began my descent. It was a dive into pitch blackness. With every step, I could hear the sound of metal being torn apart on the ground level. The flames of the blowtorches flared intermittently at the base of the tower, projecting the monstrous, disjointed shadows of the men—if they could still be called that—against the sand.
+
+My feet hit the ground at the back of the building. I needed to get to the stables. There were no vehicles on the strip with keys in the ignition, and turning over an engine would draw their attention immediately. I ran alongside the generators, the smell of copper and charred flesh flooding the night air.
+
+The corral yard was now a slaughterhouse. Two mercenaries were kneeling in the sand, backs to me, bathed in dark blood. Smoke leaked thickly from under their shemaghs. One of them was trying to force the barrel of his own rifle under his chin, fighting it, but his spasming arms no longer obeyed him; his muscles were being forced in the opposite direction by the thing inside him, jerking the weapon downward repeatedly until his elbow bone snapped.
+
+Further ahead, the sight was even worse. Three horses were down. One of them had its legs fractured and bent completely backward. The animal was trying to drag itself using only its neck muscles, as the mist squirted from its nostrils. The sound squealing from the beast's throat was like air wheezing out of a tiny hole in a balloon.
+
+In the last pen, shielded by adobe walls that still blocked the poisoned draft, a thoroughbred was thrashing wildly, kicking the wooden door until its hooves splintered. It hadn't breathed in the dust yet. I fumbled the latch open. No saddle, no reins—I just grabbed the animal's thick mane and vaulted onto its back. The horse didn't need a command. The second the gate opened, it shot out into the open desert like a bullet, fueled by pure terror.
+
+I kept myself flattened against the animal's neck, nearly slipping off with every violent jolt. Behind us, I heard the deafening crash of the tower's armored door finally giving way and collapsing. Immediately after, the wet gurgling of the infected horses echoed across the airstrip. They were coming after me.
+
+We galloped straight into the darkness, swallowed by the freezing vastness of the desert. I didn't look back. I just let the horse run until its breath became a wet wheeze and its legs trembled from exhaustion, far beyond the limits of the clandestine base. The soft sand muffled the sound of the hooves, and silence, for a brief moment, seemed to return.
+
+Suddenly, the ground shook. I feared they had found us, but it wasn't the gallop of dead cavalry, nor was it trucks driven by walking corpses. The vibration came from above, tearing through the cold air right over me. The sound of four heavy military turbines being pushed to maximum thrust.
+
+I pulled on the horse's mane; it stopped abruptly, and I looked up. The massive cargo plane climbed out of the darkness, sluggish and completely blacked out, with absolutely no exterior lights on. It passed so low over the dunes that the pressure of the air displacement threw me to the ground. I rolled through the sand, shielding my face. When I looked up again, I saw the metal belly leveling out in the night sky.
+
+The red emergency lights inside the cockpit were on. And for a split second, bathed in that dim glow, I saw the pilots. They were sitting bolt upright, their posture rigid, hands firmly gripped on the yoke, executing a flawless ascension maneuver.
+
+I managed to reach a village by dawn, my lungs burning from the dry air. I paid everything I had in cash to be driven to the nearest train station, which is where I am fleeing from now.
+
+The flight plan for that airstrip didn't log arrivals, only departures. European airspace was too heavily monitored for that kind of cargo; the mercenaries always mentioned that the extraction route was a direct flight over the Atlantic.
+
+I repeat: if you live on the East Coast, look up tonight. They have an hours-long head start on this warning. I'm not sure if they have enough fuel, which is exactly why I need you to stay alert. If a gigantic airplane, completely blacked out, starts descending on your city, do not wait for the sirens to go off. Just run as far away as you can, and pray that those things were buried at the bottom of the ocean.
