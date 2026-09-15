@@ -1,0 +1,174 @@
+I love discovering new forests and spending entire days in them. I take pictures of trees, mushrooms, ferns… sometimes I even manage to capture an animal.
+
+A few days ago, I was walking through one of the forests when I felt that familiar sense of peace. The smell of pine needles hit my nose with every breath. Branches cracked beneath my feet, and I enjoyed the silence, broken only by birds and the wind in the treetops.
+
+Then someone grabbed me from behind.
+
+One hand held my arms tightly behind my back while the other covered my mouth so I couldn't scream. I had pepper spray in my backpack, but it was useless.
+
+I looked at the man.
+
+He was bald. His brown eyes were bloodshot, with deep dark circles underneath them. He was covered in blood.
+
+Cold sweat covered my entire body. I had never felt fear like that before.
+
+He tried to hold me in place, but I managed to break free. I ran as fast as I could. My foot slipped on wet leaves and I fell. I quickly got up and turned around.
+
+He was gone.
+
+That didn't mean I was safe.
+
+I kept running until I came across a well-maintained cabin. A man was sitting outside.
+
+“Help!”
+
+He immediately got up and ran toward me.
+
+“What happened to you?”
+
+I started talking over myself.
+
+“That man… he wanted to hurt me. I need to call the police.”
+
+The man smiled and tried to calm me down.
+
+“Look,” he said, showing me the gun tucked against his pants. “If anyone shows up, you don't have to worry. I'll protect you.”
+
+Only then did I really look at him.
+
+He had blond hair and light blue eyes surrounded by faint wrinkles. He looked about forty and as if he had just walked out of a magazine featuring the sexiest man of the year.
+
+I began to calm down.
+
+“What’s your name?”
+
+“Clare.”
+
+“Nice to meet you, Clare. I'm Joshua. Come inside. We'll call the police, and I'll make you some coffee or tea.”
+
+I followed him inside, but something stopped me.
+
+A smell.
+
+Not an ordinary smell. It was like feces mixed with urine and something else.
+
+I turned toward Joshua, confused.
+
+Then I felt a blunt pain.
+
+I woke up to the sound of banging.
+
+Slowly, I opened my eyes and felt a burning pain in my head. At first, I couldn't remember where I was. Then I remembered, and fear immediately surrounded me.
+
+I was tied to a chair with a rag in my mouth.
+
+Something was dripping from my head. When I looked down, I saw blood.
+
+I looked around the room. A single light bulb swung slightly above me.
+
+Then I noticed where the noise was coming from.
+
+Joshua.
+
+He was chopping something with a meat cleaver.
+
+Beside him was a large tub. I watched as he threw more and more pieces into it.
+
+I started screaming.
+
+It wasn't ordinary meat.
+
+It was human.
+
+He had just thrown a human arm into the tub.
+
+When he heard me screaming, he turned around and smiled.
+
+“Good morning.”
+
+Then he turned back to the table and continued chopping. He even started humming a children's lullaby.
+
+His phone rang.
+
+“Hi, honey. I miss you too. I know. I'm sorry I have to be away on business so much. I'll be back the day after tomorrow. I just have a little more work to do, then I'll be home for a while, I promise. Give the kids a kiss for me. Love you. Bye.”
+
+He ended the call and went to wash himself.
+
+He looked at me.
+
+“I'll be gone for a while, Clare. We'll have a nice evening before that. I'll cook something good.”
+
+I looked terrified at the tub.
+
+He laughed.
+
+“Oh, come on. We're civilized people. How could you even think that?”
+
+“I'll take the rag out for a moment. You can tell me your favorite food and I'll buy it.”
+
+He pulled the rag from my mouth and I immediately started screaming.
+
+A second later, his fist hit me.
+
+He shoved the rag back into my mouth.
+
+“Ah, well,” he sighed. “I'll choose something myself.”
+
+He smiled and told me to wait for him and not to go anywhere.
+
+He opened a trapdoor, and I realized we weren't in the cabin itself.
+
+We were in its basement.
+
+After he left, I tried to escape, but the ropes were too tight.
+
+Then I heard a whisper behind me.
+
+It was the bald man I'd been running from.
+
+“I wanted to help you. I didn't want to hurt you.”
+
+I tried to speak, and he pulled the rag from my mouth and started untying me.
+
+He managed to open the trapdoor, and we climbed out.
+
+“We have to be careful now. If he catches us, I won't be able to help you again.”
+
+We were almost outside when I heard Joshua's voice.
+
+“Clare? Where are you?”
+
+The man grabbed me and led me into a narrow opening in a cave. From the outside, you couldn't even see it was there.
+
+We crouched together inside, and I prayed Joshua wouldn't find us.
+
+He didn't.
+
+The man eventually led me to a road.
+
+He looked at me and said I had to go on alone.
+
+Then he turned around and walked away.
+
+I stopped the first car that passed and everything happened quickly after that.
+
+I reported everything to the police. Joshua was arrested almost immediately. The case was handled by a police officer named Hal.
+
+A few days later, he called me in for some additional questions.
+
+When I described Joshua's accomplice, he showed me a photograph.
+
+“That’s him,” I said immediately.
+
+His expression darkened.
+
+“Clare… I shouldn't be telling you this, but this is Jeremy. He had been missing for several days.”
+
+He paused.
+
+“And the remains you described to us, the ones we found in that tub…”
+
+He paused again.
+
+“They belonged to him.”
+
