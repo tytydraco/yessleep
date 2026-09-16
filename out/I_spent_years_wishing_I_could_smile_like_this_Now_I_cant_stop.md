@@ -2,9 +2,9 @@ I got braces at twenty-eight. I'd wanted them since I was eleven, which meant mo
 
 My teeth were bad. The overlapping bottom row. The front tooth that sat slightly behind the other. The canines that came in too high and jutted outward. I learned to smile with my mouth closed, to cover it when I laughed. There's a photo from my college graduation where everyone else is grinning and I'm doing the closed-mouth thing, head slightly down, looking slightly left. I remember thinking I'd ruined it. I remember thinking that even on a day like that, I couldn't just smile like a normal person.
 
-Dr. Vale was in the parking lot when I arrived for my first appointment, standing beside his car with a surgical mask already on. I noted it and moved on. He was a dentist.
+Dr. Vale was in the parking lot when I arrived for my first appointment, standing beside his car with a surgical mask already on.
 
-His practice had 5.0 stars. Hundreds of reviews. What sold me were the photographs — finished patients with the most perfect teeth I'd ever seen. The front two slightly longer, each tooth diminishing toward the back in precise increments, very white, very uniform. There was one woman my age whose review I read several times because her before picture looked like a photograph of my own mouth:
+His practice had 5.0 stars. Hundreds of reviews. What sold me were the photographs. Finished patients with the most perfect teeth I'd ever seen. The front two slightly longer, each tooth diminishing toward the back in precise increments, very white, very uniform. There was one woman my age whose review I read several times because her before picture looked like a photograph of my own mouth:
 
 *I waited until I was an adult to finally fix my smile after growing up in a family that couldn't afford braces. Dr. Vale never made me feel embarrassed, and now I can't believe these are my teeth. Trust the process. You won't regret it!*
 
@@ -12,7 +12,7 @@ I made the appointment the next morning.
 
 \_\_\_\_\_\_\_\_\_\_
 
-Before he could fix my teeth, he had to fix everything else. Eleven cavities. I sat in my car and cried. Dr. Vale never asked why I'd waited so long. He just said we had some things to take care of before we could get to the fun part. He wore the mask for every appointment. In the hallways, at his desk, for the filling consultations where he wasn't touching me at all. I didn't ask about it. He was a dentist.
+Before he could fix my teeth, he had to fix everything else. Eleven cavities. Dr. Vale never asked why I'd waited so long. He just said we had some things to take care of before we could get to the fun part. He wore the mask for every appointment.
 
 Three months later, I was ready for braces.
 
@@ -42,7 +42,7 @@ The first came out cleanly. The second didn't. Dr. Vale rocked it for a long tim
 
 About five weeks later, one of the neighboring teeth felt loose. I called the office. Dr. Vale told me not to play with it. So naturally I spent three days doing nothing but.
 
-One morning something clicked against the porcelain of the sink. The tooth was sitting in pink foam. When I touched the space with my tongue, it wasn't empty. Something hard was already just beneath the gum, a thin white edge cutting through.
+One morning something clicked against the porcelain of my sink. The tooth was sitting in pink foam. When I touched the space with my tongue, it wasn't empty. Something hard was already just beneath the gum, a thin white edge cutting through.
 
 Dr. Vale told me the lost tooth had undergone severe root resorption and what was coming in was residual odontogenic tissue.
 
@@ -54,7 +54,7 @@ Dr. Vale told me the lost tooth had undergone severe root resorption and what wa
 
 "It happens."
 
-Root resorption is real. Supernumerary teeth are real. The images I found didn't look exactly like mine, but they were close enough. I convinced myself it was fine. The new tooth grew quickly, straight and very white. Then the tooth on the other side fell out. Something was waiting underneath that one too. Straight. White. Perfect.
+Root resorption is real. Supernumerary teeth are real. The images I Googled didn't look exactly like mine, but they were close enough. I convinced myself it was fine. The new tooth grew quickly, straight and very white. Then the tooth on the other side fell out. Something was waiting underneath that one too. Straight. White. Perfect.
 
 Dr. Vale began photographing my mouth at every appointment. *You're responding beautifully*, he'd say.
 
@@ -190,9 +190,9 @@ I still go to work. I see my family. I think, remember, feel afraid. The thought
 
 When someone compliments my teeth, my mouth opens before I decide it should. *Thank you!* I don't want to say it. *Dr. Vale did them.* Please don't ask. *He's incredible.* Please. *You should at least do a consultation.* Please don't.
 
-I smiled at my grandmother's funeral. Not on purpose, not a small polite thing but the full version, everything out, and my sister dragged me outside and slapped me across the face. Afterward she grabbed my shoulders and looked at me the way she'd look at a stranger. "What is wrong with your face," she said. She didn't mean it as a question. She meant: what has happened to the way your face moves. What is it doing. The impact had moved my head. It hadn't moved the smile at all.
+I smiled at my grandmother's funeral. My sister dragged me outside and slapped me across the face. Seconds afterward, while I was recovering, she grabbed my shoulders and looked at me the way she'd look at a stranger. "What is wrong with your face?" she said. The impact had moved my head. It hadn't moved the smile at all.
 
-Sometimes I can press my jaw shut and hold it there. Then the pressure builds behind my eyes and the lips go back and I'm smiling again, wider than last time, the structure learning my range and expanding to fill it.
+Sometimes I can press my jaw shut and hold it there. Then the pressure builds behind my eyes and the lips go back and I'm smiling again, wider than last time.
 
 I found a photograph of Dr. Vale without his mask. From a conference, a couple of years ago. His teeth are normal. Slightly yellow. The lower left incisor is crooked.
 
@@ -206,7 +206,7 @@ Pain. Immediate, total, erupting behind my eyes and through my jaw.
 
 Two stars. Pain. Three. Pain. Four. The pain eased. Five. Nothing. Just the hum.
 
-I typed: *Please don't go here. He put something inside my jaw. My teeth aren't teeth. The roots have reached my brain and I'm still conscious inside all of it.*
+I typed: *Please don't go here. He put something inside my jaw. My teeth aren't teeth. The roots have reached my brain, and I'm still conscious inside all of it.*
 
 Delete. Delete. Delete.
 
@@ -214,7 +214,7 @@ Then my hands typed this, and I watched them:
 
 *I waited until I was an adult to finally fix my smile after growing up in a family that couldn't afford braces. Dr. Vale never made me feel embarrassed, and now I can't believe these are my teeth. Trust the process. You won't regret it!*
 
-The exact words that had sent me to him. My hand pressed submit. I watched it.
+My hand pressed submit.
 
 \_\_\_\_\_\_\_\_\_\_
 
@@ -224,7 +224,7 @@ My before picture was now on the wall. They'd added me. There I was, the overlap
 
 "His reviews are insane, right?" she said. "I just booked a consultation. For Thursday."
 
-The thing in my jaw fired deep in the bone and I pressed both hands over my mouth, hard, arms shaking.
+The thing in my jaw fired deep in the bone, and I pressed both hands over my mouth, hard, arms shaking.
 
 "Sensitive," I said through my fingers. "From the treatment."
 
@@ -232,27 +232,21 @@ She looked back at the Smile Wall. "I've wanted this my whole life. I used to pr
 
 I took my hands away.
 
-*I know exactly what that feels like.* I wanted to say it so badly. *I did that too. Every night, in the dark, for fifteen minutes, willing them to move. I know what it's like to want this so much that you let someone drill the smell of yourself into the air and call it normal. I know what's on the other side. I'm standing right here. Please.*
+*I know exactly what that feels like.* I wanted to say it so badly. *I did that too. Every night, in the dark, for fifteen minutes, willing them to move. I know what it's like to want this so much. I know what's on the other side. I'm standing right here. Please.*
 
 "It changed my life," I said.
 
-The smile came the rest of the way open. The woman looked at my teeth and her expression went soft.
+The smile came the rest of the way open. The woman looked at my teeth, and her expression went soft.
 
 "They're so beautiful."
 
 "He's incredible. You won't regret it."
 
-She smiled at me one last time on her way out. A real smile, her own, the smile of someone who doesn't know yet what she's about to agree to.
+She smiled at me one last time on her way out. A real smile, her own.
 
-I smiled back. I couldn't help it.
+I smiled back.
 
 \_\_\_\_\_\_\_\_\_\_
-
-When I was a teenager I pressed on my crooked front tooth in the dark every night, just to feel if it would move.
-
-Some nights now I press both hands flat against my mouth for the same reason.
-
-It never gives.
 
 I spent years wishing I could smile like this.
 
