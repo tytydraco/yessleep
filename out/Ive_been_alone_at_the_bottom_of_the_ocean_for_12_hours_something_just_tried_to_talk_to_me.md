@@ -2,7 +2,7 @@ I need something, a record of this. An account for me to look back on and laugh 
 
 I’m usually with a crew of two or three other people. Good people, hard workers who spend most of their time down here. Down in the nothing. 
 
-This isn’t really a summer job that you can just pick up and drop as you please. You train, you study, you get comfortable with the idea of being surrounded by darkness as water thick enough to kill you and you train. Demetri had seemingly made the mistake of forgetting the former and the latter.
+This isn’t really a summer job that you can just pick up and drop as you please. You train, you study, you get comfortable with the idea of being surrounded by darkness and water thick enough to kill you and you train. Demetri had seemingly made the mistake of forgetting the former and the latter.
 
 He was so fucking skinny, if saturation diving had a weight minimum he’d be well under it. But when you need divers you need divers. And with the usual crew being a man down on the account of Max’s appendix’s bursting the higher-ups decided to fast track Deimtri straight down to the ocean floor. It was meant to be one of our simpler dives. Get to the habitat and over the course of 20 odd days check a series of valves and gages on a couple of defunct wellheads. Then bob’s your uncle we’re back right in time for payday. Of course that’s not what happened.
 
@@ -24,8 +24,8 @@ Mick gave me a nod to imply I should check on the kid.
 
 “Good time to introduce yourself.” Mick said.
 
-I poked my head round the bathroom door.   
-  
+I poked my head round the bathroom door. 
+
 “Hey buddy. The first time made my stomach turn a bit too. Promise this stays between us.” I smiled, not that he could see me, his head was deep in the toilet bowl.
 
 “Fuck you.” he choked out between retches. “Stop speaking so slowly.” Another retch. “I’m going back up”
@@ -60,8 +60,8 @@ The speaker buzzed for a moment.
 
 “Loud n’ clear.” One of the managers replied.
 
-“Listen that kid, he’s lost his marbles. I think he needs to go back up.”  
-  
+“Listen that kid, he’s lost his marbles. I think he needs to go back up.”
+
 Silence.
 
 Then another buzz.
@@ -75,16 +75,16 @@ Silence again.
 
 Silence.
 
-“Hello?”  
-  
+“Hello?”
+
 Silence.
 
 Then a long awaited buzz.
 
 “Jesus Christ these comms are a nightmare. Listen, one of you goes up with him. We’ll send a crew down to help finish the job asap. But whoever’s staying is gonna have to sit pretty in the meantime.”
 
-“Alright, which one of us should it be?”  
-  
+“Alright, which one of us should it be?”
+
 Silence, this time one that felt like it wouldn’t be interrupted. I prayed that I’d be the one going up but as I looked into the bathroom and saw Mick slowly helping Demetri to his feet I’d soon realise out that couldn’t be the case.
 
 The young man stuck an accusing point in my direction. “You. You’re the one.. You. You. Stop it. Stop.”
@@ -152,4 +152,4 @@ I looked at the previously unseen card, my eyes unmoving from the piece of paper
 
 It was a blue whale.
 
-“Can you see me now?” 
+“Can you see me now?”

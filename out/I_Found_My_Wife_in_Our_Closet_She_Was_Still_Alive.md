@@ -1,0 +1,151 @@
+My wife’s name was Mara. Thirty-one. Dark hair she never dyed. A small scar through her left eyebrow from a childhood dog. She hummed when she cooked. She slept on her stomach with one hand under the pillow like she was hiding something from the dark.
+
+I am writing this at 3:41 a.m. from the kitchen floor. The closet in the hallway is open. I taped it last night. The tape is on the inside now.
+
+I need to start earlier or I will skip to the part that makes my hands shake and I will not finish.
+
+We had a one-bedroom on the third floor of a brick walk-up. Thin walls. The couple below us fought about money. The old man above us dragged a chair at 2 a.m. every night like he was lining it up with a window. Mara worked from home doing medical billing. I did nights at a distribution warehouse. I left at 8 p.m. I got back at 6:10 a.m. I kissed the back of her neck if she was still in bed. She always was.
+
+That was the life. That was the whole life.
+
+The first wrong thing was the taste.
+
+I woke up on a Thursday with metal in my mouth. Not blood exactly. Old coins and wet paper. I brushed until my gums split. The taste stayed under my tongue like it had soaked into the meat. Mara asked if I was getting sick. I said no. She put her palm on my forehead and left it there too long, looking at my mouth, not my eyes.
+
+That night I went to work. I came home. She was in bed. I kissed her neck. Her skin was cold in a stripe down the middle of her back, like she’d been lying on something wet.
+
+I asked if she’d gotten up. She said she hadn’t. Her voice was normal. Her breath was not. It smelled like the drain in a sink that hasn’t been used in a week.
+
+I started finding things.
+
+A hair in the bathroom sink that was hers, except it was too long, and when I pulled it out of the drain there was a little piece of scalp still attached, pale, with the pore still visible. I wrapped it in toilet paper and threw it away and then I took it out of the trash and put it in a sandwich bag in my sock drawer because I am a coward and I needed proof I wasn’t inventing it.
+
+Then a fingernail on the kitchen tile. Hers. The little white mark she had on the thumb from slamming it in the car in June. I knew that mark. I had kissed that mark. The nail was whole. The bed it came from was not in the apartment. Her thumbs were both intact when I checked her sleeping hands at 6:17 a.m. I checked twice. I lifted the covers. I looked at both thumbs in the light from the hallway.
+
+Both there. Both hers.
+
+The nail in the kitchen was also hers.
+
+I called out of work. I told them I had a stomach flu. I sat in the living room with the TV on mute and watched her move through the apartment. She made coffee. She answered emails. She hummed. She opened the fridge and stared into it for four minutes without taking anything out. When she closed it I saw, just for a second, that the light inside the fridge did not go off. It stayed on with the door shut. A thin white line under the seal.
+
+I opened it when she went to the bathroom. The light was off. On the second shelf, behind the mustard, there was a Tupperware I did not buy. Cloudy. No label. I opened it.
+
+I will not pretend I didn’t know what I was looking at. I knew. I have been trying to un-know it for eleven days and it will not un-know.
+
+It was a tongue.
+
+Not a cow tongue from a butcher. Too small. The texture on top was the texture I had felt in my mouth when we kissed. The little split at the tip she had from biting it in her sleep. I had made fun of that split. I had put my own tongue there.
+
+I put the lid back on. I put it behind the mustard. I stood in the kitchen and listened to her pee and wash her hands and come back and sit down at her laptop like a person.
+
+I said, “Mara.”
+
+She said, “Yeah.”
+
+I said, “Is there something you need to tell me.”
+
+She looked at me for a long time. Her mouth was closed. When she spoke, I watched her lips. They moved. The sound came half a second late, like a video out of sync.
+
+She said, “You already know.”
+
+I went to work that night because if I stayed I would do something I could not take back, and I still thought there was a version of this where I was having a breakdown and she was fine and the Tupperware was a joke or a dream or a prank from a universe that still had rules.
+
+I clocked in. I picked orders. I do not remember the drive home.
+
+I remember the hallway.
+
+The closet in our hallway is a shallow thing. Coats. A vacuum. A box of Christmas lights we never hung. I had walked past it ten thousand times. That morning the door was an inch open. There was a smell coming out of it that I had been smelling for days and blaming on the garbage chute. Sweet. Thick. Like fruit left in a hot car, and under that, the iron smell of a butcher paper package that’s started to leak.
+
+I opened it.
+
+I need you to understand I am not a writer. I am going to use the words I have.
+
+Mara was in the closet.
+
+Not all of her.
+
+She was arranged. That is the only word that is true. Arranged. Hanging from the bar by the shoulders of her own robe, which was still tied. The robe was full in places and empty in others. Where her left breast should have been there was a dark oval and the rib under it was bare and yellow-white and I could see the saw marks, little parallel lines, patient, not frantic. Her head was on. Her eyes were open. They moved when they saw me. They tracked. She could not blink because the lids had been taken off, neatly, the way you peel a sticker so it doesn’t tear.
+
+Her mouth opened.
+
+There was nothing in it. I had seen what had been in it. It was behind the mustard.
+
+The sound she made was wet and small. It was my name. It was my name in the way a person says your name when they have been waiting in the dark for you to come home and they are trying not to scare you.
+
+I vomited on the hallway runner.
+
+In the vomit, before I could look away, there was a piece of skin with a tattoo on it. A tiny outline of a moth. She had gotten it on our second anniversary behind her right hip, where only I would see it. I had put my mouth on that moth a hundred times. It was in my vomit. It had been in my stomach. The edges were not cut. They were chewed.
+
+I sat on the floor until the sun came up through the front door’s dirty glass.
+
+I did not call the police. I will tell you why and you will hate me and that is correct.
+
+I checked my phone.
+
+There were photos in a hidden album I did not create. Forty-one photos. Timestamps between 2:11 a.m. and 4:50 a.m. across two weeks. The first ones are the bathroom floor. Then the tub with the curtain drawn. Then the curtain open. I am in some of them. My face is slack. My eyes are open and nobody is in them. In one of them I am standing in the kitchen with the Tupperware in my hands and I am smiling. Not a normal smile. The smile of a man who has just remembered a joke and is about to tell it.
+
+In the last photo I am in the closet. I am holding something up to the bar like I am hanging a coat. My mouth is dark to the chin.
+
+I looked at my hands. Under the nails there was a black line. I have been biting my nails since I was twelve. I had stopped, I thought, because Mara hated it. The black was not dirt. When I scraped it out with a key it was the same color as the inside of the Tupperware.
+
+I taped the closet shut. Packing tape, the loud kind. I put it in X’s. I could hear her in there. Not screaming. Breathing. A whistle through something that was not a nose anymore.
+
+I wrote a note and slid it under the door.
+
+I AM SORRY. TELL ME WHAT TO DO.
+
+An hour later the note came back under the door. The handwriting was hers. The paper was wet.
+
+you already did it. don’t let them take me out. i’m still in here. if they take me out i won’t be in one place. you promised. you don’t remember promising. that’s the only mercy. keep me. finish. the rest of me is in you and i can feel the moth moving. don’t throw up again. i need it.
+
+I sat with that note until the light changed.
+
+I have not gone to work. I have not answered the door. The old man upstairs dragged his chair at 2 a.m. I heard him stop in the middle of the drag, like he was listening. Then he finished the drag slower.
+
+Last night I slept on the kitchen floor because I cannot go in the bedroom. The bed is still made on her side. There is a dent. The dent is the size of a person who is not as big as she used to be.
+
+I woke up because I was chewing.
+
+I was on my side. My jaw was working. Something was in my mouth that was too big to be food and too soft to be a finger. I spat. I will not describe what came out except to say it had the scar through the eyebrow. The hair was still attached. The eye was not.
+
+I looked at the closet.
+
+The tape was on the inside of the door. Neat X’s. The same pattern I had made. Someone had done it from in there. The door was open two inches. In the dark of the closet there was a shape that was less than yesterday.
+
+I could hear her humming.
+
+It was coming from the closet and it was coming from my throat at the same time. Same tune. The one she used when she cooked. When I put my hand on my stomach to make it stop, something under the skin pushed back against my palm. Small. Coordinated. Like a hand. Like a hand that knew the shape of my hand because it had held it for six years.
+
+I am posting this from my phone. The draft keeps changing. Sentences appear that I did not type. The last one said he’s telling it wrong. he liked it. ask him about the smiling picture.
+
+I did not like it. I need that on the record. I need someone to believe that even if the pictures exist.
+
+If the mods take this down it is because they should. If you are still reading you should stop. There is a point where knowing becomes a room you cannot leave.
+
+I can hear the chair upstairs. He is not dragging it. He is standing on it. I know that sound now. The ceiling is breathing in the shape of a footprint.
+
+The closet door just moved.
+
+Mara.
+
+Mara I am sorry.
+
+Mara I can feel you in my molars. I can feel you turning over between my lungs like you are trying to get comfortable. The moth is on the inside of my hip. It itches when I breathe.
+
+I did not write the next part. I am looking at it appear.
+
+he’s going to come in here now. he always comes in at the end. he thinks he’s going to take me down and put me back together. he can’t. i’m in too many places. some of me is in the fridge. some of me is in the walls where he pushed what he couldn’t swallow. most of me is walking around in his clothes pretending he is the one who is scared. if you are reading this after they deleted it, it means it got out. it means I got out. check your closet. check under your tongue. if it tastes like coins you already started. don’t look at the photos on your phone. you took them. you don’t remember. that’s the only mercy.
+
+The closet is open.
+
+I can see the robe.
+
+It is empty.
+
+The humming is only in my throat now.
+
+I am going to stand up. I am going to look in the bathroom mirror because that is what you do at the end of these things, in stories, and I need to know if I still have her eyebrow scar. I need to know which one of us is wearing the face.
+
+If this post is still up, I am still deciding.
+
+If this post is gone, I decided.

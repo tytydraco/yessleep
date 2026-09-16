@@ -1,0 +1,50 @@
+I’ve been a firefighter in Vancouver for eight years, long enough to know that a forest fire has a sound. Not the crackling — that’s the cartoon version people imagine. Real fires roar. They breathe and move like something alive.  
+But this particular one… this one whispered. And I'll never forget it.  
+We were called out just after dawn. A lightning strike from the thunderstorm earlier that day had hit a patch of old forest and ignited a blaze. By the time we arrived, the flames were already climbing fifty feet high. The smoke was thick enough to turn the sun into a dull red coin. I remember thinking it looked like an eye watching down on us, as if we were ants against a great storm. Luckily, this forest was so deep in the mountains that the nearest town was fifty kilometers away — but we still had to contain it before it caused irreversible damage to this peaceful stretch of land.  
+We split into teams — a divide‑and‑conquer tactic. My partner, Lewis, and I took the western ridge. The fire was moving fast, too fast, and the wind kept shifting like it couldn’t decide which direction to kill us from.  
+About twenty minutes in, I saw the first one.  
+A figure standing between the trees.  
+At first I thought it was a person caught in the blaze — someone who had gotten lost hiking and become trapped in the inferno. I shouted, “Hey! Over here!” and started toward them.  
+They didn’t move.  
+They didn’t scream.  
+They just… swayed.  
+The flames wrapped around their legs, eating away at their clothes. Their skin seemed to melt like candle wax, and their hair evaporated into the smoke. They tilted their head toward me, slow and deliberate, like they were curious — studying me.  
+“Lewis,” I said, “do you see that?”  
+He didn’t answer.  
+When I turned, he was staring at something behind me.  
+There were more of them.  
+Dozens.  
+Men, women, children. All standing in the fire. All burning. All silent. As if they were numb to the overwhelming heat consuming them. Their eyes were open, unfocused, like they were half‑asleep. Some took small steps, drifting through the flames like they were walking through tall grass in some forgotten land.  
+I froze. Every instinct I had — every training drill, every emergency protocol — none of it applied to this.  
+“Are they alive?” Lewis whispered.  
+“I… I don’t know.”  
+My breath became slow and deliberate, fogging up the inside of my facepiece.  
+One of them — a woman with long hair burning like a torch — stepped toward us. Her skin blistered and peeled, but she didn’t seem to notice. Her lips moved.  
+I leaned in, stupidly, because that’s what you do when someone needs help.  
+She whispered, “It’s warm.”  
+Not in pain. Not in fear.  
+Like she was grateful.  
+Lewis grabbed my arm. “We… we need to go, man.”  
+But the woman kept walking. And behind her, the others followed. Their movements were slow, dreamlike, and synchronized. The fire didn’t consume them — it carried them.  
+The whispering grew louder.  
+Not words. Just breath.  
+Like the forest itself was exhaling.  
+Then, in a twisted harmony, they began to shout, “JOIN US!” over and over again.  
+We ran.  
+Branches snapped behind us, followed by multiple footsteps. The fire surged, chasing us downhill. I could hear the whispering, shouting and laughing right behind me, eager and hungry — as if the forest wanted to swallow me whole, claiming me as one of those unfortunate souls.  
+When we reached the trucks, the others were already packing up. The fire had changed direction — again — and command was pulling us out before it boxed us in.  
+Lewis and I didn’t tell anyone what we saw. What would we say? “Hey, Cap, the fire has people in it”? We sounded insane even to ourselves.  
+But that night, I couldn’t sleep.  
+Because I kept hearing her voice.  
+It’s warm.  
+And I kept thinking about how she looked at me while engulfed in flames, her skin blistering and peeling as if something beneath it wanted to break free — not like she needed saving, but like she wanted me to follow.  
+Two days later, the fire jumped the containment line. They sent us back out.  
+But fires have a way of revealing what they want you to see.  
+And today… I saw Lewis.  
+Standing in the flames.  
+Burning.  
+Swaying.  
+Beckoning me forward.  
+Smiling.  
+He didn’t scream.  
+None of them do.

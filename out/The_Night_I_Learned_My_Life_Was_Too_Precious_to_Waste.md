@@ -1,0 +1,131 @@
+When I was a kid, my father, who worked as a bank security guard, was shot and killed during an armed robbery.
+
+After his death, I spiraled into heavy drug addiction. 
+
+For three long years, my mother tried everything: rehab centers, interventions, and endless tears. 
+
+But my volatile mood swings, constant trouble, and bad company terrified my two younger siblings. 
+
+Eventually, out of desperation to protect them, my mother made the hardest decision of her life and kicked me out.
+
+I ended up living on the freezing streets, completely numb to the world.
+
+One night, around 12 AM, I was wandering through the bitter cold when I saw an old woman struggling to carry a heavy bag up the steps of a dark apartment building. 
+
+Desperate for a few bucks or a warm meal, I offered to help. 
+
+She smiled, praised my kindness, and invited me inside.
+
+The entire apartment was lit only by candles, emitting a thick, suffocating atmosphere. 
+
+I set the bag down and turned around to speak, but she had vanished. 
+
+I called out twice, receiving no answer. 
+
+Moments later, she emerged from the bathroom—except she didn't seem to be walking at all.
+
+She looked like she was floating off the ground.
+
+She opened the refrigerator. 
+
+Bizarrely, a bright yellow light illuminated from inside the fridge, even though the apartment clearly had no electricity. 
+
+She pulled out a plate of steaming hot meat and a glass of warm milk—just like my mother used to make. 
+
+My starving body didn't care how meat could be boiling hot inside a fridge; I devoured the meal in minutes.
+
+When I finished and tried to leave, her hand clamped onto my wrist with terrifying strength. 
+
+"It's freezing outside, son," she purred. 
+
+"My grandson is your age. Stay the night." 
+
+The warmth of the apartment felt too good to refuse. 
+
+She led me into a child's bedroom, handed me a glass of water, and disappeared again.
+
+I threw myself onto the bed, exhausted.
+
+For a second, I glanced toward the floor beneath the edge of the bed and saw a hand wearing a white glove sticking out from underneath it before slowly disappearing back beneath the bed.
+
+I told myself it was just a hallucination caused by my drug use. 
+
+Deep down, I knew it wasn’t, but the warmth of the apartment was too tempting to leave.
+
+At almost 4 A.M, I woke up dizzy and nauseous from the stench. 
+
+Walking into the hallway, I noticed a thick, black liquid dripping heavily from the bag I had carried up. 
+
+Horror seized me. 
+
+I rushed toward the bedroom to grab my jacket when the old woman’s soft voice echoed from the next room: 
+
+"Boy, your jacket is here."
+
+I approached hesitantly. 
+
+A hand extended from the dark, not an old woman's hand, but a giant, swollen, bluish-white hand of decaying flesh with long, unnatural fingers. 
+
+Terrified, I snatched my jacket and bolted to the stairs but the building door was locked tight. 
+
+I ran up the stairs to the upper floors, desperately trying every door, but every apartment I checked was empty and abandoned.
+
+I had been trapped in a dead building with this thing all night.
+
+I ran back downstairs to find the apartment door wide open. 
+
+The old woman's voice boomed behind me, now harsh and demonic: 
+
+"Take off your clothes! If you don't, I will cut off a piece of your body!"
+
+Overwhelmed by primal fear, I stripped naked, crying and begging for mercy. 
+
+She ordered me to stand inside a circle of candles in the middle of the room. 
+
+She began crawling toward me like a grotesque, cursed beast—her long hair Filthy and unkempt, her body Deformed, Smelling like disgusting decay.
+
+She stepped into the circle, hovered over me, and began chanting:
+
+"O my creator, my beloved... make his blood pour as a blessing on my life... take what I offer you..."
+
+A black liquid began pouring from her blackened face onto my skin.
+
+I cowered on the floor, expecting death.
+
+Then—STAB! STAB! STAB! STAB!
+
+Rapid, ruthless stabs targeted her neck from behind. 
+
+Foul, rotten blood splattered across my body as the creature collapsed dead on top of me.
+
+I shoved the heavy corpse off, Crying loudly. 
+
+Standing over her was a tall man holding a bloody knife, wearing White latex gloves. 
+
+His cold, sharp green eyes locked onto mine.
+
+He knelt down beside me. 
+
+He grabbed my face, inspecting my eyes and neck with cold precision, like a butcher examining livestock before slaughter.
+
+he spoke in a chilling, flat voice.
+
+"You’ve used up all your luck tonight,"  "Maybe you should start appreciating your life from now on."
+
+He stood up, walked downstairs to unlock the entrance door, and then went back upstairs into the quiet darkness.
+
+I scrambled out into the freezing snow completely naked. 
+
+Trembling, I pulled my clothes on, wiped the foul blood from my face, and reached into my jacket pocket, finding a stack of cash.
+
+I used that money to rent a room in a cheap hotel. 
+
+That horrifying night shattered something inside me. 
+
+I found a low-paying job and fought through the hellish nightmare of rehab, quitting drugs forever. 
+
+A year after getting clean, I reunited with my mother and finally returned home.
+
+To this day, the nightmares still haunt me. 
+
+Her heavy hands around my ribs, nearly squeezing the life out of me, are enough to remind me that life is more precious than any pleasure.
