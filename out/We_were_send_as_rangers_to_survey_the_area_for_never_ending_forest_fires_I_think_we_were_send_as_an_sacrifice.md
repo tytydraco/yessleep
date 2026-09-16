@@ -1,0 +1,179 @@
+I never knew what I wanted to be in live. Growing up in a small town near Haddonfield, I was surrounded by quiet suburban neighborhoods. For years, I lacked any kind of motivation and picked up wacky jobs to earn a buck during summer breaks. All that changed in the eleventh grade when my uncle came to visit. Uncle Robert, or Big Robert, as he was known in the family, has always been an outlier. While the rest of his generation pursued jobs like engineering and politics, he was steadfast in becoming a park ranger. And he was going to take his job very seriously. While most Park rangers were young adults who wanted to escape societal pressure by sipping hot chocolate over the balcony of a lookout tower, Big Robert wanted a never ending challenge. And the park gave him one. From constantly fixing the generator under the tower to getting called in to survey smoke. Most of the times it was caused by dumb teens screwing around with blazing sticks or forgetting to tend to their kindle, but sometimes it was something way more bizare. 
+
+Are you in? Roberts voice came from the other end of the line. The pay isn't great, but if you want a break; Well, It doesn't get better then this. 
+
+Without a second of hesitation, I agreed. A few days later, Robert drove me out to the site. 
+
+The tower was massive, it's frame leaning over a big patch of whithered grass. On each corner stood 2 massive stage lights, used for surveying the surroundings at night. It was magnificent.
+
+Robert opened his mouth to speak.
+
+Okay, the others will arrive in about an hour. 
+
+I look at him confused, he didn't mention i was going to have co-workers. 
+
+Wait, what co-workers?
+
+Did you really think you could manage the tower alone? He responded in a belittling tone. 
+
+Don't worry, I looked into their backgrounds before. Anthony and Sophie. Anthony is around 20, graduated with a degree in botany and zoology. Sophie, meanwhile, is an electrical engineer. I think they'll be of big help, especially with the stuff going around here.
+
+We make our way up the stairs, the fresh air of a thousand pines enveloping our lungs. As I reach the last stair, I peer inside. The whole room is decorated in Christmas lights, hung around walls, while a large oak table sits on the far side. On top of it, countless electronic devices that emit radio frequencies. 
+
+Umm, what are those? I ask curiously.
+
+Those are your gateway to the outside. Without them, you're stranded here, miles of wood and dirt on everyside. 
+
+Uncle Robert is suddently interrupted by a call, and then rushes downstairs. 
+
+Come on, they're here.
+
+I couldn't hide my curiosity, after all, Robert hyped them up to be my escape from boredom out here.
+
+A blue Toyota Corolla pulls up, it's roof full of packed suitcases of all sizes. 
+
+Two people come out, dressed in park ranger uniforms.
+
+Anthony and Sophie, I think to myself.
+
+Anthony, a guy around 5'9, with a durag on his head and mustache on his lip and Sophie, a nerdy looking girl with big square glasses, brown, curly hair and a freckled smug face. This was going to be intresting.
+
+Uncle Robert speaks up first. Well, I'm going to get going. You all better behave. 
+
+And with that, he walks off in the forest, whistling. 
+
+After a few seconds of silence, Anthony speaks up. Wassup? You Mike? 
+
+Yeah, I answer. 
+
+He extends his hand and i shake it.
+
+Nice meeting you, this place looks dope, very rustic.
+
+Yeah, I like it aswell, says Sophie. Nice meeting you guys.
+
+Mike gets to know everyone and they spend the rest of the morning and afternoon unloading things in the tower. Evening slowly befals on the forest, casting a golden glow over the countless pine trees. In the distance, a distant light tower switches the light on and off in Morse code, Robert switches their lights in return. 
+
+What are they saying? Says Sophie while stepping out with a warm cup of chocolate.
+
+Nothing much. There will be a thunderstorm tonight, strange wildlife activity reported in the area. Probably riled by the increased pressure in the atmosphere. 
+
+Anthony, what do you think?
+
+I think something is going on. Anthony responds somberly.
+
+I sugest we take a little expedition tonight. Who is coming with me?
+
+I am. Let's take the rifle! Anthony responds withe exitement, grabbing the flashlight.
+
+Hold on, you two. says Robert, stepping in front of the door.
+
+Rule of the rangers, either we're all coming, or no one is. 
+
+Let's split in teams. Me and you, Michael. We go towards the fire in the woods. Anthony and Sophie, you pay a visit to the nearby lookout tower. You got that?
+
+Yes sir. All respond in unison, half jokingly.
+
+The teams split up, sharing two walkie talkies. Okay. We're going to be team alpha, says Robert. You two will be Beta. Don't use them unless you got something important to say.
+
+And with that, Team Alpha and Beta parted ways, one to the big fire and one to the nearby tower.
+
+Anthony and Sophie slowly make their way through the foliage, the silence being periodically shattered by a branch cracking under the weight of Anthony's boots.
+
+Anthony... Are you shivering? She asks smiling. 
+
+N-no, I'm not scared or anything. I'm just cold. 
+
+Do you want me to hug you, maybe you'll get warmer. Says Sophie, with a nerdy chuckle. 
+
+Anthony looks at the ground, playing with his mustache. 
+
+I'm a bit worried, I don't think the idea of splitting up. Plus, I doubt this rifle is going to do much with the rust on it.
+
+I'm sorry, Sophie slowly responds, playing with her belt. I've kind of being a jerk with you, provoking you and stuff. The thing is, Robert and Mike make such a great team, I just felt left behind. And with you being all nonchalant, I wanted to lighten the mood, y'know? After all, what was I supposed to do. Give you a smooch? 
+
+Anthony blushes a bit and looks ahead.
+
+I suppose we do make a great team. Before Anthony could turn say another work, Sophie leans in and gives him a peck on the cheek. He is left frozen for a second but he's soon woken up by a guttural scream. What the fuck is that? She shouts towards the direction of the noise and then quickly begins following it.
+
+Anthony, left completely shocked, looses track of her co worker.
+
+Sophie pushes foliage aside and discovers a deer on the ground, wailing.
+
+On its torso, a large open wound of exposed flesh and intestines, however they appear to be moving. Writhing and squelching, like rabid ribbon worms. The deers eyes were beginning to overflow with blood as it screamed louder and louder. 
+
+Anthony finally catches up and looks with horror at the scene. 
+
+Hellnah! What in the world is that?? Sophie, we gotta go! That deer is straight out of the thing.
+
+N-no, Anthony! Wait!
+
+Look at the worms, they appear to be made out of the same material like the deer was. Polymorphic in structure, they seem to resemble carbon polynoms inside them to imitate everything around them.
+
+SOPHIE! Stop with the sci fi shit! Let's go! 
+
+As if triggered by the noise, the deer let out a final wail and exploded all around, bits of it's intestines flying like shrapnel and smashing into Sophie's face and neck. She collapses on the ground as the worms burrow into her flesh and make her convulse. Her eyes go bloodshot red and her teeth begin falling out as the veins in her face and arms bulge. 
+
+Anthony crouched down next to Sophie. Tears streaming doen his face.
+
+N-no... What the fuck... This is not real...
+
+He gets up and dials Robert on the walkie.
+
+Yo, old man... S-Sophie is gone, the forest took her. Please help us... Help her.
+
+He leans down next to her twitching body and collapses in tears.
+
+Rob and Michael run like rabid dogs through the forest. Trees rush past Michael's vision and blur into a ever-changing overgrow of foliage. The forest seems to twist and shift, like it's trying to kick the parasites out.
+
+As they reach the clearing, they spot Anthony standing near the ground, as tendrils of flesh twirl around his body, slowly pulling him into the soil beneath.
+
+Michael tries to reach his coworker but Rob's iron grip holds him down.
+
+Mike, he's far gone. We've gotta go. NOW.
+
+The two run back for what felt like hours until they reach the staircase of the tower.
+
+Michael, what's wrong?!? 
+
+Robert... They're dead. Was this all your plan? He snaps back.
+
+Bring us here as an fucking offering for your little science project??? 
+
+\*Robert sits in silence for a second and then opens his mouth.\*
+
+A few months ago, Me and my previous colleague were out exploring the wilderness when we discovered a unmarked cave. Inside, sat an organism never documented by science before. It was like a tumor of tendrils, writing and twitching. It was something, all right? 
+
+We would go there everyday, take samples and document it's properties while also bringing the thing dead carcasses. Eventually, we halted research and came back into the city when winter came. I was sure the biomass was too weak to survive temperatures below zero. But it did, it hid in the belly of an bear, festering and nurturing itself from the heat. When I returned back, I wasn't alone. I brought my nephew and his friends. In the first night, I went back and discovered it was still alive and bigger then ever, having spread through underground tunnels. I decided then, with sadness, that your lifes and the fate of the forest was too important for my little science project, so I burned it. I burned the living hell out of it. I-It should have died. But... This thing... Defies all logic. It escaped by burrowing underground and infecting everything in its sight. I had no idea. If I had i would have never brought you here, like meat to the slaughterhouse.
+
+Michael sits in silence and then slowly brings his hands around Robert pulling him into a hug.\*
+
+Let's go end this thing, John Carpeter style.
+
+The two load about 8 drums of gasoline in the back of Roberts truck and saying goodbye to the watchtower they've called home for the last days, set out driving straight for the cave.
+
+As they drive, the quiet forest is dead silent.
+
+Where are the creatures? Askes Michael.
+
+Back to their lair. The cave. I've seen that before. After a big catch, they retreat to trigger some sort of accelerated evolution. My guess is they are an amalgamation of DNA from everything they've consumed. The two park the truck outside and unload the drums, setting them at the entrance. 
+
+What's the plan? 
+
+This is what were going to to. Take a tank and rub gasoline all over your body. The things attack by smell, and the petrol will cover your smell.
+
+How does that make any sense? The gas is biological material. 
+
+Rob snaps back while dipping himself in the dark liquid.
+
+It just does! With all its biomass, it's still no match for human ingenuity. 
+
+The two slowly push the barrel into the cave and Michael is left with his mouth wide open. The walls are covered in bioluminescent biomass that glows in all the colors of the rainbow, almost like a ever-changing fractal. The tendrils are twisted into floral patters adoring the walls and all comes from a small black cube.
+
+You ready? Asks Robert.
+
+Been ready for years. Go be happy and forget about this place. And always remember something. You don't need to know what you're going to do with your whole life, Mike. Just don't waste it waiting for something to give you a reason. Find something, or someone you care about, and when the time comes, have the courage to stand for it.
+
+Michael closes his eyes, trying to keep tears from falling down and quickly runs out of the cave. He gets into the car and drives away, speeding on the highway as the morning sun finally let's itself be known and spoils the forest, casting the horrors of the night aside. Behind him, a large explosion erupts, blasting his windshield and making him stop the car to a screeching halt. Taking a moment to step out and looks up at the horizon, watching it grow even more luxurious, like the tumor that was feeding on its grounds was finally free. 
+
+Robert sighs and looks back at the car. Man, thanks God break's over.

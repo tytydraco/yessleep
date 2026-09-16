@@ -1,0 +1,49 @@
+I found this old photo booth last week. It was tucked away in the back of a dusty antique shop downtown. I love stuff like that. You know, things with character. This booth looked like it was from the 70s all faded red vinyl and chrome trim. A real gem. I had to buy it. The shop owner practically gave it to me for a song. He just wanted it gone he said. Too much space. He also mentioned it had been acting weird lately but I figured it was just old.
+
+  
+I got it home and it surprisingly still worked. I mean you had to wiggle the coin slot a bit but after a few tries it clicked. I sat inside. The velvet curtain was surprisingly plush. It smelled faintly of old perfume and something metallic. I dropped a quarter in and posed for four quick snaps. Flash flash flash flash. The machine whirred and groaned then spit out a strip of four black and white photos.
+
+  
+They were blurry. I looked at the first one. It was me grinning. The second one me mid-laugh. The third one me making a goofy face. The fourth one was just my forehead because I moved too fast. Pretty standard stuff. I pinned it to my fridge.
+
+  
+Then things got weird.
+
+  
+Two days later on Friday I decided to take another round of photos. I was having a particularly good hair day. I sat in the booth dropped a quarter and smiled. Flash flash flash flash. The machine whirred. It spit out the strip.
+
+  
+The first picture was me smiling looking pretty good. The second one I was laughing. The third one I was making a goofy face. But the fourth picture. That one was different. It showed me standing next to a broken lamp. My favorite lamp. It was shattered on the floor. I remembered thinking how odd it was. I just got that lamp a few months ago.
+
+  
+That night after work I came home. And you guessed it. I tripped over my rug. My favorite lamp went crashing to the floor. Shattered into a million pieces. Just like in the picture. My heart hammered in my chest. I stared at the photo strip on the fridge. It was an exact match.
+
+  
+I tried to tell myself it was a coincidence. A fluke. Just a weird premonition. But I felt a cold dread creeping up my spine.
+
+  
+I avoided the photo booth for a few days. The incident with the lamp freaked me out. But curiosity is a powerful thing. And a tiny part of me was excited. What else could it show me?
+
+  
+On Tuesday of this week I couldn't resist. I sat in the booth again. I dropped a quarter in. I tried to think of something happy. Flash flash flash flash. The whirring sound seemed louder this time. More insistent. The strip came out.
+
+  
+The first three pictures were normal. Me smiling me making a duck face me pretending to sneeze. The fourth picture. It was me standing in front of my car. The front bumper was completely smashed in. It looked like a total write-off. My stomach dropped. I just got that car last year. It was brand new.
+
+  
+I tried to be extra careful driving to work that day. I drove under the speed limit. I left huge gaps between me and other cars. I parked at the very back of the lot. I walked everywhere with my head on a swivel. I thought I was safe.
+
+  
+On my way home a deer darted out in front of me. I swerved. I hit a tree. The front of my car. Totally smashed in. Just like in the picture. I was shaking as I called for a tow. My insurance premium is going to be through the roof.
+
+  
+I'm sitting here now looking at that photo booth. It just sits in my living room dark and silent. But I can feel it. Calling to me. Taunting me. What future will it show me next? And more importantly can I stop it? Or am I just a puppet dancing to its photographic predictions?
+
+  
+I know I should get rid of it. Throw it out. Burn it. But something is holding me back. A morbid fascination. A terrifying need to know. What happens next? Is it always bad? Can I change it if I know what's coming?
+
+  
+I'm thinking about going back in there tonight. Maybe if I focus really hard I can make it show me something good. Like winning the lottery. Or meeting a long lost relative who leaves me a fortune. But the dread is still there. Gnawing at me. What if it shows me something truly awful? Something I can't escape? What if the next picture is the last picture?
+
+  
+I just hope whatever it shows me next isn't too bad. I really can't afford another car accident this month.
