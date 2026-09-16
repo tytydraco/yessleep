@@ -1,0 +1,35 @@
+Original Post: [https://www.reddit.com/r/nosleep/s/yIYJFy4I6M](https://www.reddit.com/r/nosleep/s/yIYJFy4I6M)
+
+Hey everyone, it’s Tyler. I saw that my post gained some traction, which I am grateful for. I also saw some comments giving advice, like talking to my buddies I was playing with the day I got the alert. But anytime I try to make a call outside of this town, it goes straight to voicemail. For those asking, it’s been 4 days since the alert. And no, I still haven’t heard from my parents. I lose more hope every day that I will.
+
+Somehow, it seems like the power in my town is holding, so I can charge my phone and use my computer. Weirdly, I even have internet. Yesterday, I tried to Google my town to see if anyone else was experiencing what I was. To my surprise, Google either wouldn’t load or it just gave me a screen that said, 'no results.' It’s like whoever sent that alert has cut us off or something without leaving us completely stranded. I don’t know.
+
+The knocking thing came around again around midnight last night. There was still no banging on the door, but just like last time, a soft tap on the door followed. Then the thing used its human voice (or its best attempt at one) to try and get me to look at the damn moon.
+
+I didn’t look, but I was angry now. What the hell was this thing, and what did it want with me specifically? Was it targeting me, or was this just what it did to every house? I didn’t care. I crept to my front door and looked through the peephole.
+
+What I saw standing at my front door was just wrong. I almost fell back on my ass. The thing, whatever it was, looked human, but I didn’t recognize him. He was twitching like someone who was on some kind of substance, rocking back and forth on his heels and toes. The one thing that scared me the most about him was his eyes. They were wide, but the pupils were blown enough to practically cover the white of his eyes.
+
+As I was looking at him, his head rocked up to the peephole. It was like it somehow knew I was there. I don’t know. I fell back, catching myself, and took off to my room.
+
+I spent the rest of that night staring at the darkness under my door. I was waiting for a window to shatter downstairs or for the door to cave in, followed by something running up the stairs straight toward me. Eventually, I fell asleep and woke up sometime later.
+
+One thing I want to mention is in response to some of the comments on my last post asking about the sun. See, that’s the thing. I haven’t seen the sun come up in the last four days. Even when I check my phone and see twelve PM, it is still pitch black outside. The only thing out there is the light of the moon (or whatever it is now) coming through the blankets I had thrown over the windows.
+
+That leads us to today. I’m sitting at my computer writing this, and just like the last few days, there hasn’t been any outside sound. No passing cars, not even anyone screaming. There is nothing that I was used to hearing. It is nothing that any logical person would expect to hear in a town full of people, small or not.
+
+I’m worried the isolation is getting to me. An hour ago, I was making food when I swore I heard my mother's voice from outside. It took all my willpower not to swing that damn door open. The thought that stopped me was the fact that my mother would’ve had keys. She would’ve just come in; she wouldn’t knock on her own door. The image in my mind shifted to the thought of me throwing the front door open and coming face to face with one of those things. That was quick to make me stop in my steps.
+
+Since I have the time now, as being locked in my room hiding limits the things I can do, I want to address some of the comments I got on my last post. No, it wasn’t a pizza delivery, and I’m not opening the door no matter what or who knocks on it. To address the majority of the comments: no, I haven’t seen the sun yet. No, I can’t get any messages in or out of this damn town. And lastly, no, I have no plans regarding what the hell I’m gonna do. Thank you to everyone who left me advice on my last post. It means more than you know, and I'll be sure to use it. I’ll be back to update if anything happens. I’m going to try to get some rest. Bye for now, everyone.
+
+What the hell? I just woke up. My phone says it's three in the morning. I heard something moving around outside. It was not like an animal, but like it was doing its best to be quiet. I tried to stay quiet, but then whatever it was said my damn name.
+
+'Tyler, are you up there?'
+
+How does it know anything about me? The sun still hasn’t come up. We're on day five now. Five days since I’ve even seen outside. I don’t know what to do. I can’t stay here forever. I’ve never felt more isolated and lonely in my life. I used to think I would do great if no one ever bothered me again, but this situation has taught me that I took human interaction for granted.
+
+I froze as soon as the thing said my name. I didn’t even have time to panic or really process it before I heard a heavy, dull thud against the side of my house. The vinyl was creaking under the weight of something. I heard what sounded like, I don’t even know, nails maybe, like something was doing its best to climb. I quickly caught on. Whatever the hell this thing was, it was climbing my damn wall outside, right toward my bedroom window.
+
+I grabbed the aluminum bat I keep in my closet from when I used to play baseball. I knew it most likely wouldn’t do anything against whatever the hell this thing was, but having something with weight in my hands made me feel like I might survive if it got inside.
+
+I gotta go now, everyone. I don’t know what will happen to me. Wait, what the hell? There’s something at my window. It looks like my mom. I see it through the blanket. It's her. I have to open it.

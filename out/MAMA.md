@@ -1,0 +1,599 @@
+Every day after school, I used to stop at Bob’s ice cream shop on my way home.
+
+It had become a ritual.
+
+I always ordered the same thing: strawberry ice cream with chocolate syrup, crushed walnuts, and just a little bit of lemon.
+
+Sounds weird, I know.
+
+But it was incredible.
+
+I went there so often that Bob didn’t even have to ask what I wanted anymore. Most days, if he saw me crossing the street, he would start making it before I even walked through the door.
+
+That day was different.
+
+I was late.
+
+“Late today, huh, Sarah?” Bob said as he handed me my ice cream.
+
+I told him I’d had to stay after school to finish an art project.
+
+He nodded and smiled.
+
+I thanked him and started walking home.
+
+That was when I noticed how dark it was getting.
+
+My mom hated when I stayed out late. She worked nights and usually left the apartment a little after seven.
+
+It was already six thirty.
+
+So I started walking faster.
+
+I just wanted to get home before she left.
+
+When I entered my apartment building, though, something felt wrong.
+
+Not immediately.
+
+It was one of those feelings you can’t really explain.
+
+I climbed the first flight of stairs.
+
+Then the second.
+
+When I reached the third floor, I stopped.
+
+The wall at the end of the hallway looked different.
+
+Older.
+
+Much older.
+
+The paint had peeled away in large patches, exposing dark stains underneath. Parts of it looked wet. There were also long scratches carved into the surface, like someone had dragged something sharp across it again and again.
+
+I stared at it.
+
+I had left home that same morning.
+
+But that wall looked like it had been rotting for decades.
+
+I remember thinking that maybe the building manager had started some kind of renovation.
+
+Still, the longer I stared at it, the more uncomfortable I became.
+
+So I looked away.
+
+I went inside our apartment and locked the door behind me.
+
+“Mom?”
+
+Silence.
+
+“Mom!”
+
+Nothing.
+
+I figured she had gone to work early.
+
+I dropped my backpack on the table and went straight to my room.
+
+I was twelve years old at the time, and I was obsessed with fantasy novels. I could disappear into them for hours.
+
+Actually…
+
+I should probably introduce myself.
+
+My name is Sarah.
+
+This happened a long time ago.
+
+But I remember almost every second of that night.
+
+Especially the smell.
+
+And her eyes.
+
+Anyway.
+
+I lay down on my bed, opened my favorite book, and started reading.
+
+Before long, I completely lost track of time.
+
+In my head, I was the queen of some distant kingdom. Monsters surrounded the castle walls, and a prince was fighting his way through the forest to save me.
+
+Then I heard something in the kitchen.
+
+**KNOCK.**
+
+I stopped reading.
+
+I looked toward the bedroom door.
+
+Silence.
+
+I waited.
+
+Nothing.
+
+I went back to my book.
+
+**KNOCK.**
+
+Louder this time.
+
+I checked the clock.
+
+It was almost nine.
+
+Somehow, more than an hour had passed.
+
+I thought my mom might have come home early.
+
+“Mom?”
+
+No answer.
+
+“Mooom?”
+
+**KNOCK.**
+
+Again.
+
+I got out of bed and walked into the kitchen.
+
+Nobody was there.
+
+The lights were off.
+
+The sink was empty.
+
+The windows were closed.
+
+Everything looked normal.
+
+I stood there for a few seconds, listening.
+
+Then I remembered the raccoons.
+
+They sometimes managed to get into the building and cause trouble in the hallways.
+
+That had to be it.
+
+At least, that was what I told myself.
+
+I went back to my room and picked up my phone.
+
+I texted my mom:
+
+**Mom, did you already leave for work?**
+
+I hit send.
+
+A second later, I heard a phone ringing.
+
+Inside my bedroom.
+
+I froze.
+
+The sound was coming from my closet.
+
+My entire body went cold.
+
+The phone kept ringing.
+
+Once.
+
+Twice.
+
+Three times.
+
+I stared at the closet doors.
+
+Then I slowly walked toward them.
+
+I opened one.
+
+My mom’s phone was lying on the floor.
+
+The screen lit up the inside of the closet.
+
+My message was right there.
+
+I looked around.
+
+Nothing else seemed disturbed.
+
+No clothes on the floor.
+
+No drawers open.
+
+Nothing.
+
+Her phone was simply lying there.
+
+Almost as if someone had placed it carefully in that exact spot.
+
+I tried to explain it away.
+
+Maybe she forgot it.
+
+Maybe she put it there earlier.
+
+Maybe I just hadn’t noticed.
+
+But my mom had never put her phone in my closet before.
+
+Not once.
+
+I picked it up.
+
+My hands were shaking.
+
+I plugged it in to charge and climbed back into bed.
+
+I wanted to forget about it.
+
+I wanted to believe I was just scaring myself.
+
+Then the noises started again.
+
+Except this time, they weren’t coming from the kitchen.
+
+They were coming from above me.
+
+**THUD.**
+
+I looked at the ceiling.
+
+**THUD.**
+
+Another one.
+
+Slow.
+
+Heavy.
+
+Like footsteps.
+
+We lived on the top floor.
+
+There was nothing above our apartment except a private attic.
+
+My mom had paid extra for the place because of it. We used it to store old furniture, boxes, toys, and other things we never needed.
+
+**THUD.**
+
+By then, I was more annoyed than scared.
+
+“Stupid raccoons.”
+
+I grabbed a flashlight and left the apartment.
+
+I climbed the narrow stairs leading up to the attic.
+
+I unlocked the door.
+
+The moment I opened it, the smell hit me.
+
+Wet wood.
+
+Dust.
+
+Something old.
+
+Something stale.
+
+I switched on the flashlight.
+
+The beam flickered.
+
+The batteries were dying.
+
+Perfect.
+
+I stepped inside.
+
+Dust floated through the weak light.
+
+Old furniture sat beneath white sheets. Boxes were stacked along the walls. Some of the things up there were so old that I didn’t even remember seeing them before.
+
+Then I heard it.
+
+**SCRAPE.**
+
+I stopped.
+
+That wasn’t a raccoon.
+
+It didn’t sound like footsteps either.
+
+Something was being dragged.
+
+**SCRAPE.**
+
+I held my breath.
+
+The sound was coming from behind a support pillar at the far end of the attic.
+
+“Hello?”
+
+Nothing.
+
+I took another step.
+
+The floor creaked beneath me.
+
+Then another.
+
+And another.
+
+I was only a few feet from the pillar when my flashlight went out.
+
+I screamed.
+
+I started smacking the side of it with my palm.
+
+“Come on. Come on. Come on.”
+
+The light flickered back on.
+
+And there she was.
+
+My mother.
+
+Standing behind the pillar.
+
+Completely still.
+
+I almost dropped the flashlight.
+
+“Mom?”
+
+She didn’t answer.
+
+Her face was turned toward me.
+
+But there was nothing in it.
+
+No anger.
+
+No sadness.
+
+No fear.
+
+Nothing.
+
+It looked like her face, but not her expression.
+
+Like someone was wearing my mother without knowing what a human being was supposed to look like.
+
+“Mom… are you okay?”
+
+I started crying.
+
+She kept staring at me.
+
+She wasn’t blinking.
+
+Then she moved.
+
+She walked past me.
+
+No words.
+
+No reaction.
+
+She just went straight for the stairs.
+
+“Mom! Wait!”
+
+I followed her.
+
+She went down to the third floor.
+
+Then she stopped.
+
+Right in front of the peeling wall.
+
+That same wall.
+
+She stared at it for a few seconds.
+
+Then she dropped to her knees.
+
+And started rubbing one knee against the wall.
+
+Hard.
+
+Fast.
+
+Violently.
+
+**SCRAPE.**
+
+**SCRAPE.**
+
+**SCRAPE.**
+
+“Mom?!”
+
+I ran toward her.
+
+She kept going.
+
+Her knee slammed into the wall over and over.
+
+The skin split open.
+
+Blood ran down her leg and onto the floor.
+
+She didn’t scream.
+
+She didn’t even flinch.
+
+**SCRAPE.**
+
+**SCRAPE.**
+
+**SCRAPE.**
+
+I grabbed her arms and pulled as hard as I could.
+
+She stopped.
+
+For a few seconds, she just stayed there.
+
+Then she slowly turned her head toward me.
+
+I still dream about that look.
+
+She wasn’t looking at me.
+
+She was looking through me.
+
+I helped her back into the apartment.
+
+I thought she was having some kind of breakdown.
+
+Maybe she was sick.
+
+Maybe she was exhausted.
+
+Maybe something had happened at work.
+
+I kept looking for a normal explanation.
+
+Then the moment she stepped inside the apartment…
+
+she changed.
+
+“It’s okay, sweetheart.”
+
+Her voice was normal.
+
+Completely normal.
+
+“You need to get some sleep. It’s late.”
+
+I stared at her.
+
+“Mom… your knee.”
+
+She didn’t even look down.
+
+“Let’s go to bed.”
+
+That night, she insisted on sleeping beside me.
+
+She lay down and started telling me bedtime stories.
+
+Stories for little kids.
+
+She hadn’t done that in years.
+
+Her voice was soft.
+
+Warm.
+
+Comforting.
+
+But I couldn’t relax.
+
+Because whatever was lying next to me looked like my mother.
+
+It sounded like my mother.
+
+It even smelled like my mother.
+
+But I knew it wasn’t her.
+
+I don’t know how I knew.
+
+I just did.
+
+Eventually, exhaustion won.
+
+I fell asleep.
+
+When I woke up, the room was completely dark.
+
+I looked beside me.
+
+The bed was empty.
+
+“Mom?”
+
+Nothing.
+
+I grabbed the flashlight.
+
+I checked the bathroom.
+
+The kitchen.
+
+The living room.
+
+Nothing.
+
+There was no way I was going back into that attic.
+
+Not alone.
+
+I went back to my room to grab my phone.
+
+That was when I noticed my closet door.
+
+It was slightly open.
+
+I was sure I had closed it.
+
+I stopped.
+
+There was something inside.
+
+A shape.
+
+A shadow.
+
+My legs started shaking.
+
+I could hear my heartbeat in my ears.
+
+I started crying, but I forced myself to stay quiet.
+
+Every part of me wanted to run.
+
+To leave the apartment.
+
+To get as far away as possible.
+
+But I needed to know.
+
+I stepped closer.
+
+I put my hand on the closet door.
+
+And opened it.
+
+My mother was inside.
+
+Crouched in the back of the closet.
+
+Exactly the way I had found her in the attic.
+
+Still.
+
+Motionless.
+
+Staring directly at me.
+
+Except this time…
+
+she was smiling.
+
+And then I realized something.
+
+My mother was still lying in my bed.
+
+I have to stop writing now. See you later! She’s still here.
