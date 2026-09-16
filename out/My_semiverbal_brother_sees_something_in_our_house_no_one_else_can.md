@@ -1,0 +1,177 @@
+My 15-year-old stepbrother, Trevor, has autism. Like many people with autism, he’s a gestalt language learner, which means he learns language (and everything) in chunks rather than individual words.
+
+He’s minimally verbal, but that doesn’t mean he isn’t intelligent. He is hard to understand, though—especially when he’s experiencing intense emotions. For example, when he’s really upset, he often says “Where are the spongebob popsicles?” Because he had a very rough time a few years ago with the ice cream truck being out of the ice cream he liked. Now, just feeling upset makes him think of the whole “chunk” of memory.
+
+(And yes, being out of ice cream can be traumatic for someone like him. For a neurotypical person, this might be a minor disappointment; for him, it meant a complete disruption of routine, and the cortisol equivalent of fighting a bear.)
+
+I’m explaining all this because recently, my brother has started acting strange.
+
+We moved to a new house several months ago. That was challenging, and Trevor was having a very tough time. He was having a few meltdowns a day. I don’t blame him. I was miserable too. I was 20, and had just started at the community college before my dad uprooted us all because he got a great job offer. I couldn’t afford to live on my own.
+
+After a few months, the meltdowns subsided a bit. But I could tell that he was still upset by something, or possibly in pain. Generally when he’s calm, he can answer some questions with one or two word answers; but lately he seemed to stressed to even do that. I also noticed he kept saying one particular phrase:
+
+*“Dog’s broken.”*
+
+“Dog’s broken” is something he says when he’s upset about something being broken. It started when he accidentally broke the head off one of his dog figurines, but he’ll use it for anything broken. Back at our old house, we had a tree in the backyard, and one night a storm halfway broke one of the limbs. “Dog’s broken,” he said, as he watched the branch dangle from the tree, twisted and limp. He said that every day until we got someone to remove it.
+
+Now he was using it without any cause that I could see.
+
+“Dog’s broken,” he said as I stood with my back to him, doing the dishes.
+
+“Dog’s broken,” he said as we played Go Fish, looking at the space just over my shoulder.
+
+“Dog’s broken,” I heard him murmur alone in his room one night, while I was walking down the hallway.
+
+He never said it to my parents. Just to me, or alone. One time, he got pretty upset about it. Our parents were at work, and I’d left him alone in the house for under a minute while I got the mail. When I got back inside, his hands were clenched in fists and his whole body was shaking:
+
+*“Where are the Spongebob popsicles?”*
+
+*“Dog’s broken! Dog’s broken! DOG’S BROKEN!”*
+
+It took him almost an hour to calm down, even with me pulling out all the stops, turning on his favorite video game and playing music and getting him a snack.
+
+Then it happened.
+
+I woke up at 3 AM to find Trevor pacing around my room. He wasn’t the type to ask for help if he needed it; he would just show up or give me something he needed help with. “Trevor? Are you okay?”
+
+The first couple times he didn’t respond. Then he finally did.
+
+“Where are the Spongebob popsicles?”
+
+Okay. He was upset.
+
+*“Where are the Spongebob popsicles?”*
+
+He was on the verge of a meltdown, his voice quavering and his pacing becoming faster.
+
+“Okay, okay. Come with me.” Telling him to go back to bed was the worst thing to do here, so I instead took his hand and led him back down the hallway. As soon as we reached the door, however, he immediately spun around, pushing past me and sprinting back down the hallway.
+
+“Trevor! What’s *wrong?”*
+
+As soon as I said it, my heart dropped. I sounded angry. I know I did. I didn’t mean to, but it’s so easy to get frustrated. He never says “I’m scared” or “my foot hurts.” It’s always sussing out the clues, trying to figure out what’s going on.
+
+That’s probably the way he feels about us, too.
+
+He stared at me from the other end of the hallway, looking past me, at his doorway. “Dog’s broken,” he whispered, his lip trembling.
+
+My heart plummeted.
+
+I slowly turned around.
+
+The doorway to his room was empty. I paced forward, slowly, holding my breath. The nightlight cast golden light over everything, stretching the shadows. But as I poked my head in—nothing was there.
+
+“What scared you?” I asked, as he tentatively followed me into the room.
+
+“Red.”
+
+“Red?” I swallowed, scanning the dark room.
+
+“Yes.”
+
+I took a deep breath, trying to calm myself, trying to coregulate with him. The calmer I was, the calmer he would be. “Do you want me to sleep in here tonight?”
+
+“Yes.”
+
+I started for the door to get my stuff. “Stay,” he said.
+
+“Okay, can you get my blanket? And pillow?”
+
+“Yes.”
+
+Now that he was calming down, he was able to communicate with me a bit clearer, as usual. I watched him disappear into my bedroom, hearing the rustle of cloth as he got my stuff.
+
+As I set up my stuff on the floor and he lay back down, I caught snatches of his muttering to himself:
+
+“The button comes off.”
+
+He was repeating a chunk, part of a script, that my stepmom had said. He has a shirt with a loose button that he likes to take off and then she has to sew it back on.
+
+A shirt—
+
+Which was currently hanging in his closet.
+
+I sat up. Stared at the closet door. *Oh, no, no.*
+
+It was hanging ajar.
+
+*Why hadn’t I noticed that earlier?!*
+
+“Trevor?” I whispered. “Is something in the closet?”
+
+“The button comes off,” he repeated, ignoring me.
+
+“Trevor!”
+
+His eyes finally found mine in the darkness. “Yes,” he said.
+
+*Oh fuck.*
+
+“Go get Mom and Dad,” I said.
+
+“Dog’s broken.”
+
+“Get Mom and Dad!”
+
+Without a word, he swung his feet over the edge of the bed and walked out of the room. I listened to his steps recede down the hallway.
+
+I took a shaking step towards the closet. Towards the sliver of complete darkness staring back at me. I could hear commotion in the next room over from my dad and stepmom. *Wait for them. They’ll be here in a minute…*
+
+*Creeeeak.*
+
+The door swung slowly outward toward me, and the golden light from the nightlight spilled in.
+
+Every muscle in my body froze.
+
+A figure leaned against the rack of clothing. Bent and askew. Twisted at all the wrong angles.
+
+A body.
+
+*Dog’s broken.*
+
+As if nudged by something, the body fell forward, in slow motion. A dull *thump* on the carpet. Dark blood pooled out, seeping into the carpet, glistening in the golden light.
+
+*Red.*
+
+Hand shaking, I reached out for the light switch and flicked it on.
+
+*Click.*
+
+The body disappeared. The clothing hung still and silent on the racks. The blood was gone. I stared at it, my heart pounding in my chest.
+
+“Can’t reach without the ladder.”
+
+I whipped around.
+
+Trevor standing in the doorway. His eyes were wide and his hands were balled into fists. His entire body shook. “Can’t reach without the ladder,” he repeated, his voice shaking.
+
+The gears in my mind spun.
+
+*Can’t reach without the ladder.* A scene flashed through my mind—my stepmom, looking up at the broken bulb in the foyer light fixture. And he’d say it every time his sticky hand toy got stuck to the ceiling after he chucked it straight up.
+
+*Can’t reach without the ladder.*
+
+Oh *no, no, no.*
+
+I began to tilt my head up—
+
+A weight hit me from above. I stumbled over and fell into the carpet, halfway into the closet. The air sucked out of my lungs as something heavy pressed down on me, grinding me into the floor. *What the fuck what the fuck—*
+
+The weight lifted and the door slammed against my legs. As something tried to push me into the closet. My arms stung with long, sliced marks across my skin. I kicked and rolled and tried to pull myself out—
+
+“Matthew!”
+
+My dad’s voice. Calling from the bedroom. Sounding so far away.
+
+And then I was being dragged out of the closet.
+
+\*\*\*
+
+My parents didn’t see anything. But Trevor and I told them what we saw, as best we could.
+
+Trevor slept in my room for a while, until we convinced our parents to move.
+
+We moved into a smaller house across town, and both of us has been a lot calmer. I’m still worried, though. Because every so often, Trevor and I will be hanging out—playing our usual game of Go Fish or video games, and he’ll look at me—
+
+Look at the space just over my shoulder—
+
+And say, “Dog’s broken.”
