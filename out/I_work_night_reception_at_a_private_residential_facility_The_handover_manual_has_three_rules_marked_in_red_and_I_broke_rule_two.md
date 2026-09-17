@@ -1,0 +1,109 @@
+I took the night shift at Highclere Court because it paid four dollars more an hour than standard campus security. The building is a massive, pre-war brick complex tucked at the end of a private cul-de-sac, housing forty-eight independent apartments for long-term leaseholders.
+
+My predecessor, an older man named Morris, left on two days' notice. When I arrived for my first shift on Monday at 11:00 PM, the lobby was empty. Resting dead center on the reception desk was an unmarked, blue vinyl binder labeled NIGHT SHIFT HANDOVER LOG.
+
+Inside, beneath pages of typed instructions about water shut-off valves and trash compactors, there was a single sheet of loose-leaf paper inserted into a clear plastic sleeve.
+
+It was written in faded red ballpoint ink. The handwriting was sharp, jagged, and heavily indented into the paper:
+
+Highclere Reception — Mandatory Protocols (00:00 – 06:00)
+
+Do not use the hallway mirrors. The convex security mirror above the mailboxes must remain angled toward the floor at all times. If you see it pointing horizontal, adjust it with the wooden broom handle. Do not look directly into the glass while doing so.
+
+Never log a package delivered after 02:30 AM. Courier drivers do not operate after midnight. If the front entrance chute drops a parcel between 02:30 AM and sunrise, push it with your foot into the metal locker behind the desk and lock the bolt. Do not sign the digital delivery slate, do not read the recipient's name, and under no circumstances should you inspect the cardboard.
+
+The service lift on the 4th floor is sealed. If the brass call bell on the switchboard dings for unit 408, do not answer the intercom. Let it chime until it stops.
+
+Beneath the list, scribbled in a hurried post-script:
+
+« The camera monitors record in twenty-minute loops. If a loop freezes, do not look behind you until the green LED blinks twice. »
+
+I didn't take it seriously at first. Night shifts make people eccentric; isolation and sleep deprivation breed superstition.
+
+For the first three nights, nothing happened. I sat behind the desk studying, drinking lukewarm black coffee, and listening to the hum of the fluorescent fixtures. The convex mirror stayed tilted down. The service lift never rang.
+
+Then came last night.
+
+Around 02:40 AM, a sudden, metallic clatter echoed from the entrance foyer.
+
+I jumped out of my chair. Through the frosted glass partition, I saw a heavy, rectangular parcel sitting flat at the bottom of the external brass mail chute. The chute only opens from the outside street entrance.
+
+I stood up, walked around the mahogany counter, and walked toward the drop tray. The building was dead quiet. Through the tall Georgian front windows, the cul-de-sac outside was completely empty. No delivery vans, no parked cars, no pedestrians. Just the yellow glare of the lone municipal streetlamp illuminating the pavement.
+
+I grabbed the parcel.
+
+It wasn't a standard cardboard shipping box. It was wrapped in heavy, thick brown butcher paper, tied tightly with coarse jute twine. It weighed at least twenty pounds, dense and compact, like a block of concrete.
+
+My brain completely blanked on the red manual rules. I had spent the last two hours reviewing algorithm notes, half-asleep, running on caffeine. Automatic habit kicked in.
+
+I carried the box back to the front desk, set it on the blotter, and pulled out the daily parcel intake sheet.
+
+I leaned in to read the shipping label.
+
+There was no printed barcode. Glued to the paper was a torn rectangle of lined legal paper with three handwritten lines:
+
+RECIPIENT: Night Reception Attendant
+
+DESTINATION: Desk Drawer 02
+
+NOTE: The seal must not dry out.
+
+The bottom corner of the paper was saturated with a thick, yellowish fluid that smelled distinctly like iron and damp plaster.
+
+I froze. Rule two slammed back into my memory:
+
+« Do not sign the digital delivery slate, do not read the recipient's name, and under no circumstances should you inspect the cardboard. »
+
+I looked down at my hands. Both my thumbs were stained with the wet residue from the brown paper.
+
+A quiet, rhythmic tap came from inside the package.
+
+Tap. Tap. Tap.
+
+It sounded like a fingernail clicking steadily against the internal cardboard wall.
+
+I shoved the parcel off the desk. It slammed onto the hardwood floor behind me. Shaking, I grabbed the wooden broom handle from the supply closet, used the tip to shove the box across the floorboards, shoved it inside the metal locker beneath the key rack, and slammed the heavy iron bolt shut.
+
+My heart was hammering against my ribs. I checked the wall clock: 02:51 AM.
+
+I sat back down behind the desk, pulled a sanitizing wipe from my bag, and scrubbed the yellow residue from my fingers until the skin turned raw.
+
+That was when the CCTV monitor flickered.
+
+The screen displays four feeds: the front lobby, the back alleyway, the 4th-floor corridor, and the basement boiler room.
+
+All four panels suddenly froze at 02:51:14. The video feed didn't go black; the image just locked entirely.
+
+The post-script in Morris's binder flashed in my head:
+
+« If a loop freezes, do not look behind you until the green LED blinks twice. »
+
+The green indicator light on the base of the central monitor stayed solid. Unblinking.
+
+Directly behind my reception chair is the locked metal locker where I shoved the package.
+
+From inside the locker, the clicking started again.
+
+Except it wasn't just tapping anymore. It was the sound of dry twine snapping, thread by thread. Snip. Snip. Snip. Followed by the wet, suctioning sound of soaked paper peeling slowly away from a flat surface.
+
+I fixed my eyes on the frozen monitor screen. I didn't breathe. I didn't turn around.
+
+Through the reflection of the dark, unlit screen glass, I could see the outline of my own head and shoulders sitting at the desk.
+
+And right behind my chair, the bottom vent slats of the metal locker were slowly leaking that same thick, yellow liquid across the floorboards, spreading toward the heels of my shoes.
+
+A floorboard creaked in the lobby.
+
+Then, the brass switchboard chime rang.
+
+A single, crisp, mechanical ding that echoed straight down the empty corridor:
+
+CALL FROM UNIT 408.
+
+The green LED on the monitor is still completely solid. It hasn't blinked once in eighteen minutes.
+
+I have my phone flat on the blotter in front of me, typing this with two fingers while keeping my eyes glued straight ahead onto the desk surface. The call bell is still buzzing every forty-five seconds from the panel, and whatever is inside that locker is pressing against the interior metal door, making the thin steel rattle against the latch.
+
+The sun doesn't rise until 06:15 AM.
+
+What happens if I step out from behind the desk before the monitor blinks?
