@@ -1,0 +1,119 @@
+[https://www.reddit.com/r/nosleep/comments/1wb7qri/i\_was\_raised\_in\_a\_deadly\_cult\_i\_know\_now\_that\_i/](https://www.reddit.com/r/nosleep/comments/1wb7qri/i_was_raised_in_a_deadly_cult_i_know_now_that_i/)
+
+A short time ago I began writing about my life in the Messengers of Gabriel cult. At the beginning I didn’t think I would ever actually leave. I’ve linked the last parts here but for those of you who don’t want to read that here is a quick summary of what’s happened. A few months ago I was initiated into the Anointed Ones, which is the inner circle of the cult led by my father, Father Kansas. The Messengers teach that Father Kansas is the angel Gabriel incarnate and when he passes, the Mantle of Gabriel would fall upon me and I would lead.
+
+I began to have doubts after the initiation where I entered the Inner Chamber of a temple called The Great House. A lamb was snatched from my arms from some unknown force and it filled me with fear. I wanted to share this with my best friend Esther, an Outsider who converted to the Messengers, but I did not want to burden her. Instead, I borrowed her phone and wrote my first post. Shortly after that she disappeared and I was led to believe that she had run away. This was false and Father Kansas revealed to me that he believed she was distracting me from my future as his successor and so she was taken and they planned to sacrifice her to the entity in the Inner Chamber. I played along so that I could come up with a plan to save her.
+
+There were only a few hours before her sacrifice and I only had one chance to save her. I figured she was being held in the upper room where I first found the lamb that I used for my initiation. My plan was simple: I was the son of Gabriel. I would walk right in and demand they let me see her.
+
+When I approached the Great House there were two Gadite guards outside of the entrance leading directly into the Outer Chamber. I stood up tall, squared my shoulders, lifted my head, and walked right up to them. One of them lifted his hand to stop me and tried to speak.
+
+Before he could get the words out I said, “Good, you can watch the door while I prepare the sacrifice. Father Kansas needs me to speak with Esther before she’s brought to the Inner Chamber.”
+
+He dropped his hand and began to sputter, “But Joshua said not to-”
+
+“You dare question the heir of Gabriel! Do you want me to report this insubordination to my father?”
+
+“No, sir! Of course not.”  
+“And Joshua is right,” I said. “Do not let anyone past these doors.”
+
+I walked right past them before they said anything else and entered the Outer Chamber. Once the doors were closed I sighed and looked over the pews and towards the doors leading to the Inner Chamber. I swear I could almost see a red glow coming from underneath the doors. I went up the stairs to the left to the hallway above the Inner Chamber. I walked down to the last door at the end of the hall and opened it.
+
+There was a single light in the room. A gas lamp that sat upon a desk. Chained to that desk was Esther. She looked thin and pale. She looked up at me, confused.
+
+“Hezekiah!” she rasped. “What are you doing here?”
+
+“I’m here to get you out. I just need to find you something to get out of those chains.”
+
+She looked even more confused. “What do you mean? I’m not going anywhere.”
+
+“They’re going to kill you! We have to go!”
+
+“Maybe I deserve it,” she confessed. “I’ve never let go of the Outside world and I’ve put all the other Messengers in jeopardy because of my pride and selfishness.”
+
+Her words were like a foreign language to me. I kneeled in front of her and grabbed her hands.
+
+“Esther, you don’t deserve anything that’s happened to you. It’s not right that you were cut off from everyone you know. The Messengers are wrong and there’s something evil here. Underneath our feet there’s something beyond our comprehension, and whatever it is, it can’t be of God.”
+
+“You might have lost faith in the Messengers but even after all that’s happened I still believe,” she insisted.
+
+I was at a loss for words, “What about your mother? Your family? You’ll never see them again.”
+
+She stared at me for a really long time then suddenly broke into tears. I said nothing as she let it all out.
+
+“I just don’t know what to do,” she said through tears. “I gave up everything for this. How can I turn my back on it?”
+
+“We’ll go together. It’s all I’ve ever known but there has to be more out there. More than dying in some dank room.”
+
+She sniffed. “There’s a key in the desk across the room. Let’s get out of here, Hezekiah.”
+
+I smiled. Once she was out of her chains she asked, “What do we do now?”
+
+“Well we can’t go out the front door but there’s lots of rooms connected to the Outer Chambers. Maybe we can sneak out through one of them?”  
+  
+“Lead the way,” she said.
+
+We crept down the stairs and I went to the one room I knew. Father Kansas’s quarters. I peeked inside and didn’t see any signs anyone was inside. So we snuck inside. 
+
+“This is Father Kansas’s room,” I whispered.
+
+“He has a TV? I thought he said those were evil?”
+
+“Father Kansas makes a lot of exceptions for himself,” I said.
+
+I parted the curtains to look out the window.
+
+“It looks like the coast is clear. Let’s make a break for the hole in the fence,” I said.
+
+As soon as we were outside I could hear Joshua shouting at the guards who let me through.
+
+“I don’t care if he was Christ himself! I told you not to let anyone by!”
+
+“We have to hurry!” I insisted as I grabbed her hand.
+
+We ran as fast and as low as we could towards the fence. By the time we reached it the compound was lit up bright as the sun. There were searchlights everywhere. We ran up our hill and kept running as far as we could go. We could hear barks and shouts in the woods and I knew we could only get so far before someone found us. We eventually found a dirt road and began to follow it, hoping it would get us to town.
+
+I heard a motor and I feared the worst, that they had found us. Instead, a sole rider on an ATV stopped just ahead of us on the path. Father Kansas himself stepped off.
+
+For the first time ever I saw tears on his face. His voice was shaky as he spoke.
+
+“Hezekiah... my son, please don’t go.”
+
+I stood my ground, “I’m sorry, Father. I have to. I can no longer be at peace among the Messengers.”
+
+He slowly stepped towards me.
+
+“But your destiny is here. You are the future of the Messengers. I know that you want to make changes and when you’re in charge you have my full blessing to do what you see fit.”
+
+“Not if it means losing Esther.”
+
+He started to wrap his arms around me.
+
+“Let’s go home, son. You are not prepared for the outside world. You would be nothing without us.”
+
+I was barely cognizant as I reached for the gun in my belt. I almost didn’t register when I fired a round into Father Kansas’s chest. I looked down at the smoking revolver I had been given when I became an overseer and down on my father bleeding on the ground. I knelt down and held his hand. His grip was so tight at first I later found a bruise.
+
+Blood was pouring out of his chest and mouth, and he tried to cough out some last words but none ever came. He stared up at me with desperation and shock in his eyes until there was nothing left at all. Father Kansas was dead. Not so long ago this seemed impossible to me but now the man I believed to be the angel Gabriel incarnate was dead by my hand and the Mantle was supposed to fall upon me. I felt nothing.
+
+We had no time to waste. The Messengers would have heard that shot. We mounted the ATV. Esther wrapped her arms around my waist and we disappeared into the night. We made it away from the Messengers. Now it was Esther’s turn to lead. She knew who to call, how to talk to strangers, and how to find food. I was like a babe in the wild, and via buses, hitchhiking, and even walking we made our way to Missouri to Esther’s hometown. 
+
+We arrived at her home in the morning. Before we stepped out of our last ride, the front door was open and her mom was running across the lawn. She embraced Esther and bathed her neck in tears. Her stepfather and younger brother stepped out. The four of them embraced and exchanged love for each other. I stood there awkwardly not knowing what to say.
+
+Esther finally introduced me, “This is Hezekiah. He is my friend. He helped me realize I needed to come home. I wouldn’t have escaped if it weren’t for him.”
+
+“I wouldn’t have escaped either if it weren’t for her. She gives me too much credit,” I insisted.
+
+Her mom suddenly wrapped her arms around me. “Thank you for bringing her home. This means the world to us.”
+
+I didn’t expect this. I don’t know if it was all the emotion Esther’s family was experiencing, what happened with my father, or just everything finally catching up with me but I broke down in her arms. She held me as if I were her son and I realized in that moment how much I missed my own mother.
+
+Esther’s family welcomed me into their home and allowed me to stay in their basement. Her stepdad even got me a job working at his construction company. I enjoyed that. Being outside and working with my hands. In some ways it reminded me of being in the fields back at home.
+
+Other than that I had a really hard time fitting in. Esther settled right back into her life. She had lots of friends in town that she introduced me to and she even got back together with an old boyfriend. I couldn’t say that this didn’t disappoint me. A part of me hoped that Esther and I would end up together but she is her own person and I have no right to expect anything from her. I was just glad that I was in her life.
+
+I still got to spend plenty of time with her and with her family. They were abundantly kind and I ate dinner with them almost every night. Esther’s mom was a fantastic cook and I tried so many new foods that I never had even heard of. Some nights we played board games, watched movies, and told stories. It was as close to a family as I ever had.
+
+Yet, as I lay in bed by myself late at night I found my thoughts turning back to the Messengers. I wondered if I had made the right choice in leaving. I know I had to get Esther out of there but that was my home. I was Gabriel’s heir so maybe they would let me return. Out here I am nobody. I’m having a hard time finding meaning.
+
+I know that these things take time. Esther assured me of this but sometimes I genuinely consider going back and begging for forgiveness. I know it sounds crazy but sometimes I really wish that I had never left. I don’t know what choice I will make but this will be my last post. Thank you to those who’ve read and supported my journey.
+

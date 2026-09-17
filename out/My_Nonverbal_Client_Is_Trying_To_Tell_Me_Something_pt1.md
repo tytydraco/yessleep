@@ -1,0 +1,312 @@
+   
+There I was… on the cusp of becoming certified in the mental health arena—in a classroom full of young, vigorous, future ABA therapists with their whole lives ahead of them. I both envied and pitied them as I observed their faces from the back of the room and on the monitors above. I envied their youth and their ability to identify a meaningful career path at such an early stage in life. But I pitied them for their temporary bliss—their ignorance of how the world really works and the unforeseen valleys of stress, bills, death, and taxes that lie and wait.  
+I have rededicated myself to exploring mental health, autism, and anxiety. I figured if I could learn more about these things, it would help me better take care of my nephew. He is all I have left of my brother, who passed away in the spring of last year. What I am going to talk about now is my first case—well, my first and last case. And a turn of events that have left me shaken to this day.  
+It was easy to find work after I became certified. Nearly every ABA clinic I applied to responded back within a day or so. There was one that caught my interest. Call me sentimental, but it was the name that drew me in more than anything else. “Brother’s Keeper” Therapy Services. It was unique in that it was a male-centered behavioral health clinic specializing in male clients of all ages and walks of life.  
+After a relatively smooth interview with the senior BCBA, who doubled as the clinical director, I was asked if I could start immediately. And, of course, I accepted. After a week of online training and several atrociously mundane modules, I was given a file for my first kiddo, as we refer to clients in the profession.  
+The name at the top right corner… Collin.  
+Collin Dartsmouth.  
+Strangely, there were no session notes available. All I knew of him was that he was nonverbal and 17 years of age.  
+The day before I was scheduled to begin pairing, I reached out to my assigned BCBA, Ashley Jordyn, to get some clarity on the blank document. She explained I would be the kiddo’s first RBT. We were going to be evaluating Collin together.  
+She did, however, make me privy to aspects of his diagnoses and certain triggers that caused him to become extremely violent.  
+When I hung up the phone, my mouth dropped.  
+Collin’s sheet read more like a warning than anything else.  
+Oppositional defiant disorder and intermittent explosive disorder were among his struggles.  
+I was up for the challenge.  
+SESSION ONE  
+I was reviewing the client file in the driveway of the home on Brody Rd. in the Steele Creek area of Charlotte. I received a text from the caregiver letting me know that they would be arriving within the minute.  
+A gray Honda Accord pulled up beside me. The mother, a petite, bronze-skinned woman with short, dark hair, greeted me with a smile and wave. She exited the car and looked me up and down.  
+“Yea, I think you’ll be just big enough,” she uttered slightly.  
+“I’m sorry,” I laughed.  
+“Oh, don’t mind me. Hi, I’m Deanne Dartsmouth. You can just call me ‘D’ or Ms. D… whichever.”  
+She was very upbeat and a little quirky, but sweet.  
+“Nice to meet you.”  
+“Same. And as soon as he stops being so shy, I’d love to introduce you to the star of the show.”  
+When Collin finally managed to maneuver himself from the car, I immediately knew something was off. He was easily 6’2” and well over 200 pounds. Closer to 250, I’d say. That was a far cry from what I read in the file.  
+This boy was a tank.  
+I smiled and walked toward him with a wave and an extended hand.  
+“Hi, Collin! My name is David.”  
+He looked at it with an uncertain scowl. Eventually, he tapped my hand softly with his index finger.  
+Deanne was gleaming. She gave me two silent thumbs up. She mouthed the words, “You freaking rock!”  
+The ice had officially been broken.  
+The home was very well kept and bigger than I imagined from the outside. I sat down with Ms. Dartsmouth to go over the pairing process while Collin went to change out of his school clothes.  
+“We’re basically gonna hang out for a few days so that he and I can get used to one another. It’s very important to build rapport. I’m going to allow him to lead me into his world.”  
+She loved the concept. Afterward, she explained the house rules.  
+“No shoes. Den preferred for sessions. Kitchen available. Bathroom nearby. Collin’s room was private time.”  
+Pretty standard stuff, but I did have one question to ask her.  
+“Got it,” I said. “Now, is there anything about Collin that’s not in this file that I should know about? Anything that you believe is pertinent?”  
+Her eyes glossed a bit.  
+“I love Collin with all my heart. But my son is very… uhh, different. His brand of autism makes him extremely sensitive to certain things. Because of this, he has developed these… uhh, tendencies. Tendencies that are not becoming.”  
+She tried to cover the bruising on her forearm, but I had already noticed them outside. I was discreet in my observation.  
+She wanted to elaborate but could not. And the reason was standing in the middle of the living room, listening to our every word.  
+People often associate being nonverbal with an inability to process. That could not be further from the truth. Collin was very perceptive. I didn’t want him to feel alienated, so I immediately countered.  
+“Hey, buddy… Your mom and I were just out here talking about you. What are we doing today? TV or basketball? I hear you like both?”  
+He looked at his mother, then back at me.  
+“Hey, Collin. Listen, buddy. Would you feel more comfortable if I came back tomorrow? If you don’t want to hang out today, you don’t have to.”  
+He shook his head and walked to the den. He sat and motioned for me to come sit by him.  
+A good sign, to say the least.  
+“Miss D, I’ll take it from here.”  
+She gave me a thumbs up and left the room.  
+I sat at the other end of the sofa, awaiting Collin’s direction. He pointed at the television screen. He kept rewinding and rewatching a particular part of the movie, Rango. But as I observed more closely, I could see that the young man was not amused at all.  
+There was a look of concern on his face—fear and anger.  
+He slid closer to me and grabbed my arm. This kid was strong. I thought back to the mother’s bruises. They may or may not have been intentional. The kid just didn’t know his own strength. He was trying to show me something.  
+This was a teachable moment.  
+“If you want me to see something, you have to show me. We don’t have to pull. Okay?”  
+At that moment, his mother walked in.  
+“Collin!” she yelled.  
+He glared at his mother with absolute contempt and stormed from the den to his room. The bookshelf actually shook when he walked past. He slammed the door and started blasting music.  
+Eminem’s “I’m Not Afraid” reverberated through the door.  
+Ms. D shook her head.  
+“I’m sorry, David. Do you mind if we cut today’s session a little short?”  
+“That’s no problem. I understand. If you need me, call me. We’ll start fresh tomorrow.”  
+“Sounds good.”  
+When I got home that evening, I went over the course of the day’s visit. What I assessed from my time with the client was that he and his mother share a somewhat turbulent relationship. I couldn’t put my finger on it, but there was something in the water that caused the barrier between mother and son.  
+Ashley texted me around 5:30, letting me know she was about to call me. She was very prompt. When she called, I went over everything that happened at the home. She explained to me that she had a long talk with the caregiver, and despite what happened, that she would love to take me on full-time as their in-home therapist.  
+Apparently, I made some sort of impression.  
+I’ll take it.  
+SESSION 2  
+The next afternoon was warm enough for Collin to want to be outside. When I arrived, he was already standing in the driveway with a basketball tucked under his arm, rocking back and forth on his heels like he was waiting for me.  
+Deanne cracked the door open just long enough to say he’d been pacing for twenty minutes. I gave her a thumbs up and left my book bag with my tablet in the car.  
+I walked over slowly, giving him space.  
+“Hey, buddy… you wanna shoot around?”  
+He didn’t answer, but he handed me the ball with a kind of impatient shove. We walked to the hoop at the edge of the driveway. I was more of a football guy, but I could still bust a couple of threes… at least I thought.  
+I shot around a little bit to warm up. After making a complete fool of myself with three air balls in a row, I gave Collin the rock.  
+He took the ball and launched it with a force that didn’t match his expression. It slammed off the backboard so hard the rim rattled.  
+I laughed lightly.  
+“Okay… you’ve got an arm on you. Maybe we should throw the football around.”  
+He didn’t smile.  
+He didn’t look at me.  
+He was staring up at the second-floor window.  
+His jaw tightened. His breathing changed. His shoulders rose like he was bracing for impact. I followed his gaze, but all I saw was a closed curtain and the faint reflection of the yard.  
+Collin’s face twisted—fear, anger, something else.  
+He took two steps back, wound up, and hurled the basketball like an Olympic discus thrower. The ball shot upward like a cannon blast and smashed into the window.  
+Glass exploded everywhere, raining down in a spray of shards.  
+I jumped back, shielding my face.  
+Collin didn’t move. He just stared at the broken window, chest heaving, fists clenched so tight his knuckles went white.  
+“Collin… hey… buddy… what happened?” I asked quietly. “Are you alright?”  
+He didn’t look at me.  
+He pointed at the window—slowly, deliberately—then shook his head over and over, like he was trying to erase something from his mind.  
+Deanne burst out the front door.  
+“What happened?!”  
+Collin backed away from her, eyes wide, terrified.  
+Not of the broken glass.  
+Not of getting in trouble.  
+Of her.  
+I stepped between them without thinking.  
+“It was an accident,” I said. “We were just shooting around.”  
+Deanne went silent with reserved cruelty. Her eyes focused on the frightened teen behind me.  
+He was trembling.  
+Her head tilted slowly to the left, as if she were trying to crack her own neck, the way a boxer would before a fight. She spoke slowly—softly—trying her best to contain the rage within.  
+“Collin, come here.”  
+There was no response from the boy. However, behind me, he was clutching the collar of my shirt for dear life, trying to avoid eye contact with his mother.  
+Again she spoke. This time louder and more forcefully.  
+“Collin, get over here, now! If I have to come and retrieve you from behind Mr. David, you won’t like me this evening.”  
+I wanted to say something, but it was not my place, and Collin eventually came to his mother, but not before speaking to me with his eyes.  
+If I didn’t know any better, I’d say this child was asking for my help.  
+Whatever he saw in that window really unnerved him.  
+And he wanted me to know it.  
+Needless to say, the session was again cut short.  
+SESSION 3  
+I couldn’t shake the image of Collin’s face when he looked at that window. It wasn’t teenage attitude. It wasn’t defiance.  
+It was terror—the kind that comes from seeing something you’re not supposed to see.  
+Like relived trauma.  
+The next day, I arrived early again. Deanne met me in the driveway. She was rushing to leave.  
+“Hey, I know it was last minute, but my boss has no one else to do this presentation. I hate to be an inconvenience.”  
+“It’s totally fine,” I said. “I saw your message earlier this morning, and I appreciate the heads up. I’ll go in and check on him, and we’ll go from there.”  
+“You’re the best, thanks!”  
+Collin was in his room with the door cracked, humming to himself in that low, rhythmic way he did when he was trying to stay calm. I took the opportunity to walk the hallway upstairs, just to see the broken window from inside.  
+The glass had been swept, but the frame was still cracked. The curtain was half-torn, hanging sideways like someone had ripped it down in a hurry.  
+Behind the curtain rod, carved deep into the drywall, was a gouge.  
+Not from the basketball.  
+The angle was wrong.  
+The depth was wrong.  
+The shape was wrong.  
+It looked like something had scraped downward with force—something sharp.  
+The gouge wasn’t straight.  
+It curved.  
+Almost like a claw mark.  
+Under the dresser, barely visible, was a small stack of papers. I pulled them out. They were drawings—messy, frantic, done with heavy pressure like the pencil was about to snap.  
+Every drawing was the same.  
+A woman’s silhouette.  
+But distorted.  
+Too tall.  
+Arms too long.  
+Neck stretched.  
+Face blurred except for the eyes—wide, black, hollow.  
+And in every picture, the figure stood in the window.  
+Collin appeared in the doorway.  
+He didn’t say a word.  
+He just looked at the drawings in my hand… then at the window… then at me.  
+His eyes pleaded.  
+Begged.  
+Warned.  
+I whispered, “Buddy… is this what you see?”  
+He nodded once.  
+Slow.  
+Heavy.  
+Then he pointed downstairs—toward the kitchen—toward where Deanne usually stood when she cooked.  
+His hand shook.  
+His breathing quickened.  
+He backed away from the doorway like something was behind me.  
+The air felt wrong.  
+Thick.  
+Heavy.  
+Charged.  
+Collin wasn’t imagining this.  
+He wasn’t confused.  
+He wasn’t maladaptive.  
+He was trying to survive something he could see and I couldn’t.  
+Again, it seemed as if he was reliving some sort of trauma. I didn’t know what it was, but I was going to find out.  
+I believe he’s seeing something.  
+And whatever it was, it felt real to him.  
+I took one of the pictures for myself and walked Collin back downstairs.  
+“Don’t worry about it, buddy. I’m gonna take care of you.”  
+We spent the next hour and a half watching Rango. It was the only thing he would watch—but every time, like before, he would stop and rewind, stop and rewind at a particular scene, and I couldn’t understand what he was trying to get me to see.  
+That is, until he pointed to my pocket.  
+“The picture… you want to see the picture you drew again?”  
+He nodded, then pointed to the paused screen.  
+The scene was Rango standing in the middle of a barren desert, shedding his new skin in the sun.  
+I looked up at the screen and then back at the picture.  
+That’s when he nodded uncontrollably.  
+The correlation was obvious.  
+The drawing was similar to the reptilian character we were looking at on television, but more human-like.  
+All of a sudden, Deanne burst into the room like a gust of wind from a Category 5 hurricane.  
+Eyes wide with rage.  
+Skin—boiling.  
+“And what are you two doing?” she asked assertively.  
+Collin took two slow steps behind me.  
+He was afraid.  
+“Hey, you got back pretty fast,” I joked. “We were just watching TV.”  
+“Yeah, I see that… Why are you watching this garbage? I’m sure there’s something more interesting on than… this. Isn’t that right, Collin?” she said to the boy.  
+“Oh,” I said. “May I ask, what’s wrong with—”  
+Before I could finish the question, she cut me off.  
+“He knows I don’t like it. Yet he continues to put that filth on my screen.”  
+Collin was frozen in fear, like a mouse trapped in a one-way tunnel between a hungry serpent and the only way out.  
+I knew I had to insert myself as the buffer before things took a turn.  
+“You seem upset. What can I do to help? Would you like us to watch something else?”  
+“I believe that’s the best idea you had all day… I’m gonna start lunch.”  
+Just as suddenly as she stormed in, she hurried out with equal ferocity.  
+This was the first time I’d ever seen her this perturbed. It was also the first time I’d observed Collin display such a level of fear when she was in the room.  
+Something was going on, and there was something about this movie that the caregiver definitely did not like.  
+SESSION 4  
+The next session, I walked into the house and immediately felt something was off.  
+Deanne, who was normally in the kitchen, was nowhere to be seen. I assumed she was upstairs, so I announced myself.  
+“Miss D, it’s me, David. The door was open. Everything alright?”  
+I continued making my way into the house, scanning for anything out of the ordinary.  
+When I got to the den area, that’s when I noticed him.  
+He was sitting on the floor by the sofa, knees pulled up, arms wrapped tight around himself like he was trying to hold his body together. His head was down, chin buried in his chest.  
+“Hey, buddy… you okay?” I asked softly.  
+He didn’t answer.  
+He didn’t look up.  
+I sat down a few feet away, giving him space. After a moment, he shifted, and the collar of his shirt slid just enough for me to see the edge of a bruise on his shoulder.  
+Dark.  
+Fresh.  
+Not from basketball.  
+Not from a fall.  
+Not from anything accidental.  
+“Collin… did you hurt yourself?” I asked, even though I already knew the answer.  
+He shook his head.  
+Slow.  
+Firm.  
+He lifted his arm just enough for me to see more—faint scratches along his bicep, thin and curved, like something had gripped him.  
+Not fingernails.  
+Not human.  
+The same shape as the gouge in the drywall.  
+My stomach dropped.  
+Before I could say anything, he pointed toward the kitchen. Not at Deanne. He pointed at the empty space where she usually stood.  
+His hand trembled.  
+His breathing quickened.  
+He pressed his palms to his ears like he was trying to block out a sound only he could hear.  
+I moved closer.  
+“Buddy… I need you to tell me if someone hurt you.”  
+He didn’t speak, but he grabbed my wrist and placed my hand on the bruise.  
+Then he pointed again toward the kitchen.  
+Hard.  
+Repeatedly.  
+His eyes filled with panic.  
+I swallowed.  
+I was a mandated reporter.  
+I had no choice.  
+But I also didn’t know what I was reporting.  
+A mother?  
+A self-harming incident?  
+A hallucination?  
+A truth only he could see?  
+I stepped outside and called Ashley.  
+“Hey, I need to talk to you. It’s about Collin.”  
+She heard the tone in my voice immediately.  
+“What’s going on?”  
+“I found marks,” I said. “Bruising. Scratches. He’s terrified. He keeps pointing toward the kitchen. I don’t know what’s happening, but something’s wrong.”  
+Ashley went quiet.  
+“Okay,” she said finally. “I’m going to set up an in-person visit for tomorrow. I need to put eyes on the situation firsthand. In the interim, I want you to continue as scheduled with your sessions. We’re going to get to the bottom of this.”  
+“Okay,” I said. “I’m gonna go back inside. Deanne hasn’t come down yet.”  
+When I got back to the house, the front door was closed and locked. I tried the doorbell but got no answer, and then called Miss D’s cell phone.  
+No answer.  
+I left a message.  
+“Hello, Miss D, it’s David. I’m outside of your home. Could you please come down so I can verify that you both are okay? Unfortunately, I can’t leave until you do so, being that your car is here.”  
+I texted her and called three more times before she finally responded.  
+“I’ll be down in a moment.”  
+She cracked the door open only six inches or less. I could see that she was in a bathrobe.  
+“Oh, I’m so sorry—I had no idea you were bathing,” I said.  
+“It’s fine… I don’t think today is gonna be a good day. Come back tomorrow.”  
+She slammed the door in my face.  
+At that moment, I had a choice to make, because based on the evidence I’d seen—and being a mandated reporter—I could’ve called child services or even the police.  
+But I didn’t want to move too fast, and I wanted to see what Ashley had planned for tomorrow, so I let it ride.  
+But this would probably be an abuse case.  
+I chopped it up in my mind.  
+SESSION 5  
+When I got home, I told Ashley about the events that occurred after we hung up the phone. She was extremely disturbed. She explained to me that she thought it was odd that Miss Deanne preferred only one person in the house at a time, and that her weekly updates with Ashley were to be done virtually only—but what Deanne didn’t know was that tomorrow, she was gonna get a double dose of the both of us.  
+The next day was dreary and soon to be wet with rain. Dark clouds loomed over the entire area. We were in for a monsoon, it seemed. The wind was starting to pick up, and the clouds were swollen with precipitation.  
+“Hell of a start to a Saturday,” I thought to myself.  
+We arrived at the home around 10 o’clock that Saturday morning. For the most part, everything looked normal—until we looked a little closer.  
+On the Honda, there seemed to be a spot of blood on the door handle, and then what looked to be a blood trail leading up to the front door.  
+“Oh no…” Ashley uttered. She looked at me. “What in the world is going on here?”  
+I didn’t have any words.  
+Ashley marched up the stairs and banged on the door. She was determined to see that Collin was okay.  
+But something didn’t sit right with me.  
+The entire scenario felt off… almost staged.  
+It was as if someone or something was prompting us to come inside the house.  
+“Ashley… listen. Before you go in, I need you to understand—”  
+She held up a hand.  
+“David, I appreciate you, but I need to see the environment. I need to see the caregiver. I need to see Collin.”  
+I didn’t argue.  
+I should have, but I didn’t.  
+I wanted to tell her about the claw marks. About the eerie feeling that washed over my body every time I stepped foot in that home since the first incident.  
+But I’m a professional—and we just don’t say things like that out loud.  
+The door opened.  
+Ashley stepped inside.  
+I was right behind her.  
+The air shifted—that same heavy, charged feeling I’d felt upstairs came over me.  
+A sudden chill.  
+Collin peeked from the hallway, eyes wide, shaking his head at me like he was begging me to stop her.  
+“Ashley,” I whispered, “maybe we should hold off.”  
+But she was already walking toward the kitchen.  
+“Hello?” she called out. “Ms. Dartsmouth? This is Ashley from the ABA clinic. I need you to come down right now, please.”  
+She locked eyes with Collin.  
+“Hi, Collin, it’s okay. Please come out. I’m here to help you, okay, sweetie?”  
+The boy stayed silent.  
+A tear ran down Collin’s cheek as he remained partially hidden behind the corner of the wall.  
+Ashley took another step.  
+The house grew darker as the storm clouds continued to engulf the remaining light of day.  
+Then another.  
+She reached the threshold of the kitchen and froze.  
+Her body stiffened.  
+Her breath hitched.  
+Her eyes locked on something I couldn’t see from where I stood.  
+“Ashley?” I said.  
+She didn’t turn around.  
+She didn’t speak.  
+She didn’t move.  
+I stepped forward.  
+Collin suddenly ran from the shadows and grabbed my arm with both hands, shaking his head violently, pulling me back with unmatched strength.  
+His eyes were locked on the kitchen doorway, pupils blown wide, chest heaving.  
+Ashley took one slow step backward.  
+Then another.  
+Her face was pale, drained, her mouth slightly open like she was trying to form a word but couldn’t.  
+She was fighting to move.  
+Fighting to speak.  
+Her body looked as if rigor mortis was setting in.  
+Something had control over her.  
+Shaking, she slowly turned toward me—and I saw something in her eyes I’d never seen before.  
+Pure, unfiltered terror.  
+“David…” she whispered. “Something’s wrong.”  
+That’s when I saw—the hand
