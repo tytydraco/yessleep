@@ -18,19 +18,23 @@ I walked around looking for anything that might explain what I’d heard. A trai
 
 Then I heard someone breathe directly behind me, close enough that I could almost feel it against the back of my neck. I spun around. Nobody. Only gravestones. I stood frozen in place. Listening. Silence. Eventually, I headed home. When I looked back, the graveyard was exactly as I’d found it. Empty. Still.
 
-That night, the streetlights were working again. That made the place feel less threatening. A week passed. By then, everything felt ordinary again. I carried the bag of recycling down around the same time as before and dumped it into the bin. The instant the lid fell shut, the streetlights flickered. Then every light along that side of the complex went out. The last glow faded from the pavement. It took my eyes a moment to adjust. I stood there for a few seconds longer than I needed to. Nothing.
+That night, the streetlights were working again. That made the place feel less threatening. A week passed. By then, everything felt ordinary again. I carried the bag of recycling down around the same time as before and dumped it into the bin.
 
-Then, from somewhere deep in the woods:
+The instant the lid fell shut, the streetlights flickered. Then every light along that side of the complex went out. The last glow faded from the pavement. It took my eyes a moment to adjust. I stood there for a few seconds longer than I needed to.
+
+Then, from somewhere far off in the woods, in the direction of the graveyard:
 
 “Hey, man.”
 
 I stopped. The same low, deep whisper. I raised my flashlight toward the trees. I couldn’t see anyone.
 
-Then another voice answered.
+Then another voice whispered.
 
 “Hey, man.”
 
-But this one was farther away. Much farther. From the direction of the graveyard. I went back inside.
+This one was closer. Much closer. Somewhere just beyond the hedge.
+
+I went back inside.
 
 A few days later, I mentioned it to an older guy who had lived in the complex for years. I expected him to laugh.
 
@@ -68,7 +72,9 @@ I stared at him. “How do you know this?”
 
 He didn’t answer. He just walked away.
 
-Another week passed. The recycling started piling up. I didn’t take it out. I told myself that wasn’t because of what the old man had said. Around 11:30 one night, I was watching TV when I thought I heard something outside. I muted the screen and listened.
+Another week passed. The recycling started piling up. I didn’t take it out. I told myself that wasn’t because of what the old man had said.
+
+Around 11:30 one night, I was watching TV when I thought I heard something outside. I muted the screen and listened.
 
 Then, faintly, from beyond the hedge:
 
@@ -138,9 +144,17 @@ Then, from the other side of the window, came a low, deep whisper:
 
 I went to my bedroom and locked the door. I left the lights on. For a long time, I lay awake listening. Nothing else happened. Eventually, exhaustion won. I fell asleep.
 
-I woke standing at my front door. Shoes on. Jacket zipped. Keys in my hand. My phone was in the other. 3:17 AM. I stared at the screen. Maps was open. Walking directions. 12 minutes. Destination: The cemetery. I had absolutely no memory of getting dressed. No memory of opening Maps. No memory of walking to the front door.
+I woke standing at my front door. Shoes on. Jacket zipped. Keys in my hand. My phone was in the other. 3:17 AM.
 
-I reached for the deadbolt. Then I realized something. It was already unlocked. I slowly opened the door. The streetlights were out. All of them. I should have closed the door. Instead, I stepped outside. I walked past the recycling dumpsters. Past the hedge. Onto the road. Some distant part of me knew exactly what I was doing. Another part kept telling me I could turn around whenever I wanted. And technically, that was true. I just didn’t. Turning around felt possible, but strangely irrelevant.
+I stared at the screen. Maps was open. Walking directions. 12 minutes. Destination: The cemetery.
+
+I had absolutely no memory of getting dressed. No memory of opening Maps. No memory of walking to the front door.
+
+I reached for the deadbolt. Then I realized something. It was already unlocked. I slowly opened the door. The streetlights were out. All of them.
+
+I should have closed the door. Instead, I stepped outside. I walked past the recycling dumpsters. Past the hedge. Onto the road.
+
+Some distant part of me knew exactly what I was doing. Another part kept telling me I could turn around whenever I wanted. And technically, that was true. I just didn’t. Turning around felt possible, but strangely irrelevant.
 
 Twelve minutes later, I stood outside the cemetery. The gate was open. My phone vibrated.
 
@@ -148,7 +162,9 @@ You have arrived.
 
 I stared through the gate. I’d been here before. In daylight, it had been nothing. Grass. Trees. Stones. A lake. At three in the morning, it didn’t feel like the same place.
 
-I looked down at my phone. The route disappeared. For a moment, the map showed only my blue location dot sitting at the cemetery entrance. Then the screen refreshed. A new route appeared. I stared at it. The destination had moved. The blue line now continued through the cemetery, winding between the graves and ending somewhere deep inside.
+I looked down at my phone. The route disappeared. For a moment, the map showed only my blue location dot sitting at the cemetery entrance. Then the screen refreshed. A new route appeared.
+
+I stared at it. The destination had moved. The blue line now continued through the cemetery, winding between the graves and ending somewhere deep inside.
 
 4 MINUTES
 
@@ -194,7 +210,7 @@ DO NOT ANSWER THEM.
 
 I stared at the message.
 
-*Them?* I thought.
+Them? I thought.
 
 Then, somewhere ahead of me, came a low whisper.
 
@@ -210,7 +226,7 @@ Another whisper answered from my right.
 
 “Hey, man.”
 
-I backed away.
+I began backing away.
 
 Then another voice whispered somewhere among the stones.
 
@@ -246,7 +262,11 @@ My phone started ringing.
 
 UNKNOWN CALLER
 
-I stared at it. Every voice stopped. All at once. The cemetery fell completely silent. The phone continued ringing in my hand. Once. Twice. Three times. Whoever had been sending the messages knew what was happening.
+I stared at it. Every voice stopped. All at once. The cemetery fell completely silent.
+
+The phone continued ringing in my hand. Once. Twice. Three times.
+
+Whoever had been sending the messages knew what was happening.
 
 I answered. I held the phone to my ear.
 
@@ -328,15 +348,31 @@ Beneath it all, the chant never stopped.
 
 “JOIN US!”
 
-I made it halfway to the gate before I looked back. At first, I couldn’t understand what I was seeing. Something hung above the gravestones. Ten feet tall. Maybe more. A black shape suspended over the cemetery, long and narrow. Its lower half hung in folds that almost resembled cloth, except they shifted and curled even though the air was completely still. There was no face. No feet. Nothing I could identify as a body. It hovered motionless above the graves.
+I made it halfway to the gate before I looked back.
 
-Then it moved. It glided toward me. Fast. The gravestones disappeared beneath it as it swept across the cemetery. The voices began to laugh. Men. Women. Children. Old people. All laughing with the same breathless joy. Some sounded exactly like people I knew. And somewhere among all of them, I heard myself laughing.
+At first, I couldn’t understand what I was seeing. Something hung above the gravestones. Ten feet tall. Maybe more. A black shape suspended over the cemetery, long and narrow. Its lower half hung in folds that almost resembled cloth, except they shifted and curled even though the air was completely still. There was no face. No feet. Nothing I could identify as a body. It hovered motionless above the graves.
 
-The thing kept coming. Closer. I turned forward and sprinted for the gate. I reached it. The thing was closing the distance. I ran into the road. My phone vibrated over and over in my hand. I didn’t look. The laughter followed me. Across the road. Toward the apartments. Closer. Always closer.
+Then it moved. It glided toward me. Fast. The gravestones disappeared beneath it as it swept across the cemetery.
 
-I reached the complex. The streetlights were still dead. I crossed the parking lot. Past the hedge. Past the dumpsters. Almost home. Then every streetlight came on at once. The laughter stopped.
+The voices began to laugh. Men. Women. Children. Old people. All laughing with the same breathless joy. Some sounded exactly like people I knew. And somewhere among all of them, I heard myself laughing.
 
-I stumbled through my apartment door and slammed it behind me. Locked it. Deadbolt. I stood with my back against the door, trying to breathe. My phone vibrated. I finally looked.
+The thing kept coming. Closer.
+
+I turned forward and sprinted for the gate. I reached it. The thing was closing the distance. I ran into the road. My phone vibrated over and over in my hand. I didn’t look.
+
+The laughter followed me. Across the road. Toward the apartments. Closer. Always closer.
+
+I reached the complex. The streetlights were still dead. I crossed the parking lot. Past the hedge. Past the dumpsters. Almost home.
+
+Then every streetlight came on at once.
+
+The laughter stopped.
+
+I stumbled through my apartment door and slammed it behind me. Locked it. Deadbolt. I stood with my back against the door, trying to breathe.
+
+My phone vibrated.
+
+I finally looked.
 
 Six messages.
 
@@ -390,6 +426,8 @@ Then another.
 
 IT FOLLOWED YOU INSIDE.
 
-The apartment was silent. Living room. Kitchen. Hallway. Bedroom. Nothing moved. I stood absolutely still. Then, from somewhere inside the dark bedroom, came a low, deep whisper. In my own voice.
+The apartment was silent. Living room. Kitchen. Hallway. Bedroom. Nothing moved. I stood absolutely still.
+
+Then, from somewhere inside the dark bedroom, came a low, deep whisper. In my own voice.
 
 “Hey, man.”
