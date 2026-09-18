@@ -525,3 +525,5 @@ I wonder  if every time I open this tab all the website, and all of you will fa
 I feel so alone now. I’m so cut off.
 
 One last bizarre thing has changed.. randomly my car will signal using my mirror sensors that there is a car or object to the left or right of my car. It happens maybe every few minutes..
+
+[PART 2](https://www.reddit.com/r/nosleep/s/zRNV5V5GxN)

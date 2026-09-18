@@ -1,0 +1,69 @@
+It was a cold morning. My wife and I had just finished our second cup of coffee when Michelle came waddling into the kitchen, her pajama top unbuttoned and hanging off one shoulder. Her hands were cupped together the way you'd carry water, and she had the biggest smile I had ever seen on her.
+
+"It came out," she said, and opened her hands.
+
+There it was in her palm. This tiny white thing with a fleck of pink at the root. Her first one. She'd been working it loose with her tongue for two weeks, and now here it was, and she couldn't decide whether to laugh or cry, so she did both.
+
+Her mother made the fuss you're supposed to make, folded the tooth into the good tissue, and told her the whole story. You put it under your pillow, and while you sleep the tooth fairy takes it and leaves you something. Michelle wanted to know how it got in. Through the window, my wife said. And how did it know? It just knows, honey. It knows the minute a kid loses one.
+
+That night we tucked the tissue under the corner of her pillow, and I had a dollar folded in my back pocket for later. She made me check the window latch so the fairy could get in, and I told her it was open, though I'd locked it that afternoon and had no intention of unlocking it. I kissed her forehead and turned off the light.
+
+She was asleep before I got to the door. Six years old, both hands tucked under her cheek, that new gap in her smile.
+
+It was the best night we'd had in a long time.
+
+In the morning I went in to make the swap before she woke up, the dollar already folded in my hand.
+
+The tooth was gone.
+
+I stood there with the pillow in one hand and the dollar in the other, and it took me a second. I hadn't put the dollar there yet. That was the whole reason I was sneaking in. My wife hadn't either. I asked her in the hall and her face was doing the same thing mine was. And the window was still locked, the way I'd left it.
+
+Where the tooth had been, there was a note.
+
+It wasn't my handwriting, and it wasn't my wife's. Small and careful and a little crooked, the way a kid writes, except Michelle is six and can't spell her own middle name. It said, clear as anything:
+
+I need the next one early.
+
+I put the note in the trash and told myself a story about it all day. A cousin messing around. A joke I wasn't in on. It got me to bedtime.
+
+Nothing else in her mouth was loose. I checked with my thumb, feeling like a crazy person. Every tooth set in tight. There was no next one to give early even if I'd wanted to.
+
+Four days later Michelle woke up screaming.
+
+Blood on her pillow, a new gap in the bottom of her smile, the tooth that belonged there gone. It had not been loose. It shouldn't have come out for a year. She kept telling me it didn't hurt, that the lady did it, and she wanted to know if she still got a dollar.
+
+Under the pillow there was another note, the same small careful hand. Sooner, this one said.
+
+Please.
+
+I should have called someone. But what do you tell a dentist, or a cop? So I did the math instead.
+
+A tooth is a tooth. That was the whole thought, standing in the bathroom at two in the morning with pliers and a washcloth folded into my mouth. I did a back one, where it wouldn't show. I don't want to talk about the sound.
+
+I put it under her pillow in the good tissue. In the morning it was gone, no note, and Michelle slept the whole night with every tooth she had left.
+
+It was the best deal I have ever been offered, and I'd have signed it in blood if that was what it wanted.
+
+It started asking sooner. Every nine days, then six, then four. My wife gave her first one the second week, at the sink, with my hand on her shoulder. She didn't cry. She looked at it in the tissue and said, "She's worth the both of us," and did the next one herself the following week, without being asked.
+
+We tried everything else first. The dog cracked a tooth on a bone that fall, and I dug it out of the yard and set it under the pillow, and in the morning it was back on top, dry, and Michelle had a fresh gap. I bought a bag of human teeth off a website that sells them for crafts. Old ones. It wouldn't touch them. Dentures. A cow tooth from the butcher's. Every one came back, and every one cost Michelle another. It has to be a person, and it has to be one that was still living when it left the mouth.
+
+Michelle noticed. Of course she did. She asked why Mommy's smile had holes in it now, and whether the fairy took grown-up teeth too, and I told her yes, that everybody pays. She thought that was fair. She started leaving her own under the pillow to help, and I'd sneak in and take it back and put one of mine there instead. I could not make a six-year-old understand that the whole point was that hers never went in again.
+
+Not that it slowed down. Her own teeth had started giving up on their own by then. Not just the ones it took. The rest of them too, months before they had any business coming out, one working loose every few days until the front of her mouth was mostly gum. Like she was being cleared out.
+
+Her last baby tooth came out on its own in the spring, and for a couple of weeks nothing came. No notes. Empty pillow. I let myself believe we'd covered her whole childhood in our own mouths and the thing was finally full.
+
+Then the grown-up teeth started coming in.
+
+Too many of them. They came up crowded and turned, a second row starting behind the first before the first was through, white and hard and too sharp for a child, more than a mouth is built to hold.
+
+Michelle loves them. She checks them in the mirror every morning and asks if she's getting her big-girl smile, and I tell her yes, baby, you sure are.
+
+I counted them last night while she slept, with the little flashlight, the way I used to check for loose ones. I already knew what the number would be. Every tooth I pulled out of my own head. Every one of my wife's. All of them coming up in her, in rows, exactly as many as we fed it.
+
+It was never taking them away. We were handing it the parts. We spent a year clearing out everything that was hers and packing the space with everything that was ours, and now something is finishing its mouth behind my daughter's face, and she thinks it's her big-girl smile, and she wants me to be proud.
+
+So I sit with the flashlight after she goes down, and her lips come apart a little in her sleep, and I can see them in there, waiting.
+
+I don't know whose kid I'm going to say goodnight to when they finish coming in.

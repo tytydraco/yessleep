@@ -1,0 +1,839 @@
+I sat on the edge of my bed, staring at the vial in the palm of my hand.
+
+I'd been clean for six months... but I'd been weak.
+
+I'd had a rough moment that evening and called Little Joe. He'd been my dealer ever since my parents died. He was also the one who'd sold me the last dose I'd taken before I ended up in the hospital.
+
+If I remember right, I'd been an addict for seven years. I didn't care what I took, as long as I didn't have to feel anything..
+
+That was my life, my love, and eventually, almost my death.
+
+After the hospital, they put me through rehab and then therapy. I was lucky, you could say. Some random passerby had called an ambulance after finding me sitting on a bench with foam coming out of my mouth...
+
+That part of my life was over.
+
+What was happening now was just a moment of weakness. I wanted something mild, just enough to help me unwind after all the stress and shit I'd been dealing with. I had a real job now. I even rented a tiny apartment. It was the kind of place made for people like me.
+
+Seeing Little Joe again had been strange.
+
+The guy looked like absolute shit, like he hadn't slept in weeks. His eyes kept darting around. But, what do you expect from a drug dealer?
+
+And that's how I ended up right back in this situation.
+
+I'd gone looking for something that would let me feel whole again. That was when Little Joe suddenly perked up and handed me the vial. All I had to do was take a sip, and it'd feel just like getting high on weed. 
+
+I stopped hesitating. I raised the little vial and took a swig.
+
+Then I set it down on the floor beside the bed, and waited for it to kick in.
+
+At least half an hour had passed, but nothing happened.
+
+I just lay there, watching the shadows of tree branches across the wall.
+
+Maybe it was better this way. Maybe the fact that I didn't feel high was exactly what I needed. Or maybe Little Joe had just ripped me off…
+
+I was better off sober. My life was finally getting back on track. I couldn't fuck it all up again. I sat up on the edge of the bed. To my surprise, there was a black cat sitting in front of my bed.
+
+My eyes immediately went to the front door. It was closed. The cat didn't move. It just sat there, perfectly still, slowly blinking.
+
+"Hey, kitty?" I said gently. "How'd you get in here?"
+
+The cat slowly turned its head toward me and stared with huge green eyes. 
+
+"Hmm… I don't even have a cat."
+
+"Good thing I'm not a cat," the animal said in a deep voice.
+
+I couldn't get a single word out. The fucking thing had just spoken. And I'd understood it perfectly. 
+
+"What the fuck!?" I finally blurted out. "What kind of cat are you?"
+
+"I told you, I'm not a cat," the animal replied. "I'm a rocking horse!"
+
+"What?"
+
+"Muhahaha!" The cat let out a deep, horse-like whinny, stood up on its hind legs, and ran into the darkness of my bathroom.
+
+I sat frozen on the edge of my bed. As an experienced drug addict, I have to admit… I'd never seen a hallucination this fucking realistic before.
+
+Taking a deep breath, I hauled myself off the bed and headed into the bathroom after the cat, moving through the dim light. Hallucination or not, I wanted to make sure there really wasn't a talking animal in there.
+
+I carefully felt my way across my tiny apartment. 
+
+The bathroom light buzzed as it flickered on. I cautiously peeked inside.
+
+"Hello, kitty?" I called gently.
+
+There was no answer.
+
+The apartment was quiet. I stepped into the bathroom and pulled back the shower curtain.
+
+Nothing.
+
+That had been one hell of a vivid hallucination. 
+
+Then the small cabinet beneath the sink clicked open. I looked down. The door had only opened a crack. Maybe a draft had pushed it open when I'd walked in. I stepped over to it. I knew what was inside. A few cleaning supplies. But as I reached for it, something seemed wrong.
+
+Light was coming through the crack. Bright light, like the glow of a streetlam. I knelt down, hooked one finger around the little door, and pulled it open wider. A shimmering yellowish light spilled out, illuminating part of my bathroom.
+
+I swallowed hard and peered inside. My breath caught in my throat.
+
+The inside of the cabinet was gone.
+
+On the other side was another identical cabinet door, standing wide open. Beyond it was a bathroom, and the ceiling light inside was so bright it might as well have been a spotlight.
+
+I glanced suspiciously around my small, dark, empty apartment.
+
+How the hell could there be a hole here? Did it lead into the neighbor's apartment? How had I never noticed it before?
+
+Then I heard something.
+
+It sounded like musicians tuning their instruments. Quiet at first, but slowly becoming more melodic.
+
+I let out a long breath, got down on my hands and knees, and crawled into the little cabinet. I squeezed beneath my sink and kept going until I emerged on the other side. The ceiling light was so bright I thought it might blind me. I raised a hand to my forehead to shade my eyes.
+
+To my surprise, the bathroom was exactly like mine.
+
+The same shower curtain. The same shaving cream.  Even the crack in the mirror was there. I looked around suspiciously, trying to figure out where the hell I was.
+
+Then I bent down and looked beneath the sink. The dark bathroom I'd come from was still there, gaping open on the other side.
+
+THUMP. Thump. Thump.
+
+Someone knocked on the bathroom door. I flinched and froze, staring silently at it like a frightened animal.
+
+"Hello!" a woman's voice called from the other side. "Would you please come out, sir? We need to get started."
+
+"What?" I answered quietly.
+
+"Just come out," the woman insisted. "We still have a lot of places to go. We don't have time for this."
+
+"What are you talking about...?"
+
+The door didn't wait any longer. The lock clicked, and it began to open.
+
+I slowly approached it. Even brighter light poured through the widening gap, like I was staring directly into the headlights of a semi. Carefully, I reached for the handle and slowly pulled the door open...
+
+BWAAAAAA!
+
+A trumpet blasted. Cymbals crashed. Horns blared.
+
+Everything erupted at once. As my eyes slowly adjusted to the light, I realized I was standing in my own apartment.
+
+There was my bed. The desk I'd gotten last week. The empty soda can I'd left on the kitchen counter. Everything was exactly where it belonged.
+
+Except for the ten strange little dwarf-like figures dressed in white coveralls, marching through my tiny apartment carrying musical instruments. I just stared at them in complete shock as they played.
+
+"What the fuck is going on?" I said, glancing around wildly.
+
+But the dwarfs just kept playing. It was as if I wasn't even there. So I waited.
+
+At this point, I didn't even want to think about what Little Joe had given me. I'd had some intense hallucinations before, but never anything like this. Everything felt somehow too real.
+
+Then, with one enormous crash of the cymbals, the parade suddenly stopped. They stood there like they were waiting for something. Like I was supposed to give them something.
+
+"Are you guys real?" I asked, staring at them.
+
+The dwarfs suddenly looked at one another. Then one leaned over and began whispering into another's ear. It felt like they were talking about me. Finally, one of the chubbier ones lowered his trumpet and stepped closer.
+
+"Have you talked to the cat yet?" he asked in a nasal voice.
+
+"No..." I muttered, confused. "It just ran away."
+
+"Hmm," the dwarf grumbled. "Then I guess we're early." He suddenly turned toward the others. "All right, boys, we're outta here! Let's go!"
+
+As if they'd been given an order, they formed a single-file line and started making their way through my kitchen.
+
+The first one reached my little dining table, crawled underneath it… And vanished.
+
+I stood there blinking as, one by one, the dwarfs disappeared beneath the table as though.
+
+"Wait!" I called after them. "Stop! What is all this? What the hell is going on?"
+
+One bearded dwarf turned back toward me, shrugged, and snapped his fingers.
+
+The spotlight-bright lights went out. And with them, my apartment changed.
+
+It became so pitch-black that I could barely see my hand in front of my face. Through my window, where the streetlights always cast at least some light inside, there was now only swirling darkness.
+
+There was nothing outside.
+
+"Hello?" I called into the dark.
+
+My voice echoed through my own apartment.
+
+I could feel the edge of my bed beside me. I knew the light switch was on the wall. I flipped the switch.
+
+To my surprise, the light didn't come on. At least, not the way you'd expect.
+
+Instead, somewhere beyond my window, in that endless darkness, a single tiny light appeared, casting a soft glow into my room.
+
+And on the other side of the window, was someone watching me.
+
+I slowly raised my hand and waved. He did the same.
+
+I shuffled carefully toward the window. The figure began walking toward me too.
+
+By the time I reached the glass, I could finally make out the person standing on the other side.
+
+There was something familiar about his features. Because it was me. And beyond my window wasn't the street anymore. It was another apartment. A perfect copy of mine.
+
+"What the fuck..." I whispered.
+
+The other me looked just as confused as I did.
+
+He said something, but his voice didn't seem to carry through the glass.
+
+"I can't hear you!" I shouted.
+
+My double rolled his eyes and repeated himself, deliberately exaggerating every movement of his mouth.
+
+I couldn't read lips. I had no fucking idea what he was trying to say.
+
+"Whaaat?!"
+
+"He's telling you to turn around," a familiar deep voice said behind me.
+
+I spun around.
+
+Waiting for me in the dark room was none other than the black cat.
+
+"Jesus Christ! Fuck..." I gasped.
+
+"No need to yell, kid," the cat grumbled, almost condescendingly.
+
+"What the fuck is going on?" I asked the cat. 
+
+"Oh, a whole lot of things," the black cat replied, jumping onto the kitchen counter. "But none of that matters right now. There's something important I need to tell you. "You're getting deeper."
+
+"What? That shit was seriously fucked up. Jesus Christ, I'm talking to a cat that doesn't even exist."
+
+I nervously turned this way and that, trying to make sense of anything around me.
+
+As used as I was to getting completely fucked up and having no idea what was happening, I'd spent the last six months completely sober.
+
+Now that I could feel myself slipping back into that kind of state again.
+
+"I told you, I'm not a cat," the ball of fur replied. "Also, I took a shit on your counter."
+
+It jumped down from the kitchen counter. Sure enough, it had left two little turds behind.
+
+"Fuck..." I muttered, clutching my head.
+
+"So, son," the animal said, turning back toward me. "This is where I have to tell you that there's no going back from here. You can't prepare yourself for what's coming. Watch yourself, kid."
+
+"What? What are you talking about?"
+
+"I have to go. I need to lick my ass. But here's one piece of good advice: always watch the corners."
+
+With those final words, it turned and ran straight through my front door, which was now standing wide open.
+
+I should've been able to see the hallway outside. Instead, there was nothing but that swirling, empty darkness.
+
+"What the fuck is going on?" I said aloud.
+
+I didn't have to wait long for an answer.
+
+A figure emerged from the darkness. He was running. Then he burst into my room like he was fleeing from something. He was a skinny young man wearing nothing but a pair of underwear. He was filthy from head to toe and looked terrified.
+
+"Who the fuck are you?" I shouted.
+
+"Shhh..." the man hissed frantically. "They're following me. They're here."
+
+"Who? What the hell are you talking about?"
+
+"I said be quiet..." His words suddenly died in his throat. "No... fuck..."
+
+He grabbed his stomach.
+
+It was like he'd been hit by a sudden, violent cramp. Then he staggered away from the entrance.
+
+He grabbed the edge of my bed, squatted down, and pulled his filthy underwear down.
+
+"Don't you fucking dare!" I yelled at him.
+
+The man crouched there and let everything out. He made the kind of noises you'd expect from someone who'd been holding in a shit all day.
+
+Then suddenly, everything changed.
+
+"AHHHHHHH!" The man screamed in agony.
+
+"Oh my God..." I whispered, stepping closer to where he crouched beside my bed.
+
+"AHHHH! Kill me! AHHHH!"
+
+That's when I saw it. The man hadn't shit himself. There was a hand sticking out from between his legs. Out of his ass.
+
+A long-fingered hand, already feeling around across my hardwood floor as though something were being born.
+
+"What the actual FUCK?!"
+
+"AAAAAHHHHH! Kill me! NOOOOO!"
+
+I backed all the way into the kitchen counter, slamming against it. The man looked terrible.
+
+Blood poured from his lower body, soaking my floor.
+
+I didn't even notice that I'd planted my hand right in the cat's shit.
+
+"Khhhnngh..." the man groaned.
+
+But by then, something horrible and impossibly long was already halfway out of his ass.
+
+It looked almost like a tall human being.
+
+Thin and elongated. Like a stick figure.
+
+"Fuck this!" I screamed in terror.
+
+I turned and bolted into the bathroom. The little cabinet door was still standing open. I dropped to the floor and, without thinking, scrambled toward the passage. The thin thing with the long arms was crawling out of what was left of the man's lower body… like it was peeling off a sleeping bag.
+
+I crawled through the open passage beneath the little cabinet on all fours. Whatever had crawled out of that man, I didn't want to meet it. I'd had enough. The moment I came out of the cabinet, I sat there on the bathroom tiles and slammed the little cabinet doors shut.
+
+"Fuck… Fuck you, Little Joe. What the hell did you give me?"
+
+I scrambled backward away from the cabinet, then leaned against the side of the bathtub, breathing hard.
+
+I stared at the cabinet doors in terror, waiting to see if that thing would come after me. Then the realization hit me.
+
+I don't have a bathtub. The little cabinet door rattled.
+
+"Fuck..." slipped out of my mouth.
+
+Then the door began to slowly open.
+
+Inch by inch.
+
+I didn't wait to see what was going to come through. I jumped to my feet and, in two strides, was back in the living room.
+
+It was my apartment. Exactly the way I'd left it. And yet somehow, it felt wrong.
+
+Foreign. At first, I couldn't figure out why.
+
+Then I noticed the corner beside the window. An old man was standing there.
+
+Faded clothes hung loosely from his thin, bony body. Long gray hair fell across his face, and his filthy beard reached all the way down to his chest.
+
+"Who are you?" I asked threateningly.
+
+"Shut up," the old man said immediately.
+
+"What? What the hell is going on? What are you doing in my apartment?"
+
+"Shut the fuck up! Keep quiet and stand in the corner!"
+
+"No. What? What are you talking about?"
+
+"Listen to the cat! Stand in the corner and shut up!"
+
+The bathroom door began to creak open. I didn't have time to argue anymore. I rushed into the corner, shoved my floor lamp out of the way, and took its place. The bathroom door slowly opened.
+
+A long, narrow hand appeared first. Then another. Finally, a thin figure nearly ten feet tall stepped into the room.
+
+It looked human. Almost. Its pale, stick-like body had no mouth, no ears, no features at all.
+
+It was so tall that its head nearly brushed the ceiling.
+
+It shuffled slowly and awkwardly through my living room, like someone looking around for a phone they'd misplaced.
+
+Eventually, it stopped in front of my little closet. It reached out with its strange, elongated arms, turned the handle, and shuffled inside. I just stood there like a piece of furniture. Just like the old man across from me.
+
+Except… When I looked over, the old man was gone.
+
+There was nothing in the corner but my curtain, bunched up against the wall.
+
+Sweating heavily, I dropped onto the edge of my bed. Questions and thoughts spun through my head.
+
+What was I actually seeing?
+
+All this time had passed, and I was still hallucinating. But somehow, this didn't feel like the effect of a drug either. It felt more like I was slowly being pulled into a dream.
+
+I buried my face in my hands and could only hate myself for not being able to resist one last dose. In the strange silence, I found myself staring at the shadows on the wall again.
+
+Except now, they looked nothing like the shadows I knew.
+
+They were all stretched. Twisted.
+
+That drug had completely warped my mind. In reality, I was probably doing all kinds of stupid shit alone in my apartment right now. That I wouldn't get caught. 
+
+I rubbed my eyes nervously. So hard that when I opened them again, little colored dots danced playfully across my vision. But one of them didn't move.
+
+Something was glowing brightly on the little rug beside my bed. It looked like sunlight glinting off a piece of metal.
+
+I dropped to all fours beside the bed and leaned closer to the tiny point of light. I tilted my head beside it and studied it with my right eye.
+
+I thought nothing could surprise me anymore.
+
+I was wrong.
+
+The tiny glowing dot was a lamp. There was a miniature room sitting on my carpet. One that looked exactly like mine. I could see my little brown table. The open bathroom door. It looked like a miniature diorama of my apartment.
+
+"What the hell...?" I muttered, fascinated.
+
+Then something started pulling me.
+
+The force hit so hard I thought I was going to throw up. At the same time, I felt myself being dragged toward it and the whole world around me stretching apart.
+
+It felt like my face was being pulled out of shape. My body shrinking. The force became so intense it felt like it might tear me apart.
+
+The world spun. Twisted. Expanded. Shrank. Then, in a single flash, it all stopped.
+
+I was standing in the middle of my living room, battered and pale.
+
+Then one huge burp forced its way out of me. And I puked all over my living room floor.
+
+I wiped the vomit from my mouth with the same hand that was still smeared with cat shit.
+
+Everything was getting worse. And now it wasn't just fucking with me mentally. 
+
+What the fuck was happening to me?
+
+I pulled out the chair beside my little table and collapsed into it like I hadn't sat down in a year. I propped up my head, exhausted and sluggish.
+
+What the hell had I taken?
+
+Slowly, I pushed myself up from the table.
+
+I felt like a little cold water might work miracles right now. Carefully, I made my way toward the bathroom. At this point, almost any tiny noise would've made me jump, but the entire apartment was dead silent. For once, I actually felt a little relief when nothing happened during the short walk to the bathroom.
+
+Maybe the drug was finally starting to wear off. I stood in front of the small sink. Then I glanced suspiciously at the little cabinet underneath it. Maybe using that wasn't such a good idea.
+
+I didn't trust it. As strange as it sounds to not trust a piece of furniture.
+
+I turned toward my bathtub.
+
+The bathtub… As far as I knew, I had a shower.
+
+A shower curtain was drawn across the tub. It was a faded white, almost yellow at this point. Then, in an instant, I realized something was wrong. There was muttering coming from behind the curtain. Low, incomprehensible mumbling. I swallowed hard and cautiously reached for the curtain. Slowly, I grabbed the edge. Then I yanked it open in one quick motion. Something disgusting was sitting in the tub.
+
+It looked like some kind of thing glued together out of hair, sewage, and a greenish, greasy substance.
+
+It looked exactly like what you'd imagine the inside walls of an ancient drainpipe might look like if they somehow came alive.
+
+"Ah, fuck!" I immediately jumped backward.
+
+The thing lashed at me with its watery tentacles, splattering me with foul-smelling filth.
+
+"Ugh! For fuck's sake!" I tried to cover my nose while backing toward door.
+
+The drain monster seemed to sense that I was afraid of it.
+
+It arched upward. Then, like a growing pile of garbage, it started getting bigger.
+
+Higher and higher. It filled the entire bathtub, while sewage full of bits and scraps began spilling over the sides and onto the floor.
+
+"Fuck!" I shouted, and ran.
+
+I stormed into the entryway and rushed toward the front door. I'd had enough. I was done. The foul liquid was already seeping out of the bathroom. I didn't wait any longer. I grabbed the front door handle and turned it… But the door wouldn't open.
+
+It didn't even move.
+
+"What the fuck..." I muttered frantically. "No. No. No. What the fuck?"
+
+I kept yanking on the door.
+
+"You're not getting out that way, buddy," a strange, gravelly voice said from the other side.
+
+"Let me the fuck out!"
+
+The brownish, debris-filled water was already washing around my ankles, flooding the apartment. The smell was spreading everywhere, like I was standing in the middle of a garbage dump.
+
+"Fuck!" I shouted, slamming my fist against the door.
+
+"Ow!" the deep voice said  "All right. That's it!"
+
+Suddenly, the door handle disappeared from my hand. It didn't exactly disappear. It sank into the door. 
+
+And it took my right hand with it.
+
+"What?! No! No! No!" I screamed, trying to pull my arm back. "Let me go!"
+
+The water kept rising.
+
+It was already up to my ankles now, while the door had sucked my arm in all the way to the elbow.
+
+"You're mean! It's not nice to hit people."
+
+"Just let me fucking go!"
+
+The water kept rising. The filthy liquid had reached my knees now, and if it kept going, it was going to swallow the entire apartment.
+
+"If someone hurts me..." the voice continued slowly, "...I hurt them too."
+
+I felt a sharp pain in my right hand. Quick. Sudden.
+
+You might think I barely would've registered it in that moment. But I knew exactly what had happened on the other side.
+
+For one faint second, there was nothing. Then I screamed.
+
+"AAAAAAHHHH!" My legs nearly gave out beneath me, but the thick, filthy water held me up. "My finger, fuck!"
+
+I had no idea where the door had taken my right handl, somewhere on that slick other side, that my index finger was pointing in a direction no healthy finger should ever point.
+
+And because I'd collapsed in pain, the sewage was now up to my shoulders.
+
+The tip of my chin touched the filth, and a wave of nausea even worse than before rolled through me.
+
+"I don't think one was enough!" the deep voice growled.
+
+"No! Fuck, please! Stop! Don't…"
+
+I didn't have time to finish.
+
+I went under the filth at the exact same moment something exploded with pain in my middle finger on the other side of the door.
+
+It was bent upward at such an impossible angle that I wasn't even sure it was still attached properly.
+
+I screamed underwater. My mouth filled with sewage and muck.
+
+I thought this was where I was going to die...
+
+Then the door released my arm. And swung wide open.
+
+The flood surged forward.
+
+It felt like the current spat me out as I crashed onto the floor.
+
+I coughed and choked, thrashing around like a fish thrown onto dry land. On the verge of tears, gargling in the filthy water, I realized I wasn't in the hallway at all.
+
+I'd ended up in another room identical to mine. The water had soaked everything, and the smell was unbearable.
+
+"Ah, fuck..." I groaned "My fucking hand!"
+
+My index and middle fingers were missing. There were no mangled fingers. No bloody stumps. It looked as though the two fingers had been surgically amputated.
+
+"What the fuck?!" I said in horror. "My fucking hand! No, fuck this, I've had enough... I can't do this anymore!"
+
+"You can scream all you want. Nobody can hear you," a calm, familiar voice replied.
+
+"What? Who's there?!".
+
+But I couldn't see anyone. The place looked completely empty.
+
+"You're a difficult one, you know that?" the voice mocked. "You can't even follow the one simple rule I gave you."
+
+Then I saw the flashing eyes in the corner beside the front door. A pair of eyes stared back at me. Cat eyes.
+
+"You again?" I snapped angrily. "What the fuck is going on? Am I still high? Jesus Christ! What the hell... I can't take this anymore."
+
+"I don't know whether you're high or not," the cat replied. "But I do know you won't last much longer like this."
+
+"What?"
+
+"I already told you, Watch the corners. It's thinner there. But what do you do? You go straight through the middle... You're lucky it only cost you two fingers."
+
+"What are you talking about?"
+
+"I can tell..." the animal replied dismissively. "Whatever. I'm not your personal tour guide. Do whatever you want."
+
+"No, wait! What about the corners?"
+
+"I like sitting in corners," the black cat said, stretching lazily. "Same as the others like me. They're comfortable, cool, and safe..."
+
+"But I'm not a cat," I blurted out.
+
+"Are you sure about that?"
+
+"I'm sure,"
+
+"Hmmm. That's good. Neither am I."
+
+Then, the way cats do, it flopped over in the corner of the apartment. And as it did, it disappeared completely into the darkness.
+
+"Hello?" I kept looking around. "You still there?"
+
+There was no trace of the cat in the corner. But there did seem to be something else there.
+
+I crawled over on all fours like some pathetic idiot. Then I pressed my head as close to the wall as I could and started examining the corner. A faint light was coming from somewhere. It looked almost like light shining from behind a poster. I picked at the raised edge with my fingernail, right where the light was leaking through.
+
+A piece of the wall peeled away as if it were nothing more than wallpaper. The light made it hard to see, but sweet, delicious smells drifted through from the other side.
+
+"Ah, fuck..." I let out a long breath.
+
+Then I decided to listen to the cat. I squeezed myself through a narrow passage.
+
+The light was strong. It wasn't painfully bright, though. It just made it difficult to make things out. I kept pushing myself forward, squeezing through and feeling my way ahead. It seemed like some long corridor was leading somewhere.
+
+And the smell of food just kept getting stronger. It was like every kind of food had been mixed together into one single flavor. Then, all at once, with a loud crash, I realized I'd hit the ground. 
+
+Dazed, I pushed myself up from the floor and rubbed my aching head.
+
+The moment I saw where I was, I froze. It was the same little room.
+
+My apartment.
+
+Sunlight poured beautifully through the window, filling the place with the kind of brightness you'd expect on a summer day. But my apartment looked different now.
+
+My bed was gone. So was all my furniture.
+
+The only thing in the middle of the room was an enormous table covered with every kind of mouthwatering food imaginable. There was everything. Roasted meats. Side dishes. Pasta.
+
+Chairs were arranged neatly around the table.
+
+Each one spaced at exactly the right distance from the others, as if we were about to have some kind of proper formal dinner.
+
+But the chairs weren't empty. Almost every single one was occupied by a huge pig.
+
+And every pig was wearing a suit jacket. The well-dressed company sat there politely, staring at me with their tiny black eyes as though they were waiting for me.
+
+I looked over them awkwardly, trying to figure out what they wanted from me. Then I noticed an empty chair near the corner of the table.
+
+Was I supposed to join them?
+
+One of the pigs snorted impatiently, like it was letting me know their patience had limits.
+
+So I didn't really have a choice. I awkwardly made my way past the pigs sitting comfortably on their wooden chairs.
+
+They squinted at me as they waited for me to finally take my seat.
+
+"My apologies," I said politely.
+
+Then I quickly sat my ass down. The moment I did, the brown-spotted pig sitting at the head of the table snorted. Then it threw itself onto the pile of food like... well, like a pig.
+
+The others immediately followed. They were pigs, after all. Their suit jackets were quickly covered in stains. Food poured out of their mouths. They smeared everything across the table with their little hooves, turning the feast into an even bigger mess. I could only watch with a grimace as they practically started fighting one another over the food. Then one of the pigs suddenly froze and looked at me. Some kind of foamy white cake filling was falling from its mouth..
+
+I sat there tensely, waiting to see what it would do. Then it squealed so loudly that I had to clamp my hands over my ears. A second later, all the other pigs started squealing too.
+
+Their voices blended together into one horrible chorus. Food scraps hung from all their mouths. And after they'd torn apart the entire table, the place looked more like a pigsty than a dining room. Then one of the pigs fell out of its chair.
+
+It hit the floor with a heavy thud and stayed there.
+
+Suddenly another one fell. Then another. I nervously backed away from the table. The pigs squealed, screamed, and thrashed violently on the floor. Then I heard a loud, wet sucking noise. And underneath the table came the sound of something juicy and fatty being torn apart.
+
+My heart hammered. I was sweating.
+
+And through all the squealing, I waited tensely to see what the hell was about to crawl out from under the table. Then one of the pigs suddenly flew up onto the huge dining table.
+
+Food scraps went flying everywhere.
+
+The pig rose up. And I just stared at it.
+
+Because somehow, its body had split and grown legs and a torso. It looked like some kind of half-pig, half-human hybrid stuffed into a suit jacket.
+
+"What the actual fuck..." I whispered in horror.
+
+Then another pig rose up beside the table. I jumped out of my chair so fast that it crashed backward onto the floor. One of the pig creatures growled at me through a squeal. I didn't have time to wait anymore.
+
+I had to get out somehow. But the table and the transforming pigs stood between me and both the front door and the bathroom. I shot a quick glance at my little window. Then I reached behind me, grabbed the fallen chair, and hurled it at the glass.
+
+The chair smashed straight through. And without hesitating for even a second, I followed it.
+
+I jumped through the broken window.
+
+Strangely enough, I landed on my bed. The window hadn't led out to the street. It had taken me straight into another copy of my apartment.
+
+Groaning, I pushed myself up.
+
+My head was starting to hurt from the seemingly endless stream of bizarre shit.
+
+But I still wasn't going to get any peace. The bathroom door opened by itself.
+
+I snapped my eyes toward it. One of the suited pig creatures came stumbling out of the darkness.
+
+"You've gotta be fucking kidding me!" I shouted angrily.
+
+I jumped off the bed, ready to run again. I turned toward the front door...
+
+It was standing wide open. Beyond it, that swirling darkness stared back. I knew this place. Then an enormous hand emerged from the darkness. It was long, thin. Then the shapeless head appeared. It was the tall creature again.
+
+"Fuck..." I whispered in terror.
+
+The pigs behind me let out loud, aggressive snorts. I had only a split second to jump out of the way. Because the pigs charged the tall gray creature. They threw themselves at it, biting with their tusks.
+
+The creature didn't hesitate. It grabbed one of the pigs with its long hand and, with a twist, tore it in half. 
+
+I crawled across the floor.  I tried to escape toward the kitchen in the middle of the fighting.
+
+The pigs squealed, and whenever the creature killed a few of them, another group came pouring out of my bathroom.
+
+I crawled myself across the floor until I finally reached the kitchen counter. I opened the little cabinet and threw everything outside.
+
+Then, I desperately climbed inside. I pulled the doors shut behind me and crouched there.
+
+The fight outside kept going. Pig blood covered almost everything.
+
+The squealing became unbearable, and my apartment was getting more destroyed by the second.
+
+Furniture flew everywhere.
+
+The whole room crashed and rattled around me. But then something moved inside my supposedly safe little cabinet too. It felt like tiny legs crawling across my back.
+
+With a trembling hand, I reached behind me. And touched something slick.
+
+"AHHH!" I screamed and burst out of the cabinet. As if touching the thing hadn't been bad enough, I suddenly felt sharp bites digging into my back. Whatever it was, it started chewing into me. "Fuck! Fuck!"
+
+My apartment looked like a circus. Pig body parts were scattered everywhere.
+
+The gray creature was swinging its massive hands around.
+
+And I was spinning in circles and screaming, trying to reach whatever was attempting to crawl inside my back.
+
+Because I could feel it burrowing deeper and deeper beneath my skin. With one quick twist, I finally managed to grab the wriggling thing.
+
+It felt almost like an eel. Then I pulled.
+
+The creature had already bitten its way deep into my flesh. It hurt like hell as I dragged it out of myself, but I couldn't stop.
+
+Finally, I ripped it free.
+
+Relieved, I hurled the twisting, many-legged green worm creature against the wall without even looking at it. But as I threw it, I stepped directly into the path of the tall gray creature.
+
+One of its enormous arms slammed into my chest.
+
+I flew into the wall.
+
+Stars exploded across my vision as I crashed to the floor. I opened and closed my mouth like a fish, trying to breathe.
+
+A cabinet door flew into the wall above me and lodged there edge-first.
+
+Still choking and gasping, I somehow managed to crawl away, dragging and kicking myself toward the corner.
+
+Wheezing and choking, I lay under the bed. And I thought I was going to die there.
+
+I don't know how long I stayed there. It took a long time before I could breathe properly again.
+
+And the sounds were horrible. The squealing of dying pigs. Maybe I listened to it for hours.
+
+I don't even know anymore. My mind was empty and exhausted.
+
+If something else had found me under there, I probably would've completely given myself over to it.
+
+I wanted it to end. I wanted to wake up and say, Fuck, that was some bad shit.
+
+Eventually, the apartment fell silent. Only then did I slowly start moving.
+
+My back was bleeding, and my chest ached.
+
+I felt like a wreck. Slowly and carefully, I crawled out of my hiding place.
+
+The room was a slaughterhouse. Bodies everywhere. Blood and guts wherever I looked.
+
+Neither the gray creature nor the pig monsters were anywhere to be seen. What really caught my attention, though, was my open front door. Beyond it was the familiar hallway. Exhausted and battered, I shuffled toward the doorway. The hallway stayed exactly the way I knew it.
+
+Had the drug finally worn off? Was it over?
+
+I looked down at my missing fingers.
+
+I stumbled outside and eventually made my way in front of the building. A man rode past me on a bicycle. A few people hurried toward the bus stop.
+
+Cars honked. Everything was normal.
+
+I was finally back in the real world… A man was walking on the other side of the street with some kind of brown thing around his neck.
+
+I stared suspiciously at the furry, ball-shaped thing.
+
+It looked like a round little monkey. Its tiny hands were gripping the man's ears, while its hind legs rested on his shoulders. Slowly, the brown furball turned toward me.
+
+There was a bare patch in the thick brown fur. And inside it, an ugly human face with a huge nose grinned at me.
+
+Its big yellow teeth seemed to mock me like I was some pathetic idiot.
+
+"No..." I whispered to myself.
+
+The line of cars waiting at the red light suddenly seemed to wobble strangely. Then, from beside a gray sedan, a yellow-green snail-like creature that looked like it was made of snot slowly slid into view. It was as big as the car itself.
+
+It waved at me so slowly that minutes passed before it finished. But why the fuck was that thing waving at me?
+
+A huge shadow passed over me. It was like some enormous bird had flown overhead, blocking out the sun itself.
+
+I looked up.
+
+And I knew it was never going to end… 
+
+There was no sky. Instead, it looked like a gigantic mirror stretched above me.
+
+Everything below was reflected up there.
+
+The cars. The snail creature. And me… Looking upward at myself.
+
+Weak and stumbling, I hurried into an alley.
+
+I wanted to hide. I wanted some peace. There was a large metal dumpster in the alley. I opened it and crawled inside like a raccoon. I pulled the lid shut over myself and lay there on top of the garbage bags, whimpering and on the verge of tears.
+
+Then I felt something. Something was pressing against my thigh from inside my pocket.
+
+It was my phone… Only one person came to mind.
+
+The one person I immediately wanted to call.
+
+Little Joe. The phone rang. And rang.
+
+I waited for what felt like minutes, but I didn't give up. It was like calling some fucking customer service line.
+
+"Hello?" Little Joe finally answered sleepily.
+
+"Fuck you!" I screamed into the phone. "What the absolute FUCK did you give me, you fucking piece of shit?!"
+
+"Whoa, wait, wait..." Little Joe said, trying to calm me down. "Who am I talking to?"
+
+"Go fuck yourself, asshole! You know who the fuck I am!"
+
+Silence followed.
+
+I could hear Little Joe on the other end. I could hear him breathing. But he didn't answer.
+
+"Say something!" I shouted into the phone.
+
+"Okay, okay... Francis..." Joe finally said, sounding guilty. "I'm sorry... I had to give it to someone. I couldn't deal with them anymore..."
+
+"Fuck you! What did you give me?!"
+
+"I don't fucking know!. But you showed up at the perfect time. You were clean, and... and you were there. I'm sorry, Francis, but that's just how it is. Hang in there..."
+
+Then he hung up.
+
+"FUUUUUUUCK!" I screamed inside the dumpster.
+
+I punched the filthy garbage bags. The metal walls. I kicked and hit everything I could reach. The dumpster was dark and comfortable.
+
+For once, nothing was bothering me in there. But the thought that I'd have to live with these visions from now on was driving me insane.
+
+I let out a long breath and practically sank into the garbage. Then I heard something rustling outside.
+
+I snapped my head up in fear.
+
+"Would you come out of there, son?" a voice called from outside.
+
+I swallowed hard.
+
+Then slowly and carefully lifted the dumpster lid just enough to peek through. The black cat was sitting outside.
+
+It was licking one of its paws, casually waiting for me on top of a cardboard box.
+
+"You again?" I said, surprised.
+
+"I can see you're happy to see me," the cat replied smugly.
+
+"After that fucking advice about the corners? You bet I am," I snapped as I climbed out of the dumpster.
+
+"I thought it was good advice… But that's not why I'm here."
+
+"Well, my fucking back hurts. That thing almost moved into me."
+
+"Have you tried licking the wound?"
+
+"What?"
+
+"Nothing... never mind," it replied quickly. "Instead, tell me about this place. Where are we now?"
+
+"What? What do you mean, this place? How the fuck should I know?" I gestured wildly in frustration. "I'm standing here having a conversation with a fucking cat..."
+
+"I am not a cat," the animal snapped indignantly. "And yes, this is the first time I've ever been to this place in my life. This is where you humans live... right?"
+
+"Yeah. What are you?"
+
+"Maybe nothing, Maybe everything."
+
+"You are really starting to piss me off," I said, pointing at it angrily with the fingers I had left. "It wasn't enough that I almost died because of your advice about the corners, now…"
+
+"We got out, didn't we?" the cat interrupted.
+
+"What?".
+
+"You're here. I'm here. I think I'll count that as a success."
+
+I didn't know what to say. I didn't even know what the hell I was talking to anymore.
+
+But it was true. I was back in the world I knew...
+
+Just twisted.
