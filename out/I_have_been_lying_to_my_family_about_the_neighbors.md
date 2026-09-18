@@ -1,0 +1,71 @@
+Serious post because I genuinely don't know who else to ask. For the last three weeks somebody has been adding concrete to my driveway while I'm asleep. I know that sounds ridiculous, but I've measured it, photographed it, called the police, and installed two cameras. Three weeks ago it was 11'2" wide. This morning it was 18'9".
+
+At first I assumed I was remembering it wrong, so I drew a Sharpie line along the edge and took a picture with a ruler beside it. The next morning the line was six inches inside the concrete. There was fresh concrete where part of my lawn had been, including one of my sprinkler heads, which was now just embedded in the driveway. I asked my neighbor Kevin if he'd seen anyone working outside at night. He stared at the new concrete and said, “Driveways settle.” I said, “They don't settle sideways,” and he told me not to worry about it.
+
+That night I installed a camera. At exactly 2:38 AM it disconnected, then came back seventeen minutes later. There was another section of concrete and a Home Depot receipt underneath my doormat for one bag of Quikrete purchased with cash at 2:11 AM. Somebody had actually written PHASE II on the back in black pen. I showed Kevin and asked what the fuck Phase II meant. He laughed until I asked him what Phase I was, then he just said, “You're going to appreciate the extra parking.”
+
+I called the police. The officer was nice but clearly thought I was insane, and honestly I don't blame him. He suggested a second camera that records directly to an SD card in case somebody was interfering with my Wi-Fi. So I installed one facing the first camera. Last night the Wi-Fi camera disconnected at 2:38 again, while the SD camera recorded until 2:41 before fifteen minutes of footage disappeared. When it resumed, the driveway was another fourteen inches wider and there was a white plastic chair sitting in the new section facing directly toward my bedroom window.
+
+I pulled the SD card and there was a file I didn't recognize called PHASE_II_FINAL.mp4. I swear to God I did not create it. The video is only seven seconds long and appears to have been recorded INSIDE my bedroom. I'm asleep in bed while somebody stands in the doorway. Right before it ends, whoever is recording whispers, “Still occupied.”
+
+My wife can see the video but says there's no person standing in the doorway. She says it's just seven seconds of me sleeping. She also says there's no voice. I can see the person and hear it perfectly. We watched the exact same video at the exact same time and argued about what was on the fucking screen.
+
+I went to Kevin's house and showed him my phone. He didn't even watch it. He just asked, “Did you sign yet?” I asked him what I was supposed to sign, and his entire expression changed. He said, “Oh shit, you're still in Phase II,” shut the door, and wouldn't answer again.
+
+This afternoon my wife noticed our flower bed was smaller. I measured it and we'd lost fourteen inches overnight, meaning the driveway isn't just expanding outward anymore. It's moving toward the house. I grabbed a sledgehammer and broke into the newest section because I wanted physical evidence before calling the police again. There were three separate layers of concrete underneath it, and buried about two feet down was a laminated document.
+
+It says RESIDENTIAL PARKING EXPANSION — PHASE III. It has my address, full legal name, parcel number and a diagram of my property converted into 46 parking spaces. My house isn't shown anywhere on the diagram. At the bottom, under PROPERTY OWNER AUTHORIZATION, is my signature. It isn't similar to my signature. It's fucking perfect, including a weird little stroke I've made since high school.
+
+Under my signature somebody wrote: OCCUPANCY: 3.
+
+There are only two people living here.
+
+I immediately went back to Kevin's house. His truck was gone, his curtains were gone and nobody answered. While I was standing there, I realized his mailbox said 46. His address has always been 44. MY address is 46. I took a picture of it, but when I looked at the picture on my phone, the mailbox said 44. I looked back up and it said 46 again.
+
+Then I noticed Kevin's house had two front doors.
+
+I have lived next to this man for six years. He has never had two front doors.
+
+The second door was about three feet to the left of the normal one and had a little metal sign reading SPACE 01. I don't know why I did this, but I opened it. There was no house behind it. It opened into an underground parking garage that absolutely cannot physically fit underneath our neighborhood.
+
+The lights turned on one row at a time.
+
+There were hundreds of cars.
+
+Every car I have ever owned was down there. My first car from high school was there. My dad's Buick that was crushed at a junkyard in 2017 was there. There was also a black hearse with my name printed on a piece of paper behind the windshield. Next to it was an empty parking space labeled with my wife's name.
+
+I slammed the door and ran home. When I looked back, Kevin's house only had one door again.
+
+My wife wanted to leave immediately. We started packing, but when I went into the garage there was now a yellow parking-space line painted directly across the floor. It starts outside, passes underneath the garage door, crosses the entire garage and continues about six inches UP THE WALL. There was also a parking ticket tucked underneath my windshield wiper even though the garage had been locked all day.
+
+The ticket says VEHICLE MUST BE REMOVED BEFORE PHASE IV — LOT CONVERSION 3:00 AM. Under that, handwritten in the same handwriting from the Quikrete receipt, it says 46 SPACES REQUIRED. 45 COMPLETE.
+
+I called 911. While I was explaining this to the dispatcher, my wife started screaming upstairs. I ran up and found her standing outside the guest bedroom. The bedroom is gone. When you open the door there is literally a parking space where the room should be, with asphalt, painted lines and a Honda Civic parked in it. This is on the SECOND FLOOR.
+
+The Honda is running.
+
+There is nobody inside.
+
+Its license plate is 46.
+
+I told the dispatcher my address again and she went silent for a few seconds. Then she asked me to repeat it. I said 46. She told me there is no residential address at 46 anymore and asked if I was calling from the municipal parking structure.
+
+I asked what she meant by “anymore.”
+
+She hung up.
+
+It's 2:53 AM now. The hallway upstairs is noticeably shorter than it was ten minutes ago, and the yellow line from the garage is coming up the stairs one step at a time. My wife keeps asking me where our bathroom went. I haven't told her that I can see Kevin standing underneath one of the parking lot lights across the street.
+
+He's wearing one of those orange reflective parking attendant vests.
+
+He keeps pointing at our house and looking at his watch.
+
+The laminated document changed too.
+
+OCCUPANCY: 3 has been crossed out.
+
+Now it says OCCUPANCY: 2.
+
+My wife is standing right beside me.
+
+I don't know who it stopped counting.

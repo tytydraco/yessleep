@@ -1,0 +1,43 @@
+If you spend enough time in the military, you learn real fast that the official logs are complete bullshit. They only tell half the story. Every unit’s got its own set of ghost stories, but when you’re the poor bastard pulling guard duty in the dead of night, staring into pitch black woods or listening to dead air on a comms channel, that stuff stops feeling like a joke. I did eight years pulling perimeter security and monitoring low frequency radio setups at some totally middle-of-nowhere posts, and I’ve seen things that don't fit into any damn manual. You keep your mouth shut if you don't want your clearance yanked, but some of this shit just sticks with you.
+
+It was my second year at an undisclosed base up north, stationed out on the eastern perimeter line where the trees are so thick you don’t see a lick of sunlight past four in the afternoon.
+
+The post was this creepy Cold War relic, wrapped in miles of rusted razor wire and broken concrete watchtowers nobody had used since the eighties. Civilians think the scariest part of a remote gig is worrying about some enemy attack, but anyone who’s pulled three graveyard shifts in forty degree fog will tell you the real mind-fuck is the silence. Your head starts playing tricks on you after six hours of staring into nothing.
+
+I was crammed into a guard shack with a specialist named Miller, a quiet guy from upstate New York who spent most of his time chewing toothpicks and meticulously cleaning his rifle. The shack was a cramped piece of trash, maybe six by eight feet, heated by a beat-up kerosene stove that smelled like burnt copper and leaked a nasty yellow glare. Around two in the morning, the night just went dead. The usual background noise, the crickets, the wind whipping through the pine needles, even the faint hum of the diesel generator a mile back, just cut out completely. Like somebody slammed the brakes on the whole damn forest.
+
+Miller stopped chewing his toothpick. He leaned toward the small glass slit facing the treeline.
+
+"Did you hear that shit," he asked, his voice down to a whisper.
+
+I told him I didn't hear a damn thing, and that was precisely what was creeping me out.
+
+"No, man, listen close," he said, pointing out toward an old mortar range about fifty yards into the brush. "Sounds like someone dragging a heavy ass sack through the leaves."
+
+I snatched the thermal optics off the bench and slammed them up to my eyes. The screen lit up in green and white, showing the cold tree trunks standing like ribs against the night. I swept the sight left to right, expecting to spot the bright heat signature of a stray deer or a bear. Instead, I locked onto a figure standing right at the edge of the perimeter fence.
+
+The thing was huge, easily seven feet tall, with arms hanging down past its knees. But it wasn't glowing white like anything living should. It was pitch black on the thermal screen, a total silhouette colder than the ambient air around it, just sucking the heat out of the night.
+
+"What the hell are you looking at," Miller asked, his hand dropping to unclip his sidearm.
+
+I pulled the optics down, looked out the bare glass, and saw nothing but pitch dark. I put the thermal back up. The damn thing was closer now. It had covered fifty yards without making a sound or rustling a single twig, and now it was pressed right up against the chain link fence. Cold as ice.
+
+"We need to call this in to the desk right now," I said, reaching for the landline on the wall.
+
+Before my hand even hit the plastic, three sharp-ass knocks tapped against the glass right behind my head.
+
+There was no walkway back there. That window sat right over a drop-off into a fifteen foot drainage ditch filled with nasty water and jagged rocks.
+
+Neither of us moved. Neither of us fucking breathed. The temperature inside the shack plunged so fast our breath turned to heavy white clouds, and the flame in the kerosene stove turned a sickly pale blue before dying out completely.
+
+Miller slowly brought his rifle up toward the window, his thumb clicking the safety off. The sound was deafening in that tiny box. The glass started frosting over from the outside, ice blooming across the pane like spiderwebs. Through the frost, a face pressed hard against the glass. No eyes, no skin, just this hollow, pitted mess that looked like charred wood, with two dark holes where a nose should've been.
+
+"Don't look at it, man," Miller rasped, his teeth chattering so hard he could barely get the words out. "Just don't fucking look at it."
+
+Then the heavy steel door slammed hard against its frame, once, twice, like something massive was throwing its whole weight against the lock. The metal literally bowed inward an inch toward us.
+
+And then, just like that, the pressure stopped. The thermal unit in my hand hissed, smoked, and melted right into my palm as the battery fried. Outside, the crickets kicked back in, the distant generator started humming, and the wind returned.
+
+We sat there in total silence until the morning crew showed up at six, gripping our weapons so tight our knuckles were white. When we finally stepped outside to hand off the shift, we saw that the ditch behind the shack was filled to the top with solid, frozen black mud, completely untouched by any boot print, except for three massive gouges clawed deep into the siding right under the window.
+
+That night was the first time I realized how helpless we really are out there on the line. But that’s just one story.

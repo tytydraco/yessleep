@@ -1,0 +1,273 @@
+**Triggers for: Body horror, detailed gore, drug use**
+
+
+
+**“I can’t keep smoking with you, man”** Those were the first words that came out my mouth after hitting my daily bowl with Kyle. We’ve been good friends since high school, both of us were absolute pot heads through and through... But ever since we graduated, our lives split into two different paths.
+
+
+
+I went to trade school, got a decent job as an electrician, and had just proposed to my beautiful fiancé Elloise at the time. I still can't get over how I bagged someone so pretty... We met in trade school. Pixie cut black haired bombshell of a woman, she was in the same field as me and we had been a power couple since.
+
+
+
+Kyle, on the other hand, did odd jobs. He was a ‘free spirit’ kind of guy - long and messy blonde dreads, living in a small apartment with his hippie girlfriend Heather. And even so, we both stuck together like two peas in a pod. After work, almost every day, I’d stop at his place. 
+
+
+
+We’d sit on his bed, and hit his bong shaped like a squid. There was a window next to us, and we would always look outside of. His apartment was at the back of the complex, it faced a freeway with some woods and an ever changing billboard. At the time, it displayed the Powerball. Kyle was slack jawed at my response, the weed was already hitting me - I took a second to clear up my response.
+
+
+
+**“It’s not like I’m leavin’ ya man... We can still hang, I just need to quit smoking - or at least just take an extended break.”**
+
+
+
+**“Me and Ellie are getting serious, she’s gonna be my wife soon... And if we have kids, I can’t be-”** His finger pressed against my lips to hush me, a cheesy grin on his face as the diamond in his front left tooth glinted in the room's lamplight.
+
+
+
+**“Hal, say less. You don’t gotta be smoking to hang with me... Dawg I’m so proud of you, it’s craaazy man...”** He took it better than I thought, we’ve been chill together for over a decade, I don’t know why I had ever doubted him. Elloise wasn’t against me smoking, *hell, she’s smoked with us before...* But family talk, kids, it all felt so serious at the time. I didn’t want to be high if we took that step, and Kyle understood that. But as he pulled his arm away, he looked down at the still lit bowl held by wrapped glass tentacles. A wide grin plastered on his face as he giggled.
+
+
+
+**“But dude, before you take your oath of sobriety... We GOTTA have one last rager!”** Kyle leaned down to the bongs mouth, flicking his lighter before taking a big hit. Holding it, he blew it out in my face as he waved his fingers around me as if he’d cast some sort of spell.
+
+
+
+**“I’ll ask my guy for some crazy shit, you can bring the missus and we’ll all have a little fun! Hell, get some drinks - have a sailors goodbye?”** At the time, his words made so much sense - now, even I don’t know what a sailors goodbye meant... But what I did know was that I wanted that rager. I didn’t want to call this our last smoke night, so I took the bong from him, took my own hit, and blew it right back at him.
+
+
+
+**“Fuck yeah, dude. I’ll ask Ellie if she’d wanna come. Heather should join too!”**
+
+
+
+**“Of course dawg, she’s a given! HEY BABE!”** Heather was in her own room, a skinny and tall girl with tangled long brown hair. She had a boho type look, crystals braided in her locks... She was nice, chill to be around, and she was happy to help plan our party.
+
+
+
+After that, a little over a week later on Saturday, me and Elloise had driven over to Kyle's apartment. *I remember we had to take a side entrance because the front had a massive wasps nest... EpiPen or not, if we didn’t need to use it - we wouldn’t.* We were planning to sleep over at Kyles anyway, so by the next morning we’d be sober enough to take that same exit for Elloise’s sake. We were greeted with open arms, the smell of incense and oils wafted out the apartment.
+
+
+
+**“Baby! The guests of the hour are here! Come in, come in!”** He let us come through, Heather leaning against the doorway of her room with a wide smile on her face.
+
+
+
+**“Smell that? Bergamot, Ylang Ylang, and Patchouli. This blend is gonna keep our minds and bodies calm. Pair that with the lavender incents and the vodka in the freezer, lets just say - tonight's gonna be a movie\~”** I didn’t know half of the things she said, but vodka and weed sounded fun enough. When we got to Kyle’s room, Heather had hung up some crystal woven dreamcatchers near the window and doorway. The lavender incense were burning on Kyle's desk as we all sat in a circle on Kyle's double. He pulled out his usual squid bong and grinder, packing a bowl with his ‘mixture’.
+
+
+
+**“Man, I talked with my usual guy about getting something good for us, special since you’re quitting. He had a friend that hooked me up with some fire homegrown shit!”** He had a big grin on his face, he was so giddy.
+
+
+
+**“And you’ll be the one to try it first! Been saving it separately, just mixed it with the usual shit before you came!”** Weed was weed, homegrown sounded even better. It all seemed so exciting at the time, felt like high school all over again... Kyle always hooked me up with good bud, had no doubt this’d be any different. Passing me the bong and lighter, he crossed his arms.
+
+
+
+**“C’mon man, hit that shit!”** And I did just that. Taking a deep rip from the bong, I held it in. Closing my eyes, I passed the bong... I was going to miss doing this, but it wasn’t like I’d never smoke again. Exhaling, I already felt the slight buzz of the weed, everyone taking their own hits. The first fifteen minutes dragged along, nothing crazy had happened yet... I did however have an ungodly dry mouth, at the time I thought it was just cotton mouth. I asked for water and by then the bowl was finished and we all started moving around the home. Heather had pulled out the Smirnoff, getting shot glasses as she stumbled around. Elloise sat on the couch in the living room and Kyle stayed on his bed. I got my water while Heather poured shots for us, sitting next to Elloise. 
+
+
+
+Around then, things started to get a bit blurry. My vision blurred in and out, hands feeling cold and dry... I thought I just took too big of a hit all at once, drinking my water that did nothing to dampen my mouth. It all just made me need to piss, I think I excused myself to their bathroom down the hallway. This was around the half hour mark when time started to slip from my mind. I just remember standing at the toilet, pants all the way on the ground, attempting to pee... Weird, I felt like nothing wanted to come out. After what felt like an hour, I’d given up and pulled up my pants as I went to the sink. A small bowl, with more counter space than anything, a round mirror hanging above it, little crystals and rocks adorning the free space there was with the soap. I splashed water on my face, squeezing my eyes shut, the world around me feeling nonexistent.
+
+
+
+Things felt different, something had changed drastically when I had my eyes closed. The water on my face felt like nothing... Not that it wasn’t there, it just felt like there was nothing for it to be on. I didn’t feel my body... My hands that were covering my face weren’t touching anything, nor were there hands to touch with. It’s so hard to explain, only more confusing when I finally opened my eyes.
+
+
+
+I wasn’t in a bathroom anymore, more like a cave. A small pocket that was made of meat, the walls swollen and red like the lining of intestines. Whatever furniture was in there were now only nodules under the lining. In front of me, partially absorbed in the living walls, was a stained piece of glass. It was dirty and old, just barely showing my face. I didn’t have a face. No, I had completely changed. Everything had changed. My head was like a glowing orb, a light yellow, attached to an equally glowing star shaped body. My hands and feet were points, I looked like a stick man. No eyes, mouth, but I could still see and taste that dryness in my mouth.
+
+
+
+What was once the bathroom exit was now a sphincter like hole, only a foot wide, throbbing open and close. In a panic, I slid myself through, falling to the ground with a wet thud. Pulling myself up, I moved around the organ, two glowing figures wandering around the structure. One curled up on the ground and the other standing still.
+
+
+
+**“Hello?”** My voice wasn’t my own. What I said didn’t make sense, I knew what I wanted to say, but what came out was completely different. An incoherent babble, my pointed hand touching my face, nothing. The standing figure walked up to me, it was the same height and soft yellow glow as me.
+
+
+
+**“Opu ahw haartwq ge ths?"** Nonsense, absolute muffled nonsense. But this thing felt like a friend, my human life at that point no longer existed. This was reality, and these were my only friends. Moving past the figures, through another sphincter that I pulled myself through, there was another glowing figure. It buzzed once I came in, speaking in that same disjointed tone. Pointing towards something, through an open hole in the wall... That was when I saw it, an exit. I don’t know how, but that thing was pointing to the only way out this hell. A glowing doorway, far off through this desolate meaty tundra. I reached out my appendage, that beautiful light cut off by a massive shutter. It was like a garage door the way it slammed down, but made of meat, teeth lining the bottom like an upper jaw trying to bite down on me.
+
+
+
+I stumbled back, falling on the ground again, a low rumbling rippled through the area. This thing tried to cut - no, bite my hand off. In that short instant, I became obsessed with escaping this place.
+
+
+
+**“We need to go.”** I spoke in that same nonsensical gibberish, my only translation being in my head.
+
+
+
+**“Ih ajwdjr jfkq jzqbah ad.”** It seemed to get the memo, getting up as it followed me out that same orifice. Another toothy shutter came down with a wet thud, just missing me as I slid out. The once standing figure now crouched next to the one laying, I couldn’t leave them behind. 
+
+
+
+**“We can’t stay here. It’s going to digest us.”** Muffled babbles come from the curled up one, the standing one helping it up. Despite no one having a face, they could sense the urgency, even if they couldn’t understand me either. We were four in total, all copies of one and other. Another rumble snapped me back to what was most important, getting out of this thing. Diving out another opening led us to a long tube, we must’ve been in the large intestines. Pulling everyone through, once the last of our roster had slid out, another wet shutter came down. It seemed now, each hole we went through triggered more of these jaws to close.
+
+
+
+Staring down the hall, I noticed the tumors. Long, skinny, fleshy bumps that stood tall under the skin. They vibrated slightly, moving along the underside of the intestinal lining. I slowly moved to inspect them, my party following behind. The closer I got, the more I noticed. They were human shaped, maybe previous digested hosts? They had twisted faces, as if they were vacuum sealed in meat. A shorter one began to vibrate, it was in the middle of the hall blocking us from going deeper. Its voice was different from ours, it was buzzing like bees in a bag. It violently shook and muttered through the skin. I stumbled back, these weren’t friendly things and they were blocking our way. On instinct I raised my arms and yelled, hoping to scare it off. But it had the opposite effect, the vibrations getting worse as the other tumors began to buzz. I only wanted to get deeper down the hall, but instead, these things seemed to notify the beast. Down the winding intestine track, those shutters began to close. Eyes began to grow from the ceiling, staring right at us as the distance between our group and its jaws were shortened.
+
+
+
+One of us ran around the corner of the place we exited, another hole nearby for us to slip out of. The tumors began to slide closer, the skin deforming and warping as they all buzzed. The four of us moved towards this exit, I went last as I took one last glance. Another jaw slammed right down onto one of the tumors, splitting it with a wet crunch. Bugs (?) poured out, small little round black things, swirling as another jaw cut the sight short. I’d finally jumped through as we began our escape. 
+
+
+
+It was a twisting staircase of flesh, ribbed and slippery as each one of us began to run down it. Thinking wasn’t an option, the ceiling eyes made themselves known as more and more opened above us, each staircase led to another shutter slamming down. Faster and faster, we made a dead sprint down. I could feel the glow of my skin pulse to the beating of my racing heart, sweat pouring over nothing - my skin still nonexistent in this stick form. Once we finally reached the bowels of the beast, there was one more exit left for us. One of our kin had jumped out as everyone followed suit. We slid out with a familiar wet thud, the outside not too different from whatever hell that was inside.
+
+
+
+The grass that touched my face were veins, the sky was a deep blackish-red, organic structures of ligaments and bone surrounded this hellscape. This world seemed to be completely alive, and we stuck out like a sore thumb. I turned to look at the outside of what we were in and the sight made me sick. A whining giant was the best way to describe it, stretched and rashy peach skin surrounding it, as if a human had swallowed a building whole. Stretch marks covered it, each end having shriveled up human legs that seemed bent out of shape like it didn’t have any bones in them. We’d come out of what I only could describe as an asshole, red and raw as it squeezed shut. It wailed out in pain, maybe from our aggressive exit...
+
+
+
+I was the only one still on the ground, the other three up. One was turned to the other two, babbling away as I stood. It was trying to tell us something, moving backwards as we followed its lead. Its limb pointing towards a gathering of elongated bodies, rooted into the ground as they swayed against the rancid breeze that wafted through.
+
+
+
+**“Ri fjw ajv tjaox aj-”** As quick as it was there, our companion was ripped from our view. Fast as lightning, the creature pounced onto our only guide. At the time, I knew exactly what that thing was, now I can only describe it as a flesh cheetah. 
+
+
+
+It was massive, at least eight feet long with curled paws and long, sharp claws. Its face was feline, pointed ears that pressed down against the sides of its head when it jumped. Wide, almond shaped eyes glared down at its prey, its pupils rings of ever changing colors as its teeth hooked down like a sabretooth tiger. It lacked skin, you could see all its tenons and muscles throb and contract with each calculated move. The animal's massive paw pinned down our companion with ease, seeming to revel in the pained screaming.
+
+
+
+It moved its head down, massive jaws opening as it bit down onto the tiny head of the yellow body, pulling back. A grotesque tear echoed in the musty air, there was no blood or gore, rather the glowing body began to throb and almost glitch. A red tinge began to replace the yellow with each pull the thing made, violent screeching coming from the figure as its head was finally split from the neck. The screeching was short-lived after that, only glitching, twitching, and bugging out as more of those things surrounded it. Glowing liquid poured from its now red glowing body as they feasted upon the carcass, the original crunching down on the ball head as the others lapped up the liquid with large grins plastered on their faces.
+
+
+
+**“BS JW EJF! TQNA!”** One of our own yelled in pain at the loss, one cheetah's eyes slowly dragging to us as if it just noticed. Staying here wasn’t an option, nor was panicking. I rushed to grab the hand of the quiet one, it only standing in silence at the scene. I could sense the pure shock the other had just by touching them... The yelling one didn’t take long to rush over to us, but not before another beast pounced towards the group as it reached a long paw out. A loud pained noise came from the screamer, a nicked leg glitching a slight red, but not enough to stop them from making it to us. It limped towards us and I helped them by hooking my arm around its body as we ran into the human forest.
+
+
+
+The trees looked like they wore skin suits, stretched skin covered each one as the hollow empty faces always seemed to be positioned at eye height. I could see in their mouths and empty sockets, something red throbbing under them. Small, empty hand and leg skin dangled uselessly from the sides of the pillars. Looking up, I could see the horrific webbing of what looked like veins and muscle. As if the top of all of these things were interlinked with one and other, as one massive membrane that soaked up all the red sky. The floor had more of those sprouted veins, each step made the ones around my foot twitch, like it reacted to my step. I also began to see more of those little black bug things were around the area, one even landing on my shoulder.
+
+
+
+Getting a closer view showed off how they looked. Tiny legs hanging off a small, round black body. Barely bigger than a gnat, with no other discernible features or wings. They were like dust, carried by the wind as the one on me soon flew away. My distracted mind almost made me walk into one of our own, who now led the way. The light... We were following the light! Through the tangling human trees, far off in the distance, I could see the peeking glow of the exit light. I almost ran with the person I held till I was stopped. The current leader pointed to the obstacle in our way.
+
+
+
+In a small clearing, where dense skin trees were woven together by their arms and legs, creating a straight through path towards a mass. In the center was a massive fleshy growth that was held by meaty strands. There were holes in it, entries and exits for the things that lived there. Those things made themselves known quickly enough, a buzzing echoing in the enclosed space. It flew right above us, just a little smaller than a basketball. Its heavy body shaped like a leech, a foul sucker on the front as the end drooped down. The wings that carried it almost looked as if they weren’t enough, its thick body dangling around as it clumsily moved. There were a bunch flying overhead, moving from nest to nest. I started to see more of those growth nests, both on the trees and scattered around the floor.
+
+
+
+I also noticed those little black bugs, it seemed like those were baby forms of whatever these leech things were. Our only grace was that they didn’t seem to notice us, they were probably blind. My first gut instinct was to turn around, but behind I could see those glowing eyes... The cheetahs were in the fleshy brush, hiding in them, waiting for one of us to go back. We’d have to carefully move through the nesting bugs to get to the exit.
+
+
+
+Slowly, with the quiet one leading us, we carefully stepped through and around the different throbbing tumors that coughed out the occasional flying leech or black bug cloud. The smell was near indescribable - like it was sweet, but an off sweet... Sickeningly sweet rotted fruit and vegetation. This world had no real plants, only living things that breathed like you or I... Anything dead on the ground left the odor of death, my nubbed foot stepped right onto the wet corpse of one of those leeches. It was foul and sticky, a red stain on my foot as I tried not to vomit. Making our way around the largest mass, things were going smoothly until one of those leeches flew out one of the lower exits.
+
+
+
+Its fat little body slapped against the injured one's head, them reacting with a sudden jolt. The movement had made me misstep, hearing a wet crunch. Looking down, my foot was right in one of the growths as tiny black bugs began to fill the air. Too many to possibly fit in what I stepped in, so many that the air became thick with them. Panic finally set on all of us, visibility now only as far as the cloud allowed it. I began to swat at the air, my arm once holding the injured one had released them. There were still more of those bugs filling the air as the flying leeches began to swoop down at us, sensing the disturbance. They were trying to bite us, their circular mouths aiming for us as we ran. The injured one had limped at a decent speed, but was starting to trail behind. In our rush, more of the ground nests were stepped on, more babies filling the air like the densest cloud of gnats.
+
+
+
+I could feel the swipes of teeth, these things were clumsy, only really slapping against my glowing form. The only concern I had was for our injured one, reaching my limb back for them to grab on. I could feel the hook of a hand grab back, and with that I rushed with them. We raced to the back of this hive, the silent one leading us as I kept my eyes on the ground, it being the only visibility I had through the cloud. I was locked in on those glowing legs, leading us out the dense cloud finally as we breached the back of the nest. There was an invisible barrier they seemed not to cross, as if they only stayed near their home up to a certain point.
+
+
+
+The silent one stopped once we were out, I did too, letting go of the injured one as I panted. The air in my lungs didn’t feel real, each breath more humid than the next. I finally looked over my shoulder to see the injured one, but something was terribly wrong. 
+
+
+
+*Across their glowing yellow body, twitching red welts had grown. One on the side of their head, one on their chest, and one on their leg. They were massive and glowing red, their body twitched.*
+
+
+
+**“Are you-”** Before I could finish my words, they fell to their knees, their body twitching and glitching like the last one. They grabbed at their throat, the masses on their body throbbing and moving as if something was under it. Only then did the vomiting begin. Where a mouth should’ve been poured out a thick blackish red bile, their body glitching red as they fell back. I had to step away as they seized, sprays of vomit shooting up and right back into their face. In the mess, things started to move. Little black bodies pulled themselves out the vomit as the welts throbbed and finally popped. More of those bugs poured out of the wounds as the body stopped thrashing, now a glowing red as it only twitched and oozed out more of those things.
+
+
+
+The shock made me forget the true danger we still were in, feeling the grab of the silent one as I was pulled away. The meaty bushes rustled as pulsing eyes darted towards the body - We were still being hunted.
+
+
+
+*Running...* We were running, me and that final friend. The only one that I knew wouldn’t hurt me in this sick world. I could hear the rush of those beasts moving through the bushes, darting from visibility to hidden once more. They were playing with their food, taunting us. So easily could we have been taken and ripped to shreds like the others. They stalked us on purpose. 
+
+
+
+We started going uphill, the meat under our feet throbbing with each step as past the trees we could see it, that glowing exit. It was near perfect, the farther we went up, the closer the light seemed to get... The sky was finally visible through the trees, the red hue only accentuating our freedom.
+
+
+
+And yet, before we could reach it, we both fell down.
+
+
+
+down.
+
+
+
+*down.*
+
+
+
+***down.***
+
+
+
+We were both in each other's arms, holding for dear life as we went down what felt like an endless tunnel of meat. I looked at the mirror image of myself, both suspended in air as I felt a brief comfort.
+
+
+
+*A comfort I wouldn’t die alone.* And just like that, everything finally went black.
+
+
+
+When I came too, I was in a hospital bed. The lights above me felt like the brightest I’ve ever seen in my life and my ears were ringing from the hum of the hospital. Each breath felt awkward to take, hurting if I breathed too deeply. I kept my eyes squinted as I looked down, my chest was wrapped up, my right leg was suspended in a cast, and a thick iv was in my arm. I attempted to sit up, but the pain that shot through me kept me in place. A nurse finally noticed I was up.
+
+
+
+**“Oh! The patient in room 342 is up!”** He seemed to be calling out into the hall. Found out I had broken my ribs badly, broken leg too. I’d been in a coma for about a month, and when I asked about the others... Things got quieter.
+
+
+
+Later on, I ended up learning everything that actually happened:
+
+
+
+It started a bit after we all finished smoking. Somehow between smoking and leaving the apartment, I had gotten my shirt half off, while Kyle took his shirt completely off. The four of us had wandered out his apartment, a family was in the hall... I ended up screaming at their kid, it started crying and the parents were mad... We all started freaking out and Kyle ushered us out the back stairwell of the apartment building. 
+
+
+
+We ended up running out the fire exit, causing the building’s alarms to go off... There was a grassy patch between the building and freeway. That’s when Kyle stepped into the road and subsequently got hit by a car going around 65MPH. He died on impact, That road got closed pretty fast - but not before another car clipped Elloise.
+
+
+
+*Elloise...* At some point in the woods, either one of us disturbed a wasp nest or we were just too close to one... They were pissed and started attacking, we all got stung, but Elloise was allergic. She went into anaphylactic shock and died not long after. 
+
+
+
+Me and Heather ran off deeper into the woodland patch, the end of which ended in a steep cliff that led to another roadway. We fell around 40ft, holding each other, Heather took the majority of the damage, I landed right on her. They said if she wasn’t there I'd be dead.
+
+
+
+The light we all were following was the Powerball billboard that hung on the other side of the other roadway.
+
+
+
+I figured out what the weed was mixed with. *Datura.* It was one part weed, two parts datura. Despite Kyle's shortcomings, I know he wouldn't have done this on purpose. He wasn’t dumb, but trusting. His dealer fucked him over or maybe just read the room wrong, either way three people were dead. Never met him myself, but Kyle spoke good about the guy... I could only give the police what little information I had, they’d have better luck checking Kyle's place.
+
+
+
+It’s been a little over a year since everything’s happened. I’m lucky I wasn’t fired, went through physical therapy and actual therapy. Currently on meds that dull the feelings of it all, but I never can forget...
+
+
+
+I haven’t really talked to anyone about this, but I still see them. Not them normally, but as those twisted red stick people. Ever since I woke up in the hospital, they’ve been following me around. They make noise - all still babbling incoherently. Sometimes it's panicked, sometimes it's conversational, sometimes it's directed towards me.
+
+
+
+Even as I write this, they’re right behind me, looming over my shoulder... 
+
+
+
+*I don’t think they’ll ever leave and I don’t ever want them to.* Being alone feels worse than death... *I miss my friends.*
