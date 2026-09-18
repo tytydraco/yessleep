@@ -42,7 +42,7 @@ The emptiness I feel has grown unbearable. Despite months of trying to put it in
 
 ​"Chronic wasting disease," Anthony countered, though he gripped his walking pole like a spear. "Brain-rotted deer. Let's not get poetic."
 
-—allarly afternoon, we struck the rusted perimeter of an old property line. A sagging four-strand barbed-wire fence was nailed into the trunks of rotting locust trees, bearing faded aluminum NO TRESPASSING placards whose paint had peeled away decades ago. We followed the fence-line until we found a deep animal run where foxes or coyotes had carved a trench beneath the bottom strand. We stripped our packs, dragged them through the dead leaves, and squeezed under.
+In the early afternoon, we struck the rusted perimeter of an old property line. A sagging four-strand barbed-wire fence was nailed into the trunks of rotting locust trees, bearing faded aluminum NO TRESPASSING placards whose paint had peeled away decades ago. We followed the fence-line until we found a deep animal run where foxes or coyotes had carved a trench beneath the bottom strand. We stripped our packs, dragged them through the dead leaves, and squeezed under.
 
 ​Beyond the wire, any pretense of a trail was gone. We pushed through tangled briars and jagged shale ridges until we broke into a bowl-shaped hollow. In the center sat the concrete husk of an old hoist house. Nature had spent decades tearing it apart; the roof was gone, sumac trees grew straight through the fractured floor, and faded layers of local graffiti plastered the walls.
 

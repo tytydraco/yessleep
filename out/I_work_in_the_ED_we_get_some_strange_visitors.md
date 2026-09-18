@@ -1,0 +1,92 @@
+I'm an ED nurse in a small, rural city in the midwest. On an average night we'll get a few cooking injuries, a guy who ‘slipped’ and got something stuck where the sun don’t shine (I’ve got plenty of bizarre stories about that to tell you), and a crash victim or two. As gory as that last one sounds, it's most often just a case of whiplash or someone in need of a few stitches after getting cut on broken glass.   
+  
+We do get overdoses too, but that’s a given in the rust belt. It doesn’t make it any less sad, seeing them come in night-after-night. But you get used to it. Learn how to deal with watching people struggle. Knowing nothing you say will help them unless they’re ready to make a change in their life. Most often they aren’t.  
+  
+Other times, they make it hard to feel bad for them. A few years ago I was working third shift on a slow night when EMTs arrived with an overdose. When they called it in it sounded pretty routine, which is why it’s safe to say I wasn't prepared to be met with the patient strapped to the stretcher, covered in blood. Apparently he was in and out of consciousness, and from what the EMTs could make out from his ramblings, very aggressive. The EMTs couldn't find the source of the blood, so that became our first priority. I was searching around the patient's body looking for a cut or a scrape, but I couldn't find any. To make sure my exhaustion wasn’t just making me oblivious, I even made another nurse help me look.   
+  
+As we were searching, the patient began to wake up, and he immediately launched into an aggressive tirade. Through slurred speech, he began berating us and demanding to be let go. Then he started threatening us, telling us he was going to kill us for ruining his high, how he was going to stab me when my back was turned, and a lot of other pretty messed up shit about me and the other nurse, a dainty thing who caught the brunt of his graphic speech.   
+  
+Now, we can't find a source of bleeding and we have a patient threatening our safety, so it's pretty obvious that I became uneasy. We had to stop a passing tech and have them ring hospital security.  
+  
+After another round of trying to find an open wound on an openly hostile individual, and after cutting off what was left of his clothes just to find he was perfectly unharmed from a wound standpoint, we determined that this wasn't his blood. He didn't seem to be injured at all. Then it became a waiting game. Security had to phone the cops, and we had to keep an eye on a hostile patient to make sure he doesn't die, while also hoping he doesn’t somehow break loose of his restraints and make good on his threats before his police detail arrives. I know what you're gonna say, "why didn't you sedate him", right? Well, although we could have administered ativan, benzos don't mix well with opioids. There’s a line you’ve got to toe around there, you *can* chemically restrain the patient when it becomes necessary, but you also risk sending them into respiratory distress. This guy was already in-and-out of consciousness, and he was already physically restrained, so the risks seemed to outweigh the potential benefit.   
+  
+So, I had to sit by this guy’s side for fifteen minutes while he struggled to get out of his restraints and threatened me with all the ways he was going to harm me. I know people who are doped up can be scary, but something about him was worse. The blood, which wasn’t his, covering him head-to-toe. The cold look in his eyes, which were staring daggers into me. The explicit details in his threats. It was the worst OD I’d ever had the misfortune of dealing with.   
+  
+I was relieved when the police finally showed up. He wound up being taken into custody upon discharge in the morning, and that was all I’d heard of him. That was, until about a week later. It headed the local news for a month, in between stories about kids raising money for a local shelter and stories of gang activity in the area.  
+  
+The patient admitted to murdering his girlfriend and one of their close friends. He found text messages between the two that evidenced an affair, and spent a month plotting revenge on them. That night, while the three of them were hanging out and shooting up, he killed them in cold blood. He subsequently went home and tried to take his own life by overdosing on an exorbitant amount of heroin. One of his neighbors saw him walk into his house drenched in blood, apparently dazed and stumbling, and called for an ambulance. He was charged with two counts of first-degree murder, along with some drug charges.  
+  
+I want to make it clear that drug users are people. The only difference from you and I is that they fell on hard times and turned to drugs as a form of self medicating. Rarely are they ever actually violent, even if they’re aggressive after the Narcan’s thrown them straight into withdrawal. This man, however, was an exception.  
+  
+…  
+  
+Druggies aren’t the only edge cases we get, though, and seemingly edge-cases have been popping in more-and-more frequently as of late.
+
+The next story I’m about to tell you may seem a little hard to believe. Trust me, I still have a hard time wrapping my head around it almost two years later. 
+
+The ‘clairvoyant,’ as I’ve come to dub her, was rushed into the ED following a crash on I-74. From the start, she didn’t appear to be A&O, and I can’t say I didn’t understand why. She had a massive gash, about three-to-four centimeters long, running along the left side of her forehead. On top of that, her left leg was almost mutilated. Apparently, according to one of the EMTs that brought her in, they had to cut the driver-side door open to extricate her. It’s a miracle she hadn’t bled out in the meantime. She was driving at high speed during a particularly bad storm, when all the sudden she hydroplaned and lost control of her vehicle. Her car fishtailed to the right, leaving the drivers side wide open to being t-boned by the car behind her.
+
+Now the ‘clairvoyancy’ comes into play a while later. She’d come out of emergency surgery, in which she’d lost her left leg from the knee down, and she was stabilizing in the ED while we were waiting for an ICU bed. She still wasn’t completely aware, and while she could talk, she couldn’t tell you what day of the week it was or who’d won the presidential election only a month prior. Most of that was probably due to the effects of the pain meds she was on, though we had orders for frequent neuro checks due to her head injury. About an hour after her surgery, I went into her room for another neuro check. Through her drug induced drowsiness, she began to mumble something. I paused what I was doing to focus on her words.
+
+“I met God today. He wanted me to pass on a message. Don’t worry about Jamie. He didn’t feel a thing. He’s waiting for you up there, and he can’t wait to see you again soon. And check the bottom drawer.”
+
+I was immediately taken aback. *Jamie* was my boyfriend. ‘Was’ meaning I’d lost him only a few weeks earlier when he, himself, had been killed in a hit-and-run on his motorcycle. Now, I’m no stranger to death. Working in the ED will get the two of you well acquainted, so I’d been able to put on a face for work, but I was still deep in the throes of mourning. Jamie and I had been together since high school. We’d lived together since his nineteenth birthday, after his parents kicked him out for being gay. He’d been my rock during the hardest exams during my BSN. But, more importantly, how could this woman possibly know about him? What did she mean by him ‘seeing me soon’? The whole situation creeped me out so much I made the charge nurse reassign her.
+
+Now, I never was very religious, but I’ve started to turn that way in recent weeks. And of course, the seemingly off-handed comment the clairvoyant woman made nearly two years ago makes sense now. I don’t know how she knew I’d die soon. *Nearly two years ago*, long before I’d discovered my sickness, she’d seemingly predicted it. To make a long story short, after dealing with some persistent abdominal discomfort last month, I was diagnosed with colon cancer with mets nearly everywhere in my body. My five-year survival odds aren’t looking great. Part of me wants to tell these stories for that reason.
+
+On a lighter note, I still have no clue what she meant by “check the bottom drawer”, so maybe she was just two sheets to the wind, but I still feel something impossible happened that night.
+
+…
+
+Now, if you didn’t believe the last story, you certainly won’t believe this one. Some of the strange visitors we get are not patients. They aren’t the family of the patients either. And no, they aren’t the hospital staff. They’re… *something else*. Now, I know I said I was never really religious until recently, but I’ve had far too many strange experiences in my time here to not believe there are things out there that we simply cannot explain. On another late-night, when the ICU was short-staffed, I worked a float shift there. The ICU is the third worst place you can be as a patient in a hospital, the only places worse being hospice and the morgue. A lot of people in the ICU die. Even more live, but the ICU is no stranger to death regardless.
+
+I’m doing my rounds, sometime around two to three in the morning, checking patient’s vitals, making sure IVs don’t need replacing, making sure foley bags aren’t full. I’m about halfway done with my patients, out in the hallway walking from one to the next, when I get a chill down my spine and the sudden feeling that I’m being watched. Then, I’m about to enter my next patient’s room when I see the outline of someone standing in the dark in the room next door. I can barely make out the figure through the window on the door, but it looks like they’re just standing, watching over the patient in bed. Now, I have to do something because visiting hours have long since ended and this person’s behavior is concerning. Honestly, if it had been someone sleeping on one of the chairs, I would’ve thought nothing of it. I would’ve thought it was a family member who was staying the night with their loved one and moved on, ignoring the visiting hours. But they just stood there, motionless at the foot of the bed. 
+
+The figure disappeared when I swung open the door. I took a moment to look around the room, nothing seemed out of place. No one seemed to be there. The patient was fast asleep, and their vitals seemed normal, so I moved on to the next of *my* patients. 
+
+The patient, an elderly man fighting an infection that resulted from a fracture, was asleep as well. I counted his respirations, took note of his BP & heart rate, and moved to replace his foley bag. I guess I made a bit too much sound, as the patient woke up.
+
+“Back so soon,” he said, which I’d initially brushed off, as he probably thought he’d only slept a few minutes between me checking on him. “Where did that other nurse go?”
+
+“Oh, your other nurse left for the night around seven, remember? I’ll be your nurse till shift change in the morning.”
+
+“No, there was a young lady in here just a few moments ago. She was standing at the foot of my bed. I asked her what she was doing and she said she was checking my breathing.” I winced. It seemed a bit too coincidental.
+
+“Huh. They must’ve accidentally assigned the both of us to check on you. Don’t worry, that just means you’ll have two people checking in on you instead of one. Did she do anything else?”
+
+“Oh, I don’t know. She was very careful not to disturb me. She did say she was watching over me, too.”
+
+“Okay, well, I’ll try not to disturb you for the rest of the night either. Try to get some sleep, it should help you heal a bit faster.”
+
+I said some polite goodbyes and I was on my way to finish my rounds, but not before stopping at a computer to check in on my patients charts. I was the only one who had been charting for them that night, no one else had entered any data. Whoever that lady was, I don’t think she was counting respiratory rates. 
+
+During my next set of rounds, I saw them clearing out that room next door, the one where I saw the figure standing at the foot of the bed. The patient had passed peacefully in their sleep. I don’t know who that lady was, whether she was a guardian angel, there to guide souls to the next life, or something more malignant. But I’m pretty sure she was involved.
+
+…
+
+Sometimes horrors are just the opposite of unexplainable. Sometimes they’re so far within our comprehension, it aggravates us when they happen. I can recall one of these horrors happening a year or so ago. 
+
+A teenage girl presented with abdominal pain, nausea, vomiting, and seizures. She was A&O x0 on arrival. Her mother clung by her side, a total mess, and not far behind them was her father, who looked angry. He seemed generally pissed off that he had to be there, as if his daughter's life wasn’t in danger. 
+
+While the rest of the team worked to stabilize her, I was working with the triage nurse to try and console the mother enough to get more information so we could get a better idea of what we were dealing with. We tried speaking with the dad, but he was rather terse. It didn't seem like he was really bothered with saving his daughter’s life at all. When did the symptoms start? “I don’t know”. What was she doing when the symptoms started? “I don’t know”. Has she taken anything? “I don’t know”. We pretty much had to look this man straight in his eyes and tell him that she could die if we didn’t figure out what was going on. That’s when he finally decided to give us something to work with. “She swallowed a bottle of ibuprofen, I guess”. We asked if he had any clue how many pills she had swallowed, even if just an estimate. He rolled his eyes then looked to his wife, as if he was incapable of answering anything himself. 
+
+We asked the father to leave and finally got the mother calm enough to answer some questions. Their daughter had swallowed a fistful of pills, most of the bottle was still there, but she had likely swallowed at least a few grams. We tried to get a better grasp on what might’ve caused the situation so we’d have some information to write down in the psych consult. From what it sounded like, the father was abusive. They’d gotten into a fight, he’d slapped her, she’d said she’d be better off dead than living under his roof, and he told her ‘maybe she would’. 
+
+After they leave the ED, you don’t really get an update on your patients unless you start asking around. From what I’d heard, the girl had made *a* recovery. I assume DCFS would’ve gotten involved, which would be for the best. Some people do not deserve to be parents.
+
+…
+
+I figure I’ll end off on a lighter note. Not everything strange is bad, right?
+
+A couple months back, we’d had a guy presenting with a broken femur and a few broken ribs. He’d been out on a hike, and I guess it had been raining the past few days and the ground had been slick with mud, anyways he slips in some mud and winds up falling down a pretty steep hill.
+
+Now, I’m not *supposed* to say this about my patients, but he was a pretty conventionally attractive guy. Mid 20’s, around my age, clean cut, and seemingly a bit dumb. He’s like if they instilled the essence of a marine into some civilian out in the-middle-of-nowhere, USA. 
+
+Now, everything’s going fine, he’s completely alert and oriented, his breathing seems fine so it doesn’t appear any of his broken ribs punctured a lung, but he’s being taken back for an x-ray just to make sure. In the meantime, a girl shows up to visit him. Right, seems fine, she’s probably his girlfriend coming in to check up on him after telling him not to go for a hike in the mud, as that was stupid. A few guys show up, a couple in full hiking getup, probably his friends, right? But then another girl shows up. And another, and another. It gets to the point that the desk attendant has to actually start asking how they know the patient, and these girls keep saying they’re his girlfriend. Now, this gossip does not stop from spreading around the entire department. We’re all wondering what’s gonna happen when he comes back from his x-ray to see all the girls he’s been having relationships with have discovered each other, and I’ve got a front row seat to the show. 
+
+When I tell you, what happened next had me floored. I wheeled his bed back to his room, and through the window it seems all these girls are getting along just fine. I wheel him in, and they all start fawning over him and his injuries like he’s a baby deer, just the cutest thing they’ve ever seen. That’s when I pause to ask what exactly everyone is doing here, as there’s about ten people in his room now, seven women and three men, not including the patient and myself. Well, it turns out all his girlfriends know about each other. And so do his boyfriends. Dear reader, all of them belonged to one massive ‘polycule’. And I can’t say a part of me wasn’t disappointed that I didn’t get to see some Jersey Shore drama unfold, but another part of me almost thinks this was the better outcome.
+
+…
+
+I work in the ED, we get some strange visitors. I hope these stories horrified you, made you curious, and made you laugh. Maybe, if there’s demand, I’ll post some more. I did say I have plenty of stories about people “falling” and winding up with things stuck where the sun don’t shine. And I have some others, too.
+
