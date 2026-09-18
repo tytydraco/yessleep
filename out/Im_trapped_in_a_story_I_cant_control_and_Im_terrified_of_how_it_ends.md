@@ -1,0 +1,69 @@
+I'm trapped in a story I can’t control, and I’m terrified of how it ends. I’ve tried to change the script, alter my destiny, but it's all been in vain. I’m writing this in chapter III, with the ending drawing near. I’ve split this into parts because I’ve realised that the only way to end this, to get rid of this *thing* that has followed me my whole life, is to construct a narrative of my own. If you are reading this, you must make it all the way through, because you aren’t just any reader; you're part of this story too.
+
+# Chapter I
+
+It began when I was 15. It was a Friday like any other; I was walking home from school and had just passed the video store when it consumed me. Doom, dread, fear. My mom had died a month prior, so the anxiety, it didn’t surprise me. But its familiarity didn’t help, either. I didn’t know what to do, but I needed to escape, to find some peace. So I turned back and entered my happy place.
+
+The video store was where I was free. It was a liminal space, a dreamland of infinite possibilities, where I could enter any world I wanted. I rushed inside, sweating profusely and struggling to catch my breath. After a few seconds, the feeling began to fade, and my heart rate slowed. I was in the one section of the video store that always scared me, the horror aisle. That’s when I saw it. 
+
+A plain black VHS case with no description, only a title emblazoned in red: **CHAPTER I**. I was drawn to it; I HAD to watch it.
+
+The store clerk had never seen this particular “movie”, at least that’s what they said. But they let me take it anyway, free of charge. I got home before my dad did. I often wonder: if I had shown him the VHS, would it have changed anything? 
+
+I put it in the VCR and pressed play. Out of the static, images flickered. A kitchen, a bathroom, a bedroom. Voyeuristic illustrations of an ordinary home. On my room’s low-quality tube TV, I saw a young girl enter the bedroom. It clicked: this wasn’t any house; this was MY house.
+
+The dread flooded my mind once more; I recognised the clothes I was wearing. A black dress on a young girl, crying her eyes out. It was the day of the funeral, a day of suffering. Suddenly, the VHS switched back to static, which calmed me for a moment. But a few seconds later, the “movie” continued.
+
+The new scene displayed a mangled car, wrapped around a light pole. Twisted metal, cracked glass, flashing lights. A crash that had just happened, as smoke billowed from the ruined body. The camera zoomed in slowly. A gruesome sight, but still, I edged closer to the TV, anticipating something, knowing a reveal was near. Within the wrecked car was a man with grey hair and a mask of blood. It took me 15 years to discover that this was my dad, at the site of his death.
+
+# Chapter II
+
+Drunk driving on Halloween- what a way to go. I was intoxicated myself when I got to the crash. But seeing your father’s corpse on cold concrete will force anyone sober, that’s for sure. I arrived on the scene knowing there was an accident but unsure of the details. As I passed the ambulance, a wave of anxiety greeted me, like a familiar friend.
+
+I stood there, in a witch’s outfit, as the policeman peeled back the silver blanket. Ripped flesh, broken bones, dead eyes. Basking in blue and red lights, I felt it again. Doom, dread, fear. I remembered the VHS. The man with grey hair and a mask of blood, hunched over the steering wheel. All this time, the nightmares of that video, the panic attacks it created, were a premonition of my dad’s death.
+
+At 30, I wasn’t young, but I didn’t feel like an adult either. I had become alone, far too early. It took weeks of pain before I searched for answers. I stayed in bed for days. Dirty sheets, empty takeout boxes, rows of alcohol. Eventually, I looked for the VHS, but could never find it.
+
+So I went back to the video store, but it had been long gone. It was now an electronics shop, but I entered anyway. A cold, clinical place, with no discernible character. I spoke to the manager and asked about the VHS. They looked at me like I was mad. Maybe I didn’t explain myself properly; perhaps my tattered clothes didn’t help. As I began to exit the shop, with strangers still staring at me, I saw it on the shelf. 
+
+A plain black DVD case with no description, only a title emblazoned in red: **CHAPTER II.**
+
+I got home, dusted off the DVD player, and inserted the disc. Just as I had done 15 years prior, I waited for the “movie” to play. I had to accept that whatever this was, it was following me. Then, just like before, the TV flashed alive. 
+
+A crashed car, an ambulance, my dead dad. On my small flat-screen, I saw me, in the witch’s outfit, walk towards my father’s corpse. There it was again: the fear, like needles in my brain. 
+
+The DVD went black; a few seconds passed before a new scene burst to life. A man I didn’t recognise lay in a hospital bed. A tube in his mouth, machines beeping around him, a nurse checking his vitals. 
+
+# Chapter III
+
+The moment I met him, I knew how it would end. He never learned the truth; such suffering was my own burden to bear. And I never gave him children, despite his pleading, despite my deepest desires. I was terrified of what might happen to them.
+
+He didn’t deserve his fate. Even in the end, as he grew weaker, he did everything he could to give us joy. Coffee in the park, quiet Sundays, slow walks, our happiness had no bounds… until it did.
+
+Was it a selfish act? To pursue the relationship? Maybe, but to be honest, I never felt in control of my story. Things always happened *to* me, not *because* of me.
+
+Standing over his body, as a 46-year-old widow, the feeling returned. Doom, dread, fear. He deserved a better life, as a real person, not a character in a morbid tale. 
+
+I returned to the bottle, a regrettable relapse. Collapsed on the couch, days, weeks, months (I don’t remember) after his death, the road to recovery appeared futile.
+
+One day, nursing a violent hangover, I scrolled through Netflix, trying to capture the bliss of my childhood, looking for a piece of the video store’s escape. 
+
+Hidden in a category within a category, the “movie” sat. A plain black poster with no description, only a title emblazoned in red: **CHAPTER III**.
+
+Presented neatly on my 4K TV, I clicked without hesitation. Just like the VHS, just like the DVD. But for the first time, I felt no anxiety. No doom or dread. Consumed by depression, drowning in melancholy, but not afraid. I was tired.
+
+An empty tissue box, a doctor feigning sympathy, a body beneath a sheet. Everything I expected. I skipped past the images. I wasn’t here to relive the past; I needed to know the future. Again, a black screen, a few seconds of silence, and eventually, a new scene.
+
+This time it was a single shot, unmoving. My body hung from the ceiling, a thick rope wrapped tightly around my swollen neck. At some point, in a version of my future, I would kill myself. I was heading for a dark finale.
+
+I stared at the still image. A filthy room, empty bottles, an angel of death. For a moment, I accepted it; this was how it would end. But as the minutes passed, beneath my suffering, a new life grew, one unshackled by the wicked spell. 
+
+For the first time since my childhood, I felt a wonder within me, the hope of a life unlived. To be free, to truly change the ending, I had to write it myself.
+
+I was truthful when I told you that if you are reading this, you must make it all the way through, because you aren’t just any reader; you’re part of this story too. 
+
+To start a new life, I had to pass this on to someone else. This post is the final chapter of my curse. 
+
+By reading it, you release me from my pain. My horror story is over. 
+
+The sequel, on the other hand, starts with you.

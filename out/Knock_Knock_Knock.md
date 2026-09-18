@@ -1,171 +1,371 @@
-For the past few months, something has been trying to get invited into my house. 
+1. Danny
 
-I'll never forget the day it started. I was going to university, but that came to an abrupt end when my father passed away during finals week from complications due to COVID-19. It had taken a lot of thought and prayer to even decide to go to college because my mom had died a few years earlier. The school I was going to attend was out of state, and I didn't want to leave my dad all alone in our home. The only reason I felt comfortable with going was because two of my friends, Bryce and Will, were willing to move in with my dad while I was gone. For that, I'll always be in their debt. 
+​My name is Danny, and everything about my life used to be aggressively ordinary. We lived in a quiet house on a quiet street, wrapped in a routine so predictable it was almost boring. That all changed three years ago, during my last week of school.
 
-Long story short, I blew all my saved up money that was meant for college on legal and funeral fees. I have three older half brothers from my father's first marriage to split belongings between. In the end, I was left with ten grand of my mom's life insurance and from my dad's savings and a little cabin in the U.P.
+​My father was never abusive. He didn't drink, and I can’t recall ever hearing him raise his voice. So when I walked into the kitchen after a rough day, dropped my bag on the table, and raided the fridge, I expected nothing out of the ordinary.
 
-The cabin was in the middle of nowheresville off of an unnamed road 45min from the nearest town. The only sign of civilization within a 20min drive was a bait and tackle shop that doubles as a liquor store. The driveway to the cabin was impossible to see unless you knew where it was in the thick brush. The driveway was made up of nothing but rutts and tree roots that took 15min to drive down. 
+​A few minutes later, my mother walked in with my sister, whom she’d just picked up from primary school. She asked about my day and immediately started setting the pans on the stove to make supper. When my dad got home thirty minutes later, he hugged us all, asked how we were doing, and went upstairs to wash off the dust from his shift at the construction site.
 
-The cabin itself was only about 900sqft. There was a kitchen that doubled as a dining room with a wood burning stove, a living room with a couch and an old fireplace, and a bedroom with a quadruple bunk bed with all full sized mattresses. The whole place probably only took five decent steps to get from room to room. 
+​Twenty minutes later, we were sitting around the dinner table. We passed the food, laughed, and looked at photos on my dad's phone of the new bridge he was helping build. It felt like every other evening of my life—right up until the moment it wasn't.
 
-The sink had an old-fashioned hand pump to get water from the river. The only bathroom was an outhouse and mother nature. There was a gas stove for cooking, a refrigerator that looked like it was bought in the 80’s, and a single gas powered light by the front door. 
+2. The first night
 
-Although the cabin was wired for electricity, the only way to get power was by generator, so I knew on my tight budget I wouldn't be running that very often. 
+​After clearing away our dinner plates and trading stories about our day, exhaustion finally caught up with me. School had drained every ounce of my energy; I barely managed a mumbled "goodnight" before collapsing onto my bed, still wrapped in my uniform. I didn't even pull back the covers before drifting off.
 
-After the nearly 10hr drive with my 13 year old Labrador Ella to get there, and missing the driveway ten times, I managed to get my 98 Cavalier down the driveway. I looked down at my radio and saw that the time was 10:23PM. 
+​Then came the knock.
 
-It was the middle of May, my girlfriend Christine had freshly broken up with me because I'd taken up a drinking habit to fill the chasm that was left behind, and she didn't want to deal with an alcoholic boyfriend. I can't blame her. I chose the bottle instead of healing. It also didn't help that she was going to college 1,035miles and a 15hr drive away. And now Ella and I were completely and utterly alone. 
+​Slow. Deliberate.
 
-Sure, Will and Bryce offered to live with me like they had my father, but I didn't want them to completely uproot their lives. Bryce was just made plant manager at a small trailer hitch manufacturer, and Will was engaged. I wanted to be alone anyways. I was in a pretty dark place. 
+​I glanced at the glowing green numbers on my clock: 2:30 AM.
 
-I unloaded my car, let my dog Ella run to the trees to answer the call of nature, tested the gas lines, and made my bed. I checked my phone to see the time, 10:52, and went back out to my car to leave my phone plugged in out there overnight instead of running the generator all night. 
+​The knock came again—faster this time. I pressed my face into the pillow and tried to ignore it.
 
-Outside, the world was still. The wind that made the pines sway had died. The river snaked through the woods without even a trickle. The animals were silent. I felt as if I were in a crypt. I was almost hoping to hear some coyotes in the distance, or the snapping of a twig under a raccoon. Anything but this stygian silent stillness. Even my overly brave for her breed dog was silent and stiff as a corpse. 
+​Knock. Knock. Knock.
 
-We went back inside, I locked both of the doors, and covered all the windows. I even closed the chimney vents. I didn't know why, but I felt the need to ensure that there were no access points in the cabin. By the time I rolled into bed with my bottle of Jimmy, the battery alarm clock glowed 11:11. 
+​This time, it wasn't coming from the bedroom door. It was coming from inside the closet.
 
-No sooner than when I cracked the seal on my dinner, I heard a gentle “tap tap tap” on the window nearest my bed. I froze. Ella held her breath. I waited. 
+​I snapped my lamp on, light flooding the room as I stared at the shut closet door. Then, a sharp tapping sounded from directly beneath my mattress.
 
-Tap tap tap.
+​There was no chance I was peeking under the frame. I bolted out the door, sprinting down the dark hallway to my parents' room, the words tumbling out of me in a panicked rush. My father instantly jumped up to investigate.
 
-I hoped it was a tree branch. I prayed it was nothing. “Tap tap tap.” Only this time it was on the living room window. This continued until whoever, or whatever had found the front door. 
+​A few agonizing minutes later, he returned to clear the air, assuring me it was just the house settling. He walked me back and waited by the doorway until my eyes grew heavy again.
 
-Thump thump THUMP.
+​The next morning, both of my parents stood in my doorway, gently insisting it had all been a bad dream. But I knew the difference. I hadn't dreamed it. Something had been in that room with me—and even in the morning light, I could still feel its gaze lingering in the shadows.
 
-The doorknob started shaking. The screen door opened and slammed over and over. I'd watched enough Wendigoon videos to know better than to get up out of my bed. I made a mental note that I was going to get my hands on a firearm the next day. There was no way some yooper tweaker was gonna kill me. 
+3. The girl in the mirror
 
-The clouds parted, and the silver gleam of the full moon was breaking through the trees. And I saw it. Through the bedsheet I'd used to cover the kitchen window, I saw the shadow of the Knocker. I saw antlers. Like a deer was on its hind legs trying to get a better view. Then I heard it. Like a man who'd spent his whole life smoking Marlboro reds. 
+​I couldn't shake the feeling that something was in our house. Maybe I’d just been watching too many scary films, but something about last night made the hairs on the back of my neck stand up and sent my stomach into freefall.
 
-“Huh-low?” 
+​I spent the next day cautiously checking around every corner before entering a room, half-expecting to see a stranger waiting for me. But the house was dead silent. My parents didn't like leaving fifteen-year-old me in charge of my eight-year-old sister, Lily, but they were constantly worried about money and had to take on extra shifts. I was happy to watch her; she never gave me any trouble. Upstairs, footsteps padded across the hallway, followed by the soft click of the bathroom door closing.
 
-I started crying, wishing my dad were with me. I knew he wouldn't be able to do anything, but I needed my dad. 
+​Five minutes passed. Then, Lily started screaming.
 
-This went on until 12:11AM. Exactly 1hr. Then as suddenly as it started, it stopped. I stayed in my sleeping bag, frozen with fright. 
+​I bounded up the stairs two at a time. I found her frozen in front of the bathroom mirror, trembling and pointing a pale finger at the shower curtain. I stepped inside and followed her gaze.
 
-At 2:00AM I slunk out of my bag and tiptoed to the silverware drawer. It creaked and groaned as I opened it up. The sound made me want to throw up. I slid an 8in chef's knife out and carried it back to bed with me. I knew in my racing heart that this wouldn't do anything to protect me, but it gave me just enough comfort to stop sobbing. It did not give me the courage to sleep however. 
+​There, clearly reflected in the glass, was the dark silhouette of a woman standing in the bathtub, her head buried in her hands.
 
-The next morning, Ella and I got in the car and took the 45min drive to town. I got the necessities. Six sheets of 1in plywood, a few 2x4’s, nails, a week's worth of Jacky D’s, canned goods, dogfood, and four deadbolt locks for each door. Funnily enough, this hardware store also had a firearm section. So I picked up an over and under 20gauge and the ammo to match. 
+​I whipped around to face the tub. Nothing. Just an empty curtain.
 
-The bored girl behind the register rang up my items for me. I decided to casually spark up a conversation. 
+​I snapped my eyes back to the mirror. She was still there, but her stance had shifted. Now she was facing us.
 
-Me: “There ever been any strange happenings in (the location where I now live)?”
+​Heart hammering, I stepped toward the tub and yanked the curtain open. Empty. It didn't make any sense.
 
-Her: “Not really. Just yer odd huntin or snowmobilin accidents.”
+​Suddenly, Lily let out a ear-piercing shriek. I shot a look back at the mirror and froze. The woman was standing directly behind me, her arms raised as if ready to strike.
 
-Me: “Interesting… Any cabin break-ins?”
+​I didn't hesitate. I grabbed Lily by the arm, sprinted down the stairs, and burst out the front door. We stood trembling on the sidewalk for three hours until Mum finally pulled up the driveway. We didn't dare go back inside alone—but how could we possibly explain what we’d seen?
 
-Her stopping the ring up: “A few? Why ya askin?”
+​Later that evening, we all gathered in front of the TV. Lily picked a lighthearted movie for us to watch before bed while Dad cracked jokes about his workday and Mum braided Lily's hair for school picture day. I tried my best to focus on the screen, but the woman standing directly behind me in the television's reflection was very distracting.
 
-I decided that was the end of our conversation. Didn't want her to think the new guy was some kind of alcoholic grifting burglar. 
+5. The morning after the night before
 
- On the drive back to the cabin I saw a truck pull into a hidden driveway like mine on my road. He got out and flagged me down. I got out and he started talking to me. 
+​Daylight crept through my curtains, bringing with it the familiar sounds of the house waking up. First came the heavy thud of my father’s footsteps going downstairs, followed by Mum, and finally Lily. I stayed frozen under the covers, with zero intention of stepping foot outside my room until Dad had left for work.
 
-Him: “Ya new round here?”
+​Knock. Knock. Knock.
 
-Me: “Yeah. Just moved into the cabin up the way last night.”
+​I jerked awake—I must have drifted off. The door creaked open and my dad stepped into the room.
 
-He stared at me. Not in an intimidating way, more of a “you'll not do well here,” kind of way. He looked at me as if he was trying to decide what kind of flower arrangements he'd make for my funeral. 
+​“Time to wake up, Danny. Breakfast is on the table,” he said, his voice entirely too joyful for the morning. He paused, eyeing me. “Rough night?”
 
-Him: “Name's Jim. And you?”
+​“Yeah, just a bit,” I mumbled, pulling the duvet higher. “I’ll be down shortly, just need to get dressed.”
 
-Me: “Ben.”
+​He smiled and closed the door. Was he really going to pretend last night didn't happen? Did he even know what happened?
 
-Jim: “Don't go outside past 11pm Ben. The Beast won't like it.”
+​I waited until the front door clicked shut and his car pulled out of the driveway before I finally vacated my room. Downstairs, I picked at my breakfast in silence, choosing not to say a word to Mum or Lily until I could clear my head. My dad wasn't abusive. I’d never even heard him raise his voice. That was what made the terror in my gut so suffocating.
 
-I spent the rest of the day boarding up my windows. The only window that wasn't sealed by plywood was the window over the sink. I still boarded it up, but I used the 2x4’s as makeshift bars. Everything was made as secure as I could. Jim even dropped by to help me get my 420lbs propane tank refilled in town. 
+​Mum eventually went upstairs to get ready for work, leaving me to help Lily finish up. We hadn't spoken about what we saw in the bathroom the previous day, but the way she stared blankly into her cereal bowl told me she hadn't forgotten.
 
-That night, after feeding Ella, having a dinner that consisted of canned stew and half a bottle of Jack, I made sure that both of the doors were all deadbolted. All the boards were secure. Ella and I had both “gone outside.” and when 11:11 rolled around, it started again. 
+​“Did Dad seem... strange to you this morning?” I asked softly.
 
-Tap tap tap.
+​Lily didn't look up. “No. Same old Dad.”
 
-The tapping started on the exterior wall of the cabin directly next to my head. The buzz of the booze instantly wore off. The temperature in the room plummeted. Ella was shaking, hiding under the blanket. Then I heard it. 
+​I left it there. A cold knot twisted in my stomach. Was it a bad dream? A hallucination? I couldn't reconcile the man who just wished me good morning with the monster from last night.
 
-“Huh-low? Huh-looowww? Ben? Let me in, Ben. Please? It's so dark out here.”
+​After saying goodbye to Mum, Lily and I headed off. As we walked, I kept my eyes fixed firmly on the pavement—taking painstaking care not to glance at house windows, parked cars, or rainwater puddles. Anything with a reflection. I dropped Lily off at her primary classroom, watching her disappear inside before turning to drag my feet toward my own class.
 
-It knows my name. 
+4. The fathers anger
 
-This time it was at the barred window. 
+​I couldn't take my eyes off her. She wasn't moving, just standing behind me, looking down. Nobody else in the room reacted to her presence. I excused myself and went to the kitchen for a glass of water; I could no longer see the woman, but I knew she was still there. Sweating profusely, my paranoia was pushing me over the edge. I told my parents I wasn't feeling well and headed up to bed.
 
-“Why did you board up the windows? I saw you do it.”
+​Once inside my room, I turned around every single reflective surface—I wasn't taking any chances. I just wanted a decent night's sleep to reset. The moment my head hit the pillow, I was out.
 
-At the back door. 
+​Knock. Knock. Knock.
 
-Rattle rattle rattle. Thud THUD THUD.
+​Knock. Knock. Knock.
 
-That's when it hit me. The stench. It smelled like body odor and rancid hamburger. The whole cabin was permeated in the foul reek of rot. It was so putrid that I could feel my Jack making a return trip up my gullet. Ella was dry heaving and pawing at her nose. 
+​I woke to the sound—the same slow, rhythmic tapping from a few nights ago. The room was pitch black. I scrambled for my phone; the screen illuminated the room just enough to show the time: 2:20 AM.
 
-After one last SLAM on the front door, I heard it leave. The clock read 12:11AM. The smell lingered for about an hour afterwards. Once I knew the smell had completely vacated the premises, I managed to get a few measly hours of sleep. 
+​Knock. Knock. Knock.
 
-The next morning I hauled tail over to Jim to inquire about the Beast. He was only a few minutes up the road. 
+​Suddenly, my bedroom door swung open. Silhouetted in the hallway light stood my dad.
 
-Jim lived in a single room A-frame. It didn't have any windows. The first point of access was the front door which was solid steel with deadbolts, two drop down bars, slide locks, and even a few chain locks for safe measure. The second entry point was the chimney which was equipped with a fairly sophisticated locking vent. Inside there was a bed, a table, a fridge, and a gas stove. Unlike my outhouse, he had a hand dug pit toilet that smelled like it hadn't been emptied in a hot minute. 
+​"Dad?" I gasped, flooded with relief that it was him and not the woman from the reflection. "Dad?"
 
-Jim: “He came again, didn't he?”
+​He didn't answer. He just stood frozen in the doorway before slowly stepping inside and closing the door behind him, plunging us back into darkness.
 
-Me: “Yeah, he did.”
+​I should have felt safe, but every instinct screamed that something was wrong. A heavy, uneven shuffling moved across the floorboards. I pulled the covers over my head, trying to block it out.
 
-Jim: “What did he say?”
+​Knock. Knock. Knock.
 
-Me: “He knew my name…”
+​The sound came from directly beneath my mattress. Then, dead silence.
 
-Jim. “Who have you told your name to?”
+​My bedroom door clicked open and shut. I took a risk and peeked out from under the blanket.
 
-Me: “No one. Just you and the cashier at (name of store).”
+​"I'M GOING TO FUCKING KILL YOU AND YOUR BRATTY SISTER!" a voice roared from the foot of my bed. "I'M GOING TO SLIT YOUR WHORE MOTHER'S THROAT RIGHT IN FRONT OF YOU, AND I'M GOING TO TEAR YOUR SISTER TO PIECES BEFORE I GET TO YOU!"
 
-Jim: “This isn't good Ben. The Beast has learned about you. He's searching you. He knows you're vulnerable.” 
+​Hands clamped around my ankles with brutal force, ripping me backward off the bed. I hit the floor hard as the figure slipped out into the hallway, slamming the door. Scrambling back onto the mattress, I hit the light switch and stared at the door for the rest of the night, trembling.
 
-This nightly routine went on for months. Every night, the Beast would torment me. One hour. Every night. Like clockwork. 
+​Why didn't anyone wake up? Why didn't anyone hear the screaming? Was it just a nightmare?
 
-It was November. I'd replaced all the 2x4's with rebar, and the bedsheets on the windows with blackout curtains. I'd even gotten myself a part time job at the paper factory in town. Pay was garbage, but it kept Ella and I fed, the propane tank full, and the guns loaded. 
+​The dark purple bruises forming around my ankles say otherwise. It was pitch black... maybe it wasn't Dad after all. But who else could it be?
 
-Over these months, Jim had become my only friend. He'd gifted me a handgun to keep on my person at all times. He said he wouldn't miss it and I believed him. He had an arsenal that I'm sure would've had him on the ATF’s watchlist if we hadn't lived at the intersection of the sticks and deliverance which was prime hunting grounds. I'd even traded in the over and under for a pump action 20gauge with a six shot capacity. 
+6. The phone call
 
-The forest gave me fresh meat at least. The river gave me fish. Mother Nature had fully adopted me and had been a very generous matriarch. I know what you're thinking… “Why would you stay there?” And my answer is, I had nowhere to go. I was completely disowned by my family. The family that hadn't disowned me were dead. And as of now, my routine was completely safe. Jim had informed me that the Beast, according to everything he'd learned, could only enter via an open or unlocked door/window. The Beast followed very strict rules. 
+​The first half of the school day dragged on with dull predictability: analyzing the red dress in Of Mice and Men during English, followed by scraping thin layers off a leaf in science. For a few hours, the ordinary routine almost let me forget the nightmare waiting at home.
 
-It was Thanksgiving. The forest was completely blanketed in snow. And it was already dark by 4:00PM. The cashier who'd rung me up all those months ago was now kind of my girlfriend. Her name's Connie by the way, and she'd invited me and Ella over to her and her parent's house for dinner. I locked up the cabin and made sure the gas light was turned off before I left. My 98 Cavalier had seen better days. The radio no longer worked, so I chose to sing Christmas songs to Ella the whole way to Connie’s.
+​Then came history.
 
-I'd brought a venison loin from the doe I'd taken earlier that week and a few pike fillets. Connie had made sweet potato pie, corn casserole, and something she called “chicken dish.”
+​Mrs. Tetbury wheeled the heavy TV monitor into the center of the room, flicking off the overhead lights to play a documentary on the Roman Empire. As the screen glinted, its dark glass caught the reflection of the classroom behind me.
 
-Connie: “Why don't you ever take me to your place?”
+​And there she was.
 
-Me: “You don't want to. The only toilet is an outhouse and the hand pump is frozen up.”
+​The girl from the mirror was standing directly behind my chair.
 
-I hadn't told her about the Beast. I didn't want to scare her away by making her think I was some kind of alcoholic schizophrenic. Jim had made me promise to never bring anyone to the cabin. It wasn't safe. 
+​My throat went dry. What did she actually want from me? She never moved; she just watched. The hairs on the back of my neck stood to attention, a cold spike of panic rushing down my spine as I stared at my desk, desperately trying to ignore the dark reflection.
 
-Connie: “I don't mind. Besides, I can't make ya ‘thankful’ while my parents are in the other room.”
+​Tap. Tap. Tap.
 
-That was it. I'm a weak man. I'd agreed that she could come out for the night. As long as I went through my routine, everything would be fine. My surviving since May was proof of that, right? 
+​A faint, hollow knocking vibrated through the wood of my desk. A draft swept over me—heavy with the smell of damp earth—and I could feel her leaning down, closing the space between us. I squeezed my eyes shut, gripped the edges of my seat, and frantically hummed a tune under my breath, trying to drown out the dread.
 
-We drove deeper and deeper into the still forest. The snow was deep and slick, so I took my time driving towards the cabin. I kept checking my phone to see the time. It was getting dangerously close to the hour of the Beast. I'd decided to slow down and “accidentally” take a wrong turn. I'd successfully managed to keep us away from the cabin for the full hour of the Beast. I was feeling pretty good about myself until I pulled up to the cabin. 
+​“Danny,” a voice scraped against my ear. It sounded wet, croaky, and completely hollow.
 
-The door was wide open. Through the vents of my car we could smell the rot. The beast was in my cabin. 
+​“Danny, look at me.”
 
-My heart was pounding. I locked the door. I knew I had. I always lock the door. When I looked in my rearview mirror, I watched as a large pine tree fell across the driveway with a groan, cracking, and a teeth shaking crash. 
+​I hummed louder, pressing my eyelids together until I saw stars.
 
-Then Connie spoke as if she were trying not to breathe. 
+​“Danny, now.”
 
-Connie: “Ben, something's very wrong here.”
+​“DANNY!”
 
-Me: “Stay here. I'm gonna check it out.”
+​The shout exploded right beside my ear. Instinct took over, and I swung my arm backward with everything I had, thrashing out in wild, blind panic.
 
-I didn't want to check it out. I was certain that this was my end. Poetic really. Just as my life began to smooth out, I was going to be finished off by some nightmare. I thought about calling Jim, but he would be asleep by now, and he wouldn't be able to get down my driveway. I was going to have to do this alone. 
+​“LEAVE ME ALONE!” I screamed, my voice cracking. “LEAVE ME THE FUCK ALONE!”
 
-I grabbed my flashlight from the glovebox, got out, and started sneaking up to the door of the cabin. The clouds had ceased the snowing as if in anticipation. The icy wind bit at my face. The clod leached its way into my bones. Then I heard the ear ringing sound of shattering glass. I turned around with my pistol drawn and I saw him. The Beast. He wasn't in the cabin. 
+​My fist made heavy, solid contact.
 
-The Beast had broken through the passenger window and was pulling Connie through, slashing her against the jagged glass. Ella had a hold of him by his bicep, but he swatted her away. I heard her neck snap with a SHNLUNK. 
+​I snapped my eyes open. The sudden illusion of silence shattered, and the roar of the classroom came rushing back in a wave of gasps and scraping chairs. Mrs. Tetbury was collapsed on the linoleum floor, clutching her nose as blood trickled down her hand. Three boys from the front row had seized my arms, pinning me back, their faces pale with shock.
 
-He looked like a bent and arthritis stricken man. Fully nude, skin glistening in the moonlight. From the armpits up he looked like a buck suffering from chronic waste disease. Blood and scum and fecal matter was smeared all over his body. He turned to look at me with milky eyes. 
+​Before I could process the blood on the floor, Mr. Palmer burst through the door.
 
-The Beast: “Ben.”
+​Once the headteacher confirmed Mrs. Tetbury was conscious and being helped toward the nurse’s office, his icy focus turned to me. He escorted me down the hallway in utter silence, his grip tight on my shoulder, and left me on the bench outside reception while he called my parents.
 
-That was all he said. I started firing at him. A few of my bullets actually hit, but I was too late. He was already dragging Connie by the hair into the treeline just out of sight. I heard him killing her. I could hear the blows falling on her body. Like a wet sack of potatoes. I heard her call to me. I heard her stop. With one last SHNLUNK I knew he'd killed her. 
+​Ten minutes later, he gestured me into his office, closing the heavy oak door.
 
-I went inside. I grabbed my shotgun. I went out to end this. 
+​“What happened out there, Danny?” Mr. Palmer asked, leaning against his desk. His tone carried less anger than pure, unsettling alarm. “You’ve never so much as had a detention. This is an extraordinarily serious incident.”
 
-I walked into the treeline. I found the mess. I saw the Beast hunched over. He was on all fours and he burying his face into Connie's now cracked open chest cavity. Connie looked almost as if she were pleading with me. 
+​“I… I don’t know, sir,” I stammered, staring down at my shaking hands. “Everything went foggy. I think… I think I fell asleep and was having a nightmare.”
 
-I looked at the Beast, but the deer head was laying in the snow. I saw the now unmasked Beast. It was Jim. Jim, the one who had helped me fortify my cabin. The one who had helped install my deadbolts. He must've stolen keys to the cabin at his last visit the day prior. He set this trap. 
+​I couldn't tell him about the reflection. I couldn't tell him about the voice in my ear. He wouldn't call a counselor—he'd call a psychiatric ward.
 
-He turned to look at me. Tears streaming down his face. Trying not to throw up whilst swallowing hunks of Connie. I raised my gun. There would be no tears from me. No sorrow. I was numb from the cold and from my spirit finally being snuffed out. 
+​It took another twenty agonizing minutes for my mother to arrive. The drive home was suffocating; she kept her hands glued to the steering wheel, refusing to look at me, her silence far louder than any scolding. The second we pulled into the driveway, I scrambled out of the car, bolted upstairs to my bedroom, and pulled the covers over my head—praying for a sleep that I knew wouldn't come
 
-Jim: “Please Ben. Please. Kill me.”
+7. The sleepover
+
+​I lay motionless in the bleak, heavy dark of my bedroom, knowing sleep wouldn't come. I had to be strong just to survive the night.
+
+​The horrors of the past few days kept looping through my mind. Why was no one else as shaken as I was? Lily saw the woman, too, but she hadn't mentioned her since. A sickening thought took root: What if the woman only wants me? But why? What could she possibly want from me?
+
+​My heart hammered against my ribs as heavy footsteps slowly approached my door.
+
+​Knock. Knock. Knock.
+
+​I froze, ignoring the sound, and pulled the blanket over my head to brace myself.
+
+​Knock. Knock. Knock.
+
+​The door creaked open, then swung shut. Soft, deliberate steps crept across the floorboards. I felt the edge of the blanket tugged downward.
+
+​"Danny... I can't sleep. Can I stay with you tonight?"
+
+​It was Lily, her voice thick with sleep. Relief washed over me so fast I could barely breathe. "Oh God, yes—of course you can. I'm sorry, I thought you were... never mind. Get in."
+
+​Lily drifted off immediately. I fought to stay vigilant, but exhaustion eventually pulled me under.
+
+​When I woke hours later, Lily was gone. I rolled toward the center of the mattress, only to recoil—the sheets were soaked. I flicked on the lamp, squinting against the sudden light. A dark, wet stain saturated the bed. Did Lily have an accident? But where was she?
+
+​Then I saw it: a glistening trail of water leading directly from the bed to the closet door.
+
+​Why would she go in there? Was she sleepwalking? Embarrassed? Was she hiding...?
+
+​Knock. Knock. Knock.
+
+​The sound echoed from inside the closet. Dread settled heavy in my stomach. Why would Lily knock from inside? That wasn't Lily.
+
+​Knock. Knock. Knock.
+
+​The closet began to shudder. The beats grew louder, violent.
+
+​KNOCK. KNOCK. KNOCK.
+
+​Terrified, I forced my legs to move. I crept toward the closet, reached out a trembling hand, and yanked the doors wide.
+
+​Nothing. Empty.
+
+​Silence swallowed the room—a heavy, unnatural quiet. I wasn't alone. I needed to get to my parents. Keeping my eyes fixed forward, trying desperately to ignore the unnatural shape crouching in the corner shadow, I backed toward the bedroom door. My hand reached for the knob.
+
+​Knock. Knock. Knock.
+
+​The sound echoed from directly above me.
+
+​I slowly tilted my head up. There she was—a grotesque figure hunched against the ceiling. Viscous black liquid dripped from her agape mouth. She let out a ear-splitting, raspy shriek. I snatched the door open and bolted into the hallway.
+
+​The corridor was pitch black, saved only by a faint sliver of moonlight at the far end. Standing in that pale light was a tall, dark silhouette facing me.
+
+​"Dad?" I whispered.
+
+​Before the word left my lips, he charged down the hall, screaming at the top of his lungs. I squeezed my eyes shut and braced for impact.
+
+8. A cry for help
+
+​I woke drenched in sweat, a searing, white-hot line of pain carved down the front of my torso. My heart hammered against my ribs as I clutched my chest. What the hell happened? Was that a nightmare? It had felt too visceral, too real to just be a dream.
+
+​Enough was enough. I needed answers, but bringing it up to Dad wasn't an option—whatever malevolent force was haunting this house, it already had its claws in him. I waited in the heavy silence of my room until the front door clicked shut and his car pulled out of the driveway.
+
+​The moment the coast was clear, I bounded down the stairs into the kitchen. The words spilled out of me in an anxious rush: the spectral woman in the shower, Dad and Lily walking into my room like zombies, Mrs. Tetbury, and whatever shadowy figure had cornered me in the hallway last night. Mum’s face paled, her eyes darting nervously toward the window.
+
+​"Stay home today," she urged, her voice trembling slightly. "Get some sleep."
+
+​Stay here? Alone? Not a chance.
+
+​Going to school was my only lifeline. Besides, after the breakdown with my teacher, I’d been placed on internal suspension—which, ironically, was a blessing. I got dressed, grabbed my bag, and hurried out the door.
+
+​The suspension room was a concrete sanctuary: bare walls, a single high window letting in weak sunlight, and no reflective surfaces. No mirrors, no screens, no haunting eyes staring back at me. For the first time in days, I took a deep breath.
+
+​Knock. Knock. Knock.
+
+​The sudden sound raised the hairs on the back of my neck, cold panic instantly seizing my chest. No, please, not here.
+
+​The door creaked open. When Mr. Palmer walked in, a wave of profound relief washed over me. It was just my headteacher. Part of me desperate for help wanted to confess everything, but the fear of being labeled insane kept my mouth shut.
+
+​That isolated room became my shelter, letting me tune out the nightmare my life was becoming. I actually managed to relax. Little did I know, within a few short hours, my entire world would crumble.
+
+9. The end of the world
+
+The clock on the classroom wall ticked with agonizing slowness. Five minutes. Just three hundred seconds until the bell rang, and I would be forced to return to that house. For a frantic moment, I contemplated throwing a chair or cursing at the teacher—anything to land myself in after-school detention. It would only delay the inevitable, but a suffocating dread was coiling tightly in my chest, making it hard to breathe.
+
+​No. I squeezed my eyes shut and forced my hands into fists. I wasn't going to let that thing—that presence—drive me out of my own home.
+
+​When the bell finally shrilled through the hallway, I packed my bag with frantic haste and burst through the double doors. The walk home was a gauntlet. Every parked car I passed offered a dark glass reflection, and in almost every window, I caught a fleeing glimpse of her—the pale woman watching me. I kept my chin up and pressed forward, determined not to let her tear my family apart.
+
+​When I reached my driveway, a cold spike of confusion hit me. My dad’s car was parked in the front bay. He never got off work early unless it was an emergency. I unlocked the front door and stepped into the foyer.
+
+​"Dad?" I called out.
+
+​Silence swallowed my voice. The house felt unnaturally still. I figured he might have popped out to the corner shop or stepped into the garden, so I went to the kitchen to pour myself a glass of water. A few minutes later, the front door clicked open again, and my mother walked in with my little sister, Lily.
+
+​"Where’s your father?" Mum asked, noticing his jacket thrown over a chair.
+
+​"I'm not sure," I replied, setting my glass down. "His car was here when I got back, but the house was totally empty."
+
+​Mum frowned slightly, heading into the kitchen to start preparing dinner, while Lily and I retreated to the living room carpet to watch cartoons.
+
+​An hour passed before Dad finally walked through the front door. Mum called out to him, asking where he’d been, but he bypassed the kitchen entirely. He moved like a ghost, ignoring her questions, and trudged straight up the stairs. A heavy slam echoed through the floorboards as he shut the bedroom door.
+
+​I caught a brief glimpse of his face as he passed the doorway, and it chilled me to the bone. His eyes were bloodshot and deeply swollen, surrounded by dark, bruised hollows. He looked as though he hadn't slept in days—or like a man possessed.
+
+​He didn't come down for dinner. By bedtime, I wanted to knock on his door to say goodnight, but I didn't dare disturb him. I withdrew to my bedroom, completely unaware of the horror waiting in the dark.
+
+​Night descended, wrapping the house in an impenetrable blackness. I had no intention of sleeping. I propped my heavy wooden desk chair firmly under the door handle and spent an hour removing every mirror and reflective surface from my room, draping towels over the windowpane. I was taking no chances with her.
+
+​At 1:30 AM, the nightmare began.
+
+​Heavy, deliberate footsteps dragged down the carpeted hallway, stopping directly outside my room.
+
+​Knock. Knock. Knock.
+
+​The brass door handle slowly turned downward, straining against the wedged chair, before springing back into place.
+
+​Then, absolute silence.
+
+​The weight outside my door shifted. Footsteps retreated back toward my parents' room. Seconds later, a violent crash echoed down the hall, followed instantly by my mother’s ear-piercing scream.
+
+​"NO! GET THE FUCK AWAY FROM ME!"
+
+​Panic surged through me. I kicked the desk chair aside, threw my door open, and sprinted down the hall.
+
+​The sight inside my parents' bedroom froze the blood in my veins. My dad was standing at the foot of the bed, gripping my mother by her hair and forcing her to her knees. In his other hand, he held a long, gleaming kitchen knife. His face was twisted into a terrifying, maniacal grin.
+
+​Before I could scream, he plunged the blade into the side of her head.
+
+​The metallic smell of blood hit the air as he yanked the knife free and violently tore it across her throat. He stood there in the crimson spray, holding her lifeless head like a trophy.
+
+​"Lily!" I gasped, turning on my heel.
+
+​I bolted down the hall to my sister's room. She was curled into a ball under her blankets, sobbing uncontrollably. I scooped her tiny frame into my arms, ran into the adjacent bathroom, and threw the deadbolt shut.
+
+​We collapsed into the dry bathtub, huddled together in the dark. I clamped a hand over her mouth, trying to keep us silent, but my mind was racing with terrifying regret. Why didn't I run outside? Why did I trap us in a dead end?
+
+​Knock. Knock. Knock.
+
+​The sound echoed directly against the bathroom door.
+
+​"I know you're in there," my father's voice purred, smooth and deeply unnatural. "Lily, be a good little girl and let Daddy in."
+
+​Lily shook uncontrollably, tears soaking my shirt. I wrapped my arms around her tightly, whispering directly into her ear, "I won't let anything happen to you, Lily. I promise."
+
+​KNOCK! KNOCK! KNOCK!
+
+​He hurled his shoulder against the wood. The door frame groaned, splinters bursting outward as cracks spiderwebbed across the paneling. He would be inside in seconds.
+
+​Desperate, I reached up and ripped open the medicine cabinet, grabbing a disposable razor. The moment his arm burst through the shattered wood to reach for the lock, I lunged forward and slashed the blade blindly across his face. He snarled, and I drove the sharp plastic corner directly into his left eye.
+
+​A blood-curdling shriek ripped from his throat. He stumbled backward, clutching his face, and went tumbling down the stairs.
+
+​"Come on!" I yelled, pulling Lily out of the bathtub.
+
+​We dashed out of the bathroom and crept down the staircase, straining to hear over the sound of my own hammering heart. The front door was only a few yards away. Safety was right there.
+
+​Then Lily screamed.
+
+​My father exploded from the shadows, snagging Lily by her hair and hauling her backward onto the living room rug. I spun around to charge him, but he swung his heavy arm, striking me square in the chest and launching me into the wall.
+
+​My head cracked against the baseboard. My vision blurred, swimmy and dark, as a deafening ring filled my ears. I couldn't focus, but I could hear it—a terrible, wet squelching and gargling sound from the center of the room.
+
+​When my eyes finally adjusted, my stomach plummeted. My dad was crouched over Lily’s small form, his hands working furiously with the knife. The sadistic smile was still pinned to his face, coated in red. Blood painted the walls, the carpet, the furniture.
+
+​"STOP! DAD, STOP! WHY ARE YOU DOING THIS?!" I screamed, my voice cracking.
+
+​He didn't even look at me. He just kept cutting.
+
+​Rage overrode my paralysis. I pushed myself up, stumbled into the kitchen, and yanked open the utensil drawer. My fingers wrapped around the heavy handle of a solid metal meat tenderizer.
+
+​I charged back into the living room and swung the mallet with everything I had.
+
+​The metal face struck the back of his head with a sickening crack. His skull caved, spilling him sideways onto the floor next to my sister. The hammer slipped from my slick fingers, clattering against the floorboards.
+
+​I fell to my knees, staring blankly at the nightmare around me, completely numb.
+
+​Sometime later, the dark living room began to pulse with red and blue light. The piercing wail of sirens filled the night air—a neighbor must have called it in. Armed officers burst through the broken front door, but their shouts sounded like they were underwater.
+
+​They hauled me out into the cold night, wrapped me in a blanket, and loaded me into the back of an ambulance. And now, I'm sitting here.
+
+10. Truth
+
+​"Three years, Mr. Bishop. Three years of the same fairy tale." Detective Sinclair leaned over the metal table, his voice a low grate. "A mysterious woman. A ghost. Your father losing his mind and butchering your family. But the fantasy is over. You’re already convicted. The only thing left for you to do is give your remaining family the truth."
+
+​"It's not a story," I whispered. "It's what happened."
+
+​Sinclair let out a long, exhausted sigh and reached for his coffee. "Your DNA was the only match on the tenderizer, the scalpel, and the butcher knife. Outside security feeds caught you pacing the yard with that knife three times before the first scream was ever heard. Your classmates said you were unraveling. You put a teacher in the hospital." He set the cup down with a sharp thud. "I’m not here to judge you anymore, son. I just want to hear you say it."
+
+​I stared at the scratches on the tabletop, offering him nothing.
+
+​Eventually, he gave up. The heavy latch clicked, and his footsteps faded down the concrete hall. Left alone, the weight of his words started to cave in on me. The paper trail was flawless. The science was absolute. Everything said I was a monster.
+
+​I know what I saw, I told myself. Don't I?
+
+​Exhausted, I lowered my head to the freezing steel. My gaze drifted toward the dark panel of the two-way mirror—and stopped.
+
+​She wasn't lurking in the shadowed corner behind me today.
+
+​She was sitting right across from me, leaning forward in Sinclair's empty chair. Slowly, her pale knuckles dragged across the steel, tapping out three deliberate strokes.
+
+​Knock. Knock. Knock.

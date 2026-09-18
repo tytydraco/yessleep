@@ -1,0 +1,71 @@
+I don't recommend driving at night when you're traveling.
+
+Obviously, what with all the stories of nighttime creeps, hidden backroads to get lost on, and any other strange things that go bump in the night. Your best bet is to just make the most out of the daylight you have, and try to stay safe if the darkness comes for you anyway.
+
+This is the kind of advice that normally is considered a small bit of nothing. A piece of an obvious routine that seemingly everyone knows and follows, like keeping the curtains shut at night, or thanking the cashier for helping with an order at a restaurant.
+
+Avoiding driving at night was one I had to learn the hard way.
+
+|
+
+About 2 years ago, my brother and I were taking a long weekend trip up north to the UP of Michigan for a small vacation. We had a small lot of property that resided at a campsite run by a couple that made friends with our parents, so we always had a place there to go to for summer trips, fishing, and being away from civilization for a while.
+
+This campsite was settled into the deep wilderness and hills of the UP, between Lake Huron and Lake Superior, with any towns a good twenty minutes away from each other by car. I have a lot of fond memories of our summers swimming in the lakes, having s'mores over bonfires, open night skies without light pollution, and many ghost stories of things that the land had within it before all of the modernized accommodations came here.
+
+I used to think I had seen everything there was to see up there. We had every mile, rock, tree, and wave ingrained into our minds, and the stories about the crazy hermit people or wild animals attacking were no longer as frightening compared to when I was a kid.
+
+But the tale from the time I am here to tell, there was nothing that I had seen, and no story I heard, that could make me understand.
+
+My brother and I had just crossed over the Mackinac Bridge at around 1 in the morning. We had been pussyfooting around in the drive up, and ended up going on later than we planned, but we both were a bit of night owls, so the hour didn't do much. We both were sucking down large iced coffees, eating timbits for a snack, and blasting music to distract from the boredom.
+
+It wasn't the first time we had gone up after sundown, and the roads were pretty dead, so we had no problem so far in our drive. After about half an hour into the UP, my brother started getting a bit woozy, slumping a bit at the wheel. So I offered to take over for him for the rest of the drive.
+
+We pulled off the side of the road next to some high cliffs, notorious for slipping rocks and landslides. There were small patches of trees on top, leading off into forests pitch black, even under the full moon up in the sky. Lining the road are small ditches, with various boulders worn smooth with glaciers and winters, if not crashed down from the cliffs.
+
+I had just stepped out of my seat, when I had the urge to pee, coming in hard and fast. Kicking myself for not using the rest stop at the bridge, I ran across the road, standing next to a large boulder to take care of business. As my back turned, my brother climbed into the passenger seat behind me, him sluggishly saying for me to hurry up.
+
+I had just gotten things done, ready to walk back, when a rustling made me stop. I stayed still. Animals appeared all the time at night here, it was normal. While I had no reason to be freaked out, this time I was.
+
+Looking out into the darkness, I listened. No footsteps, no grass shifting, nothing. Just as I was beginning to think it was just the caffeine and leftover adrenaline, I heard the rustle again, a lot less quiet. It sounded like something moving. Quickly and quietly. I looked back towards the truck to see how my brother was doing, but he had slumped in the seat, looking ready to knock out. I checked the darkness again, keeping my ears open.
+
+Not that it would be much help, as the night went silent. Not even the crickets made a sound.
+
+I blinked rapidly trying to get my eyes adjusted to the darkness, and a shape on its side came into view.
+
+Behind the boulder I was standing at, about twenty feet away, there was the carcass of a deer. Not an uncommon sight, roadkill being pulled off the road happened all the time. Except, this one didn't look dead. I could see it twitching and jerking in short bursts, like a death rattle, but drawn out. Something felt wrong with it going on that long, and my mind immediately went to a wolf or a bear getting a meal.
+
+Until I could focus on what was behind the deer.
+
+Limbs. Long, pale, sinuous limbs. Bent at angles that no creature should be able to make, tight and angular, stretched thinly over bone like a fleshy spandex.
+
+I couldn't see the head, but I knew where it was. Inside the deer. And my stomach lurched when wet crunches and sickly squishes came into my ears.
+
+As silently as possible, I backed up behind the boulder, pleadingly looking at the truck window for my brother, but he seemed out of it and didn't look up at me. I crept along the boulder, keeping my steps short to not make any noise. Until the crunches and squashes stopped.
+
+I froze.
+
+My whole body went stony, not even my breathing making a sound. I heard steps behind the rock, and scratching, until a small shadow peeked over the edge of the boulder, getting longer and longer under the moonlight.
+
+If I had to guess, the boulder was just short of ten feet tall. And whatever it was was able to see over it.
+
+Heart in my throat, I lifted my eyes.
+
+It looked back, but I didn't see any eyes. All I was able to see were two luminescent voids. A pair of non-human, yet non-animal, completely white pits stared back at me. They were sheltered in sockets that appeared less hollow than the eyes they held. The skin around them didn't look like skin, as if the head was picked clean of any meat, but left the greying rotten decay behind.
+
+I was completely rigid, not even daring to breath anymore, or blink. Somehow I knew if I even shifted a little, I would be dead. The worst kind of standoff, and I was right there in it.
+
+I don't know how long we stayed like this, but from back across the road, a branch broke. The entity jerked its head to the noise, and faster than anything possible, it grabbed the dead deer, climbed up the crumbling cliff, and vanished into the darkness. My body hasn't caught up to the absence of the creature yet, and stayed frozen. It wasn't until I forced myself to blink that I snapped out of it. Not waiting for any other strange things, I bolted back to the truck, slammed and locked the door, and peeled off down the road before my brother could even fully wake up.
+
+I kept speeding down the road, not taking my eyes off where the headlights glowed and not slowing down for anything. It wasn't until my brother grabbed onto my shoulder that I hit the brakes, shaking and terrified. He was able to get me to calm down, but I kept my eyes open for any pale skin or too long limbs. When I was able to get back to driving, we got to the camp, and left unpacking for the morning.
+
+I don't know how I slept that night, but I did. But I didn't rest easy. All I could think of was that thing I had seen, and what it even was. I was never a believer in the supernatural, and there were no sightings that night of any strange animals like that we'd ever heard or seen before. And when I told my parents friends, they had no idea what it could be either.
+
+That trip was not spent peacefully, I could barely sleep at night, wondering if any noises I heard would be that thing again, keeping all of the curtains drawn and a flashlight at the ready. My brother asked, but no chance would he believe me about some monster out in the woods. It wasn't until we were back over the bridge that I felt safe. Like whatever it was, it wouldn't cross the lakes to follow us.
+
+I don't know when I'll be going back up to the UP, but I know it won't be at night. I never drive out late at night again, even at home. I know that I have nothing to be afraid of, and the familiar roads of my hometown have nothing waiting for me in the darkness.
+
+But at night, in my panicked state, all I see are the eyes.
+
+Time only puts more detail on them than I would like. Blind, but alert. Blank, but aware. Corpse like, but alive. Coming into light under a full moon, making them appear glowing. Like they were eating the moonlight itself.
+
+I don't know why, but that is all I can think when I remember those eyes. Those ravenous, predatory eyes. Coming from an entity that appeared starved beyond death, all I knew was this: its eyes were hungry. And they didn't lose their meals easily.

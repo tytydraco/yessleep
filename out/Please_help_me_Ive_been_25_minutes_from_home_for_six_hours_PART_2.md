@@ -1,3 +1,5 @@
+[PART 1](https://www.reddit.com/r/nosleep/s/YP1LHtfmeL)
+
 I woke up in the hospital with absolutely no idea how long I’d been there.
 
 I remember opening my eyes because something was squeezing my arm. I heard the mechanical sound of the blood pressure cuff tightening.
@@ -18,7 +20,7 @@ The smell of harsh hospital cleaner.
 
 Then I realized there was an IV in my arm.
 
-Matt was asleep in a chair beside me, his head rested cradled in a neck pillow that pressed his cheeks up like a chipmunk.
+Matt was asleep in a chair beside me, his head cradled in a neck pillow that pressed his cheeks up like a chipmunk.
 
 It gave me a little needed comical relief. 
 
@@ -32,7 +34,7 @@ After that, things got fuzzy.
 
 Matt sat up beside me, removing the neck pillow he leaned forward with a compassionate look in his eyes.
 
-I turned my head toward him. I erupted into tears.
+I turned my head toward him and I erupted into tears.
 
 He rushed to my side and leaned forward, giving me an awkward half-hug from above.
 
@@ -47,10 +49,6 @@ He looked like he’d either been crying or hadn’t slept, but he wasn’t abou
 “A few hours.”
 
 I swallowed.
-
-My mouth tasted disgusting.
-
-In hindsight, the taste of blood in the car earlier should have been a giveaway that I’d had a seizure.
 
 “What happened?”
 
@@ -68,7 +66,7 @@ Apparently I’d been brought to Brooke Army Medical Center.
 
 They’d given me Keppra again. I’d been off the medication for months without issue.
 
-I stared at the Keppra IV drip filled with rage, I visually traced the IV tubing down into my arm. I hated it, it felt like poison entering my veins.
+I stared at the Keppra, I visually traced the IV tubing down into my arm. I hated it, it felt like poison entering my veins.
 
 The working assumption was fairly straightforward: I had a complicated neurological history, somewhere along the line my seizure threshold had apparently decided to betray me again.
 
@@ -354,7 +352,7 @@ All I could see was the side of his head.
 
 I ran.
 
-I didn’t think about the IV. It ripped from my arm as I fled. I didn’t think about Matt, frozen back on the room. I didn’t think about anything except getting away from whatever the fuck I had just seen.
+I didn’t think about the IV. It ripped from my arm as I fled. I didn’t think about Matt, frozen back in the room. I didn’t think about anything except getting away from whatever the fuck I had just seen.
 
 I tore out of the room and into the hallway.
 
@@ -372,7 +370,7 @@ The nurse who had been irritatingly cheerful every time she came into my room.
 
 I have never been so relieved to see another human being in my life.
 
-I rushed her before I even thought about it.
+I rushed to her before I even thought about it.
 
 I grabbed her and wrapped my arms around her shoulders.
 
@@ -380,7 +378,7 @@ I grabbed her and wrapped my arms around her shoulders.
 
 She spoke but it wasn’t her peppy high-pitched voice instead it was electronic, deep and warped.
 
-“Girly, calm down, they just need their mother.”
+“Girly, you’ve gone too far.”
 
 I looked up at her, her face was absent of her annoyingly cheerful smile.
 
@@ -422,8 +420,6 @@ I stepped backward.
 
 Blood dripped onto the front of her scrubs.
 
-“No. No, no, no, no, no.”
-
 Then the smile disappeared.
 
 Her entire face became completely blank.
@@ -444,9 +440,7 @@ I screamed and ran.
 
 I turned down the first hallway I saw.
 
-Then another.
-
-Then another.
+Then another and another.
 
 I had no idea where I was going.
 
@@ -512,15 +506,13 @@ Then my forearm.
 
 My right leg started feeling heavy.
 
-“No, no.”
-
 I tried to take another step.
 
 My foot dragged again.
 
 Then the nausea hit, I doubled over.
 
-It was so sudden that saliva filled my mouth and for a second I thought I was going to throw up right there on the floor.
+It was so sudden that acidic saliva filled my mouth and for a second I thought I was going to throw up right there on the floor.
 
 Then came the heat.
 
@@ -565,8 +557,6 @@ My phone was still in the room.
 I had left it beside the bed.
 
 With whatever the fuck was happening back there.
-
-“Fuck.”
 
 I actually stood there for a second trying to decide if I would rather collapse in that hallway or go back.
 
@@ -620,7 +610,7 @@ I can get around her.
 
 I started crawling.
 
-Her head rotated, as if it, her could sense me in the area.
+Her head rotated, as if she could sense me nearby.
 
 I stopped.
 
@@ -668,7 +658,7 @@ Her neck completed the rest of the rotation.
 
 Snap.
 
-Her face was forward again facing down the hallway again.
+Her face was forward again facing down the hallway.
 
 It looked almost normal.
 
@@ -696,12 +686,6 @@ I moved the other direction.
 
 His head followed.
 
-That was when I understood.
-
-It wasn’t about where they were looking.
-
-It was about where I was.
-
 Anywhere I moved, his face turned away from me.
 
 Like he could detect exactly where I stood even without seeing me.
@@ -728,15 +712,7 @@ Missed.
 
 I stretched farther.
 
-My fingertips touched the edge.
-
-The phone slid.
-
-“No.”
-
-I reached again.
-
-My hand finally closed around it.
+My fingertips touched the edge and my hand finally closed around it.
 
 The second I got close enough to pull it toward me, something changed.
 
@@ -776,7 +752,7 @@ I held the phone tighter.
 
 Then I remembered where I was.
 
-I needed to get the fuck out of there.
+I needed to get the hell out of there.
 
 I crawled backward.
 
@@ -796,10 +772,6 @@ Waiting for her to suddenly start running toward me.
 
 Nothing happened.
 
-Only the head.
-
-As I crossed behind the nurses’ station, it rotated again.
-
 I crawled until I was far enough away that I felt safe standing.
 
 I checked my phone.
@@ -810,7 +782,7 @@ Connected.
 
 Everything looked normal.
 
-“Thank fucking God.”
+“Thank God.”
 
 I didn’t care where I went after that.
 
@@ -827,8 +799,6 @@ That was when I really started noticing how quiet the hospital was.
 It didn’t look abandoned.
 
 That would have made more sense.
-
-It looked occupied.
 
 A pen had been left across an open chart.
 
@@ -921,5 +891,3 @@ A notification was sitting across the top.
 Wi-Fi Networks Available.
 
 LIGHTHOUSE\_PARENT
-
-[PART 1](https://www.reddit.com/r/nosleep/s/4QnlqiwwGU)
