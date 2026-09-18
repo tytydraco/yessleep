@@ -1,0 +1,63 @@
+My name is Julian Marsh, just a small farmer in a village no one cares enough about to name. But that small village was my home and my everything, someplace that I'm not sure I can ever go back to.
+
+It happened a week ago. A week that should have been like any other, but when I woke up, I found a strange black mist that enveloped everything around me. I reached out, and the mist felt thick and alive against my skin. The strangeness made me pull my hands away----Mary wasn't so lucky.
+
+I----I saw how those monsters dragged her eyes down her face. They slowly picked around the rest of her organs like she was some sort of toy, her screams echoing through my open window.
+
+I got up from my bed, then pushed the windows closed to try to hide from the horror below, and then when I looked down, all I saw was darkness and nothingness. I didn't know what to do, so I decided to look for someone around the village while walking to the Chief's House.
+
+The Chief's wife claimed to be well-versed in matters of the occult, and she had boasted of being once a student of a psychic, so I had hoped that she would make any sense of what all of this was. 
+
+Our village was small. I knew every path and how long each walk should take. But that morning, the journey to the Chief's house felt impossibly long, as if the space between my home and his had been stretched impossibly.
+
+As I followed my route, thoughts popped into my head so I didn't go crazy from the silence. Our village was small but never silent. It felt like the whole world around us had been blocked by whatever this black mist was. 
+
+I'd noticed a strange group around the village. They wore robes and lingered in the forest. The Chief had questioned them. After all, it was stranger to see a group of robed strangers on this path than it was to see a noble take an interest in our village. We were told they were just research students from the Citadel, experimenting on something called Increatus.
+
+They were not bad people; Kalus had helped me too frequently on the farm, and so were his friends, but if I had to point at anything strange or out of this village's norm, then it'd be them.
+
+I knocked on the Chief's door as it echoed with the groan of the decaying wood. Once. Twice, and yet still nothing on the third time. That's when I knew something was wrong because, you see, the Chief is more like the totem for the village.
+
+Have a child that won't listen? Find the Chief
+
+Caught your spouse in another man's bed? Find the Chief
+
+Strangers in the Village? Find the Chief.
+
+It hilariously became the village's anthem for as long as I could remember, and the Chief knew this too. So the first knock was all that was needed to bring the Chief to the door, and I'm on my fourth that was also greeted with silence and the black mist that still twists all around the village.
+
+It means either the Chief had kicked the bed, which could never have happened silently in this village, or this was a dream. I desperately wished for it to be a dream, but I knew myself.
+
+Steadying my nerves, I pushed the door open. I'd barely taken a step inside when I tripped, falling face-first onto the floor with a thud. I groaned and pushed myself off the warm, sticky wetness, and as I couldn’t see, I patted around until I felt a solid mass.
+
+I moved my hands across the shape, and the longer I spent feeling around, the clearer—and worse—the situation became. They were bodies. Two corpses, and they certainly belonged to the Chief and his wife.
+
+"No...no. Chief?! What happened?!" 
+
+I screamed as loud as my voice could, my hands furiously tapping on them in a futile attempt to wake them up. That was until a soft shriek in the darkness muddled my sobs.
+
+I was alone in the room. I'd made sure of that, and the Chief had no pet. I stood up, covering my mouth and holding my breath as I traced my steps back to the door. My instinct screamed at me to get away. I was not the most fit, and I knew looking or fighting against whatever that was in a place I couldn't tell where my hands were was nothing more than a death wish. I had no intention of dying.
+
+A few more steps later, I heard the familiar groaning of the door's frame as I pushed it open and stepped out. I turned back, but all I could see was the still darkness and the horror I knew I left behind.
+
+The only thought that remained with my despair was that the same fate had happened to everyone else. What if I was the only one alive? Well, perhaps thankfully, the shriek that drew closer didn't give me enough time to linger in this dreadful reality. All I knew at that moment was that I had to survive.
+
+So I ran, as fast as the legs of a twenty-seven-year-old farmer could take him, from the horror. I couldn't remember if I stopped because I couldn't run anymore or I stopped because I couldn't hear the sounds anymore.
+
+When I came to, I found myself sprawled on the ground, heaving deeply to catch my breath. I found I had made my way to the village hall, the building standing silently in front of me.
+
+So I made my way there, with a glimmer of hope that I'd be able to find someone else there. And in front of me was Mary—alive, whole, standing guard before the village hall as if nothing had happened. The same Mary whose eyes I had watched slide down her face a moment ago.
+
+But of all the thoughts of mine, all I felt in that moment was joy. I was not alone in this hell.
+
+\*\*\*\*\*\*
+
+Hello everyone. I recently joined a strange company on the dark web. They gave me this excerpt to read as part of my orientation.
+
+As I read it, something felt deeply wrong. Not just the story itself—but everything about it. Like it was something that happened, not just fiction.
+
+I wanted to ask if anyone here knows anything about this company. The name is \[REDACTED\].
+
+This is only the first part. There's more, but I don't know if I should post it. The warnings and terms that came with it were... unusual. I'm not someone who usually reads those things, but something told me I had to. Maybe I shouldn't have. Because what I found in those terms made this company so much stranger. And now I'm not sure if I'm reading a story... or a warning.
+
+Thanks for any help you can give.
