@@ -34,29 +34,29 @@ Someone had circled it in red ink. Underneath, my supervisor had written:
 
 *Let’s see where your loyalties are.*
 
-I wish I could say the note offended me. I knew Town had a habit of framing folk as "Guppy-lovers" if they had an infestation, even if it was as simple as them getting in through a crack. 
+I wish I could say the note offended me. I knew Town had a habit of framing folk as "Guppy-lovers" if they had an infestation, even if it was as simple as them getting in through a crack.
 
-Mostly, it scared me. 
+Mostly, it scared me.
 
-If I refused the assignment, company policy required dispatch to suspend my license and send a second crew. Same as if I refused any job. 
+If I refused the assignment, company policy required dispatch to suspend my license and send a second crew. Same as if I refused any job.
 
-I signed the bottom of the work order. 
+I signed the bottom of the work order.
 
-"I'll take care of it," I told my supervisor. 
+"I'll take care of it," I told my supervisor.
 
-All he did was nod and smile. 
+All he did was nod and smile.
 
-Town gave us six hours to clear a residential colony. The clock started the moment the technician accepted the order, which meant I had until four that afternoon to produce a body count matching the thermal estimate. 
+Town gave us six hours to clear a residential colony. The clock started the moment the technician accepted the order, which meant I had until four that afternoon to produce a body count matching the thermal estimate.
 
-My wife was working, and Lilith was at school. 
+My wife was working, and Lilith was at school.
 
-I drove home alone. 
+I drove home alone.
 
-I had never heard anything moving inside Lilith's walls before. 
+I had never heard anything moving inside Lilith's walls before.
 
-Her bedroom door was closed when I got in. 
+Her bedroom door was closed when I got in.
 
-I opened it and stood there for a moment, surveying the area. 
+I opened it and stood there for a moment, surveying the area.
 
 Her room looked more or less the same. Unkempt bed, clothes strewn about. She had one of those expensive wooden dollhouses against the east wall. It had working doors and little battery-powered lights. Her grandmother bought it for her three Christmases ago.
 
@@ -254,7 +254,7 @@ He removed his thermal reader and swept it across the wall. Orange shapes scatte
 
 He aimed the reader at the dollhouse. Three smaller signatures glowed inside it.
 
-I felt something cold move through my stomach. I had missed them. I didn't even bother opening the dollhouse to check. 
+I felt something cold move through my stomach. I had missed them. I didn't even bother opening the dollhouse to check.
 
 My supervisor walked over and lifted the roof from it.
 
@@ -366,7 +366,7 @@ I had answered that question for homeowners plenty of times, but never for the p
 
 “Freddy,” my supervisor said. “Turn the goddamn valve.”
 
-I reached for the valve, but then my supervisor's left foot began to tremble against the floor. 
+I reached for the valve, but then my supervisor's left foot began to tremble against the floor.
 
 At first, I thought he was tapping it impatiently. Then his knee buckled sideways, and the clipboard slipped from his lap.
 
@@ -382,7 +382,7 @@ The needle. He looked toward the outlet.
 
 “You little fucking—”
 
-His jaw locked before he could finish. His teeth clicked together, and his right arm drew tightly against his chest. 
+His jaw locked before he could finish. His teeth clicked together, and his right arm drew tightly against his chest.
 
 From inside the wall, the woman asked again.
 
@@ -524,7 +524,7 @@ She paused.
 
 “You counted eighty-six at Hartwell.”
 
-I remembered. The quarterly bonus had paid for Lilith’s dollhouse.
+I remembered. The quarterly bonus had helped pay for the house.
 
 “How many survived?” I asked.
 
@@ -574,11 +574,11 @@ I called my wife and told her to leave work, collect Lilith, and cross the north
 
 Then I carried the tote downstairs.
 
-Nineteen people weighed less than my extermination equipment. 
+Nineteen people weighed less than my extermination equipment.
 
 My supervisor’s truck blocked the driveway, so I took his keys and moved it onto the grass. Before leaving, I smashed his phone and radio. Anything to buy time.
 
-He would live. He shouldn't have got to. But I destroyed enough lives. 
+He would live. He shouldn't have got to. But I destroyed enough lives.
 
 The checkpoint officer opened the tote before letting me cross the bridge. He looked at nineteen transparent bags, nineteen barcode labels, and nineteen bodies lying perfectly still.
 
