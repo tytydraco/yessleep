@@ -168,3 +168,5 @@ I said absolutely nothing, and placed the churros in the walk-in.
 I have a bunch of other stories to talk about. But I hope I don’t need to share those with you guys before somebody can get this place shut down. Again, the name of this restaurant is “Large Lou’s Pizza”. Please, I don’t care if you need to get the FBI involved or something, I just can’t stand the disgusting things that are happening at this place anymore.
 
 If nothing’s happened in the next week, I’ll make another post, maybe that will help convince you, and that gives me time to write it all down.
+
+[Next Part](https://www.reddit.com/r/nosleep/comments/1wktd9o/a_duck_follows_me_to_large_lous_pizza_and_hes/)
