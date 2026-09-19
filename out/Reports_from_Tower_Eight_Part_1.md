@@ -1,0 +1,177 @@
+With a deep sigh of contentment, I leaned on the red metal handrail and stared out over the valley below.
+
+*This is so freaking cool.*
+
+Underneath me, the old fire watchtower let out a few small *creaks* in the cool mountain breeze as if in agreement, its painted girders stretching through the green conifers to the ground. My battered old Subaru looked like a toy from up here, parked at the base of the tower inside the rectangular perimeter fence. Aside from the clearing where Tower Eight stood, there wasn’t much else around us to signal the presence of human civilization. One single-lane gravel road spanned the valley between the mountain I stood on and the one across from it, but it was so narrow that the trees almost concealed it entirely. A row of old power lines ran up the opposite mountain slope, but these too were crowded by the vegetation, visible only from certain places in the peaks to the east. This far north in the remote mountains of the American West, I didn’t even have good cell service or Wi-Fi, just an old army surplus radio in the tower’s main cabin, a black hand-held walkie talkie for mobile patrols, and a winding half-hour drive to the nearest town. To anyone else such isolation might have been unnerving, but for me it was paradise.
+
+“Think you can handle it?” My supervisor, Esko, appeared at the rail beside me, his blue eyes taking in the landscape with a faint trace of nostalgia. Twice my age, Esko was a man of few words, but he’d explained the job well enough, and we got along fine. It was a far cry from the handful of minimum-wage jobs I’d worked before coming here.
+
+“Absolutely.” I angled my head at the windows behind us, the wide panes present on every side of the 400-square-foot metal box that would be my home for the next three months. “Already have my gear stowed and everything. Thanks again by the way, this is amazing.”
+
+He laughed, though something in Esko’s face strained, as if he were listening to a joke that wasn’t as funny as it used to be. “Yeah, well, we’ll see how you feel at the one-month check in. The quiet can get to a man after a while, especially you kids without your phones. But, hey, I’ve got faith in you. You remember the mainline frequency?”
+
+“Got it preset in the radio and written down just in case.” I stood a little taller at that, proud to be ahead of the curve.
+
+“Good.” Esko lifted his plain white coffee mug to sip from the tar-black concoction inside and gestured down the valley. “Remember, one of us is always listening on the other end, so if anything goes wrong, don’t hesitate to call. If I’m not there, it’ll be Andy or one of the other old-timers, and they’ll back you up. Just stick to the routine, watch your sectors, and you’ll be fine.”
+
+With a nod, I followed him down the metal stairs to the ground where his green Chevy pickup waited. Hitting the button to open the truck gate via its electronic motor, I waved as he braked to a stop just before leaving. “See you in thirty days!”
+
+At that, Esko leaned out of the driver’s window to look me dead in the eye, and any pretense of a smile left his face. Instead, he wore a grim, almost nervous look, the kind my schizophrenic roommate sometimes had back in college when he thought he saw shadow people in the doorway. “You be careful out there, alright? It’s not your job to be a cop, or a hero, just keep an eye out for the things we talked about; fires where they shouldn’t be, smoke in the restricted zone, or headlights in the closed road sections. You’re the last tower we have this far north, so there’s no room for error.”
+
+Once again, I flashed him a thumbs up, though I worried that perhaps he didn’t fully trust me with the job just yet. Had I done something to make him think I wasn’t capable? Had I been too eager? Too confident? True, I had never been a fire lookout before, but I knew I could pull this off. It was just watching for smoke and flames after all. So long as I didn’t neglect my duties, how hard could it be?
+
+*Maybe the last guy was just that bad at it.*
+
+Esko watched me, as if hoping I might change my mind and hop in my car to speed away. When I didn’t, he sat back in the Chevy’s bench seat with a long, wary glance at the surrounding trees.
+
+“Don’t go wandering.” He spoke without turning his head, still watching the trees as if looking for something, the man’s face a blank sheet of cryptic tension. “It’s easy to get lost out there. Can’t always trust the trails.”
+
+I waited for him to say more, but Esko simply put the old truck in gear and drove off down the gravel road, the chain link gate sliding closed on its automated timer. Within moments, I was alone, likely the only human being for dozens of miles, and as the gate clanked shut, I let out the deep breath I’d been holding.
+
+*No turning back now.*
+
+Finding a job hadn’t been easy since I graduated from college, laden with debt I couldn’t afford, and blessed with a degree that no one wanted. It seemed every place was ‘hiring’, but they weren’t interested in interviews, never called or emailed me back, and rarely bothered to send a notification that they’d moved on with another candidate. From factories to office jobs, everyone wanted someone with ten years of experience, three different degrees or certificates, and yet willing to work seven days a week for pennies on the dollar. Even listings with slightly more realistic standards were unresponsive, so when I stumbled across the job posting for the Jacobs Fork Wildlife Department, I fired off my resume without a second thought. Apparently, the park I was helping to oversee had been closed for several months due to ‘local government restrictions’, but the staff were hoping to get a few good months of tourism in before winter. They needed watchmen for one of their fire towers, and I needed something, *anything* to avoid being forced to seek out my parents with my tail between my legs.
+
+Not that there was much to go home to.
+
+As soon as I walked across the graduation stage, my mother and father had essentially kicked me out, declaring I needed to ‘learn how to manage on my own’ while they put the family property up for sale. That two-story farmhouse had been in the Sarden family for over eighty years, survived both world wars, practically rebuilt by my grandfather from the inside out. When I was little, he’d told me the story of how he did all the work himself, brick by brick, board by board, laboring in the evenings while working at the local coal mine during the day. The house was a vestige of him, his soul, his entire life, and the life he’d made for his family. Grandpa meant it to last his descendants for generations.
+
+My parents sold it for a beachside villa with cheap property taxes and a Cuban landscaper.
+
+*Yet they still wonder why I don’t answer their texts.*
+
+Breathing out an exasperated sigh, I shook my head to clear the angry thoughts away and turned back to my newfound domain. I wouldn’t let bad memories ruin this. Today was *my* day, and for once, I would be happy.
+
+Being a tower watchman proved a straightforward task. As I was on the night shift, with another fire tower somewhere to my south keeping watch during the day, I spent the morning in my bunk inside the tower cabin trying my best to sleep. Restless from excited disbelief at my new career, I would occasionally get up, pace the rail to check with my binoculars for distant signs of smoke, and settle back down in my cotton sheets with a giddy smile. Once evening rolled around, I made dinner (or rather breakfast, given my schedule) in the tower’s small kitchen and ate ramen noodles with the entire northern mountain range for a scenic view.
+
+In my mind, I was the luckiest man alive.
+
+Before the sunlight could vanish completely, I attended to more basic chores, gathered trash for the dumpster at the base of the tower, and checked the solar battery array like I’d been taught. There was an aged natural gas generator that could act as a backup just in case, but I didn’t think it would be an issue. With the panels mounted high up on the tower, they got all the sun they needed to keep what few electronics I had with me well-powered. As the night drew closer, I switched on the interior lights and found myself adrift on an island of golden warmth, floating in the dark treetops as the stars twinkled in the vast sky above. With a cup of sweet tea in hand, and a book I’d brought along for just such occasions, I spent my first real night in the wilderness checking for distant fires while the crickets sang and the wind whispered through the trees.
+
+It was just after sunrise that I spotted the first marker.
+
+I had reported via the station radio to a ranger named Melonie from Tower Seven and was busy shutting down the ground-level courtyard lights on Tower Eight. My eyes were heavy, my stomach rumbled, and I had a drowsy grin on my face. The first shift had been easy, peaceful, possibly the best day at work I’d ever had. I decided I wanted a nice, hearty breakfast (technically dinner, I guessed . . . this schedule thing would take some getting used to) as a reward, and thought about what I would make from the generous provisions in the tower pantry. Visions of pancakes, sausages, and scrambled eggs danced in my head, and I was just about to turn back to the winding steps of the tower when I saw it.
+
+A little pile of bones sat roughly twenty yards outside the chain-link fence at the base of the tower, half-obscured in the shadow of large tree on the western edge of the clearing. The bones were a pale, yellowish-white, bleached by countless days in the western sun, and held together by what at first looked like overgrown weeds. Upon stepping closer to peer through the fence, I realized it was actual cordage, thin bands of rope or twine spun together from natural fibers, laced throughout the stack to hold everything in its place. Tufts of muck, ferns, moss and who knows what else were jammed between the various bone lattices that made up the four-sided walls of the pillar, like chinking in a log cabin. The whole thing stood no more than a foot or two high at best, and at the very top, nestled among a thick black smear of some unknown source, was a skull.
+
+I swallowed from behind the chain-link, a ripple of unease traveling down my back as I stared into the hollow sockets of the weathered cranium. It appeared to be some kind of smaller animal, perhaps a beaver or otter, but I couldn’t be sure. Despite my new job, I was hardly a wildlife expert and wasn’t much of a historian when it came to Native American folklore. Was that what this was? Some kind of tribal thing? I hadn’t noticed it the day before, but then again, I wasn’t looking that hard either. It wasn’t as if I knew this place that well, I hadn’t even taken a hike down any of the surrounding trails yet. For all I knew, it might have been there for weeks.
+
+*Of course it’s been there for weeks, look how faded the bones are. It’s probably just some kind of religious thing the reservation tribes do. No big deal.*
+
+Yet the longer I stared into the empty eye sockets, the more a tide of nausea welled in my gut, cold sweat beading across my forehead, and a barely perceptible ringing started in my eardrums. My throat went dry, the walls of my esophagus scraped together like sandpaper, and my head began to ache with a spinning sensation. The cold chain link stung against my fingers, the muscles tight in both hands, and my heartbeat roared inside my veins until it hurt.
+
+I couldn’t look away.
+
+I wasn’t meant to.
+
+“Morning!”
+
+With a gasp, I blinked, my eyes burning and watery as I lurched away from the fence. The ringing faded, the dizziness slowed to a low *thump-thump* of a headache, both lungs opening at last to accept deep gulps of fresh air. Just as quickly as it had come, the strange sensation was gone, and I turned to squint at the nearby southern trailhead from where the voice had risen.
+
+A hiker sauntered my way, smiling jovially with aluminum trekking poles in each hand, wearing a gray backpack and broad green hat. He sported a red T-shirt with a sports logo on the front, as well as brown khaki pants and boots fit for the occasion. I guessed the man to be in his early to mid-thirties, with close cropped hair the color of damp sand, thin-rimmed glasses atop his crooked nose, skin already glistening with sunscreen that he’d applied liberally. An army-style canteen sloshed at his belt, and a pair of binoculars hung in another pouch on the opposite hip.
+
+“Morning.” I managed to rasp out, my throat sore as if I’d smoked an entire pack of cigarettes.
+
+He stopped on the other side of the fence, and the hiker wiped sweat from his brow with a congenial sigh. “Whew, those trails are no joke. Hope I’m not bothering you too much, but the map said there was a ranger station up this way, so I thought I’d drop by. I have a permit to camp in the upper valley, and I was wondering about your rules on firewood?”
+
+It took me a moment to recover my good senses, and I nodded, gesturing to the surrounding trees as the information from my training kicked back in. “Yeah, there’s a few designated camping areas about ten miles northwest of here where you can set up a fire. It’s all got to be in the metal fire rings though. Gathering dead wood is cool, just no cutting down live-standing trees. When you leave, make sure to put everything out with—”
+
+“Whoa.” His eyes grew wider, and the man broke through my speech to point at me through the fence. “Are you alright, buddy? Your hands . . .”
+
+Brow furrowed in confusion, I lifted my palms up to examine them and found each covered in blood. A line of cuts ran across my fingers and both thumbs, thin and uniform, so that trickles of red dripped down my wrists and slithered over my elbows in long, warm streams. It wasn’t fast, superficial at most, but the pain seemed distant, almost muted in comparison to my shock.
+
+*How did I manage that?*
+
+My eyes rose to the bone marker, and I swallowed a lump in my throat, tasting metal as I did so. “It’s nothing I . . . I cut myself. On the wire. An accident.”
+
+The hiker’s eyebrows rose, and he let out a sympathetic whistle as he eyed the fence with disapproval. “Man, the government really lets their stuff go, huh? I’d make sure you rinse that out real good if I were you. Don’t want to get tetanus from all that rust.”
+
+“I will, thanks.” I pivoted my hands so he couldn’t see them, blood still dripping slowly from my fingertips onto the pine needles. “Have fun out there. Be careful on the trails.”
+
+The man left with a happy spring to his step, and I waited until he was out of sight to uncurl my fingers. They hurt now, as if him leaving switched on my pain receptors, and I prodded at the shallow wounds in frustration.
+
+*You hurt yourself on the first shift. Nice. Way to go, Lucas.*
+
+On further inspection, I couldn’t find any sharp edges on the chain link, no poorly maintained areas where I could have sliced myself up, only dried blood in the spot I’d gripped the wire before. Had I really squeezed it that hard? Had the strange episode with the pile of bones actually happened? It seemed like a nightmare, an odd dream that rattled me to my core as I dared to sneak a glance back at the pillar.
+
+Nothing came over me this time, no odd feeling or ringing in my ears, and after a moment of staring, I shook my head at myself.
+
+*Maybe I’m just tired. I’ve been up all night. Probably low blood sugar or something.*
+
+Though uncertain, I forced myself to put the strange marker out of my head and climbed the steps to the tower. Once there, I washed and bandaged my palms, the cuts not very deep, and then went on to make a full breakfast spread for myself, pancakes, sausages and all. It was a lovely meal, especially with the gorgeous sunrise peeking over the mountains to the east, and I was able to talk myself into a reasonable train of thought at last. Yes, of course it had been my fatigue, my anxiety from the first day of work and who knows how much stress and pressure from the lead up to finding this job. I didn’t have any kind of mental issues or disorders, but anyone could overstress themselves, and human brains were funny things. Perhaps I had simply pushed myself too hard these past few months. I needed a rest, that was all, and by tonight I would be right as rain again.
+
+I did my best to sleep after clearing up the dishes and managed to drift off just as the midmorning sun began to filter through the blinds. What came after was a strange blackness, one filled with whispers of a dream, the shadow of something looming in my mind, but when I awoke several hours later, I couldn’t remember any of it. It was as if the instant my eyes opened, the memory erased itself, leaving me feeling both unsettled and sore from what must have been hours of tossing and turning. With nothing else to do, I rose to shower off the negative sensation and dressed for day two of my new life.
+
+As it was still early in the afternoon, with several hours before shift change, I decided to take a walk in the forest. I had a topographical map from the tower along with some basic hiking gear, and the late-summer day was too gorgeous to miss sitting inside. Eager to burn some calories, and maybe get some nice pictures to post on social media whenever I finally had service again, I headed to the man gate in the chain link fence with the sunshine on my back.
+
+No sooner had I locked the gate behind me and my stomach tightened, both eyes locking onto something in the trees.
+
+To the west, just beyond the first one, another pillar stood a further twenty yards into the woods, made of similar materials and construction. This one was also knee-high, but the skull atop it, taken from some creature unknown to me, looked away to the lonely mountain across the valley. It lay in the cover of some ferns, but was undoubtedly different than the first, and for that reason I found myself stopped dead in my tracks.
+
+No matter how much I tried to think back, I couldn’t remember there being more than one.
+
+*I should report this.*
+
+It came to me like a thunderclap, a decisive moment of clarity that helped break my shock. As per official instructions, if I saw anything that I found suspicious, I was supposed to call it in to the other rangers. This certainly counted as suspicious, didn’t it?
+
+My hand was on the black walkie talkie that hung by my belt, when once again, icy doubt crept into my mind.
+
+*Was* it suspicious, though? After all, my first assumptions about the pillars could turn out to be correct; they might be nothing more than art, or religious symbols made by local tribals. In fact, they might be some kind of college art project by kids in the woods, or even a prank by someone giggling in the bushes just out of sight. I hadn’t looked to see if they were there on the first day, and if my observations had been so lackluster, who was to say I hadn’t also missed the second pillar? Besides, our radios were tethered to a park-wide communications frequency; if I called to ask about a few piles of bones like a frightened child, I would look foolish in front of the entire ranger force. They might even reconsider allowing me to go back out for another month-long rotation if they thought I was losing my grip on things. I had to show that I could take care of myself, both to them, and to the nagging insecurity inside my head. This was nothing more than a distraction, one I didn’t need, and the stakes were too high already.
+
+With a deep sigh of annoyance at myself, I lowered my hand and turned my back on the piles. This job was my chance at something better. I wasn’t about to let some stupid trail markers scare me off. Today, I would enjoy a pleasant walk, and later tonight some quiet reading beneath the stars while on duty. If anyone was out there, hoping to scare me with their crude joke, then they would just have to try harder.
+
+Walking proved to be as good for me as I’d hoped, the crisp mountain air, ample sunshine, and gentle breeze refreshing after my idiotic turmoil over the bone pillars. It was invigorating to think that I was being paid, actually *paid* to be out here walking around in nature all by myself. The beautiful green valley yawned between my mountain and the opposite one, and small streams flowed down to a central river in the valley floor that ran alongside the gravel road, both invisible from this high up thanks to the dense foliage. A few birds sang in the trees, the air tasted sweet of pine and ice from the mountain peaks further up slope, and the narrow trails crunched agreeably under my boots with a carpet of dried pine needles. It wasn’t a silent place, not with the distant hush of the river, the birds and other creatures making noise in the forest, or the wind whispering through the boughs, but compared to my cramped apartment in the big city it was soothingly tranquil. I had no noisy neighbors, no barking dogs, no car horns or occasional sirens to intrude on my thoughts. Here, in this hidden patch of Eden, I felt I could sit and think for the first time in ages without feeling any sort of compulsion to hurry.
+
+I hiked far enough up the northern slope to overlook a distant plain the valley opened into, hemmed in by more mountains farther to the west and east. The town of [Jacobs Fork](https://www.reddit.com/user/RandomAppalachian468/comments/1vj5fni/im_a_detective_assigned_to_the_wickenshire_case/) sat there, at the junction of various gravel roads and the river, a tiny outpost of humanity that marked the sole contact I had with civilization for miles. Aside from my fellow rangers in the other towers, I could justifiably say that I was alone in the alien expanse of stone and timber, able to see the human world below but not be caught up in it.
+
+Never in all my life did I smile so much.
+
+*I could stay out here forever.*
+
+After a brief snack of a few granola bars to mark my progress, I decided to head back down the mountain, retracing my steps since I didn’t know the area as well just yet. Esko had warned me about the trails, and even though his advice was cryptic at best, I figured it wasn’t worth the risk. Today seemed perfect enough; I had enjoyed a nice walk, taken some great pictures, and felt ready to face the next shift. Any memory of this morning’s incident receded within my mind, and I hummed with each happy step I took through the winding dirt paths.
+
+I was halfway back to the tower when I first noticed how quiet the forest had become.
+
+Every step *crunched* louder in my ears, each breath more ragged and grating, the wind more of a conspiratorial whisper than a soft hush in the trees. No birds sang, no insects hummed, and even the sunlight appeared to weaken in certain thick sections of growth. The normal shadows looked darker, deeper, murky in a way that I couldn’t make sense of. Despite the warmth of the day, I began to feel a chill on my neck, goosebumps rising on the flesh as if it had dropped to late-autumn temperatures in a matter of seconds. True, the mountains often got colder before the valley floors did, but this seemed premature, as if someone had thrown a filter lens over the sun to dampen its radiance for this particular stretch of woodland. The only thing that really stood out to me was a smell, faint at first, but growing in pungency the closer I drew to the tower.
+
+Wet, moldy earth. Rotted wood and stagnant water. Humid air, foreign in this climate, choked with spores and the sickly aroma of decayed carrion that tickled the back of my throat. One scent flowed above them all, startling in how different it was from the rest; a sweet, lush, deep smell, like that of a rich candy syrup, but vibrant enough that I knew it had to be some kind of flower.
+
+For some reason, in my head, I thought of a rose bouquet I’d seen at one of the floral shops in town before my trip up the mountain.
+
+At first, I tried to look around to see if I could locate the source of the smell but found nothing. The more time wore on, the stronger it became, and my head swam with a light dizziness that soon morphed into a headache. My nose stung with each breath, I tasted metal in my mouth, and the contents of my stomach churned into a sour knot. I pulled my shirt up over my nose and tried to walk faster, hoping to get clear of the stench, but it seemed to follow me whenever I took a shuddering breath, thick on my tongue like invisible poison gas. Desperate to get clean air, I broke into a jog and wove my way down the slope with carefully placed steps.
+
+At one point, out of the corner of my eye, I caught a flash of movement in the trees to my left, the vaguest blur of something dark flitting between the gnarled trunks. I turned my head to see what it was, but the shape had already gone, and I thought it most likely a bird hidden amongst the pines. Still, a ripple of warning crawled through the skin on the back of my neck, and as I ran, I did my best to look from side-to-side every so often.
+
+The more I looked, the more I saw, each glance a snapshot of the world around me that rapidly mixed together as I picked my way across the trail.
+
+A shadow that slipped behind a spruce ten yards out, just as my gaze landed on it. The rustle of a shrub from something moving through it. A flash of color that almost looked like blonde hair in a patch of thin sunlight that filtered through the forest canopy. Soft, yet discernable footfalls of limbs meeting cushions of pine needles and moss. Bursts of sun-dried blues, greens, reds, and yellows in places they didn’t belong, like bits of old clothing left to flutter in the wind.
+
+Always just out of sight.
+
+Always moving too quick for me to get a good view of whatever it was.
+
+And always, the smell of roses followed.
+
+When I finally made it back to the tower, I felt exhausted, as if the descent sapped everything I had left for the day, and paused for a moment beside the chain link fence to catch my breath. The smell retreated now that I was in the open, the movement stilling in the underbrush, while the sounds of the forest returned. Birds called, insects chirped, and the fresh breeze whipped up to cool my sweaty brow. Whatever smothering presence had afflicted me on the trail lifted, and my head cleared of the fuzzy sensation, enough that I noticed a change in the nearby tree line.
+
+A third marker.
+
+It sat just beyond the second one, almost invisible for how far into the bushes it was, another little pile of bones held together by twine, muck, and rot. Like the second, this one too bore a small mammal skull, looking off to the west across the narrow valley as if pointing to something, with only the first at the clearing’s edge staring right at me. They were in a line, I realized, not perfectly straight but curved, as though slowly revealing some unblazed path between the stands of creaking firs and spruces. I hadn’t seen it earlier when leaving the tower, which meant that whoever built the macabre pillar waited until I left the safety of the chain link fence. They had been watching me throughout the morning, perhaps in anticipation of this moment.
+
+Considering the things I’d seen on the trail, they may have been following me all along.
+
+Icy chills ran down my spine, and I flicked my gaze to the forest, only to find no additional glimpses of anything unusual. I was alone here in the far northern wilderness.
+
+Or at least, I hoped I was.
+
+*Better get inside, just in case.*
+
+Tense with that thought, I slipped through the man gate in the perimeter fence and locked it behind me. Shuffling to the tower cabin high above the forest floor, I spent the rest of my free time with the door locked and the curtains drawn, debating on how to proceed. More than ever, I wanted to say something in my evening report, to call the ranger base and tell them about what was going on, but always my mind stopped me. Aside from the markers themselves, I had no proof of the strange smell, the movement I’d seen off the trails, or the odd feeling after looking at the skulls. Esko had said that isolation got to people, and they’d let the last guy go to replace him with me, which meant he must not have been up to the task. At any rate, I was supposed to be watching for wildfires, not tracking piles of refuse in the woods, and I wasn’t even a week into this thing; how could I possibly run to the others on the force without looking like the urbanite rookie that I was? As much as recent events had unnerved me, I loved this job, would do anything to keep it, and didn’t really have anywhere else to go. This raging argument paralyzed me from within, and even when check-in time came, I still didn’t know what to do. Unable to bring myself to say anything, I merely took over after Tower Seven signed off, and began another shift in the dark canopy of the forest.
+
+That brings me to the current moment, sitting here locked inside the tower cabin, conducting my watch through the windows with binoculars, the blinds drawn whenever I’m not looking out. I’m still not completely convinced this isn’t some kind of elaborate prank, either by my new coworkers or some random person. However, precautions never hurt, and so tonight I think I’ll stay inside, where the lights are always on and no odd smells permeate through the sealed windows. My thinking is that if they can’t see me, then they can’t plan around my schedule as much as they obviously have been. If I can throw this unknown watcher off balance, maybe I can catch them in the act, and put an end to this problem. That would prove beyond the shadow of a doubt that I belong here, that I can handle myself, that I *deserve* this post.
+
+For once, I could have something I earned all on my own.
+
+I don’t have any phone service or internet, so I’m typing this on my laptop to save for later as evidence, in case it would turn into an official review by the ranger force. I figure if I record everything as I go, when I eventually report to the others, they might be more inclined to believe me. Worst case scenario, it’s all in my head and these notes will be useless, but I will have some amusing stories to look back on when it’s over.
+
+Either way, I’ve got a long night ahead of me.

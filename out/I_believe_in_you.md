@@ -1,0 +1,21 @@
+You is magnificent and I believe in it.
+
+I want to show everyone how to believe in you.
+
+Those are the words etched on the monopoly box I happened upon in my new apartment. I probably should have been more alarmed, but after hours of waiting, lifting and driving I was willing to chance my arm at any way to deflate for the night.
+
+So I called a two recently engaged friends of mine over to my new rather minimalist apartment of boxes. They arrived around nine o’clock at night, only because they had to put their children to sleep. I popped open a bottle of wine which only me and the fiancé, Amy partook in. Then we opened the dusty sun-stained box.
+
+We were greeted by a pathetic selection of metal ornaments, thimble, boot and iron. I gravitated towards the thimble, Amy the boot and Dan was left with the iron. 
+
+I was the youngest so I began, I got snake eyes and was thoroughly mocked by my friends, “even the monocle man is fed up sitting on your floor!”, the game continued normally for a while we had fun, Amy drank a touch out of her league so she decided to join up with Dan. Then it was the thimble vs the oddly assembled boot-iron. I had just about forgot about the message engraved on the box when Dan and Amy landed on a train station and suddenly a man yelled out something from far away that sounded as though he was referring to each of us personally. We each clambered up Amy holding onto Dan and peeked out of my blinds.
+
+Outside was filled with the sickly led lights and the bland pavement with not a soul in sight. We had just about debated whether or not anyone had shouted before a clang came from my kitchen at the other side of the house. We turned around and saw a black cylinder with a metallic sheen and a brim around its base, it filled the room with its presence easily asserting itself. Dan whispered, “what is that thing?”, a blue circle spiralled around the top of the cylinder and honed towards Dan, answering in a cold voice of a disappointed parent, “you, I am the you, you have all heard of me, because when I say you, it’s because I have existed”.
+
+This left us all feeling a bit more unsure of what this gigantic monolith which now took up the room was. I asked, “how did you exist?”. You replied,” i existed at the dawn of language when many creatures bartered creatively and non linguistically, I was just about done with these oafs when one came along, he had one eye. And he only said I, so out of pity and curiosity of my intervention I said my name, you, it’s been misheard everywhere like someone shouting from a distance”. After that unusual info dump Amy cried out drunkenly, “why is the you, here, tonight?”.
+
+You let out a low vibration for two seconds before letting out a little bit of steam, every time a new monopoly game is to come out, in memory of my glorious major intervention I come in the form of the most recent addition to the game, to take an eye from each participant of a random group of players. You guys are her to witness you because you were brought by you. Now you will remember you in its glory”. 
+
+On saying that a black claw seemed to morph out of the side of the hat and claw its way through, all of us were too stunned to move and in a black whirlwind of a slash each of us received a deep abrasive cut to our left eyes.
+
+Now you will know to fear you as we should’ve.
