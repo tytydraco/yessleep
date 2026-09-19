@@ -1,0 +1,61 @@
+I've had a teddy bear to sleep with my whole life. My father bought a couple weeks before i was born, and i've had it ever since. I know it's a little weird for a grown man to sleep with a teddy bear, but i like it. It's a sign of comfort i suppose. I'm not ashamed of it. I've always found solace in it. Well i that was, until last week.
+
+I started noticing strange things happening about a month ago. Nothing super unusual at first, just some weird noises. I live in an apartment, so i figured they were just coming from next door. I tried to ignore them, but then they got stranger.
+
+I started hearing what sounded like whispers. First time i thought i was just my mind was just messing with me.
+
+But then i started hearing them almost everyday. I could never make out any words, just random nonesense. I was so confused. What is going on? Then the real deal began.
+
+Random objects in my apartment started to move around. One morning i was getting ready for work and i noticed my toothbrush was laying on the bathroom floor. It went on like that. I would find random objects laying where they shouldn't be. I began suspecting that possibly a squatter was living in my apartment without me knowing. I searched my whole apartment, on top of every shelf and under every rock, but i could not find anything. I even looked under my bed, but i couldn't find anyone. Only thing that was laying there was my teddy bear. I even had the police come and check it out to see if they could find anything. They could not. However they did comment about a weird smell coming from somewhere in the apartment. Thats when i too noticed the smell. I could not pin point exactly where the smell came from but i knew it was coming from somewhere in the apartment. It smelled like meat....rotten meat. 
+
+I even had my best friend come help me find the source of the smell, but to no avail. 
+
+Fast forward a couple days. I was watching a scary movie late at night. In the movie the main character battles a crazy living teddy bear with a knife. Right when the main character was about to get murdered, the power went out. 
+
+**"Oh come on!"**
+
+I said.
+
+As i stood up to go do something else, in the corner of my eye i saw...a teddy bear sitting on my bookshelf. When i turned it was gone.
+
+"Weird"
+
+I thought. As i went into the kitchen i saw my teddy bear  sitting on the kitchen table with a knife in its hand. 
+
+On the knife was a dark red liquid. It was blood.
+
+I nearly jumped backwards at the sight. 
+
+**"WHAT THE HELL!?"**
+
+I screamed. I noticed that my teddy bear looked....wrong...just wrong. I had a gross smile from one ear to the other. Its eyes were completly white, and on its lap was a note. I slowly picked up the note and comtemplated if i should even read it. It said:
+
+**"666"**
+
+I called the police right away and they took the teddy bear. They called me in for questioning. After all, i was a weird situation. 
+
+**Police:**
+
+**"So this teddy bear came to life?"**
+
+**Me:**
+
+**"YES! I swear to god!"**
+
+I had to stay at my grandmothers house for the next couple of days. I didn't want to go back to where it all happend, i was to scared. After about a week a dared to go back. Everything was normal again. Thank god everything was normal again! One night i had just come home after a long hard day at work. I decided to take a shower. I was in a good mood when washing my hair. Then i got shampoo in my eyes. It burned like hell. After what felt like an hour i could finally open my eyes again.
+
+Thats when i say it.
+
+**"666"** 
+
+Written on the wall...in blood.
+
+I froze. I didn't know what to do.
+
+Then i felt it. I had feeling someone was looking at me.
+
+I slowly turned around, shaking in my toes. 
+
+There, peeking out from the shower curtains, was my teddy bear with a knife in hand. he let out a disgusting evil laughter before saying:
+
+**"I AM THE DEVIL! I'LL SEE YOU IN HELL"**

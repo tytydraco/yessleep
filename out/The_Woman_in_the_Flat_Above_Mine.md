@@ -1,0 +1,320 @@
+I moved into Flat 407 because it was cheap, and at the time I thought that was the only thing I needed to know.  
+The building was old enough to have developed its own personality. The corridors always smelled faintly of damp, the heating pipes knocked at random hours, and the lift made a noise that sounded like somebody breathing through their teeth. None of that bothered me. I was twenty-two, working a job I hated and trying to get out of my parents’ house. I didn’t have much money, so when the landlord offered me a top-floor flat for almost £300 less than anything else I’d looked at, I signed the contract before I could think too hard about why it was so cheap.  
+The first few nights were completely normal. I unpacked, bought furniture, complained about the water pressure and discovered that the woman in 406 smoked so heavily that the smell came through the bathroom vents. I remember thinking I’d actually got lucky.  
+Then, on the fifth night, I heard the footsteps.  
+It was 2:17 in the morning. I remember the time because I’d been lying awake scrolling through my phone, and when I heard the first step I looked at the clock automatically. There was a heavy thud directly above my bedroom. I assumed someone was walking around on the roof, although that didn’t make much sense. A second step followed, then a third, each one slow and deliberate, as though whoever was up there was walking from one side of the room to the other.  
+I waited for the sound to continue, but it didn’t. There were no more footsteps, no voices, no pipes knocking, nothing. Eventually I went to sleep.  
+The following night it happened again.  
+2:17.  
+Three footsteps.  
+Exactly the same rhythm.  
+I started paying attention after that. I told myself it was probably some structural noise that happened to sound like footsteps, but by the seventh night I was sitting upright in bed waiting for them. At exactly 2:17, the three steps came from above me again. The strange thing was that they weren’t just similar to the previous nights. They were identical. Same volume, same spacing, same direction. It sounded like somebody took three steps across the same patch of floor every night and then stopped.  
+I called my landlord the next morning.  
+He was an older man called Martin who had always seemed slightly uncomfortable whenever I spoke to him. I asked whether there was an attic above Flat 407 and he told me there wasn’t. When I asked if there was some kind of maintenance floor or access area, he said no again. Eventually I asked him who lived above me.  
+There was a long silence.  
+Then he said, “Nobody.”  
+I laughed because I thought he’d misunderstood me.  
+“I’m on the top floor, right?”  
+“Yes.”  
+“So there must be something above the ceiling.”  
+“There’s a roof.”  
+“Right, but nobody can get up there?”  
+“Not from inside the building.”  
+The way he said it made me stop smiling.  
+I asked him why.  
+He told me not to worry about it and said he’d send somebody to look at the ceiling if I really wanted him to.  
+I said I did.  
+He never sent anyone.  
+That night, the footsteps happened again.  
+Except this time there was something underneath them.  
+A faint scraping sound.  
+I lay completely still, listening as something dragged across the ceiling above my bed. It sounded like fingernails moving slowly over plaster. The scratching continued for several seconds, stopped, then started again directly above my head.  
+I eventually got out of bed and switched the light on.  
+The scratching stopped immediately.  
+I stood there for a while, staring at the ceiling.  
+Then something tapped back.  
+Three times.  
+I moved my bed into the living room.  
+The next morning I bought a ladder.  
+There was a small square maintenance hatch in the ceiling of the hallway, almost directly above the front door. I’d never noticed it before. I dragged the ladder underneath it, climbed up and pushed it open.  
+Dust fell into my eyes.  
+I expected to find insulation and pipes.  
+Instead, I saw darkness.  
+I put my phone’s torch on and looked inside. There was insulation everywhere, along with electrical cables and wooden beams. Nothing unusual. I was about to close the hatch when something caught the light.  
+A woman’s shoe.  
+It was wedged between two beams about six feet away.  
+It was an ordinary black flat, the kind somebody might wear to work. There was something dark on the toe.  
+I took a photograph and called the police.  
+Two officers came over and searched the space. They climbed through the hatch while I waited below. They were up there for about fifteen minutes before one of them came down.  
+“There isn’t a shoe,” he said.  
+I showed him the photograph.  
+He stared at it.  
+Then he looked at me.  
+“Where exactly did you see this?”  
+I pointed.  
+He climbed back up.  
+When he returned, he told me there was nothing there.  
+I asked him whether he thought I was imagining it.  
+He said he hadn’t said that.  
+The second officer asked whether I’d been sleeping properly.  
+I told him yes.  
+Neither of them seemed convinced.  
+They left without taking the photograph.  
+That night, I set my phone on the bedside table and recorded the ceiling while I slept.  
+In the morning, I listened to the recording.  
+For the first few hours there was nothing except the sound of traffic outside and my own breathing. Then the recording reached 2:17.  
+Three footsteps.  
+Then silence.  
+Then a woman’s voice.  
+It was extremely quiet, almost hidden underneath the static.  
+I turned the volume all the way up.  
+She said, “He’s asleep.”  
+I listened to it about twenty times.  
+There was no mistaking it.  
+I didn’t stay in the flat that night.  
+I went to a hotel.  
+The following afternoon, I went back to collect some clothes and found something written on the inside of my front door.  
+It wasn’t there before.  
+Someone had scratched four words into the paint with something sharp.  
+**YOU SHOULDN’T HAVE MOVED IN.**  
+I called Martin immediately.  
+He didn’t answer.  
+I called again.  
+Nothing.  
+Then my phone rang.  
+It was him.  
+I answered and said, “Someone’s been in my flat.”  
+He didn’t respond for several seconds.  
+Then he asked, “Did you hear the woman?”  
+I felt my stomach drop.  
+“What woman?”  
+He knew.  
+I could hear it in his breathing.  
+“The one upstairs,” he said.  
+I asked him what the hell he was talking about.  
+He told me he’d explain everything if I met him somewhere away from the building.  
+We met in a pub about half an hour later.  
+Martin looked completely different from the last time I’d seen him. He was pale and kept looking towards the windows. When I asked him who lived above Flat 407, he didn’t answer directly.  
+Instead, he asked me how long I’d been hearing the footsteps.  
+I told him.  
+He closed his eyes.  
+“Then you’ve got about a week.”  
+“A week until what?”  
+He wouldn’t tell me.  
+Eventually, after several drinks, he admitted that Flat 407 had been empty for almost eighteen years before I moved in.  
+I asked why.  
+He said a woman had lived there.  
+Her name was Eleanor Vale.  
+She disappeared in 2008.  
+Nobody ever found her.  
+The strange part was that there had been no evidence she’d left. Her clothes were still in the wardrobe, her purse was on the kitchen counter and her car was parked outside. The police searched the building from top to bottom and found nothing.  
+I asked what happened to the flat.  
+Martin said it was renovated and rented out several times over the following years.  
+Every tenant left within months.  
+Some complained about footsteps.  
+Some claimed they’d seen a woman.  
+One tenant disappeared.  
+Another killed himself.  
+Martin stopped talking after that.  
+I asked why he’d rented it to me.  
+He looked genuinely ashamed.  
+“Because nobody believes it until it happens to them.”  
+I left.  
+I should have moved out immediately.  
+Instead, I went back.  
+I don’t know why.  
+Maybe curiosity.  
+Maybe because I was angry.  
+Maybe because some part of me still thought there had to be a rational explanation.  
+That night, I stayed awake until 2:17.  
+The footsteps came.  
+But there were more than three this time.  
+They started above my bedroom and slowly travelled across the ceiling towards the hallway.  
+I heard them stop directly above the maintenance hatch.  
+Then the hatch opened.  
+From the inside.  
+I watched it swing down.  
+Nothing appeared.  
+I stood beneath it with my phone in my hand.  
+Then a woman’s voice came from the darkness.  
+“He’s going to wake up.”  
+I asked who.  
+There was a pause.  
+Then she whispered, “You.”  
+I don’t remember climbing into the ceiling.  
+I don’t remember deciding to do it.  
+One moment I was standing in the hallway, and the next I was crawling through insulation with my phone light between my teeth.  
+I followed the sound of her voice.  
+The space seemed much larger than it should have been. I crawled for several minutes before I reached something that couldn’t possibly have been there.  
+A door.  
+It was a wooden apartment door, complete with a brass number.  
+**407.**  
+I opened it.  
+On the other side was my flat.  
+Not a similar flat.  
+Mine.  
+The same sofa. The same television. The same photographs. The same mug I’d left in the sink.  
+Except there was someone lying in my bed.  
+It was me.  
+I stood there staring at myself.  
+He was asleep.  
+His chest rose and fell slowly.  
+I walked closer.  
+Then his eyes opened.  
+He looked directly at me.  
+And smiled.  
+“You weren’t supposed to find this place,” he said.  
+I stumbled backwards.  
+He sat up.  
+“How long have you been hearing her?”  
+I couldn’t answer.  
+He looked almost amused.  
+“She’s trying to warn you.”  
+I turned around.  
+The woman was standing in the doorway behind me.  
+She looked exactly like the photograph I’d found online of Eleanor Vale.  
+She was barefoot and wearing a white nightdress. Her skin was grey and covered in bruises.  
+She looked terrified.  
+She grabbed my arm.  
+“Don’t listen to him.”  
+The version of me on the bed laughed.  
+“She’s been saying that for eighteen years.”  
+I looked between them.  
+“What is this?”  
+The woman started crying.  
+“You’re not living in Flat 407.”  
+I didn’t understand.  
+She pointed towards the sleeping version of me.  
+“You’re living in him.”  
+The room suddenly felt freezing.  
+She told me the truth.  
+Or at least, what I thought was the truth.  
+She said the building didn’t have an attic.  
+It had never had one.  
+The door above my flat wasn’t a door into another floor.  
+It was a door into a place that existed between moments.  
+Every person who lived in Flat 407 eventually encountered it.  
+The footsteps weren’t coming from above.  
+They were coming from the next version of the apartment.  
+Every night at 2:17, the boundary between the two rooms became thin enough for the two versions to hear each other.  
+And eventually, one version replaced the other.  
+I asked her what happened to the previous tenants.  
+She looked at the bed.  
+“They woke up.”  
+The version of me smiled.  
+I understood what she meant.  
+I ran.  
+I don’t remember finding the hatch again. I don’t remember climbing down. I don’t remember leaving the building.  
+I remember waking up in hospital.  
+The doctors told me I’d been unconscious for three days.  
+The police came to speak to me.  
+They told me I’d been found wandering down a road almost twenty miles from my apartment.  
+I asked about Martin.  
+They said they didn’t know anyone by that name.  
+I asked about Eleanor.  
+They said she’d disappeared in 2008.  
+I asked about the building.  
+They said there was no Flat 407.  
+I thought they were lying.  
+Then they showed me a photograph.  
+It was a photograph of the building from 2008.  
+I recognised it immediately.  
+But something was wrong.  
+The building only had three floors.  
+There was no fourth floor.  
+No Flat 407.  
+I stared at the photograph until my eyes hurt.  
+Then I noticed the date.  
+November 14th, 2008.  
+The same date Eleanor disappeared.  
+I asked the doctor for a mirror.  
+He brought one.  
+I looked into it.  
+For several seconds, everything seemed normal.  
+Then my reflection blinked.  
+I didn’t.  
+My reflection slowly raised its hand and placed one finger against its lips.  
+Behind it, reflected in the mirror, was a woman standing in the doorway.  
+Eleanor.  
+She looked directly at me.  
+Then she mouthed something.  
+I couldn’t hear her.  
+But I understood.  
+**Don’t wake him.**  
+The lights in the hospital room went out.  
+I heard three footsteps above me.  
+I started screaming.  
+The door opened.  
+A nurse walked in and switched the lights back on.  
+I was alone.  
+There was nobody in the mirror.  
+I spent the next few weeks trying to convince myself I’d hallucinated everything.  
+Eventually I was discharged.  
+I moved into a different flat.  
+I changed my phone number.  
+I changed my job.  
+I never went near that building again.  
+For almost a year, nothing happened.  
+Then, last night, at exactly 2:17 a.m., I heard three footsteps above my bedroom.  
+I live on the top floor.  
+There is no flat above me.  
+I sat there for a long time, staring at the ceiling.  
+Then I heard scratching.  
+I got out of bed and walked into the hallway.  
+There was a maintenance hatch in my ceiling.  
+I swear it wasn’t there yesterday.  
+I climbed onto a chair and opened it.  
+There was a wooden door inside.  
+A brass number was fixed to it.  
+**407.**  
+I haven’t opened it.  
+I’m writing this from the floor beneath the hatch because I don’t know what else to do.  
+I’ve been sitting here for nearly an hour.  
+The scratching hasn’t stopped.  
+Neither has the whispering.  
+But I finally understand what Eleanor was trying to tell me.  
+She wasn’t warning me about the man in the bed.  
+She wasn’t warning me about the building.  
+She was warning me about **myself**.  
+Because I just noticed something.  
+The footsteps haven’t been coming from above me.  
+They’re coming from inside my bedroom.  
+I can hear someone walking around in there now.  
+Slowly.  
+Three steps at a time.  
+And every few minutes, the footsteps stop.  
+Then I hear my own voice from the other side of the bedroom door.  
+It keeps saying the same thing.  
+“You’re not supposed to find this place.”  
+I haven’t opened the bedroom door.  
+I don’t intend to.  
+But a few minutes ago, my phone received a notification.  
+It was a photograph.  
+I opened it.  
+It was taken from inside my bedroom.  
+It showed me sitting in the hallway beneath the hatch.  
+The timestamp was **2:17 tomorrow morning**.  
+And standing behind me in the photograph was Eleanor.  
+She was smiling.  
+I’ve been staring at the picture for ten minutes.  
+I finally noticed what she’s holding.  
+It’s a piece of paper.  
+There are four words written on it.  
+**YOU’RE ALREADY ASLEEP.**  
+I don’t know what that means.  
+I don’t know what I’m supposed to do.  
+But the footsteps have stopped now.  
+The bedroom door is opening.  
+And I can see someone standing in the gap.  
+It’s me.  
+He’s looking at me.  
+And he’s holding a knife.  
+The worst part is that I know exactly what he’s going to say.  
+Because he’s already said it.  
+He’s been saying it for the last eleven months.  
+Every night.  
+At 2:17.  
+Three footsteps.  
+Then silence.  
+Then my own voice whispering from the ceiling.  
+**“He’s asleep.”**
