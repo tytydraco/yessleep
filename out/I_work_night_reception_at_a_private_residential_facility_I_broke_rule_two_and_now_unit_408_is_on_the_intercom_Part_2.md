@@ -1,0 +1,133 @@
+The liquid stopped creeping forward when it touched the edge of the rubber floor mat under my desk. It pooled there, barely two inches from the heels of my boots—thick, amber-yellow, smelling intensely of old bone meal and damp basement concrete.
+
+Behind me, the locked metal locker was dead silent.
+
+The brass switchboard chime rang again.
+
+Ding.
+
+The red backlight behind the number 408 pulsed rhythmically. Forty-five seconds on the dot.
+
+On the desk in front of me, the central CCTV monitor remained frozen on 02:51:14. The green status LED was a solid, unyielding dot. Morris’s note in the vinyl binder had made one thing explicitly clear:
+
+« If a loop freezes, do not look behind you until the green LED blinks twice. »
+
+I didn’t turn around. But keeping my gaze fixed straight ahead didn't stop my ears from tracking every millimeter of movement in that lobby.
+
+I reached out with my left hand, kept my eyes glued to the dark reflection in the monitor glass, and felt around the desk surface for the heavy brass master handset.
+
+The plastic receiver felt icy cold. I pressed the toggle switch labeled COMM 408 and held the horn to my ear without speaking.
+
+For six seconds, nothing. Just the dry, electric hum of an ungrounded phone line.
+
+Then, a voice came through. It wasn't distorted, and it wasn't a whisper. It was an older woman’s voice—thin, reedy, but remarkably calm:
+
+« Reception. You took the package inside. »
+
+My throat constricted. I kept my mouth shut. Rule three echoed in my skull: Do not answer the intercom. Let it chime until it stops.
+
+« Morris never took the parcel past the threshold, » the voice continued through the earpiece, conversational and flat. « That’s why he had sixty years here. You brought it past the brass plate. You set it down on the wood. »
+
+A faint scraping noise echoed through the receiver—the sound of bare feet dragging across an uncarpeted hardwood floor.
+
+« Push the drawer lever under the desk, young man, » she said. « If you don't let it empty before the 03:30 cycle, the floorboards will dissolve. We have four tenants below your feet who don't like damp ceilings. »
+
+The line clicked dead. The chime stopped.
+
+My pulse was racing in my temples. I glanced down at my watch: 03:08 AM.
+
+Desk Drawer 02. The label on the butcher paper had specifically named it:
+
+RECIPIENT: Night Reception Attendant
+
+DESTINATION: Desk Drawer 02
+
+NOTE: The seal must not dry out.
+
+Beneath the heavy oak counter, right between my knees, sat a vertical column of three wooden drawers. Drawer 01 held office supplies and old receipt rolls. Drawer 03 was screwed shut with four steel brackets.
+
+Drawer 02 had a recessed brass pull, but no keyhole.
+
+I reached down with trembling fingers and pulled the brass handle.
+
+It slid open without a sound.
+
+The interior wasn't a storage box. The wooden bottom had been completely cut away, replaced by a vertical zinc chute that plunged straight down through the concrete subfloor into pitch-black darkness. A draft of frigid, stagnant air blew upward against my knuckles, carrying a faint whiff of winter mud and stagnant water.
+
+Welded to the right inner rim of the chute was a mechanical iron lever, worn smooth and shiny from decades of use.
+
+Behind my back, the metal locker rattled.
+
+Not a gentle tap. A violent, concussive shudder that caused the entire steel cabinet to groan against its wall anchors.
+
+The sound of tearing paper accelerated into a frenzy. Wet, heavy squelching echoed from inside the vents, followed by the wet thud of something dense and heavy dropping onto the metal bottom of the locker.
+
+Thump.
+
+A thin, dark silhouette pressed against the horizontal vent louvers at floor level. Two long, jointed protrusions—pale gray, hairless, resembling elongated human fingers with thick, calcified knuckles—forced their way through the narrow gaps in the metal vents.
+
+They hooked onto the steel slats, gripping them with enough force to bend the painted aluminum.
+
+The monitor light in front of me gave a single, violent flicker.
+
+Blink.
+
+My breath caught in my chest.
+
+One.
+
+The green LED turned solid again.
+
+Morris's instruction had been specific: until the green LED blinks twice. It hadn't blinked twice. Just once.
+
+The steel hinges of the locker behind me shrieked under immense strain. The iron deadbolt was bending outward, millimeter by millimeter. The amber liquid was pouring out in a continuous, viscous ribbon now, eating into the polyurethane finish of the floorboards, leaving charred, smoking dark lines along the wood grain.
+
+I couldn't stay frozen. If that deadbolt snapped, whatever was breaking out of that box would be six inches from my spine.
+
+I didn't turn my head. I kept my eyes locked onto the reflection of the glass screen.
+
+I dropped my left hand down to the open drawer, gripped the iron lever inside the zinc chute, and pulled it down with all my weight.
+
+A heavy mechanical clunk reverberated deep inside the desk structure.
+
+Behind me, the bottom section of the metal locker dropped open like a trapdoor.
+
+Whatever had been thrashing against the vent slats suddenly fell through the flooring. A sickening, hollow crash echoed from somewhere twenty feet beneath the building, followed by a heavy splash into liquid mud.
+
+Then, absolute silence returned to the reception foyer.
+
+I sat motionless, my hand still clenched around the iron lever, sweat dripping down into my eyebrows.
+
+On the monitor, the LED clicked.
+
+Blink.
+
+Blink.
+
+The screen refreshed instantly. The live feed restored. The timestamps shot forward to 03:22:45.
+
+I turned around.
+
+The metal locker door was hanging slightly ajar, its lock mangled. The bottom was an empty, rectangular hole leading into the same dark vertical drop as Drawer 02. The amber puddle on the floor had stopped smoking, hardening into a crusty, yellowish resin.
+
+I was alone in the lobby.
+
+I was about to let out a breath when the building intercom buzzer flared to life again with an ear-piercing whine.
+
+This time, it wasn't unit 408.
+
+Every single red light on the switchboard—forty-seven apartments—lit up simultaneously.
+
+And through the speaker grid mounted directly above the mailboxes, forty-seven overlapping voices began speaking in perfect, synchronized cadence:
+
+« You dumped it before the seal dried. Morris wouldn't have dumped it. Check the basement boiler feed on camera four. »
+
+I turned back to the monitor.
+
+Camera four—the basement boiler room. The video feed was crystal clear now.
+
+Standing in the center of the concrete room, directly beneath the vertical drainage pipes that run down from my desk, is Morris.
+
+He’s wearing the same navy uniform coat he left in on Monday.
+
+And he's looking straight into the lens, holding an open, empty burlap sack.
