@@ -1,0 +1,111 @@
+I woke up Wednesday morning with blood on my pillow. It wasn't much, maybe a stain the size of a quarter, so my first thought was that I'd had a nosebleed during the night. I used to get them as a kid whenever the air got dry, so I probably wouldn't have thought twice about it if I hadn't gone into the bathroom and realized there wasn't any blood around my nose.
+
+There was some on my neck. Just below my jaw were two small wounds surrounded by a deep purple bruise. They weren't the neat little punctures. One was round, almost like someone had pushed a nail into me, while the other was slightly torn. There was dried blood beneath both of them, and what bothered me was how deep they looked. They were tiny, but when I stretched the skin around them, I couldn't really see the bottom.
+
+I cleaned them with peroxide. They didn't sting. I poured a little more directly into one of the wounds and still felt nothing. That should have bothered me more than it did. Instead, I was standing there, looked at myself in the mirror, and slowly remembered there had been a woman the night before. Or at least I remembered pieces of her.
+
+Tuesday night I'd gone drinking with two coworkers. We watched part of a game, complained about work, and spent more than we should have. According to my bank statement, I bought my last drink at 11:17 p.m. I remember sitting down at the bar afterward and a woman taking the empty seat beside me. She had dark hair, a black jacket, and skin so pale I remember wondering if she was sick. For some reason, I also remember her teeth. Not because there was anything strange about them. I think she smiled at something I said.
+
+After that, there's nothing. The next thing I remember is opening my eyes in my apartment at 8:46 Wednesday morning. I was still wearing my clothes and shoes, my front door was unlocked, and there was blood on my pillow. I've been drunk enough to lose parts of a night before. I'm not proud of it, but I know how that feels. Usually there are fragments afterward. Getting into a car. Standing outside somewhere. A conversation that comes back when someone mentions it. This wasn't like that. There was simply nothing between sitting by her and waking up in my bed.
+
+I texted my coworkers and asked how I'd gotten home. Neither of them knew. Apparently I'd told them I was staying at the bar a little longer. One remembered seeing me talking to a woman, but when I asked what she looked like, he couldn't really describe her. He said brunette at first, then said maybe she had red hair. I told him she had black hair. He replied, "Yeah, maybe."
+
+At that point, though, the missing time didn't worry me most. I was thirsty. Not hungover thirsty. This was different. My mouth felt completely dry, but drinking didn't help. I finished the glass of water beside my bed, refilled it, drank it, then stood next to the kitchen sink and drank straight from the faucet until my stomach started aching. I could feel the water slosh inside me when I moved, yet my mouth stayed dry.
+
+My tongue felt strange too, rougher than usual. I kept running it over the backs of my teeth because my gums were aching, especially around my canines. It felt similar to the soreness you get after dental work, except I hadn't been to a dentist in months. I probably should have stayed home. Instead, I showered and went to work.
+
+The sunlight started bothering me before I'd even reached my car. It wasn't painful exactly. The exposed skin on my face and arms just started prickling, the same sensation I usually get after spending too long outside in the summer. I remember thinking it was strange because I'd only been outside for maybe thirty seconds.
+
+By the time I reached work fifteen minutes later, my forearms were slightly pink. It wasn't enough for anyone else to notice unless I pointed it out, but I could feel the heat in my skin whenever I rubbed my hands over it. I figured maybe I'd become sensitive to something overnight or had taken some medication while I was drunk that I couldn't remember.
+
+The redness continued slowly through the morning. By lunch, I looked like I'd spent an hour or two sitting outside without sunscreen. My cheeks were flushed, the tops of my hands were pink, and my skin felt tight and warm. Nothing severe, just an ordinary-looking sunburn that had developed far too quickly.
+
+I told everyone I'd started taking medication that made me sensitive to sunlight. Nobody cared enough to ask which one. After that, I kept my shirt sleeves down and avoided sitting near the windows because direct sunlight brought the pins and needles sensation back almost immediately.
+
+The headache began around noon. It sat inside my eyes and seemed to beat whenever I was near a window. Eventually I lowered the blinds in my office and turned off the overhead lights. That helped almost immediately, which I considered strange enough to notice but not strange enough to leave work.
+
+Then came the smell. Our office shares a floor with a small medical clinic. Usually the only thing you notice is disinfectant in the hallway, but that afternoon someone apparently cut themselves. I didn't see it happen. I smelled it from inside my office. It was metallic and warm, like wet pennies. At first I assumed someone had spilled something, but then my mouth started watering. Not a little. Saliva actually ran over my lower lip before I noticed.
+
+My stomach clenched so suddenly that I doubled over in my chair. I hadn't eaten breakfast, so I convinced myself I was simply hungry. I went downstairs and bought a turkey sandwich with cheese, lettuce, and garlic aioli. The first bite made me gag. The garlic tasted putrid. Not spoiled exactly. Something worse than spoiled. It tasted like garbage left in the sun.
+
+I spat the bite into the wrapper and threw the sandwich away. I tried chips afterward, but they barely tasted like anything. Then I bought a chocolate bar, thinking something sweet might be easier. It wasn't. The chocolate tasted like wax with the slightest trace of sweetness underneath, as if most of the flavor had been removed. Even the texture bothered me. It coated the inside of my mouth with this greasy film that made me want to spit it out. I threw that away too.
+
+The walk back to my car after work made the redness worse again. By the time I got home, my arms and face had the kind of mild burn I'd normally expect after several hours outdoors. My skin felt hot and tender when I touched it, but there was no blistering or anything that seemed medically serious. It was just happening much faster than it should have.
+
+I closed the blinds in my apartment and took a cool shower. Within an hour, most of the burning sensation had subsided, although the redness remained. That actually reassured me. I told myself I'd probably developed some temporary photosensitivity and that whatever was going on would pass once whatever I'd been given Tuesday night worked its way out of my system.
+
+By that evening, my gums were aching badly enough that I took ibuprofen. It didn't help. I checked my teeth in the bathroom mirror and couldn't see anything unusual, although I spent long enough staring that I eventually convinced myself my canines looked slightly longer. I compared them to an old picture on my phone. They looked the same. I think.
+
+I went to bed early and slept almost fourteen hours. When I woke up Thursday afternoon, my sheets were damp. At first I assumed I'd been sweating, but they weren't warm and I didn't feel overheated. The room actually felt warmer than usual. I checked the thermostat and saw it was set to sixty-eight. It felt closer to eighty.
+
+When I pulled the sheets back, there was a faint reddish-brown stain beneath where I'd been lying. I checked myself for bleeding. Nothing. The wounds on my neck hadn't bled either. They still looked exactly the same as they had Wednesday morning. No scab. No swelling. No redness. They hadn't closed at all. The edges were simply there, dark and open.
+
+The sunburn from the previous day was almost gone. My face was still a little pink and the tops of my hands were slightly sensitive, but otherwise my skin looked normal again. I should have been relieved. Instead, the speed at which it had appeared and disappeared bothered me.
+
+I called in sick and spent most of the afternoon with the curtains closed. At some point I fell asleep again, and when I woke around six that evening, something had changed. I felt fantastic. The headache was gone. The thirst had eased. My gums didn't hurt as much, and I had more energy than I'd had in years. I cleaned my entire apartment, did laundry, answered emails I'd been ignoring, and fixed a cabinet hinge that had been loose for months.
+
+At some point I realized I wasn't wearing my glasses. I've been nearsighted since I was twelve. Without them, anything more than ten or fifteen feet away normally starts to blur. I could read the microwave clock from my bedroom perfectly. When I put my glasses on, everything became distorted. I took them off again, and everything snapped back into focus. I made an appointment with my optometrist even though the earliest opening they had was the following week.
+
+Then I started noticing sounds. The couple who live above me argue constantly. Usually I can hear their voices through the ceiling but can't make out the words. Thursday night I could hear everything. I could hear their television clearly enough to tell what they were watching. I could hear their refrigerator humming. I could hear their dog scratching against the floor.
+
+Eventually I noticed a softer sound underneath all of it. A repetitive thumping. At first I thought something upstairs was vibrating against the floor. I stood still and listened until I realized the sound wasn't mechanical. It had a fast, even rhythm. When I moved below their kitchen, it became louder. They have a kid, and I don't know how long I stayed there before I realized I was listening to someone's heartbeat through the ceiling.
+
+I should have walked away as soon as I realized what it was. Instead, I dragged a kitchen chair into the room and climbed onto it. Even standing on the seat, I had to stretch slightly to reach the ceiling. I pressed my hand flat against it and leaned closer until my ear was only a few inches from the drywall.
+
+I grabbed my jacket and went outside. It was after midnight and the temperature was around fifty degrees, but it felt just right. The cold didn't bother me. If anything, it felt good against the persisting warmth in my skin. I walked for nearly an hour.
+
+There weren't many people outside. At one point I passed a woman walking a golden retriever, and the dog completely lost its mind when it saw me. It started barking and growling while pulling hard against its leash, not trying to reach me but trying desperately to get away. The woman kept apologizing. I told her it was fine. The dog stared at me until I turned the corner.
+
+Friday morning, I finally went to urgent care. The nurse took my temperature, frowned, and checked it again. Then she went out and came back with another thermometer. She asked if I felt cold. I told her no. The first thermometer had read 94.8 degrees. The second said 94.6. She asked if I'd been outside for a long time, and when I told her I'd driven directly there, she checked again. 94.5.
+
+Then she took my heart rate. That was when her expression changed. She put two fingers against my wrist for a long time, then moved them to my neck. After a few seconds, she brought in another nurse. My resting heart rate was thirty-eight beats per minute. They asked if I was an athlete. I'm not, unless sitting at a desk for eight hours counts.
+
+They wanted me to go to the emergency room. I refused. I know that was stupid. You don't need to tell me. My insurance isn't great, and the entire time they were acting concerned, I felt completely fine. Better than fine, actually. The doctor examined the wounds on my neck and said they looked like some kind of animal bite. He asked if I'd been around dogs recently, then cats, then wildlife.
+
+When I said no to all three, he paused and asked if another person could have bitten me. I laughed. He didn't. They cleaned the wounds and gave me information about rabies. The doctor told me several times that if I developed confusion, difficulty swallowing, muscle spasms, worsening weakness, or any other unusual symptoms, I needed to go directly to an emergency room. I went home instead.
+
+On the way, I stopped at a grocery store because I hadn't eaten properly since Tuesday. I bought almost everything that sounded remotely appealing. Steak, chicken, hamburger, soup, fruit, bread, cereal. While I was checking out, the cashier caught her finger against the edge of one of those plastic dividers.
+
+It was barely a cut. She swore and stuck the finger into her mouth. I almost clutched her wrist. I don't mean I thought about doing it. My hand actually moved. I stopped it halfway over the counter. The smell reached me a second later. That same copper smell I'd noticed outside the clinic, except this time it wasn't unpleasant.
+
+The closest comparison I can give is smelling food when you're starving. You know that moment when you haven't eaten all day and someone opens an oven? Your body reacts before you consciously think. That's what happened. My stomach cramped so hard it hurt. My mouth filled with saliva. My gums started throbbing again and my hands began shaking. All of that happened over one drop of blood.
+
+I left without my groceries. When I got home, I tried cooking steak. I've always eaten steak medium, but this time it tasted burned. So I cooked another one less, then another. The third one was barely cooked at all in the middle. That tasted better. Not good. Just better than everything else. There was reddish liquid pooled on the plate when I finished, and I caught myself dragging the last piece of meat through it several times before eating it. I don't remember deciding to do that.
+
+Friday night was when I finally became afraid. I went into the bathroom to brush my teeth and noticed that my gums had started bleeding. There wasn't much, just a thin red line around one canine. I touched it with my tongue, and the taste made my entire body react. My stomach tightened, my skin crawled, and I suddenly felt more awake than I already had.
+
+I stayed there staring at myself in the mirror with blood on my tongue and realized I wanted more. I rinsed my mouth until the taste disappeared, then I vomited. There wasn't any food in it, mostly water and something dark that looked almost like coffee grounds. I hadn't had coffee.
+
+Afterward, I checked my temperature again. 93.9. My hands weren't shaking. My lips weren't blue. I wasn't confused or weak. I felt completely normal. That may be the scariest part of all of this. I don't feel sick anymore.
+
+I'm writing this Saturday morning. I haven't slept tonight and I don't feel tired. My apartment is completely dark except for my monitor because sunrise is in about twenty minutes, and yesterday even the light coming through the window curtains made my skin start itching. I called my mother earlier. I didn't tell her any of this. I just wanted to hear her voice.
+
+Something is happening to me. I know that's obvious, but I still don't know what. Maybe I was drugged Tuesday night. Maybe that woman gave me something. Maybe I picked up some kind of infection. I've spent hours searching for symptoms. Hypothermia, bradycardia, photosensitivity, loss of appetite, altered taste, changes in vision, hyperacusis. I can find explanations for individual symptoms, but nothing that explains all of them, especially what's happening to my heart.
+
+After urgent care, I bought one of those pulse oximeters that clips onto your finger. When I first checked it yesterday afternoon, my heart rate was thirty-four. Around midnight it was twenty-eight. At three this morning it was twenty-one. About twenty minutes ago it dropped below twenty. I thought the machine was malfunctioning, so I started checking manually. I can still feel my pulse, but there's a huge pause between each beat now. Sometimes I count six or seven seconds before the next one comes.
+
+The weird thing is that I don't feel faint. I tried standing up quickly just to see what would happen. Nothing. No dizziness. No black spots in my vision. I walked around the apartment and didn't even get winded. A few minutes ago I noticed something else. I can't hear my own heartbeat anymore.
+
+I hadn't even realized I'd been hearing it until it disappeared. Since Thursday, every quiet room has had this dull thump somewhere underneath everything else. I assumed that was normal and I'd just become sensitive enough to notice it. Now the apartment is silent, or at least as silent as it can be to me. I can hear the refrigerator in the kitchen, water moving through the pipes in the wall, and someone coughing two apartments away. I can hear somebody's pulse in the hallway, but I can't hear mine.
+
+I know I should call an ambulance, and I will. I just wanted to put this somewhere first because I don't know what happened Tuesday night, and if something happens to me, I want some kind of record. While writing this, I started going through my phone again and found a photo from Tuesday night that I don't remember taking.
+
+The first was taken at 2:13 a.m. It's a selfie of me and the woman from the bar standing in my bedroom. She's holding my phone out in front of us, and part of her arm is visible along the bottom of the picture. She's smiling directly into the camera, while I'm looking at her. There's blood running down the side of my neck, but neither of us seems particularly concerned about it.
+
+The second picture was taken about a minute later. It's a mirror photo in the full-length mirror across from my bed. I'm holding the phone myself this time, standing in front of the mirror with this blank expression on my face. The woman isn't anywhere in the picture. My bedroom door is closed behind me, which is what caught my attention because I almost never close it. I live alone, so it normally stays completely open against the wall.
+
+With the door closed, the entire inside of it is visible in the reflection. Three words are written across it in black marker: **Don't fight it.** I got up and checked, and they're still there. I'd been walking past them for three days without knowing because when the door is open, that entire side sits against the wall.
+
+I've been staring at that second photo ever since. I apparently took it myself, but I don't remember. I don't remember standing in front of that mirror. I don't remember the woman being in my bedroom, and I definitely don't remember watching her write anything on my door. The timestamp says she was standing beside me at 2:13 and gone by 2:14, and whatever happened in that minute is just as blank as the rest of the night.
+
+I called 911 a few minutes ago and told the dispatcher that my heart rate had been dropping for hours. She asked if I was having chest pain, trouble breathing, dizziness, or weakness. I told her no to all of them, which seemed to confuse her more than anything else I had said. She had me unlock the front door, sit near the entrance, and keep the phone on speaker while she called an ambulance.
+
+While I was talking to her, the pulse oximeter showed eleven, then eight, then stopped showing a pulse altogether. I told her what happened, and she asked me to check my heart rate at my wrist while she counted out fifteen seconds. I couldn't find anything. She had me try my neck instead, and when I told her I couldn't feel anything there either, she went quiet for a second before asking if I was still breathing normally. I told her I was.
+
+She told me not to stand up again and not to keep checking it. She just kept saying the paramedics were close and asking me to tell her immediately if I felt faint, confused, short of breath, or had any chest pain. I put my hand over my chest anyway. There was nothing there. No fluttering, no weak little beat I was missing at my wrist, nothing.
+
+I told her I couldn't feel my heart beating at all. She didn't tell me that was impossible. She just asked me again how I felt, and when I said fine, she paused before telling me to stay on the line with her. I checked the time when I first lost the pulse. That was four minutes ago. I still can't feel anything in my chest, and I don't feel dizzy or weak. If anything, I feel more awake than I did before. The dispatcher just told me the paramedics are entering the building, but I already know. I can hear their hearts coming up the stairs.
+
+I'm going to hit post now before they get here and take my phone away or decide I need to be sedated or whatever happens next. If this turns out to be some bizarre infection or reaction to whatever happened Tuesday night, hopefully I'll have an explanation soon. If I can, I'll update everyone after I get to the hospital.
+
+Hopefully.

@@ -1,0 +1,167 @@
+Hello. This is a paranormal experience that happened to me.
+
+First of all, I live in Turkey, and the place where this happened was a small village. The population barely reached 50 people. Almost nobody would walk around the streets. You would only see a few elderly men heading toward the mosque during prayer times.
+
+Anyway, let's move on.
+
+It was around 10:30 or 11:00 PM that night. I don't remember the exact time. There were barely any streetlights in the village, so it was completely dark outside. I was bored at home, so I decided to go outside for a while.
+
+I turned on my phone's flashlight and started walking. At the same time, I was texting a friend. I was so distracted by the conversation that I didn't realize how far I had walked.
+
+After a while, I looked up from my phone.
+
+There was nobody around me.
+
+Just darkness and complete silence.
+
+Suddenly, I felt like I needed to go home. I had just turned around when...
+
+I heard footsteps.
+
+They were coming from behind me.
+
+It sounded like someone was slowly walking.
+
+At first, I tried not to worry about it. Maybe it was someone from the village. But after a few seconds, the footsteps started getting faster.
+
+Then, suddenly, I heard the scream of a wild boar coming from the direction of the forest.
+
+That was when I genuinely got scared.
+
+I ran toward home. I didn't even dare to look behind me.
+
+When I got home, I was completely out of breath. But I couldn't get those footsteps out of my head.
+
+Maybe there really had been someone there.
+
+Maybe there was a wild boar in the forest.
+
+For a moment, I even thought, "Could someone be slaughtering a boar out there?" Then I realized how unlikely that was. Pork is forbidden in Islam, and it would have been extremely strange for something like that to happen in our village. Still, I couldn't think of any other explanation.
+
+But I couldn't stop thinking about what had happened.
+
+So I decided to go back to the same place.
+
+This time, it was around 1:00 AM.
+
+The village was completely silent.
+
+When I reached the place, there was nothing there.
+
+No footsteps...
+
+No screams...
+
+Not even the slightest sound.
+
+"I scared myself for nothing," I thought.
+
+I was just about to turn around when...
+
+I heard a drum.
+
+Then a zurna.
+
+Then the sound of people laughing.
+
+Suddenly, the forest was filled with the sound of a huge wedding celebration.
+
+WTF?
+
+The village barely had 50 people.
+
+Who was having a wedding at this hour?
+
+And why was it in the middle of the forest?
+
+My curiosity got the better of me, so I started walking toward the sounds.
+
+After a while, I saw lights between the trees.
+
+There really was a wedding.
+
+People were dancing. Drums were playing. Zurnas were blasting.
+
+But something felt wrong.
+
+I had never seen any of these people before.
+
+They weren't from the village.
+
+At first, I didn't think much of it. Maybe they had come from another village.
+
+Then I looked at one of them.
+
+And I noticed something.
+
+His feet were backwards.
+
+For a moment, I couldn't believe my eyes.
+
+I looked at the person next to him.
+
+His feet were backwards too.
+
+Then I looked at another person...
+
+The same thing.
+
+My entire body went cold.
+
+I knew what I was looking at.
+
+I had stumbled upon a jinn wedding.
+
+At that exact moment, the sound of the drums and zurnas slowly began to fade.
+
+Everyone at the wedding went silent.
+
+Then I heard another sound.
+
+A religious chant...
+
+But it wasn't normal.
+
+It was being played backwards.
+
+And it sounded slowed down as well.
+
+Every single person there suddenly looked up at the sky.
+
+Then...
+
+They started screaming.
+
+I don't know what they saw.
+
+I just turned around and ran.
+
+But as I was running, I noticed that one of them had seen me.
+
+They knew I was there.
+
+Someone shouted something at me in Arabic.
+
+I didn't understand what they said.
+
+But I didn't stop.
+
+I just kept running.
+
+When I got home, I told my family everything.
+
+They didn't really believe me.
+
+They thought I was lying or that I had simply scared myself.
+
+But I know what I saw.
+
+I still don't know what happened there that night.
+
+I only know one thing for certain:
+
+That was not a normal wedding.
+
+And I will never go into that forest at night again.
+
+But I still feel like they're watching me, I think I'll die one day.
