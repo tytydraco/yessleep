@@ -1,0 +1,203 @@
+[\[Part 1\]](https://www.reddit.com/user/RandomAppalachian468/comments/1wk3pcf/reports_from_tower_eight_part_1/)
+
+The morning of day three found me standing like a caged animal at the perimeter fence around the base of Tower Eight, staring out at the forest beyond. It was a colder morning, the nights getting chillier as autumn advanced closer, and here in the mountains it would progress fast in the next coming months. Despite that, I stood transfixed, dressed in a light flannel shirt and jeans, glaring with confused annoyance and unease at the other side of the clearing.
+
+It was nearly invisible from here, but I knew what it was from the sheer dread the object invoked in me the instant I spotted it on my morning rounds. The fourth marker lay further to the west than the third, just downslope of my tower, and even from the fenceline I could already guess what direction the skull adorning it would be facing. I hadn’t gone out to it yet, arms at my sides, unable to bring myself to step outside of the gate.
+
+*It wasn’t there yesterday. I’m not crazy. It wasn’t there.*
+
+Curling and uncurling my fists, I tried to breathe slow and focus on some form of constructive idea as to what to do. My shift was over, Melonie in Tower Seven was busy at her dayshift role, and I could easily call her up on the radio if needed. Surely there was some kind of bureaucratic rule we could use to cite whoever was doing this and put an end to it? Littering, poaching, something? Even if the bones were from old kills, this had to be against some rule somewhere related to park cleanliness. I was ready to head back to the tower cabin and radio this latest afront in when, in the middle of my pondering, I saw a flicker of movement among the trees.
+
+Deep in the cluster of spruce, pine, and fir, something moved with slow deliberation, a round dark shape that slid from behind a tree trunk at the very edge of my line of sight. It was still too far to make out fine details, but I knew in an instant what it was.
+
+A face.
+
+A pale face, wreathed in long, dark hair, peeking at me from behind a tree.
+
+I blinked, and it was gone, ducking back around the tree, the shadows dancing where it had been mere seconds prior.
+
+For a moment, chills ran down my back, a prickling of fear that made my throat run dry. Then, slowly, it morphed into a simmering irritation that flared to angry resentment. They were *right there*, watching me, taunting me, playing this stupid game as if whoever it was had nothing better to do. Did they think this was funny? Scaring me, making me lose sleep, turning my dream job into a nightmare? Did they really think they could run off into the woods, snickering with their phone in hand, and get away with it all? No, they were close, very close, and I’d had enough of this nonsense.
+
+Throwing open the man gate, I stalked out into the clearing and glowered at the forest beyond. “Hey!”
+
+My voice carried into the valley below, and I realized just how silent it had become, the birds quiet, the insects ceasing their trilling once more. As if I’d violated some sacred rule, the entire mountain held its breath, but in my blind fury, I didn’t care.
+
+“I see you!” I shouted, heart pounding, blood surging, fists balled at my sides in trembling knots of enraged muscle. “You think you’re being funny, huh? You think you’re being cute?”
+
+Within the trees, the shadows seemed to stretch, deepen, shift in their proper places, though I couldn’t tell if it was the movement of clouds overhead or my eyes playing tricks on me. I could almost feel the giddiness of the unknown watcher within their protective shroud, likely some dumb kid recording a video for social media, ready to brag to his friends about what a great joke he’d played. They were laughing at me, I could sense it, this unknown person, watching and smiling from their hiding place among the spaces between the sunshine.
+
+Picking up a rock, I hefted it in my hand and eyed the first marker. “Come out! Come out, or I swear, I’ll smash your stupid trash heap! *I saw you!*”
+
+No one moved in the forest, and my pulse roared in my ear. I raised the rock high, towering over the little pillar of bones, and brought it down as hard as I could.
+
+*Crack.*
+
+Bone splintered, the skull on the first pillar shattering under the chunk of stone in my hands. I swung again and again, until the first pile was reduced to broken sections of dry-rotted bone, snapped twine, and whatever greasy black sludge had glued it all together. Gasping under the exertion, both from my pent-up frustration and the repeated swings, I moved on to the second marker, then the third, until finally I reached the fourth, almost out of sight of the tower clearing.
+
+*Crack, squelch, crunch.*
+
+Sweat dripped from my brow as I battered the marker to pieces, stopping to pick up the little mammal skull when it rolled to the side and setting it on a rock to make the destruction easier. It felt cold under my touch, more frigid than the late-summer air, yet no condensation appeared on its weathered surface. My skin crawled at the sensation of the thing in my palm, and I raised the stone to strike once more when, through my fervor, I noticed something.
+
+On the top of the skull, overlaying the fissures present in every living thing that has its cranium grow and form from infancy, there was a sprawling, gray mark. It looked to be daubed onto the bone with some kind of charcoal paste, though the lines were clear enough for me to make out a shape.
+
+[A spider.](https://www.reddit.com/user/RandomAppalachian468/comments/1pni27v/theres_something_wrong_with_the_wickenshire_house/)
+
+It sprawled its eight legs across the animal skull in an almost possessive way, the mandibles drawn as if buried into the upper reaches of the eye sockets. Interestingly enough, it looked as though the mark was made from two slender handprints upside down, the eight legs each a finger, the mandibles both arched thumbs, the combined palms a bulbous main body. I had never seen this kind of artwork before, and had been too busy smashing the other pillars to check if they too bore the same emblem. It occurred to me how stupid I was, out here, this deep into the trees, armed only with a stone and a sinking feeling in my gut. Somehow, now that the anger subsided in favor of uneasy confusion, I began to wonder how I’d even thought to do something so foolish at all, the rage unlike my usual mental state. I didn’t fly off the handle, didn’t punch holes in walls or slam doors so hard that things broke. I wasn’t a violent man and would never have dared to do this last night, or the night before. It was as if someone had flipped a switch in my head, and I felt as though I didn’t recognize the hand that held the stone before my eyes.
+
+Without finishing my last act of destruction, I dropped the rock to the soft pine needles, and stumbled backward, eyes fastened to the strange spider symbol on the animal skull. The silence around me pushed into my ear canals with a smothering stillness that made nausea rise in my stomach. My legs felt heavy, my arms seemed made of lead, and each breath took an enormous effort to pull in and out of both lungs.
+
+*I shouldn’t be here.*
+
+The thought rolled over and over in my mind like a mantra, growing louder and louder with every step I struggled to take back toward the fire tower.
+
+*I shouldn’t be here.*
+
+A twig snapped somewhere off to my left, maybe twenty yards away, and in the corner of my eyes, I caught a blur of motion.
+
+*I shouldn’t be here.*
+
+At last, I managed to get myself moving, shuffling at half my previous speed. My lungs ached, head spun, and spots danced before my eyes, but I forced myself to keep going. Deep in my bones, I knew that I had done something wrong, so very wrong, by touching those markers, and needed to get clear of the suffocating forest. I tasted metal, a harsh static rose in my ears like an old radio speaker, and my skin crawled as if covered in a thousand tiny legs. It took every bit of willpower I had, but eventually I stumbled back to the clearing’s border.
+
+*“Hey!”*
+
+My heart skipped a beat, the blood freezing in my veins, and I lurched to a halt just at the edge of the tree line to stare.
+
+In the slanted rays of the morning, it was hard to see properly, but I could just make out the shadow of a figure on the observation deck of the tower looking down at me.
+
+It occurred to me that I’d left the man gate open in my mad dash into the woods, and I hadn’t been watching it at all since I started busting apart the bone markers. Whoever was up there, they were a blur in my squinted vision, obscured by the darker side of the tower roof ledge. They didn’t move, not an inch, standing tall and rigid in the shadows, but I could tell from how their murky head was tilted downward that they were looking right at me. As before, I saw nothing, no face, no eyes, the features completely indistinguishable from this far off, everything hidden by the glare of sunlight around the tower that threw them into darkness. Even then, it wasn’t their statuesque presence that sent rivers of ice down my back.
+
+It was their voice.
+
+*My* voice.
+
+*“I see you!”* It called to me, the same pitch, the same intonation as what I’d used before, a perfect copy of me that wavered across the empty air to echo over the trees.
+
+Ten long, grueling seconds passed, the world silent around me as I stared, slack jawed. My trance was finally broken when the figure turned and, without another sound, darted around the corner of the cabin out of sight. No footsteps rang out from the observation deck, no shoes thundered on the stairs, just a quick blur of motion and . . . nothing.
+
+*What the hell?*
+
+Adrenaline came to my rescue, freeing me of the nausea, the dizziness, the static in my head, and I sprinted for the man gate in the perimeter fence. Desperate for something, anything to use as a weapon, I ran to my Subaru and rummaged around in the back until I at last found a rusty old tire iron. All the rest of my things were up in the tower, along with my car keys, which meant the pathetic steel rod was my best bet. It wasn’t much, but it would have to do.
+
+Dashing up the stairs, I threw myself at the cabin door, iron raised, unsure of what my plan was, but too afraid to turn back now. Someone was in my tower. Someone was mimicking me, following my every move. This had to stop, I had to *make* it stop, even if that meant doing something drastic.
+
+The doorknob turned with a smooth *click* in my palm, and I flung the door open, trembling and wide-eyed.
+
+An empty room greeted me, exactly the same as it had been when I left to check the ground lights not fifteen minutes ago. My binoculars sat on the windowsill where I’d put them. The coffee machine still had a half-pot from what I drank on night shift. My bed waited with the sheets half drawn back, in anticipation of me lying down after the shower I would take once the morning inspections were complete. I let myself breathe a half-sigh of relief, content that at least it was all there, undisturbed.
+
+Until my eyes landed on the radio.
+
+“No.” My heart sank, and I staggered to the set, horrified and sick to my stomach all over again. The army surplus set had been smashed, its glass dial shattered, the mic cord ripped out, the bulky square housing dented in like it had been folded by a hydraulic press. The black walkie talkie was gone, its charging station crushed to plastic splinters, and worst of all, my car keys were no longer on the little hook by the door. No matter where I looked, tearing the place apart, I couldn’t find them, and I knew deep in my soul that they weren’t here anymore.
+
+I searched for the next two hours and never found anyone, not in the tower cabin, the observation deck, or the grounds inside the perimeter fence. There were no footprints other than my own, no signs of break-in or forced entry, and nothing else had been taken. The rifle was still in the tower, and in working order, the ammunition untampered with. My food stocks were fine, my clothing left alone, even my wallet unmolested, not that there was much to steal in there. There was no damage to the tower’s water or power systems, and even the toilet was unharmed. Whoever had done this seemed to have no interest in leaving me defenseless, starving, or without shelter. They just didn’t want me to call for help and didn’t want me to leave.
+
+Which, by itself, was already a terrifying thought.
+
+Finally, I gave up the frantic search, and slumped down on the edge of my bunk, gazing at the room around me with a numb sense of compounding, muted panic. This had progressed far beyond a prank; someone was out to get me. I couldn’t walk to the nearest tower, it was miles away, and I could get lost out there, or caught in the dark when night fell. If I followed the road back to the ranger station at the base of the valley, that would take most of the day, and I would still be vulnerable out there alone, even with the rifle. Cell service didn’t pick up until the roads got back into town, which was even further than the ranger station was. If I didn’t report in, I could get in trouble and . . .
+
+*That’s it.*
+
+A smile flickered across my lips, and I sat up a little straighter. Of course, it was that simple! I didn’t need to call out; the rangers would notice when I didn’t check in tonight and send someone up to look for me. Sure, I couldn’t call for help right now, but that basically ensured that help would eventually be on the way. I wasn’t lost somewhere no one could find me, I was in a well-known location, with plenty of supplies and a decent rifle. I would be fine. Once the other rangers saw everything and read my reports, this whole situation would be resolved. The unknown watcher would eventually be caught, I would be vindicated, and who knows, maybe even promoted. After all, none of this was my fault; I’d done everything I was told to do, hadn’t I? Yes, this would all turn out okay in the end. I just had to wait until nightfall, and someone would come for me.
+
+Armed with this newfound determination, I set about fortifying the tower as best I could. I made sure the gates were locked, barred the windows, and kept the loaded rifle slung over my shoulder at all times. I put on a fresh pot of coffee, even ate a light breakfast, and sat waiting by the western-facing windows, knowing that at some point a ranger vehicle would roll up the gravel access road to come for me. Sunshine warmed the cabin, the chair felt soft under my back and gradually, I started to calm myself from the morning’s bizarre ordeal.
+
+“Just a few hours.” I flexed my fingers on the smooth walnut rifle stock, speaking into the stillness of the cabin to keep any shadows from wriggling when my back was turned. “It’s just a few more hours. I’ve got this.”
+
+I’m not sure when I fell asleep, but by the time I realized, it was too late. My subconscious thrashed against tides of gray, endless flickers of darkness, punctured by dim, twisted images that looked like trees. I saw malicious eyes peer at me in the gloom, heard bare feet trod the soil behind me, felt the overwhelming presence of something pulling me, not by my hand or clothes, but something deeper. A tug, burrowed into my chest like a barbed fishing spear, one that led me on through the maze of trees toward something.
+
+Something *huge*.
+
+Something dead but not quite lifeless, shrouded in curtains of dense cruel fog, made from icy stones that screamed and wailed in a thousand voices within my head . . .
+
+At some point, I jolted awake to find that night had already fallen, the world wreathed in shadows outside of my tower, with pale shafts of whitish-blue moonlight filtering in between the wooden slats on the shuttered windows. It was cold in the cabin, enough that my breath misted in front of me, but not so much that I didn’t immediately pick up on the smell that permeated the entirety of the dimly lit interior.
+
+Stagnant wet earth.
+
+Pungent rotted wood.
+
+Sweet, intoxicating roses.
+
+My heart started to pound, and I sprang to my feet, rifle in hand, to paw for the light switch. I could have sworn I’d left the lights on earlier, along with the heater, both vital in the dying days of summer this far north. Yes, I had left them on, they were *on* when I drifted off. I knew they had been.
+
+Something crunched under my boots, and even as I found the switch at last, I didn’t understand what it was until the electric bulbs flickered to life overhead.
+
+*My God . . .*
+
+Draped all over the floor, as fresh as if they’d just been picked this morning, lay a carpet of ebony roses. They glistened in the weak glow of the lights, as if still wearing the morning dew on their reddish-green leaves, the curved thorns sharp, the silken petals unwithered and lush. The smell was overpowering, but not more so than the wave of nauseous dread that crashed through me in terrible condemnation as I looked between the shutter of the nearest window.
+
+Far below, down in the clearing, a ring of small objects circled the tower, maybe ten yards outside of the perimeter fence. They were placed in perfect concentricity, each no more than a few feet from the other, gleaming a dull pale gray in the moonlight. From this far up, and with the darkness impeding my vision, I couldn’t see exact details, but I didn’t need to. I knew what they were.
+
+Dozens upon dozens of bone markers encircled the tower, each topped with another little skull. Every single one of them stood no more than a few feet high, bound in forest-made twine and what I now knew to be the pulp of a hundred crushed roses. The skulls, from who knows how many different animals, were all pointed inward, watching the tower like eternal sentinels with their bottomless, hollow sockets. More spanned out into the trees, down the slopes, across the trails, in what could only be described as a pattern similar to a large net.
+
+*Or a web.*
+
+That thought hit me like a punch in the gut, and I stumbled back from the window in desperate, choking fear.
+
+As if on cue, the second I moved away from the window, the screaming started.
+
+*“Help me!”*
+
+*“Please!”*
+
+*“Where are you?”*
+
+*“Who’s there?”*
+
+Men and women. Old and young. Fear and pain. Different voices, different pitches, screaming, wailing, crying, cascaded from every direction. Some echoed far away, then seemed to reverberate from another spot much closer, while others sounded as if they were right outside the perimeter fence. Their cries echoed and bounced off the rocky slopes, through the darkened forest, wavering in the wind as they circled my tower. Another voice called out alongside them, and to my terror, I knew it right away.
+
+*“I see you!”*
+
+My own shout barked with the others through the darkness outside, the faux anger in it almost taunting, the intonation slipping every now and then to crack in ways that I knew weren’t mine. I couldn’t see anything whenever I looked through the windows, the scope of my rifle useless in the dark, but the sounds were there, closing in from every side. They knew where I was, and they knew I was watching.
+
+Worst of all, they knew I was trapped.
+
+I staggered back, snatching up what few things I could grab in my deranged flight, and hurtled to the small bathroom in the rear of the cabin. It wasn’t safe, nowhere would be, but at least it could muffle some of the terrible sounds coming from outside. It was only after I dragged myself inside, slamming the bathroom door shut, that I glanced at the mirror above the sink.
+
+*Oh God.*
+
+My pale, horror-stricken reflection stared back at me, and we both stood there in mute defeat, arms handing at our sides, random possessions mounded on the linoleum around our feet. If there had ever been any chance, any hope for me, it was gone now. In the deepest recesses of my soul, I let myself break into a thousand pieces as I blinked with tearful eyes at the charcoal gray symbol that had been painted onto my forehead.
+
+A spider.
+
+One made from two inverted handprints.
+
+I’m finishing this in the corner furthest from the door, wedged between the toilet and the wall with the laptop propped up on my knees. It’s hard to type with how hard I’m shaking, but I don’t imagine it matters if I have a few spelling mistakes. I can hear the voices getting closer. I think they’re inside the fence now. Soon they’ll make their way up the stairs and onto the deck, but there’s no rush. The door won’t stop them. The rifle won’t either. I don’t think anything can.
+
+Nothing I have, anyway.
+
+There is no way out. My phone’s clock hasn’t moved in hours, and neither has my wristwatch. The sun isn’t rising. No trucks rumble on the gravel road. No one is coming. They can’t for the same reason I can’t run down the steps and into the forest.
+
+It’s already too late.
+
+When I blink, I see things behind my eyelids, flashes of something like a dream, or a vision I cannot wake from. I feel charred dead grass and scorched rocks under my feet. I smell the wet earth. I taste the cold dew on my tongue. I sense the others walking alongside me, their faces masked with shadow, guiding me onward in silent march. Two young women. An old man. [A burly hunter.](https://www.reddit.com/user/RandomAppalachian468/comments/1ra8re8/the_fifth_voice/) Always, our destination is the same.
+
+The house.
+
+A huge stone house, bathed in fog, ringed with five tall markers of twine and bone.
+
+I see her waiting there for us, a face in the uppermost window, a swirling gulf of shadow where the firelight flickers in dancing sheets of orange and red. I know it’s a *her* because I can hear the sweet, soft voice in my ear. She sings to me, calls my name, guiding me as she has so many others. I am chosen, she tells me. I can rest at the foot of my own marker. I can sleep the slumber of unnumbered stars, endless dreaming of a world that daylight never breaks.
+
+I am so tired.
+
+The pillars tower above us with their five great skulls of the forest. A bear. An eagle. A coyote. A snake. An elk. Once for each. The twine slithers around my wrists, my ankles, my neck. I taste dirt, feel it caked in my lungs, scratching under my eyelids, clogged in my ears. My skin is so cold, the clothes heavy and stiff like my limbs. I cannot move. I no longer need to.
+
+It is complete now, the circle. The foundation has been laid, thrones made ready for the Four, servants of the Fifth. I see the lights glowing above us, great spouts of emerald flame that rise above the house in five long columns to a blackness that isn’t of our sky. It is a yawning Void that holds no moon, no stars, no light, but deep inside that veil, something moves.
+
+Something watches.
+
+Hanging from my place upon the Elk’s pillar, I join the others as, in voices no longer our own, we tilt our faces to the sky and begin to scream.
+
+*Late on the evening of September 2**^(nd)**, Lucas \[Redacted\], aged \[Redacted\], of \[Redacted\], went missing from his assigned post as a fire watchman in the Jacob’s Fork Wildlife Division’s Fire Watchtower Number Eight. He had been an employee of the park ranger service for less than a week. Rangers were dispatched to his location following the victim’s failure to maintain an evening check-in routine and discovered he was not within the tower. A search was conducted of the premises by wildlife personnel, and after hours of intensive effort, Lucas was declared a missing person, initiating emergency response protocols. Search-and-rescue K9 teams followed a possible scent trail west, across the river valley to the \[Redacted\] area, but due to a sudden violent thunderstorm they were unable to maintain the scent any further. The official search remains ongoing.*
+
+*Authorities say the victim’s vehicle was still on the premises, with the keys in the ignition, in perfect working order according to the responding rangers. The station’s radio and handheld set were also present, undamaged, in contradiction to what the victim wrote in his personal journal entries. No sign of struggle or foul play could be found on site, nor any evidence of forced entry or break in of the tower’s perimeter fence. All the victim’s personal possessions were in the tower, along with the laptop from which this account has been retrieved, and his cell phone. Search teams also noted that the victim’s boots were left behind in the tower, along with the station’s standard issue rifle. The only thing missing was a large battery-powered flashlight, which it is presumed the victim took with him when he departed the tower. No footprints of the victim’s, or any other person, were found in connection with Tower Eight during the initial search.*
+
+*At this time, it is believed by local government sources that Lucas was experiencing some kind of mental breakdown due to his isolated position and wandered into the woods alone. He is assumed to be alive, and anyone with any information is asked to please contact the Jacob’s Fork Sheriff’s Department. Lucas is a \[Redacted\], stands at \[Redacted\], weighing \[Redacted\], with \[Redacted\] hair and \[Redacted\] eyes. He was last seen wearing \[Redacted\] though in his current state he might be wearing any combination of clothing. Citizens are encouraged to report any leads they might have, but maintain a safe distance, as the victim may be disoriented, and not in control of his mental faculties.*
+
+*Multiple other missing persons cases have been reported since the Sarden disappearance, including the disappearance of \[Redacted\], aged \[Redacted\], who was reported missing by his wife after going camping in the norther valley beyond Tower Eight. He is described as a \[Redacted\], standing \[Redacted\], weighing \[Redacted\] with \[Redacted\] hair, \[Redacted\] eyes, and wears \[Redacted\]. He was last seen wearing \[Redacted\]. No trace of \[Redacted\] has been found thus far, either in designated camp sites or on the surrounding trails.*
+
+*In addition, law enforcement spokesmen of Jacob’s Fork have announced that all hikers or campers within the \[Redacted\] area are advised not to hike or camp alone, and are to avoid the trails at night until further notice. Campers are encouraged not to investigate any strong smells they might encounter in the forest, not to approach strangers they do not know, and to not follow voices they hear off the trails unless they can plainly identify via sight and sound the individual making them. Any trail markers not of the official park manufacture are to be avoided, and it is highly encouraged that new sightings of non-standard trail markers be reported to the ranger station immediately. Until further notice, all vehicle access to roads leading to the following locations will be hereby restricted: \[Redacted\] access, \[Redacted\] access, \[Redacted\] access, and the \[Redacted\] area upper loop parking lot access. At this time, all citizens are also reminded that \[Redacted\] is still in official police custody, and therefore off limits to all non-authorized entry. Use of drones or other electronic recording equipment within this area is prohibited.*
+
+*This has been a public service announcement of the Jacob’s Fork Sheriff’s Department and the Jacob’s Fork Wildlife Division.*
+
+*Official review and redaction provided by the Black Crow Ecological Recovery Foundation. Together, we can fight misinformation. Together, we can keep our communities safe.*
+
+*Thank you for your cooperation.*
