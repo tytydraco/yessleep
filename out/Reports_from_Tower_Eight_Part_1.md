@@ -1,3 +1,5 @@
+[\[Part 2/Final\]](https://www.reddit.com/user/RandomAppalachian468/comments/1wl136n/reports_from_tower_eight_part_2final/)
+
 With a deep sigh of contentment, I leaned on the red metal handrail and stared out over the valley below.
 
 *This is so freaking cool.*

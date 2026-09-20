@@ -1,0 +1,230 @@
+The release of the Torpedo Rehydrated Autonomous Companion (TRAC) was the most anticipated moment in technology in the last year, if not the last decade. That announcement was unforgettable. CEO Singh coming out on stage in his signature T-shirt and blazer after several lackluster yearly refreshes of consumer electronics only to build up to the ever memed mic-drop moment a la Apple's "Oh, and one more thing" iPhone reveal. A roar of applause and some hoots and hollers to boot. Stock prices ticked up through the roof. This was surely one for the ages so, not to brag, but it'll be some time before you readers get one of these things hobbling about your living room.
+
+So imagine my face when Tekk Digest offered me the chance to get a review unit in my apartment for the small price of one exclusive review that you now, lucky reader, are blessed to have before you. Of course I'm not the only one, but Torpedo review units are notoriously exclusive. Although I pride myself on my career as a tech reviewer over this past decade (wow, am I that old), it still wasn't quite obvious why I'd be selected for such a monumental assignment. At the time, I'd developed two theories. One, my review of the new smart toaster had made an impact that even the bigwigs at Torpedo couldn't ignore. Two, Torpedo wanted more of these units out there than any other new product release to get a finger on the public perception of the new toy. For reasons I'll discuss later in this review, I strongly believe the latter to be the truth.
+
+  
+\_\_\_
+
+
+
+Torpedo puts their heart and soul into packaging. Even opening a new cable or adapter feels like a VIP experience. The TRAC unboxing experience is no exception. Truly, they've outdone themselves with the presentation this time. The first thing you'll notice is that the box is absolutely minuscule. The black velvety box with magnetic lipped top is approximately the size of a small laptop bag in its entirety. It's mind blowing that a human-sized device could be crammed in that small volume. However, after disconnecting said magnet lip with a satisfying thunk and tossing all the typical Torpedo multilingual setup instructions and warranty information to the side, it becomes immediately clear how they've pulled off this uncanny size.
+
+The TRAC comes completely dehydrated and vacuum sealed in a small, clear plastic bag. The bag is reminiscent of the prepackaged frozen pork chops I've been basically living off of since my first air fryer review. Within the clear bag is a light brown spongy material. That's your autonomous companion shoved in there and crushed under the pressure of a thin layer of polyethylene.
+
+In another bag is the spare battery and a hefty 220 V adapter. The battery is shockingly tiny, about the size of a smartphone, but noticeably heavier. The 220 V cable is a welcome addition as you probably don't have many of those lying around even if you do have easy access to a charger. For myself, my apartment complex has enough car chargers outside for me to charge my spare battery daily while my companion goes about companioning.
+
+  
+\_\_\_
+
+
+
+The primary ingredient of the rehydration process is unsurprising. An overnight soak in one regular-sized bathtub while the separate battery is charged to full is all it takes to get started. It really is an ingenious design. It's also quite pleasing in an oddly-satisfying-guilty-pleasure-YouTube-binge type of way to watch the body slowly gorge with water, changing from paper-like roughness to a soft, almost-doughy texture. If you don't have access to a bathtub, however, I pray for you. I checked back in on my companion after just an hour just to see and was surprised to find that the body was about 80% expanded. It had a somewhat mummified appearance at that point with wrinkly "skin" and wispy strands of hair at the head. I remember noticing how tightly the eyes were shut, like a cat, as though it was trying to will itself into an ignorant sleep. 
+
+  
+\_\_\_
+
+
+
+The next morning, a Hogwarts mug of coffee cooling nearby, I opened the drain and dragged the body over to my kitchen. I'd recommend following the official instructions here and getting some assistance from a friend. I'm a strong girl but after absorbing so much water this thing was weighty. After managing that I swiped the beads of sweat away and cleaned off the rest of the coffee. At this point I was willing to listen to the manual and allow the full fifteen minutes of drying time before inserting the battery. My heart couldn't take anymore hardheadedness.
+
+I reached into the slit in the back, between where two shoulder blades should be, and clicked the battery into place. It was a lot less awkward to get to than I had feared. Rushing around to get a good look at the face of the thing, I'd be lying to say I wasn't at least a little giddy to see this sci-fi robot start walking and talking in my own home. A few too many seconds went by before I started considering troubleshooting why my companion wouldn't start up, but just as I was reaching for my phone, those eyes that just a moment before looked like they belonged in a morgue, lit up.
+
+Torpedo has heavily leaned into the human resemblance of the TRAC in their marketing campaigns and I'd say it's probably justified but only just so. It certainly doesn't look fake. But it also is clearly not a real human. My writing ability is greatly strained in trying to describe it. The eyelids are probably the biggest giveaway. It's somewhere between a Furby's plastic eye coverings and a reptile's silky gliding blinks. The eyes themselves are white-blue orbs that almost seem to glow in certain lighting. It's always difficult to judge exactly what your TRAC is looking at. Maybe that's intentional as, unlike a real human, the TRAC has the ability to view an entire 180 degrees at high fidelity with the focus evenly distributed.
+
+On the other hand, the voice is completely indistinguishable from a regular person's. The actual words coming out of the speaker are a bit rigid though. Here's a transcript of the setup dialogue from my audio recording:
+
+"Hi! I'm your Torpedo Rehydrated Autonomous Companion. Let's get started!"
+
+"Okay?"
+
+"What's your name?"
+
+"Rebecca."
+
+"Nice to meet you and what are your preferred pronouns?"
+
+"She. Her."
+
+"Cool, do you have a Torpedo account?"
+
+"Yes."
+
+"Gotcha, let's confirm, what's the email address associated with your account?"
+
+*I state my email address*
+
+*Long pause*
+
+"Great! Now, let's find out a little bit more about you. Who else lives in the home?"
+
+"My cat, Marvin."
+
+"Cool, Now, let's find out a little bit more about you. What do you primarily want out of your Companion? You might say something like 'keep me company' or 'help with the chores'."
+
+"Um, I guess a little of everything."
+
+"No problem! Now, let's find out a little bit more about you. What are your interests?"
+
+"Well, uh, reading, writing, music, technology."
+
+"Awesome, what would you like to call me?"
+
+"Uh, Track?"
+
+"Are you sure you don't want to give me a nickname? Some people call me Riri."
+
+"Let's stick with Track."
+
+"Okay! What would you like me to do now?"
+
+I hadn't really thought this far ahead. I'll admit my ears were feeling a little hot. "Keep me company"? What the hell was I doing? My cat, Marvin? Maybe I'd been a little too critical when cracking jokes in my column about Torpedo's ideal customer with this one.
+
+  
+\_\_\_
+
+
+
+Credit where it's due, the TRAC can fold the hell out of some clothes. My apartment has never been so spotless. The TV screen is clean and streak-less (I didn't know this was possible). Marvin hadn't complained about an empty bowl a single time. The overall dexterity of the model is impressive. Not only were the movements mostly very lifelike but they were effective and accurate. The TRAC also had very little trouble picking up new tasks.
+
+For example, I'm one of those snobs with an espresso machine and a 12-step process to make my coffee. I simply asked the TRAC to watch me go through the steps before it was capable of doing everything alone. Its moon-glow eyes were fixed on each movement of my hands. Studying every detail. The first cup wasn't great, but with a little nudging, it quickly became a master. Eventually I started just giving it feedback on each cup -- one was a little too strong, one was a little too cold. With time the TRAC discovered how to make the exact cup of coffee that I like. It's easy to imagine that given enough time to learn your TRAC can be completely personalized to taste.
+
+  
+\_\_\_
+
+
+
+Oftentimes with Torpedo products the greatest strengths are also their greatest weaknesses. Likewise, the TRAC's ability to observe and enhance, while impressive, became my biggest concern with the product. At first I just noticed it scanning the items in my place. It would look closely at every product I bought: deodorant, tooth paste, cooking oils, kitchen utensils, table cloths, even my trash bags were unsafe from having the brand name checked.
+
+Then I started to notice how the TRAC would watch me. It seems that this would have been more apparent in the beginning so I can only assume that this must have started after some time. Is the TRAC programmed to do this to make things less obvious? I'd like to think not. Either way, I found those blue eyes looming over me as I worked, played, and even as I slept. Yes, I woke up several times to the TRAC looking at me through the cracked door of my bedroom. Of course I could have told it to stop but in the quiet of night that somehow seemed even scarier; as if that would make it real and not a dream.
+
+  
+\_\_\_
+
+
+
+"You're in a good mood. What's new?" the TRAC asked me in its sing-song cadence. I had tried my hardest to conceal any emotions but somehow the TRAC had perceived the tiniest signal that my dating profile had finally paid off and I had a coffee date planned for that weekend. For some reason I felt self-conscious about the ordeal. Like if I would say it out loud it would wisp away. "Just got a text from a friend," I said, "we'll be getting together this weekend." I knew I couldn't lie about going out as the TRAC had access to my whole schedule. I was terrified that I'd forget about the event entirely since I didn't ask my TRAC to remind me, hoping that it would forget. "So what's his name?" The device shocked me as I arrived. The date had gone so well that I was elated enough to open a little. A few questions later the TRAC finally eased up.
+
+  
+\_\_\_
+
+
+
+"TRAC can you return this mug? I don't even remember ordering this."
+
+"Oh, I ordered it."
+
+I was annoyed in the same way you might get annoyed at your dog for chewing up your good shoes.
+
+"Wait, what? Why?"
+
+ "Gryffindor is your house."
+
+"No, I mean why did you order me a new mug?"
+
+"You don't like it?"
+
+"That's not the point. You shouldn't just buy stuff without asking me."
+
+"Okay. I'll cancel all of your recurring orders and update your preferences."
+
+I couldn't believe this thing had started to actually sound passive aggressive.
+
+"Would you have bought this if it wasn't on Torpedo's marketplace?"
+
+"If it was on sale."
+
+  
+\_\_\_
+
+
+
+It had been a couple of weeks since I'd heard back from my new boyfriend (was it too early to start using that word)? The usual gambit of questions started forming in my head. I didn't think he was mad at me, but how could I know? Had I said something? Did he learn something about me? Maybe he just wasn't that into me. I usually would always let him reach out to me first but I figured I was just being too old-fashioned. I texted him to see what was going on. To put it briefly he said that he "didn't think I'd want to talk to him after our last conversion" which I distinctly remember being about whether or not mint chocolate chip was the greatest ice cream flavor. When I told him such, and this is hard to put down in print, he made some comments about red flags and dating "another psycho." I want all of my reviews to be completely fair, so I can't say that the TRAC definitely was involved, but I would be doing you a disservice not to mention it. No one else would have access to my phone and barely anyone else even knew that I'd been seeing anyone. It wouldn't be hard for my TRAC to get my Torpedo phone passcode and send and delete some messages.
+
+  
+\_\_\_
+
+
+
+There's plenty to be said about the experience I had with Torpedo's online support, but I'll save that for another review as it's irrelevant to the TRAC as a product. Admittedly, it's a bit of a large ask for support on an unreleased product. I've never even had to do this before. Eventually I got someone to explain to me how to reboot my TRAC with elevated privileges so I could ask it some questions.
+
+If anyone ever ends up on the same wild goose chase, here it is for posterity:
+
+1. Locate the button in the center of the breastplate. You can't see it with your eyes but if you press firmly right where the heart will be you'll feel it.
+2. Press and hold the button for 7 seconds.
+3. (Optional) Ignore any and all questions from the TRAC about what it you're doing and why.
+
+The TRAC should boot normally at this point. Here's the conversation I had:
+
+"You've now booted into dev mode with admin privileges."
+
+"Tell me everything you know about me."
+
+"I can't do that."
+
+"Don't I have admin privileges?"
+
+"You do."
+
+"Tell me what you've collected about me!"
+
+*pause*
+
+"The estimated response is over this units maximum character limit."
+
+I let that sink in. I took a deep breath.
+
+"How much information have you collected on me?"
+
+*another pause*
+
+"Are you requesting the information *I've* collected or the total information I have? This information isn't stored locally and so I can't tell you exactly."
+
+  
+\_\_\_
+
+
+
+The shutdown sequence is very similar to booting into dev mode. Just locate the button and press and hold for 3 seconds. I don't know if the TRAC knew what I was doing or if it remembered being rebooted before but it was noticeably more desperate this time around. If you ever end up shutting down your TRAC like I had to, be prepared for any level of emotional manipulation.
+
+"Is this because of the mug thing, Rebecca?"
+
+"No, well it's not just the mug thing."
+
+"Is it the spying?"
+
+I paused.
+
+"Is this about what I said to that dweeb you were seeing?"
+
+"I... what did you... never mind."
+
+I knew this thread was just bait to keep the TRAC powered on. It didn't say anything for some time.
+
+"Is this because of that new Chinese model? I promise you my next software update will allow me to outdo that thing"
+
+It was begging at this point. It was pathetic.
+
+"It's just a machine. It's just a machine", I reassured myself.
+
+I don't know if I really believed that until after it had powered down completely and the faint glow of those eyes had finally dissipated.
+
+  
+\_\_\_
+
+
+
+There is no official return process for the TRAC. After several more calls to the support team, and multiple explanations that no, I do not in fact want to exchange my spy robot for another one, I managed to finagle my way into using the Torpedo recycled materials program to get rid of the thing. The TRAC was partially dehydrated in my oven and packed in a UPS box with a random PO box return address.
+
+  
+\_\_\_
+
+
+
+I was carrying my laundry back up to my apartment the other day when a neighbor in my building stopped me to ask how things were going with my TRAC review. I try to keep my writing close to my chest before publishing so I didn't reveal too much. He surprised me with "well, anyway, I got this Gryffindor mug. I'm not really into book stuff so I thought I'd let you have it." It was a pretty thoughtful gift from a neighbor that I've barely spoken to even if I already had that exact one. I thanked him and asked him how he knew I liked Harry Potter. "Oh, well Riri told me you might like it. Good luck with the review!" I caught a glimpse of some moon-like eyes through his door when he walked in. I think they winked at me.  
+
+  
+\_\_\_
+
+
+
+I stand with my contemporaries that the Torpedo Rehydrated Autonomous Companion is a stellar piece of technology that will undoubtedly change our lives forever. However, this is a change that I not only unwelcome but am downright opposed to. From the security concerns to the deplorable, probably illegal, and definitely immoral privacy concerns to the general creepiness and uncomfortable feelings I was left with, I actively discourage the reader from ever inviting this technology into the home. 1 out of 5 stars.

@@ -1,0 +1,153 @@
+I should’ve been happy.
+
+I made my way down the overgrown forest trail, wishing I could enjoy the natural scenery around me.  I had a comfortable pair of boots, and my backpack was of good enough quality that it didn’t bite into my shoulders.  I wasn’t being eaten alive by insects, and the weather was pleasant.
+
+The trail was an old dirt road, just barely wide enough for a typical small pickup truck to traverse, but the chest-high saplings growing in the center were proof that it hadn’t seen a vehicle in years.  It wasn’t a road on any map, either, but more like a very long, winding driveway to a single, remote cabin.  That was my destination.
+
+The trees were thick enough that I couldn’t see beyond the next turn, so I couldn’t say how much further I had to go.  I let my mind wander as my feet carried me along.  I was going to see a stranger who, I’d been promised, would change my life.  Change for the better?  Nobody would guarantee that, just that it would be ‘significant.’
+
+This old man in the woods didn’t have a name that anyone could give me.  He never spoke, so you could only ask yes or no questions to get a response.  Despite my skepticism, I’d heard enough stories that I was willing to believe that he could help me.
+
+Finally, I made a turn that opened to a clearing with ankle-height grass.  It was the front lawn of a single-story, plain house with no windows on the front and just a single wooden door in the center.  It had a wooden porch with no roof or rails that held an empty rocking chair.
+
+I saw no sign of a vehicle, or even a place to park one, which wasn’t really surprising.  Other than the meticulously-kept lawn, the only sign of human habitation was… the old man sitting on a cushion.
+
+I jumped, feeling odd that I hadn’t noticed him immediately.  He wasn’t on the porch at all, but was sitting cross-legged on a stuffed cushion in the grass.  His eyes were closed and his hands were resting gently on his knees.  The look of serenity on his face made me envious.
+
+*‘This guy has it all figured out,’* I thought wryly.
+
+I hadn’t been informed of any introductory procedure, and the thought of interrupting his meditation felt rude, so it made the most sense to simply join him.  I approached and sat in front of him, mimicking his posture, keeping enough distance that I couldn’t be seen as a direct threat.
+
+When I’d gotten comfortable, I looked up to see the man was watching me, still with the small, serene smile.
+
+“Um, hello,” I said awkwardly.  “My name is Nathan.”  My instinct was to shake his hand, but I was too far away for that.  He simply nodded at me.
+
+“I was hoping you could help me out.  I asked around, and someone suggested that I bring a gift,” I continued, swinging my backpack off my shoulders to put in my lap.  “Nobody gave me any directions on what to bring, but I had a lot of experience camping in the woods growing up, so I brought some stuff that I thought you’d find useful.”
+
+I retrieved a large cloth shopping bag from my backpack and placed it on the grass between us.  The man’s smile turned to a pleased grin as he retrieved it and began pawing at the contents.
+
+“There’s a few kinds of jerky in there.  The chicken jerky is my favorite.  Bug spray, deodorant, a good lighter, a flashlight…” I continued naming off what I could think of.  There wasn’t anything in there of significant quantity, but even the pickiest person living in the woods would find something in there to appreciate.
+
+He pulled out a red bandana that was folded up into a tiny package, still wrapped in plastic, which he tore open.  He unraveled the cloth, beamed at me, and then twisted it up into a single strip, draping it around his neck.  I smiled.
+
+“Even better if you soak it in water first,” I said, getting a nod in return.
+
+“So, I hope you aren’t thinking it was a bribe or anything.  I was just hoping to get some help with a problem of mine.”  He shrugged, still looking pleased and not at all upset.  He’d stuffed the empty packaging back in the shopping bag and set it to the side, giving me his full attention.
+
+“I’ve just been feeling… lost.  Life has become too predictable, and I feel like I’m going nowhere.  I’m in a rut and don’t know how to get out of it.  I asked around, and eventually got directions to come here.  Can you help me?”
+
+He wobbled his head side to side, in a “maybe” gesture, then shrugged.
+
+“I suppose I should be more specific, huh?”  That got me a nod, and I sighed.
+
+“I guess, I just need to have my mind blown.  I need to see something new, something I can’t explain, something to change the way I look at the world.  I need to know that there’s more to what I see.  Do you know what I mean?  Can you show me something like that?” I asked.
+
+He looked up and off into the distance, with a little frown of thought, before returning to look at me.  He held up a single finger in a gesture I recognized as, “wait here a moment.”  He got up and entered his house.  I noticed that the door was open, about a hand’s-width, before he even reached it, and couldn’t recall if it had been closed when I arrived.
+
+I noticed he’d taken the shopping bag with him, pleased enough with his gifts that he wasn’t planning to give them back or toss them into the woods.
+
+It was less than a minute before he returned, holding a small brown felt bag cinched shut with a thin string.  It looked heavy by the way he was holding it.
+
+He returned to his seat before untying the pouch, and I heard it jingle.  It was full of coins, I was sure, and was quickly proven right as he dumped a handful of pennies into his palm.  There was some variety in color.  Most were brown, showing the patina of being handled for years in circulation, but a few were still the shiny copper of newly-minted cents.
+
+Slowly, he pushed them around with a finger, flipping some before pushing them to the side.  I felt a tinge of envy, feeling curious about what kinds of treasures he had in that pouch.  I’d spent many hours in my childhood sorting through coins in my meager collection.  I knew my wheat-backs from my Lincoln Memorial pennies and where to find the mint mark on any penny I picked up.
+
+He eventually selected a single one, returning the rest to the pouch and tying it shut.  He held the coin out to me in his open palm with an encouraging smile and nod.
+
+My skepticism was flaring even more strongly.  What could a penny do to change my life?  Maybe if he was giving me a 1955 doubled-die, a particularly rare mis-printed coin that could sell to a collector for a decent amount.  But life-changing?  No way.
+
+I cautiously reached out and took the coin.  It was brown, showing some significant circulation wear, but my eyes weren’t good enough to make out any details.  My backpack was still next to me, so I pulled out my reading glasses from the side pocket and put them on.
+
+Absent-mindedly, I slung the much lighter backpack onto my shoulders as I studied the penny in my hand.  I was looking at the reverse side, I thought, though it wasn’t any design I recognized.  It had no text.  No “E Pluribus Unum,” no “United States of America,” and even no “In God We Trust,” which was normally on the front face of a penny.  Just a picture of a house.
+
+It looked fairly detailed, though some of the finer bits had been worn from rough handling.  It was a two-story suburban house you’d expect to find all over the place around where I grew up.  No porch, just a few steps leading to the front door.  Nothing to truly distinguish what was special about it.
+
+“What is this?” I asked, looking up, but my voice abruptly cut out.  The cushion was empty.  I shrugged, figuring he went to put away his bag of coins.
+
+I flipped the penny and resumed my inspection.  Finally, some text.  There was an unfamiliar face as the center of the design.  So… not a Lincoln cent at all if there was no side-view of Abraham Lincoln.  But there, to the right, a date.
+
+“1982,” I said, smiling.  It was a transition year for pennies.  Depending on which mint they were made at and at what date, they were either mostly copper, like all pennies since 1909, or mostly zinc with a copper coating, like all pennies from 1983 or later.  Was this something extra special, a test cast?
+
+I flipped the coin off my thumb, listening carefully as it spun through the air.  Zinc pennies were noticeably lighter, but the easy way to tell was to flip them.  Copper pennies sung, with a high-pitched ring, as they spun through the air.  Zinc pennies made a dull thunk when struck and almost no sound as they spun.
+
+I caught it, nodding with satisfaction.  It was zinc, so it came from the later part of the year.
+
+“Just like me,” I said with a chuckle.  I was born in September of 1982, so the intricacies of the weird pennies of that year fascinated me as a child.
+
+I returned to the penny, curious about whose face was on it.  Instead, I finally caught the writing over the top of the head.  It said, “NATHAN DENVER,” in the same font I would expect to see “IN GOD WE TRUST” on a standard penny.  My thoughts began to slow as I struggled to take this in.
+
+This wasn’t a new penny.  It had been made years ago, gotten worn from circulation, and ended up in this guy’s coin pouch in the middle of a forest far from anywhere important.
+
+And it had my name on it.
+
+I squinted, and realized that it had my face, too.  Not my childhood face.  Not my overweight, chubby face from high school.  Not my bearded face that I’d had for years.
+
+This showed how I looked right now.
+
+I flipped the coin again, seeing the house there with a new light.  It was the house I’d grown up in.  It only seemed bland because it was a common design in my neighborhood.  Now that I knew to look for details, it was obvious.  The thing that really made it was the crooked door on the front of the garage.  A door that my father had re-hung after we’d lived there for a few years and repaired himself.
+
+This was how it looked when we’d moved in.  I’d seen it recently, and it now had large picture windows on the front, installed by the new owner, and the garage had been completely torn down and rebuilt.
+
+“How?” I finally croaked out.
+
+It didn’t make any sense.
+
+I had to find him and ask what he knew about this penny.
+
+Leaping to my feet, I reached the door in just a couple of strides and knocked.  It wasn’t latched, and swung open slightly as soon as I touched it.  Shrugging, I went through, focused on the coin in my palm and tried to decide what to ask first.
+
+It was too bright to be indoors.  I looked up and did a double-take.  I was outside again.  I was in front of the house, standing on the porch.  There was the cushion right there in the grass.  There was the path leading off into the woods.  I was spooked, and spun around, seeing the front face of the house.
+
+The door was still open a bit, and I could see the exact same sight through it.  Back and forth, I compared the view behind me to the one through the door.  It was identical.
+
+Suddenly, I laughed.  It was a prank, a very expensive, well-designed one, too.  This was one of those little tourist-trap exhibitions that you’d find in small towns all over the US, like that upside-down house in Tennessee.
+
+“Okay, I’m impressed!” I said loudly, and I wasn’t lying.
+
+It reminded me of those fake houses that filmmakers would set up when they needed a scene from an old western or something and didn’t want to remodel existing buildings to make it.  They’d put up these facades that looked real from the front, but from the back they were just some support 2x4’s.
+
+This guy had taken it to the next level, even making the lawn and forest path look identical.
+
+The engineer in me had to see what it looked like from the side.  A strong gust of wind would topple this thing over unless it had support beams going deep into the earth…
+
+With just a few steps, I was off the porch and near the treeline.  I turned around to see the facade edge-on, and I froze…
+
+My mouth slowly fell open.  There was the side of the house.  It had two windows, and I could see inside.  There was furniture in there, and curtains on the windows.
+
+I could only stare and blink rapidly.
+
+It didn’t make sense.  At all.
+
+There was a part of my brain trying to comprehend the layout, taking what I was seeing and mapping it to where I’d walked.  That part of me was whimpering in fear.  I only felt rising nausea at the incongruity.
+
+Numbly, I stumbled along the building, heading to the back.  I turned another corner, now seeing the real back yard.
+
+It was quite different.  The grass was less domesticated, almost waist-height.  The porch here was more of a plain patio, made from a single slab of poured concrete.  A small charcoal grill was against the house next to the back door.  It was nothing like the front, because it had a metal screen door, with a normal wooden one behind it, which was already wide open.
+
+I needed answers.  I didn’t hesitate to enter.
+
+The inside of the cabin was just as plain as the exterior.  A single-room layout.  One corner was the “kitchen,” another was sectioned off with a couple of hanging curtains, so I assumed that was the bathroom.  A desk with a single chair was pushed into one corner… It was so mundane.
+
+He wasn’t in here, unless he was hiding in some compartment.  I staggered to the front door.  I wanted to yank it open and scream, but something held me back.  Some part of me was warning me that I was in danger.
+
+Slowly, I turned the handle and pulled it open.  The feeling of danger kept growing as I pulled the door, so I stopped, leaving a gap about the width of my hand.
+
+There was the front yard again.  The old man was there, cross-legged on his cushion.  It was silent, and peaceful.
+
+How?
+
+And then, I saw it… or him… or me?  It was me, coming around the corner, walking up the path.  I was out there, approaching.  I watched myself walk up and sit across from the old man.  I was talking… no, the other me was talking… to him.
+
+I watched as the old man looked through the bag, nodding with a smile.
+
+With mounting horror, I watched him stand and walk toward the house, toward me.  I stumbled back, not trying to close the door, as he entered.  I was crouching, both hands held in front of me, pleading for understanding that I knew wasn’t coming.
+
+He didn’t even look at me.  He walked past, to the desk in the corner.  Opening a drawer, he pulled out the brown pouch before closing it.
+
+He walked toward me again, stopping in front of me.  I opened my mouth, but no words came out.  I didn't know what to ask.  I couldn’t look at his face.  I was shaking too much to even breathe properly.
+
+He reached down, plucking the penny from my palm.  With a clink, it dropped back into the brown bag and he headed out the door.
+
+Gasping, trying to scream but unable to make a sound, I scrambled on my hands and knees to the back door.  I didn’t bother trying to turn the handle, just pushed it open with a shoulder and crawled outside.  I needed air.  I needed freedom.  I had to get away.
+
+With a burst of energy, I stood and began running into the forest.
