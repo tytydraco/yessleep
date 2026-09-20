@@ -1,0 +1,25 @@
+Well, hello there! First time on earth? Not to worry, But at first, you must collect the skinsuits distributed by \]%{$}£\~. Why, that's how you got this instruction manual in the first place, isn't it?
+
+Please make sure that you have inside your skinsuit's brain the chip we provide, else you won't understand what's written on this pamphlet at all. What you are reading and understanding now is "English," A very primitive and stupid knowledge these homo sapiens have made. You must already know how to read and write this language, as most of the population of earth converses in this peculiar form of tongue.
+
+Adjusting into your new skinsuit- Wearing a skinsuit must feel unneccesary and uncomfortable at first, but really, it's for the greater good. If we don't, we will get caught, and where's the fun in that? Then they start retaliating and we may have to blow up this planet as well. Really, wasting food is very ill-mannered. If your skinsuit feels tight, try walking around a bit. That should loosen things up!
+
+If you are having trouble moving your mouth, try moving your jaw up and down! you will talk and sound like a human in no time! Getting used to the voice and language might take some time, so remain silent for a day or two, your voice should come in by then.
+
+Blink! Humans always close their eyelids in short intervals of time. Do it manually for a long time yourself, it will feel automatic,just like it does for a human!
+
+Always remember to not stay still for long periods of time! Move around!
+
+If, under any circumstance, some members of homo sapiens seems to recognize you or tear up by seeing you, or exhibit any form of recognition at all by starting to cry, hugging you, telling you how much they missed you and how they thought you were dead, terminate the subject immediately.
+
+Now comes the best part: consuming them! Be sure to leave their skins on the ground; The {\^{£! will take care of them and distribute them further accordingly.
+
+Move away from the area you got the skinsuits immediatley. Homo sapien members who know this subject may start to recognize you. If, for some reason you cannot escape in time and find yourself in a situation as said in Number 4, repeat the steps accordingly. 
+
+If under any circumstances you feel threatened by any Homo sapien, terminate immediatley. No inquires will be initiated for the murder of any sapien on earth.
+
+Along with the skinsuits, you must've also gotten a few documents. They are important and not to be consumed. They include and are not limited to;  
+1)A driver's license- Neccessary for locomotion around the planet. Not really a must- But it's useful. Leaving too many skins is just messy.  
+2)An ID Card- Something that solidifies the identity of the human. This is imperative. Protect it at all costs. If you do get found out, It is considered a situation in which number six must be initiated.
+
+And finally, enjoy your stay! We wish you all a very good time on this planet earth! 
