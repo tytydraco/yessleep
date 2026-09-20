@@ -271,7 +271,7 @@ It wasn't the hot water. It wasn't the sponge. It wasn't *how* the skillet was w
 
 It was Josh.
 
-I wish I could say I listened to Grandma. I wish I could say I was careful, that I understood I was messing with forces I didn’t fully understand, that I kept a cool head. But then I wouldn’t be here, typing this warning to you.
+I wish I could say I listened to Nana. I wish I could say I was careful, that I understood I was messing with forces I didn’t fully understand, that I kept a cool head. But then I wouldn’t be here, typing this warning to you.
 
 Things escalated quickly after that.
 
@@ -279,7 +279,7 @@ It didn’t take long to get my well-deserved promotion; just a slice of skillet
 
 And there were other things too. I convinced my best friend Susie to finally re-enroll in school and finish her degree with some lamb chops. I persuaded Josh’s sister to finally leave her cheating husband with pan-seared wings. I even got old Cousin Tina to lay off the sauce with the almighty power of home fries, surely saving her liver. I was helping people, and they didn’t have to know it. What the hell would you do if you were given this kind of power?
 
-There were some slightly more selfish things too, I admit. Like inclining my neighbor to keep his tree branches trimmed neatly to his side of the fence with a mac and cheese casserole at his doorstep, or swaying that city council to vote to install streetlights on our road after leaving a Dutch baby in the City Hall kitchenette. 
+There were some slightly more selfish things too, I admit. Like inclining my neighbor to keep his tree branches trimmed neatly to his side of the fence with a mac and cheese casserole at his doorstep, or swaying the city council to vote to install streetlights on our road after leaving a Dutch baby in the City Hall kitchenette. 
 
 All I had to do was keep Josh washing the pan. He’s always been a great partner: happy to help around the house whenever needed. At first I assumed he figured I had anxiety about messing up my own piece of Nana’s legacy, but after a week of cleaning it every day, he started asking questions. I didn’t have time to cook for us *too*, so I was asking him to both manage dinner and do dishes, which was a big no-no. Without answering any of his questions, I agreed I’d step up and take charge of dinner every night, as long as he could keep doing the dishes. *All* of the dishes.
 
