@@ -109,3 +109,6 @@ I told her I couldn't feel my heart beating at all. She didn't tell me that was 
 I'm going to hit post now before they get here and take my phone away or decide I need to be sedated or whatever happens next. If this turns out to be some bizarre infection or reaction to whatever happened Tuesday night, hopefully I'll have an explanation soon. If I can, I'll update everyone after I get to the hospital.
 
 Hopefully.
+
+EDIT: Heres the update  
+[https://www.reddit.com/r/nosleep/comments/1wlpbbh/i\_caught\_something\_from\_a\_woman\_i\_met\_at\_a/](https://www.reddit.com/r/nosleep/comments/1wlpbbh/i_caught_something_from_a_woman_i_met_at_a/)

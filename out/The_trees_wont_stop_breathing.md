@@ -1,0 +1,145 @@
+ Got put on my third warning and my boss decided for me, that the best way to make up for an hour late clock-in is 4 more hours of unpaid overtime ofcourse. After sitting through the one-sided rant the asshole pulled me aside for, I managed to slip out back and notify my then girlfriend, that I wouldn't make it on time for our planned date, I was hoping she'd get the message quick and not wait for me at the local cafe. I shoved my phone into my pocket thinking I'd get an answer after I was done with my shift but I didn't think I'd get one the moment I sent it:
+
+ "dumbass, I told u to leave that shack and take it easy didn't I? 
+
+I know Amelia is going through hell but you know she doesn't want you suffering in your own type hell under Władysław's boot at that rat keg. 
+
+Your mother isnt the only one worried about you Adam, I'll call you later, love you."
+
+ dread creeped down my spine like chills, my mother always try to keep me home as long as she could, either through helping her with simple chores like laundry, dishes, her medication, she would chat me up when I'd be leaving for work, have us talk about our everyday events, she was never the talkative type of person, she always remained stoic, calculating, no matter what situation we found ourselves in and that isn't to say she didn't show us love or compassion, it was a trait passed on from grandma, I was sure of it, granny earned the nickname "babuszka" through her own terror, being even colder than mom and unlike her, didn't care for us in the slightest, grandma always acted distrustful and distant when we were present. 
+
+ The last few words in my gf's text rang in my head for a while, all that did was add more ripples to the storm brewing in my head, one that have been festering ever since the first symptoms, I'd never forget that dinner, while eating her famous sweet apple pie, a look of pain that left more red on her spoon than there was before, silence followed that day and Many regrets would wake that moment, forcing their way through my own skin to hold me by the throat, trying to suffocate me there on the spot. The diagnosis was just more pebbles in a rippling pond of malcontence. 
+
+ I knew all mom had wanted, was to spend the little time she had with us left but I had to help bring bread on the table, no one else in the house, my brother was too young and father out of the picture while mother, struggling to suffocate in peace by the time I hit my 18 birthday, has been long sick for 3 years, with only a third of the time the doctors gave her left. I took it upon myself to getmedication I could put my hands on from all the prescriptions I begged for, all that was left was to Raise enough money for one last surgery, this time it had to work, I'd make it work with all my being.
+
+ 
+
+ My brother too was going through a rough time of his own back at school, I only hoped that it would make him a stronger person than me, maybe as strong as mom, he's been an emotionless kid through out almost all his life and I can't begin to imagine what was going on in his head at that time. 
+
+The weight of having to fullfill the role of a father figure, brother, student, and a partner, was all unanimously giving my young back and soul, long and painful cramps that made me lethargic throughout the last 2 hours of serving prison grade meals. 
+
+ The relief I felt rushing through me as, I was packing the last order of that day, was so sweet I almost forgave myself for telepathically calling the last customer all kinds of profanities, he was the small town's local bum Feliks, atleast thats what we all agreed to call him, he never spoke much, he greeted us and said only thank you when offered something to munch on, we were hoping we would spot the stray cat he named Whiskers, that would always accompany him when he came over, it was an old black cat that possesed a pair of oddly shaped whiskers piared with eyes that would glow of emerald green in the dark, just like moms, she'd also climb onto his shoulder or rest on his worn down shoes when he stopped by for a smoke or took a nap in the shed that we'd open up for him when it would rain or get cold, albeit usuallly when the boss wasn't around. 
+
+ We brought the pair out back something warm to eat, hoping to chat with him for the last 5 to 10 minutes of work shift left, sometimes he'd drop a few words of wisdom when he was in a good mood, usually I would sit around with him and some other coworkers and listen to his babbling but I wasn't feeling it today. His presence that day was marked by a silence, that spoke louder than any of his rants, he seemed distant, like when a good day gets turned over after a tragedy, without moment to process what just happened, It was something I understood. Mrs whiskers wasn't there to accompany him and I didn't push any questions he might not have the heart to answer, I made him his usual with extra fries and a large coke, and my coworker, a good friend, Wojtek gave him a pack of top-of-the-shelf smokes from his hidden stash. 
+
+ Feliks took a smoke sitting on window ledge, he lowered his head down while his leg tapped nervously on the sidewalk, perhaps he was waiting for his companion although me and Wojtek had little hope for her return. We placed a fresh can of tuna were he'd always take a nap during the dark hours, as a way to honor his passing, he'll be with us in our hearts and in the lice that guard his bed/box, God bless the beloved hobo cat.
+
+ As Wojtek was getting ready to leave, it was up to me to do the rotational cleaning this week so he said his goodbye and handed me the keys to the main building aswell as the shed, were we kept our dumpsters in, it stopped any deers or boars that cross the road from time to time looking for a free bite, I got on with the cleaning making sure it is atleast tolerable for the next day. Till now I don't understand how much filth builds up in one day when we only get around 2 costumers an hour. 
+
+ After purging all the grease stains that coated the kitchen floor and wiping the bathroom clean, I entered the shed and threw away all today's lot of trash, then pulled my trusty old bycicle from inbetween the dumpsters, if the shed can hold off boars then it can hold of any theiving bums looking for a new ride, no offense to Feliks.
+
+ The bus I'd usually take this morning had an emergancy, the tires were flat, I heard the bus driver and mechanic disscusing the state of the road, my bet would have been mechanic himself, last I heard he got caught throwing nails up on the main road just a few km ahead of his workshop. My next bus would have been in the next 4 hours halfway through my morning shift and there was no existing reality, where I would call my mother to come pick me up but I wasn't planning on throwing down the towl on a monday just yet, I didn't want to piss off my boss anymore than I could get away with, so I decided my last saving grace was a bike I wasn't done working on, it looked like it would take a strong gust of wind and a little water to fall apart, but it was better than showing up 4 hours Late and talk face to face with my boss Working the register. 
+
+Getting on the bike a feeling of unease swept over me, the tires were cracked, paint was chipping off, the chains, besides being held together by rust, weren't lubricated and the gears liked to switch on their own from time to time, but if it managed to carry me all the way here, then it'd have do the same all the way home. 
+
+"Floors... Lights... Doors... Gate... brick..."
+
+I kept repeating word for word after each taken breath, the mantra would assure me that everything was in its place the way it's supposed to be, diminishing any worries I'd have stirring up in me, but that certain feeling kept creeping up on me, all the nerves in my body were tugging at the reins, whispering STOP, I wouldn't take long for a small spark to ignite in my dumb brain, I gave my pockets a quick pat down and ofcourse I forget to fetch my phone from my locker oh my God.
+
+ 
+
+I braked hard, the friction forced out an ear piercing screech and the uneven ground almost made me lose my balance, I gave myself a moment to process exactly how bad In I situation I got myself and how I'd now undo it. Anyone else given the same situation, might just return home and worry about it the next day, pick up their phone once they're back at work however I had ALL the receipts, prescriptions, pickup codes and numbers I couldn't possibly remember of the top of my head that I needed to call in the morning, I already missed one important call I was supposed to get an hour ago. The cogs in my head were turning right untill they clogged on cobwebs of my own neglect, Air escaped me in a long sigh, I wanted to talk myself into reason, but I only managed to squeeze out a soft painful laugh, It left hoping that my own little storm passed. 
+
+" FUCK..! "
+
+ Almost volcanic, short bursts of coiled up rage forced their way out of my mouth that would then dissapate into dry, quiet cries. I was hunched over the handlebars, trying to cool off and gather a sense of calmness in the cold breeze and the breathing exercises mother taught me and my brother, they only helped silence the otherwise loud ringing, i it was a pain that only grew as I looked back at the hill I just merrily rolled down, with my feet kicked up ever so joyfully just moments ago, the thought of having to redo somewhere around 20km of Hills and forest trails through the dark, felt like a cruel joke by God, I wouldn't accept any other explanation and I wouldn't ponder on one for long, the forest was waiting for me, and so was mother.
+
+ The hill wasn't long or steep but it was a mess of unexpected turns and shifting ditches, followed up with trails of gravel cutting through deep, thick woods that were just as difficult to navigate, even at the brightest light of day. I built up the little strength I had left and proceeded to push through what I'd tell myself, would be the last bike ride I ever took to work.
+
+ Wheels pressed into the soft gravel as I paced over the main trail littered in leaves, twigs, rocks and exposed tree roots, in some places, puddles decorated the path, they glistened in the setting sun's light, each puddle were a flake of gold on an earthy canvas, still glowing as the night was pulling down the day sky, with the coming of the first stars. the ride itself woke a theme of whimsy within me, I wasn't too sure if whether the tune I was hearing in my head were my own made up given the vibe the forest was letting off, or something I heard a long time back. 
+
+ I was starting to feel anxious as the stars dotted the night sky, part of me wanted to turn back, I'd tell myself that maybe, all I'd get would be a slap on the wrist and 1 final warning, that would have been the case for a younger me, when I first started working the register but a few years had passed since then, I've had one too many fuck ups nailed onto my name, too many wrong orders, too much pickles, not enough grease, this or that. 
+
+ 
+
+ The anxiety followed me into the darkness where it held a tight grip over everything else I was feeling at that moment. Apart from the rattling of the chain and the wind picking up, the only other things that accompanied me were the trees, wind, occational woodpeckers and my own heavy breathing. 
+
+ Another 15 or 20 minutes passed and I was reaching the halfway point, the first sign to mark my checkpoint was an old, rusted sign that, after decades of natures abuse read only 'Czarno'.
+
+Cycling past the sign, the first things to welcome me into the crooked pine forest were the bowing trees, that loomed over me as I passed them, each tree reaching in prayer with their dry, withered roots.
+
+ I still remember the days mother would take me to the woods when I was a little kid, Id always trip on them, each year the forest felt different, nothing was the same as it was before, it had always remained a place of whimsy for me, she would hum with the wind as she held my hand as trees stood tall, cheering for the light of day, mother looked so lilively, so at ease, at peace, like as if this were a second home to her. One thing I'd always catch myself questioning was something I heard grandma say only once in the presence of mom, it was something along the lines of:
+
+ "those tree's forsake the diseased soil Amelia... your father... Your father was a fool... He ate their fruit-and you know well what that entails... Now it lives with US".
+
+ I brushed it of as grandma missing a day of her meds, forgot I had to buy those too, anyway, ever since I hadn't put too much thought into it what she said, and I wouldn't continue to ponder on it, as each bump would wake me from that memory, I told myself it would only make me lose focus on whats ahead. 
+
+ I was starting to feel a familiarity when traversing over the dirt road so my hopes were high. The darkness still unnerved me, the moonlight would strobe onto me through the tree tops, they crowned the trees like one massoive thorn bush, each shift in my periphiral vision was a moment of clarity that kept me tense but focused, the branches unusually low, guarded the smaller sapplings, each branch a crooked claw keeping passerby's at bay, It almost felt like I was intruding. 
+
+ The ride was stretching out long-to long, and hope I had was starting to shift into desperation, each turn, each bush, just about everything was off, I've always had issues when walking through here before, but this was different, the trail bent around trees that weren't there before, trees stand rooted dead centre on the path, turns and dead end routes I didn't recognise were all catching me off guard. 
+
+ The constant hammering I gave the pedals was exhausting me, to the point where I had to take small breaks, each time I'd hop back on, I'd whistle myself a tune to calm my nerves, it helped me reorganise my thoughts and focus on what layed ahead of me.
+
+After a while I was picturing the trees dancing, as I rode past them, dancing in circles, lowering thier crowns almost like a zeotrope, that I admired with each peak, when given the chance. Silence bestowed upon the forest cut by a long howling filling the ambiance, I don't know why but it just felt right to whistle along, if I were to explain the feeling, it would be like a veil of calmness draped over me, that would stack in thick sheets the deeper I sank into the woods.
+
+ 
+
+ Somewhere around an hour would pass, I'd switch tune from time to time being careful not to eat dirt, I told myself that if I were take a really bad fall, first responders might find me impaled on a branch or tangled in bramble bushes that'd pepper me with thorns. As if on que, I found myself wrestling the handlebars after hitting a really bad bump while going a little too fast downhill, combine that with the soft dirt and very limited visibility I didn't manage to regain control, I ended up kissing the ground, with my arms spread eagle, the hot searing pain welcomed me, through sharper pieces of gravel that were embedded in my hands and face.
+
+ The fall, right on impact, brought me back to reallity, I pulled myself off the ground and started searching in panic for my bike, it might aswell have been strewn across the dried soil in bits, here and there. Among rocks, twigs, everything I could touch, My hands caught something sharp, a rogue root bending in a grasping manner, I read a bad fate I had missed through whilst feeling its Rough texture, thank god I didn't end up staked on a tree, as wouldn't you know it, just below the root I got a hold of one of the wheels, a bitter feeling passed through me as I heard metal on metal friction, when spinning it, the chain was off, possibly a loose screw too.
+
+ It felt like an hour of fumbling and pulling the chain back onto the sprocket, getting greese, dirt and more, into my fresh open cuts. I was starting to lose it, the damn forest, the dark, the cold, the phone, the whistling, the bike stuck in a ditch, whistling, the morning bus, the whistling. 
+
+"Come on... Fucking, let go... Please let go!" I cried
+
+ as I was forcing the bike out from beneath the tree, roots snaggled onto it like wrinkled claws and eventually, after long shifts of tugging and wiping my hands clean from blood, the tree gave in. I decided to take a rest and walk the pain of for a bit, back to whistling the now melancholic tune that accompanied me.
+
+ It may have been midnight by now, hope down low, bearing a painful reminder on my hands of todays journey, that would stick with me for a long time, the whistling continued even when I stopped, maybe I was just severely lacking sleep, I didn't put too much thought into it, didn't have the strength to. I was tired with every part of my body aching while my hands went numb. It was comforting in a way, the tune enveloped me like a warm breeze of comfort, hearing it felt almost like a breath of fresh air. 
+
+ It's been far too long now, I dont know where im going, I don't know, maybe took a wrong turn, slowly riding down on the bike at a leisurly pace, watching trees form clusters of a deep green and brown, each cluster held trees of young and old, reminding me of herds, like of bison, herds that were running from a place of danger, a place that I was now headed for, the source of a calling my body would betray me for. 
+
+ The closer I got, the stronger the tremors rang through the soil, those high pitched sounds, that wormed their way into my brain, were now ones of brass as I was reaching an opening in the woods. 
+
+It was an open feild, overgrown, atleast from my side, standing at a border of knee hight thick grass, I was hit by a foreign odor, a strong smell of sweat.
+
+ 
+
+Layed before me was a bodily warmth hidden by a thin mist, it held my hands and guided my steps across the field, my fingers graced the wilting flowers as I passed, feeling lighter than a feather. I looked behind me, and waved my anxiety, my worries and my exhaustion goodbye, realising that the soft grass has now turned to dried dirt, I was a third of the way there. 
+
+ The smell, now sweet pulled me once again, my mind hazy, my breathing rapid, my skin hot, As I stumbled closer, the mist was disapating, the other side was welcoming me, they wanted me, they don't turn away from me in disgust, like the rest, now far behind. Standing tall its... leaves? Rustled in the wind, I could almost make out the trunks, Feeling woozy I knelt down and rested beside an old dying pine tree, almost mistook it for a halfcut piece of timber, its bark was peeling of at the slightest scratch, only a few leaves adorned its crown while its roots tore out of the Ground, misshapen, scarred.
+
+ 
+
+ The belowing began, now almost deafening, I stood up and started taking the last few steps, 'only just a few more steps' my mind told itself, or was it my mind? My memory is still hazy and I still can't exactly recollect what thoughts were mine, and what weren't.
+
+I left the elders side and tread lightly ahead, *Thump*... *Thump...* *squelch*... I hit a puddle, at first glance it looked like water but it was foamy at the sides, with an uncomfortably thick consistency. 
+
+ I followed the edge of the puddle stretching on and on, reaching a single root, its bark, if you could it call that, folded on itself, like loose glossy skin, covered in cyst-like blemishes, that pulsated in way that gave me goosebumps whilst still being in a trance like state, I was standing about a dozen feet away from the tree, Its silhouette towered over me, like a finger with one to many joints. 
+
+ I took a step forward, I couldn't take my eyes of its crown, each leaf slowly expanding and contracting, alongside my breathing, my ankles were fully submerged in unearthly fluids, still warm at the touch of my skin, the feeling passed a shiver down my spine, I wasn't scared, well I was, but I wasn't acting myself, I was wanting.
+
+ 2 steps, my right foot held captive by a smaller treelike figure, tufts of fur peeled of it, branches bent in a very specific pattern that made my stomach drop, I couldn't tell why it bothered me, not from its small shape, not from its thin oddały shaped twigs, not from the single green, emerald eye that gleemed at me.
+
+ Another 3 steps, my mind started to race back, memories forced their way through my vision like a corrupted roll of film, green emerald eye? Green eye, green-Mom! I was on my way to the- a sharp electric pain struck through me, made me jolt my foot, tearing the small growing sappling with the sound of breaking bones, why cant I remember, why wont it let me remember.
+
+ 6 more steps, The trees were breathing, warm drops of spit hit me from almost every angle, throat like holes bored through their skin, the same cysts inbetween wrinkly bits of skinlike tissue, some new, some still pulsating and some were moving, my eyes steared my vision up for me, bringing to my Sight, red and plump, lowhanging fruit, about the size of my palm. 
+
+ After 8 more steps, I began to remember, my phone, my girlfriend, mom, *pluck*... as I was pacing back my thoughts, trying to bring myself to sanity, my body has already decided for me, my hands aching, held fruit from the lowhanging branches, it was a spoiled brown color, like a decaying orange, with stems that... moved? That couldn't be right, one.. Two.. A dozen, all moving, writhing for freedom, my fingers readjusting for grip rubbed 2 small black soft beads-this is NOT fruit I begged and my mouth just wouldn't listen, it partially open and watering, ready to sink its teeth into it. 
+
+ I was fighting my own body for control, my teeth resting on   a smooth, bulbous body while its legs tried desperately to establish a grip on my nose, tears ran down my face, my hair damp, eyes watering, my breathing now heavy and I could feel the surrounding entities follow along with it, each breath was a warm gust of wind blown gently onto my skin.
+
+ Seconds, minutes, fuck maybe hours of hesitation had passed, then in all of a sudden the trees all started bellowing deep guteral screams, they were growing impatient, waiting for my answer, to a question I've never asked, a question only my deepest instincts had heard and one they were going to answer.
+
+ I started to bite down harder, I could feel the tension on the thin skin, through anticipation, I had already expected the taste of decade old puss, blood and spit to burst into my mouth, along with flakes of chitin to flow down my gullet any second.
+
+ I wanted to die, more than anything at that moment, I didn't want this, I wanted to go home, I wanted to go back to my mom who was waiting for me, I wished I never went to work that day. I was starting to collapse from exhaustion, my knees hit ground, slowly sinking below the moist dirt, while I still wrestled my mind to sleep, anything to get this disgusting taste out of my mind. 
+
+my taste buds were tricking me, the metallic taste of blood would turn sweet the moment it hit my tongue, I desired more but I resisted, that sweetness was reserved only for one thing, the apple pies mother woud make, with apples from our grandfathers garden, that very memory would be the thing to hold my arms, my teeth, my entire body from dwelling deeper into the cursed soil, I pictured that moment, sitting at the table, my brother across, and mother next to us, all biting into a piece, sweet Minced apples going down my throat. I kept replayed that moment in my head for so long I might have started to dream it, must have bean all the exhastion that I piled up, my body couldn't take it, the last thing that I know I felt was the ground claiming me as its own as my vision went blurry.
+
+ Deep in thought, I was Sitting by a table with my mother, neither of us said much, I lied to myself that, there wasn't anything to talk about, till I mustered the courage and opened my mouth, the exact moment darkness enveloped my Mind, were I was left alone.
+
+ I was laying on the ground when I woke up, the sun beamed down on me, Clothes dirty, torn, hands dried with blood, my leg tied to a root, that seemed to venture far into the crooked pine forest. I got up, the root snapping with ease, I was halfway across the field, standing at the center of a choice.
+
+ I looked both ways, my head still spinning from whatever aphrodisiac I was pumped with, I've already made my choice, before I came across the border, before I entered the kingdom of man, I was going to go back home, going back the way I came from, I spotted an elder tree, its crown lay rested on the soft gras devoid of leaves and a root extended far towards the other side and on a singular branch, stretched out towards me, grew a small, Deep red colored apple, grabbing it I hesitated but the hunger had stirred within me for too long.
+
+The bite was sweet yet bitter, enough to satiate me, it was perfect for a pie. My bike was still in the same place where I had dumped it the night before, a long ride back home waited for me, the arching treelines lead me down the path I came from, I didn't end up home just yet, but seeing My boss fuming was a sight I didn't think I would be happy to see, I got fired on the spot, but I didn't care, all it Kent for me was an early retreat home, I even managed to catch a bus I wouldn't have usually taken.
+
+ 
+
+ Back home I walked in on my brother failing to help mom administer her meds but I felt proud seeing him try at it as usually he'd always avoid it, I understood it made him nervous and scared of doing something wrong. Mother bombarded me with questions upon my whereabouts, I made sure to leave out any details that could give her a panic attack when answering her, ended up with a drinking game excuse over at Wojtek's.
+
+ That night I made sure to tell my mom the same thing she always tried to tell me every morning, mom I love you. As of now its been exactly 8 years since that day, and not a day goes by when I think of that cold spring night. I mutually ended things with my girlfriend after a year or so, and soon after I kept my mom company in her final hours, she gave me her final words before leaving the chokehold life forced her into, a voice so ruined, coughing up the last of her innards "Adam... No fruit is... Better than my own..." She took a gulp of air, shakily exhailing her last words "The apples... Will you bring me yesterdays pie... Next time you're here?" "Yes mom... The sweet red apple pie... Like grandfather used to make you" I said.
+
+ Im now 27, sitting in my garden breathing in the fresh air, watching my 2 kids play below 2 young trees, my wife of 4 years in the kitchen, baking apple pie, trying to follow my mothers recipe. 
+
+I have to get going now, I hear her call for me, sounds like she needs my help, I'll admit that getting the apples is always the hardest part, crawling away at an arms reach.
