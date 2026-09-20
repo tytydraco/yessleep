@@ -1,6 +1,6 @@
 I took the job because nobody else wanted it.
 
-W-KILL is — was — a tiny AM station outside my town in Bihar. Went dark in 1983 after the owner died in the booth. Heart attack, they said. The building has just sat there since, rotting behind the old water tower. Chain link fence, ON AIR - OFF sign that hasn't lit in 40 years.
+W-KILL is — was — a tiny AM station outside my town in Massachusetts. Went dark in 1983 after the owner died in the booth. Heart attack, they said. The building has just sat there since, rotting behind the old water tower. Chain link fence, ON AIR - OFF sign that hasn't lit in 40 years.
 
 The new owners bought the land to tear it down, but they need an inventory of the equipment first. $200 a night for a week to just sit there and log what's salvageable. Easy money. I brought a thermos, a flashlight, and my laptop.
 

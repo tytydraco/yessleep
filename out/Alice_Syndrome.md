@@ -180,11 +180,11 @@ Now, back to the Hell on page 552.
 
 >*'"You will not get such nightly merriment elsewhere," said he. "We do not bed the infected often."*
 
->*'"Infected!* ***Infected****!" cried I. "I am hardly infected! Why, do I not still bare the shape of a human?"*
+>*'"Infected!* ***Infected***\*!" cried I. "I am hardly infected! Why, do I not still bare the shape of a human?"\*
 
->*'The walrus laughed and said barely and swept me away to his chambers.*  
-  
-*'My body hurts. My head hurts. I feel ashamed.*
+>*'The walrus laughed and said barely and swept me away to his chambers.*
+
+>*'My body hurts. My head hurts. I feel ashamed.*
 
 I legit went out and bought more vodka once I finished reading that section. Just what happened to Alouette?
 
@@ -212,16 +212,14 @@ I legit went out and bought more vodka once I finished reading that section. Jus
 
 >*'"Why?"*
 
->*'Why?* ***Why?*** *They got too close to the true nature of Alice."* 
+>*'Why?* ***Why?*** *They got too close to the true nature of Alice."*
 
 >*Chesca vanished, leaving me at this solitary tea party, no longer willing to comfort me as she has these past few months. My eyes began to smart, and I knelt down and began to cough as something small and papery creeps up my throat, possessive and wanting. Hacking and screeching, wishing for her return, wishing for the walrus to take me away, I exhale and expel a flower. Pink and speckled with blood, it's a rose, deformed and with a screaming face adorning the petals.*
 
 What the fuck am I reading? What the fuck am I writing? I think I'm going to end this post here and just keep going at a different day. This is madness. Pure, unfettered madness. I want to go home.
 
-  
-If anyone has any advice for me, please let me know. This journal is never ending, but I can't keep reading. 
+If anyone has any advice for me, please let me know. This journal is never ending, but I can't keep reading.
 
-  
 I'm so sorry, Alouette.
 
 I've failed, haven't I?
