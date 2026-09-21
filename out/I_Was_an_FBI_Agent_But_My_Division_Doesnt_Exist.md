@@ -1,0 +1,641 @@
+I was an FBI agent.
+
+At least, that was what my identification card said.
+
+The truth was that I worked for a division that officially did not exist.
+
+It was called Division 7.
+
+We operated outside the normal FBI structure. No public records. No official headquarters. No names that could be traced. Even most FBI agents had never heard of us.
+
+Our job was to investigate biological threats, classified medical research, and diseases that the public was never supposed to know about.
+
+But Division 7 wasn't just researching diseases.
+
+We were decades ahead of the rest of the world.
+
+We had treatments for illnesses that hospitals couldn't cure. We had experimental technologies that could repair damaged organs, regenerate tissue, and manipulate neurological functions.
+
+Humanity would probably not discover some of these technologies for another fifty to one hundred years.
+
+And that was exactly why our leadership had become dangerous.
+
+They believed the human population had grown beyond what the planet could sustain. Wars, climate disasters, food shortages, and resource conflicts were, according to them, inevitable.
+
+Their solution wasn't to save humanity.
+
+It was to reduce it.
+
+The project was called REVERSION.
+
+The virus was designed to suppress the higher functions of the human brain. Language. Morality. Empathy. Long-term planning. Fear of consequences.
+
+The infected would still breathe. Their hearts would still beat. Their bodies would still function.
+
+But the person inside would slowly disappear.
+
+What remained was instinct.
+
+Hunting.
+
+Territorial behavior.
+
+Aggression.
+
+Survival.
+
+The scientists called the resulting state Reversion—a return to primitive behavioral patterns.
+
+Everyone else would eventually call them zombies.
+
+But they wouldn't be dead.
+
+They would be alive.
+
+And that was much worse.
+
+I first learned about REVERSION inside a restricted laboratory beneath one of our facilities.
+
+I was standing behind a glass observation window while Dr. Miller reviewed a series of neurological scans.
+
+"What exactly does the virus remove?" I asked.
+
+Dr. Miller didn't look at me. He continued studying the monitor.
+
+"The parts of the brain that make a person more than an animal," Dr. Miller answered.
+
+"Language?" I asked.
+
+"Eventually," Dr. Miller replied.
+
+"Memory?"
+
+"Not all of it. They can still recognize patterns. Places. Faces. Sounds," Dr. Miller answered.
+
+That answer made me uncomfortable.
+
+"Then what makes them dangerous?" I asked.
+
+Dr. Miller finally turned toward me.
+
+"They learn," Dr. Miller said.
+
+Behind the glass, a man sat restrained in a metal chair. His body was covered in bruises, and his eyes remained fixed on the security guard standing outside the room.
+
+The guard lifted his hand.
+
+The infected man copied the movement.
+
+The guard stepped backward.
+
+The infected man stepped backward.
+
+Then the guard turned away.
+
+The infected man slammed his head against the restraints and began screaming.
+
+"Is he still conscious?" I asked.
+
+"Not in the way you mean," Dr. Miller answered.
+
+"Does he understand what he's doing?" I asked.
+
+Dr. Miller stared at the subject for several seconds.
+
+"He understands enough," Dr. Miller said.
+
+That night, I requested a transfer.
+
+The following morning, I was assigned to a mission.
+
+No explanation. No location. No details.
+
+Only a message instructing me to report to a private airfield at 02:00.
+
+A black helicopter was waiting when I arrived.
+
+Three agents were already standing beside it. One of them was Agent Carter, a woman I had worked with for almost four years. The others were two heavily armed security specialists.
+
+Dr. Miller was there, too.
+
+That immediately worried me.
+
+Scientists didn't usually accompany field operations.
+
+"Where are we going?" I asked Carter.
+
+Carter looked at the helicopter before answering.
+
+"I don't know," Carter replied.
+
+"You don't know?" I asked.
+
+"We're not supposed to ask questions," Carter answered.
+
+"That's reassuring," I said.
+
+She didn't smile.
+
+Once we were airborne, the pilot remained silent. The helicopter flew over the dark ocean, far away from the mainland.
+
+I watched the navigation screen. It had been disabled.
+
+After almost an hour, I leaned toward the cockpit.
+
+"Where are we going?" I asked the pilot.
+
+"To an island," the pilot answered.
+
+"Which island?" I asked.
+
+The pilot didn't respond.
+
+A few minutes later, I asked again.
+
+"How much longer?" I asked.
+
+"Not much," the pilot replied.
+
+Carter grabbed my arm.
+
+"Stop asking," Carter whispered.
+
+"You know something," I whispered back.
+
+"I know that people who ask too many questions don't always come home," Carter answered.
+
+The helicopter continued flying.
+
+Then, through the window, I saw land.
+
+An island emerged from the darkness. Dense jungle. White beaches. Black rocks along the shoreline.
+
+I recognized it immediately.
+
+"That's North Sentinel Island," I whispered.
+
+Carter looked out of the window.
+
+"Yes," Carter said.
+
+The helicopter continued past it.
+
+I turned toward the pilot.
+
+"Why are we flying past North Sentinel?" I asked.
+
+Nobody answered.
+
+Several minutes later, another island appeared in the distance.
+
+It was larger. Wilder. Completely unmarked.
+
+There were no buildings visible from above, no boats, and no signs of human settlement.
+
+The pilot finally spoke.
+
+"Welcome to SITE-07," the pilot said.
+
+The landing zone was surrounded by thick jungle.
+
+The helicopter touched down, and we immediately noticed something strange.
+
+There were no guards waiting for us.
+
+No scientists.
+
+No communication team.
+
+Only an empty concrete path leading toward a large research facility.
+
+The doors were open.
+
+Inside, the emergency lights were flashing.
+
+The air smelled of disinfectant, smoke, and something metallic.
+
+Blood.
+
+Carter raised her weapon.
+
+"Everyone stay close," Carter ordered.
+
+We moved through the reception area. Papers covered the floor. Several computer monitors were still running. A security camera had been smashed.
+
+One of the security specialists found a body near the elevator.
+
+"Scientist. Multiple gunshot wounds," the security specialist said.
+
+"Who shot him?" I asked.
+
+Nobody answered.
+
+Then we heard a sound from the corridor.
+
+A soft, rhythmic tapping.
+
+Tap.
+
+Tap.
+
+Tap.
+
+Carter raised her weapon.
+
+"Movement ahead," Carter whispered.
+
+A man stepped into the emergency lighting.
+
+He was wearing a torn medical uniform. His skin was pale, and his head was tilted unnaturally to one side.
+
+He didn't attack immediately.
+
+He simply stared at us.
+
+"Is that a subject?" I whispered.
+
+"Don't move," Dr. Miller answered.
+
+The man opened his mouth.
+
+"Help me," the infected man said.
+
+His voice was weak. Frightened.
+
+One of the security specialists lowered his weapon slightly.
+
+"He's asking for help," the security specialist said.
+
+Dr. Miller grabbed his arm.
+
+"Don't approach him," Dr. Miller warned.
+
+The infected man took one step forward.
+
+"Please. I'm hurt," the infected man said.
+
+Then he suddenly charged.
+
+The security specialist fired. The first shot struck the man's chest, but he continued running. The second shot hit his head, and he collapsed only a few feet away.
+
+A loud alarm began ringing throughout the facility.
+
+From somewhere deeper inside the building, another voice screamed.
+
+"Help me!" a voice shouted.
+
+Then another.
+
+"Please! Open the door!" a different voice cried.
+
+Carter looked at Dr. Miller.
+
+"How many subjects are here?" Carter asked.
+
+Dr. Miller's face had gone pale.
+
+"Two hundred and twelve," Dr. Miller answered.
+
+The lights flickered.
+
+Then every locked cell on the security display changed from green to red.
+
+We ran.
+
+The corridor behind us filled with footsteps. Some were fast. Others dragged across the floor. Several voices called out at the same time.
+
+"Don't leave me!" an infected voice shouted.
+
+"They're coming!" another infected voice screamed.
+
+"Please, I'm still human!" a third voice cried.
+
+The voices were different.
+
+Some belonged to men. Others belonged to women.
+
+One sounded like a child.
+
+But the words were all wrong. They were repeated without emotion, like recordings being played through damaged speakers.
+
+We reached a security door.
+
+"Open it!" Carter ordered.
+
+One of the specialists swiped his access card.
+
+The system rejected it.
+
+"Access denied," the security specialist said.
+
+The footsteps grew louder.
+
+"Try again!" I shouted.
+
+"It's not working!" the security specialist yelled.
+
+Carter fired several rounds through the glass panel beside the door. The bullets struck an infected man who had just appeared at the end of the corridor.
+
+He fell.
+
+Two more subjects rushed over his body.
+
+"Move!" Carter shouted.
+
+We turned and ran in the opposite direction.
+
+A subject leaped from a side corridor and attacked one of the security specialists. They crashed into the wall. The specialist fired repeatedly, but the infected man kept biting and clawing at his protective vest.
+
+Carter shot the subject in the neck.
+
+The specialist pushed him away, bleeding from his face.
+
+"I'm okay," the security specialist gasped.
+
+"You're not okay. Keep moving!" Carter replied.
+
+We escaped into a storage room and barricaded the door.
+
+Everyone was breathing heavily.
+
+Dr. Miller was shaking.
+
+"What happened here?" I asked him.
+
+"The containment system failed," Dr. Miller answered.
+
+"How?" I asked.
+
+He looked toward the door.
+
+"They weren't supposed to become intelligent enough to coordinate," Dr. Miller said.
+
+"Coordinate?" I asked.
+
+Dr. Miller nodded.
+
+"REVERSION suppresses higher cognition, but it doesn't destroy every learning process. The subjects retain the ability to observe, memorize, and repeat behavior," Dr. Miller explained.
+
+"You're saying they learned how to speak?" I asked.
+
+"They learned how to imitate speech," Dr. Miller answered.
+
+"And the cries for help?" I asked.
+
+Dr. Miller looked at me.
+
+"They've been listening to the staff. They've learned which words make people approach them," Dr. Miller said.
+
+A loud knock came from the other side of the door.
+
+Everyone went silent.
+
+"Carter?" a voice outside said.
+
+Carter's eyes widened.
+
+It was her own voice.
+
+"Please open the door," the voice outside said.
+
+Carter slowly raised her weapon.
+
+"That's not me," Carter whispered.
+
+The voice repeated itself.
+
+"Please open the door," the voice outside said.
+
+Then it changed.
+
+"I'm scared," the infected voice said.
+
+It sounded like me.
+
+Exactly like me.
+
+The same tone. The same breathing pattern. The same slight hesitation before the word scared.
+
+I felt my stomach tighten.
+
+They weren't simply copying sounds.
+
+They were studying us.
+
+They had learned that humans trusted familiar voices. They had learned that fear, pain, and desperation could make people ignore their instincts.
+
+They weren't speaking because they understood language the way we did.
+
+They were using language as a trap.
+
+We eventually found the central control room.
+
+A recording was still playing on one of the monitors.
+
+A scientist appeared on the screen. His face was bruised, and blood covered the collar of his uniform.
+
+"This is Dr. Evans. If anyone receives this message, containment has failed. The subjects have adapted to environmental stimuli. They are communicating through imitation and coordinated movement," the scientist on the recording said.
+
+The recording glitched.
+
+"Several groups have escaped the facility. Some have entered the jungle. Others reached the shoreline," the scientist continued.
+
+The screen went black.
+
+A second recording started automatically.
+
+The same scientist was standing outside near the ocean.
+
+"We've lost contact with the recovery teams. At least eleven subjects may have entered the water," the scientist said.
+
+Carter stared at the screen.
+
+"They swam away," Carter whispered.
+
+"Where?" I asked.
+
+Dr. Miller didn't answer immediately.
+
+Then he looked at the map displayed on the wall.
+
+The nearest island was North Sentinel.
+
+"Some of them may have reached it," Dr. Miller said.
+
+"North Sentinel?" I asked.
+
+"It's the only landmass close enough," Dr. Miller answered.
+
+Carter shook her head.
+
+"Then the public will think the people there are responsible," Carter said.
+
+"That is exactly what the government will allow them to believe," Dr. Miller replied.
+
+I stared at him.
+
+"You're going to blame an entire population?" I asked.
+
+Dr. Miller looked away.
+
+"The operation was never designed to leave witnesses," Dr. Miller said.
+
+A gunshot echoed through the facility.
+
+Then another.
+
+The control room doors shook.
+
+"They're here!" Carter shouted.
+
+The glass windows shattered as several infected subjects forced their way inside.
+
+We opened fire.
+
+The room filled with smoke and screaming. One subject crawled across the floor despite being shot in the leg. Another climbed over a desk and attacked one of the guards.
+
+Carter grabbed my jacket.
+
+"We have to get to the helicopter!" Carter shouted.
+
+We ran through the emergency exit.
+
+Outside, the jungle had become a maze of movement.
+
+Something was following us.
+
+We could hear branches snapping behind us, but we couldn't see anything.
+
+Then a voice called from the trees.
+
+"This way! Hurry!" Carter's voice said.
+
+Carter stopped.
+
+"That's not me," Carter whispered.
+
+Another voice came from the opposite direction.
+
+"The helicopter is over here!" my voice said.
+
+I turned toward the sound before realizing what was happening.
+
+The infected had learned our voices.
+
+They were using them to separate us.
+
+"Don't follow the voices!" Carter shouted.
+
+A figure suddenly emerged from the trees and attacked Carter. She fired, but the subject knocked her weapon away.
+
+I shot the infected man several times.
+
+Carter fell to the ground.
+
+"Carter!" I shouted.
+
+She tried to stand.
+
+"Run!" Carter gasped.
+
+More figures appeared behind her.
+
+I wanted to help her, but there were too many.
+
+I ran.
+
+Behind me, I heard Carter screaming.
+
+Then her voice stopped.
+
+A few seconds later, it came from somewhere deeper in the jungle.
+
+"Run!" Carter's voice called.
+
+I kept running.
+
+Because I knew she was already dead.
+
+When I reached the landing zone, the helicopter was burning.
+
+The pilot's body lay beside the wreckage.
+
+I tried to contact headquarters, but my radio only produced static.
+
+Then I heard a transmission.
+
+"Do you copy?" Carter's voice said through the radio.
+
+I froze.
+
+"Carter?" I whispered.
+
+"I'm alive. Come back," Carter's voice answered.
+
+I looked toward the jungle.
+
+The voice continued.
+
+"Please. I need your help," Carter's voice said.
+
+I switched off the radio.
+
+I understood now.
+
+They didn't need to kill us immediately.
+
+They only needed us to believe someone was still alive.
+
+They had learned how humans behaved.
+
+They had learned how to imitate our voices.
+
+And they had learned how to use our compassion against us.
+
+I found an old maintenance building near the edge of the facility and locked myself inside.
+
+I have been hiding here for hours.
+
+My radio is broken. My ammunition is almost gone. I can hear movement outside the walls.
+
+Sometimes they scratch at the door.
+
+Sometimes they whisper.
+
+Sometimes they use the voices of people I knew.
+
+A few minutes ago, someone outside began crying.
+
+"Please… I don't want to die," an infected voice whispered.
+
+I covered my mouth to stop myself from responding.
+
+Then the voice changed.
+
+"Please… open the door," the infected voice said.
+
+It sounded like Carter.
+
+Then it sounded like me.
+
+And suddenly I understood something:
+
+REVERSION didn't just take away their humanity.
+
+It taught them how to lure humans back.
+
+I don't know how long I have left.
+
+I don't know if anyone will ever hear this message.
+
+But if you do...
+
+Please don't send anyone to North Sentinel Island.
+
+Because North Sentinel isn't the problem.
+
+The island behind it is.
+
+And I'm still here, hoping someone will come and help me...
+
+But I think they've found me.

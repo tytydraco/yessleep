@@ -1,0 +1,43 @@
+The following are transcripts of journal entries found in the home of Maxwell Carter. Supposed cryptid hunter and local town misanthrope. I recently inherited his house and found an old journal behind some wall paneling. Most of the entries are damaged and the journal itself appears to be slightly burnt. I'll transcribe the entries that survived the damage and that i can read as it appears Mr. Carter wasn’t a dutiful journalist or had good handwriting. 
+
+June 28th 1989
+
+Gunner was a sweet kid with a heart of gold. He had the most beautiful blue eyes that contrasted with his dark brown hair. He was only six when he came to me. "Papa there's a monster in the woods.” 
+
+I was at the bottom of a bottle of jack when he told me. I scoffed loudly. 
+
+“There is no such thing as monsters Gunner, go play.” I wrote him off with another swig. 
+
+“But papa, I'm scared. What if it gets me?” Gunner whimpered. 
+
+“Monsters aren't real Gunner.” I said more aggressive this time. I just wanted to be left alone to wallow in my pity. 
+
+“But papa i-” 
+
+“Goddammit Gunner! Monsters aren't real! Be a man and stop being such a fucking coward!”
+
+My little boy looked heart broken and his little lip quivered. What have I done?
+
+“Gunner i-” I tried to apologize. But he was already running out the door into the woods. I sat there too drunk to process anything until I heard his scream. 
+
+I grabbed my pistol by the door and ran out into the woods. 
+
+“Gunner! Gunner!” I screamed, my lungs burning with each step. 
+
+“Gunner! Where are you?!” I shrieked. I ran and ran my alcoholic haze fading panic, seizing my lungs and vision. 
+
+I stood in a clearing when I heard a yelp of pain and a sharp snap. “Papa!” Gunners' voice echoed nearby. I sprinted thinking clearly as I realized what I done. Fear spread through my body what happened to my son? My beautiful son. 
+
+That's when I found him. On an embankment near a stream. My heart stopped. His arm was twisted backwards, his little chest was caved in rib bones puncturing his skin. And his eyes. His eyes were torn from the sockets. He was soaked in blood as he lay limp, unnaturally so, the life draining from his body into the stream tinting it red.
+
+I crumbled to my knees and let out a cry of grief and anguish as I pulled his broken body into my arms. My sweet boy. The boy who I used to tuck in. The boy that used to try and read to me. The boy who wanted to be just like his papa. 
+
+I didn't have time to grieve for long as my tear soaked vision cleared when I saw it. It must have been eight feet tall with Grey matted hair all over its body and green eyes. It looked at me through ape-like features. I couldn't believe it. 
+
+The figure reached out to me and that's when I noticed the blood on its hands and chest. Fury filled me as I drew my pistol.
+
+“You bastard! He was a child!” I yelled as I jerked the trigger over and over again. One shot connected with its eye and it let out a scream of agony as dark blood oozed from the socket. 
+
+It darted off into the thicket by the time the fourth shot rang out. After it was gone my arm went limp as I dropped the pistol. Gunner's body lied in my lap. Slowly I lean down, putting my forehead to his. I swore an oath of vengeance right there to my boy. And it's an oath I plan to keep. 
+
+Gotta wrap this up, the sheriff will be here soon. Let's see if he’d even buy my story.

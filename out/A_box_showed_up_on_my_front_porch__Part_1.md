@@ -1,0 +1,169 @@
+I'm not a writer so sorry if this is kind of all over the place. I just need to get this down somewhere before Friday. That's when they do it. 6pm.
+
+My name is Marcus. I'm 43. I manage freight schedules for a logistics company outside Columbus, Ohio. Or I did. My wife Diane taught middle school art. We had a dog named Biscuit who snored so loud we'd have to turn the TV up. Normal life. Boring life. The kind of life where the biggest fight we ever had was about whether we needed a new dishwasher.
+
+I'm telling you this because I need you to understand I wasn't some criminal. I wasn't a bad person. I was just a guy.
+
+The box showed up on a Tuesday in October. I only remember it was Tuesday because I was bringing the trash bins around front for Wednesday pickup and there it was, sitting right in the middle of the doormat. Not off to the side like a delivery guy dropped it. Centered. Like someone placed it really carefully.
+
+It was just a wooden box. Cheap pine, like something you'd make in shop class, but worn smooth. Like a lot of hands had held it before mine. Shoebox sized. On top there was this little glass cover on a hinge, and under the glass was a big red button. Like comically red. Cartoon red.
+
+Taped to the bottom was a brass key and a folded note. The note was typed on what looked like an actual typewriter. You could tell because the letter e hit a little too hard every time.
+
+It said:
+
+CONGRATULATIONS. You have been selected.
+
+If you press the button, you will receive $1,000,000 USD. In exchange, one person somewhere in the world, someone you do not know, and are not related to in any way, will die.
+
+You may press the button as many times as you wish. Each press is a separate agreement.
+
+Do not attempt to open the box except with the key provided. Do not attempt to destroy the box. The box will return to you.
+
+Thank you for your participation.
+
+I laughed. I swear to god I stood on my porch in my slippers and laughed. Then I brought it inside because what else are you gonna do, leave it in the rain?
+
+Here's the thing though. It wasn't the money part that got to me. It was the first line. "You have been selected." Somebody made that box. Somebody typed that note. Somebody looked at me, Marcus Hale, freight schedules, Columbus Ohio, and went yeah, him. He'll do it.
+
+That bothered me more than anything else.
+
+Diane got home around four and I showed it to her and she laughed too. She said it was probably some viral marketing thing. She told me to post it online. I almost did.
+
+That night after she went to sleep I googled "wooden box red button million dollars." It was all creepypasta stuff, stories people made up, until page three where I found this reddit thread from 2019. Title was "my grandpa left me a box with a button??" The post was deleted. Mods removed it. But google had cached one comment from a deleted account. It just said:
+
+"do NOT press it. mine came back too."
+
+I stared at that for a long time. Then I searched "box with button came back" and got nothing real. Just more stories.
+
+I put the box in the hall closet behind the vacuum and tried to forget about it.
+
+That lasted about a week.
+
+I woke up at 3:12 in the morning to a click from downstairs. One click. Sharp, like someone clicking a pen once in an empty room. I checked my phone for the time because that's what you do when you're scared, you check the time like it matters.
+
+Biscuit was snoring. Diane was asleep. I told myself it was the house settling. Old houses make noise. But I got up anyway because I'm the kind of coward who has to check. I went downstairs in my underwear with my phone flashlight and opened the closet and the box was just sitting there. Glass cover closed. Everything fine.
+
+Everything was fine.
+
+About two weeks later I decided to just get rid of it. I wasn't scared, I told myself. I was just tired of thinking about it. Tired of walking past the closet and knowing it was in there. So on a Saturday morning I put it in a grocery bag, drove to the strip mall, and dropped it in the big dumpster behind the Kroger. I bought a rotisserie chicken I didn't even need and drove home feeling stupid and relieved.
+
+The box was on my kitchen table.
+
+Centered. Like it never left.
+
+My hands started shaking before my brain even caught up, because think about what that means. Somebody pulled it out of a locked dumpster, drove to my house, got inside somehow, and set it on my table. In the twenty minutes I was gone.
+
+I checked every door. Every window. Locked. I went through the whole house like a crazy person. Checked the closets, the basement, behind the shower curtain. Nobody there. Nothing disturbed.
+
+And there was something new on the note. Under the typed part, in red ink, written fast like someone was in a hurry:
+
+"The box will return to you."
+
+I didn't tell Diane. I know I should have. I told myself I was protecting her, she had parent teacher conferences that week, she was stressed. Honestly? I didn't tell her because saying it out loud would make it real and I needed it to not be real for a little while longer.
+
+That night I finally used the key.
+
+My hands were shaking so bad I could barely get it in the lock. The note said don't open it EXCEPT with the key, so the key was allowed, right? That's what I kept telling myself.
+
+There was a drawer in the side of the box I hadn't even seen before. It was fitted so perfect it was invisible until it slid open.
+
+Inside was a circuit board. I'm not kidding. Green fiberglass, little soldered components, a coiled copper antenna, one of those cheap cellular modules like in a GPS tracker, a lithium battery. And tucked next to it was a little paper slip, printed like a receipt. It said:
+
+ARMED - AWAITING INPUT
+
+I sat on the kitchen floor for I don't know how long.
+
+Because that made it worse. Not better. Way worse. If it was supernatural, okay, that's scary but at least it's a ghost story. This was MANUFACTURED. Somebody designed that circuit board. Somebody soldered that antenna by hand. Somebody wrote the firmware that prints ARMED - AWAITING INPUT. There were meetings about my nightmare. There was a supply chain.
+
+Somebody was waiting for my input.
+
+I put it all back and put the box in the closet and I didn't sleep that night.
+
+Okay this next part is going to sound insane but I'm just going to say it plain.
+
+The glass cover started being open when I knew I closed it.
+
+I know. I know how that sounds. But the third time it happened I got this cold scared feeling because I specifically remembered closing it before bed and in the morning it was open, the red button just sitting there exposed.
+
+So I tested it. I made a tiny pencil dot on the edge of the glass and another dot on the wood right next to it, so they'd line up. Three days later they didn't line up. Somebody had opened the cover and closed it again. Carefully. They just didn't know about my dots.
+
+I asked Diane at breakfast, trying to sound casual. "Have you been messing with the box in the closet?"
+
+She looked at me over her coffee. "What box?"
+
+"The wooden one. With the button."
+
+"Marcus, I haven't opened that closet in a month. The vacuum lives there. The vacuum and your guilt." She smiled. She had no idea.
+
+I started dreaming about it. Not nightmares. Worse, honestly. Just normal dreams where I'd be at work or making lunch and the box would be there and I'd press the button like it was an elevator button, without even thinking, and I'd feel this huge relief. Like setting down something heavy. I'd wake up with my jaw hurting from clenching it.
+
+Diane noticed. "You're somewhere else lately," she said one night on the couch. "Where do you go?"
+
+"Work stuff," I said.
+
+She didn't believe me. But that's what you do after sixteen years of marriage. You let each other have locked rooms and you don't rattle the handles.
+
+Then on a Thursday in November it started snowing sideways and Diane had been complaining about her throat for weeks, just a cold she said, just the weather changing, and her doctor's office called.
+
+The nurse said "we need you both to come in tomorrow morning if you can."
+
+Nobody says "both of you" for good news.
+
+The consultation room was small and gray and smelled like hand sanitizer. The oncologist was a nice man with tired eyes. Everybody in that building had tired eyes. He said stage three. He said aggressive. He said "we have options but I want to be honest with you about the costs."
+
+The treatment existed. It always exists. Just out of reach. Insurance called it experimental. Experimental is just the word they use for "we'd rather you die cheap."
+
+First estimate was $240,000. Just to start.
+
+Diane cried quiet, the way she always did. No sobbing. Just tears going down her face while she nodded like she was agreeing with something. I held her hand and said all the right things. We'll figure it out. We'll fight this. Don't worry about money.
+
+The whole time there was a red button glowing behind my eyes.
+
+I sat in the hospital parking garage for an hour with the engine off watching snow pile up on the windshield. Diane was inside scheduling scans. I thought about a second mortgage. I thought about GoFundMe and how humiliating it would be to beg strangers for my wife's life twenty five dollars at a time. I thought about the pencil dots that didn't line up.
+
+Then I drove home.
+
+Diane fell asleep on the couch at eight. She was tired in this deep way that scared me more than the diagnosis. I covered her with the quilt her mom made. Biscuit curled up on her feet. The house was so quiet I could hear the fridge humming.
+
+And the box was on the kitchen table. Centered.
+
+The glass cover was open.
+
+I stood in that kitchen for a long time. I thought about the note. Someone you do not know, and are not related to in any way. Eight billion people in the world. One of them, somewhere, a total stranger. The math almost made it feel like nobody at all.
+
+I thought about the circuit board and the antenna and that little slip that said ARMED. And I finally understood what the box actually was.
+
+It wasn't a test. A test has a right answer. This was a transaction. Somebody built a machine that turns strangers into money and they left it on my porch like a mousetrap and the only question was ever the price.
+
+Diane's life. That was the price. It was always the price.
+
+I told myself it was fake. I told myself the money would come and nobody would really die, the death part was just there to make the money feel dirty, I was too smart to believe in a murder box. I told myself every lie I had saved up.
+
+My hand didn't feel like my hand when I lifted it.
+
+I pressed the button.
+
+Click.
+
+Just a click. Small and cheap and plastic. The most ordinary sound in the world.
+
+I stood there waiting for something. Lightning, I don't know. Nothing happened. The fridge hummed. Biscuit snored in the other room. Diane kept breathing, each breath something I just tried to buy.
+
+I felt like an idiot. I felt like a monster. Mostly I felt nothing, which was the worst part.
+
+I closed the glass cover. I went upstairs. I laid in bed staring at the ceiling until the sky went gray.
+
+At 9:14 the next morning there was a knock at the door.
+
+Not a delivery knock. A person knock. Patient. Like they knew I was home.
+
+I went downstairs in my bare feet and through the frosted glass I could see a courier holding a flat envelope.
+
+And I knew. I knew exactly what was in that envelope and exactly what it meant and exactly what I'd done.
+
+My hand was shaking on the doorknob.
+
+\---
+
+I'll post Part 2 tomorrow.
