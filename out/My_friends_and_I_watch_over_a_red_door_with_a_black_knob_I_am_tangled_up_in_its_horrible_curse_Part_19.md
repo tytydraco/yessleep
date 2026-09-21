@@ -288,4 +288,4 @@ My own eyes slipped shut, peace washing through me with each heartbeat. We proba
 
 It probably would be…
 
- 
+ [{Next Part}](https://www.reddit.com/r/nosleep/s/jMP6364pxx)
