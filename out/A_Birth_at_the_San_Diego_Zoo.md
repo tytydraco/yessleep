@@ -1,0 +1,61 @@
+In life, there have been few places where I've been able to find solace, and it wounds my heart to have one of them so irrevocably tainted. I fear that I may never be allowed to forget what emerged from the womb of Bai Shan, the Giant Panda. 
+
+The sun was shining, mockingbirds sailed lazily through the afternoon sky, and I found myself lost again in the bustling crowds of the San Diego zoo. When I was younger, I would have hated it. The shuffling of elbows, the occasional glancing of one ankle against another. As I've matured I've come to appreciate how easy it is to become lost in a sea of faces. Especially in a place like that, where exotic beasts lay caged behind glass. Surely, in the face of such sterling examples of nature's graceful, brutal, efficiency, anybody would be a fool to spend their time in judgment of a man. 
+
+Bai Shan had been receiving extra attention lately due to her surprise pregnancy. The zoo had no breeding program for their panda at the time, due to rising tensions with China, so the caretakers were completely baffled when her discolored coat of white fur mottled with brown dirt began to swell at the belly. 
+
+I stood admiring the lazy dozings of a pair of cougars, lost in thought as I rolled my gaze across muscled jaws and paws easily twice the size of a man's hand. Suddenly the flow of people began to reverse its course. I stretched my ear toward the conversation of passersby, without even fully meaning to. 
+
+"Bro, c'mon! Tony is over by the Panda and he says it's grunting like a pig!" 
+
+I was befuddled by what I had overheard. Was it choking? Vomiting? Had something gone wrong with the pregnancy? I rushed over to the exhibit, others running alongside me in a torrent of bodies. Hundreds of people congregated there, joined by mockingbirds in equal number, sitting in hushed masses barely obscured behind the vibrant purple blooms of the Jacaranda trees. The plaza was silent beyond the sound of beating wings and pounding footsteps growing more distant as the available space dwindled. When the last of the witnesses arrived, the branches, laden with heavy blossoms and birds alike, sagged dangerously beneath the weight; the sound of footsteps bleeding distantly into nothing. 
+
+I don't know if you've ever seen the way a Panda gives birth, but it's nothing like it was for Bai Shan. Typically the infant bear, smaller than a child's shoe, springs forth from its mother's womb in a comically effortless way, anticlimactically launching the baby from its birthing canal. Bai Shan's labor was anything but effortless. 
+
+I pushed to the front of the crowd, and was horrified at the blatant agony on display. Bai Shan laid flat on her back, muscles twitching in violent spasms as her gut stretched desperately against its bounds. An older woman, somewhere in her 40's, fainted as the shape of a paw violently distended Bai Shan's stomach. The paw pushed against its mother's skin, making itself plainly visible through the thick fur. A long, wet, schlicking sound crept out from the enclosure. What happened next is something I have a difficult time putting into words. The skin of Bai Shan's belly seemed to suddenly rip and snap back to its place, and the paw remained pressed against her fur, stretching it as if it were a single, contiguous membrane. This second skin began to fill with blood until it was fat and sagging like an overful water balloon. 
+
+Bai Shan grunted, heaved and roared. Her pelvic floor rocked with a horrible, internal impact. The edges of her labia suddenly tore open, oozing red blood into white fur as a mass ripped its way out from within her, splitting its mother's pelvis completely. Bai Shan roared in terrible, grueling misery as a torso, far too developed for an infant, emerged from her womb. It was followed rapidly by a forelimb, the hind legs, another forelimb, and finally the head. 
+
+Several spectators turned to flee, hoping to find a safe place to vomit, but found themselves blocked by the throng of bodies. A daisy chain of bile spread through the crowd, lacing the air with a thick sheen of pungent, acidic stench. 
+
+Each body part launched from within her with a wet popping sound, landing in a flurry of slimy thuds across the dirt. The crowd stood in shocked silence, parents quietly ushering away crying children as I tried to make sense of it. Bai Shan wasn't due to give birth for another three months, at least, yet the heap of anatomy all seemed to belong to a cub already three months old. A boy no older than 11, with a hat bearing the insignia of the San Diego Padres, was the first to notice. He spoke softly, but was heard by all amid the horrified stillness. I remember a sense of relief at the momentary distraction, instantly squashed by the words he spoke. 
+
+"Is it...moving?" 
+
+He breathed the question as if it were a thought gone rogue, drawing my eye, along with hundreds of others, back to the gorey pile as it began to sit up. The limbs pulsed with waves of dark, crimson blood from where they were meant to meet the thorax. Small balls of bone, bones meant to be securely fastened into sockets, pulled gently at the fur, wet with blood, as they moved toward their position. 
+
+All the pieces fell into place, and immediately fell back out as they slid past their mark. The left forelimb continued on to glide around its back like a figure skater, with the right one hesitating at the shoulder, as if waiting for its turn. The raised paw rotated forward at the wrist, moving back around through the arm and returning to its original position. The cub's hips rotated independent of its torso twisting the creature's midsection up like a wrung-out rag. My stomach lurched at the sound of skin drawn past taut and the grotesque clicking of vertebrae pushed beyond their limits. 
+
+All at once a high-pitched whine, like some supercharged form of tinnitus, tore through my ears. I clapped my hands to my head, hoping to insulate myself from the noise, but it was no use. All around me, people repeated my motions, many collapsing. After several minutes of writhing excruciation the sound abated, leaving us to pick ourselves up from the ground. Bewildered, furious eyes turned to the cub. 
+
+One of the bear's hind legs had found its mark, locking itself into the joint. The bear balanced on one foot which spun about the ankle, causing the infant Panda to dance a slow pirouette as its other limbs slid across its form. Something in the motion gave me a sickening sense of celebration. As if the baby were dancing to herald its own arrival. 
+
+A brunette in a red leather coat screamed out what we had all been thinking as she hung on her husband's arm. 
+
+"KILL IT!" 
+
+Her pleading prompted the man to draw a revolver from the holster on his hip. He leveled the barrel square at the horror's head, but the shot went wide and struck Bai Shan. 
+
+The cub spun its head toward the sound of its mother's cries, with the head continuing its rotation until it locked its eyes on the cowboy. The cub's brow furrowed in a move that struck me as all too human, and leaned its head back. The head continued along its trajectory until it disappeared into the cub's torso. The woman from before let out a scream which sounded half-hearted, as if her fear were battling a desire to draw as little attention as possible, and the crowd began to scatter in a panicked stampede as the cub's head rolled itself impossibly back out from the center of the man's chest. 
+
+The man looked down, jumping in such startled surprise that his Stetson went flying off his head. He screamed in a horrified rage as he slammed the barrel of the revolver against the infant's skull, pulling the trigger just a moment too late. The bullet tore through empty air before lodging itself in the skull of the woman in the red coat. She collapsed to the ground, her head producing a sickening crunch against the plaza's stone pavers. 
+
+The mockingbirds cried out in her voice:
+
+*KILL ITKILL ITKILL ITKILL ITKILL IT*
+
+I wished desperately that I could flee, but the tide of rushing bodies was far too strong. To enter that current would be to subject myself to a thousand trampling feet. The bear re-emerged from the skull of a man to my right, this time with shredded grey matter caking its fur as the man collapsed in a seizure. The bear squealed in delight as it rolled itself back into his head, disappearing once again. 
+
+*KILLITKILLITKILLIT*
+
+I looked around wildly for any way to escape, finding my eyes drawn back to the man with the gun as he climbed down into the enclosure. The cub's head had returned to its body, and the man fired four more shots as he approached. Each bullet swung wildly away from its path, as if the very idea of a straight line were distorted by the infant's presence. He reached for a large rock, hefting it up over his head and bringing it down with a furious yell. Bai Shan's second skin burst catastrophically as the cub was crushed beneath the stone. The cowboy was swept off of his feet by the crimson torrent of blood. He drew himself back up in rage, and resumed smashing the cub, a wet thump echoing across the plaza again and again and again and again and again. 
+
+*KILLITKILLITKILLIT*
+
+When he had finished with the cub, he turned his rage toward Bai Shan. The already dying bear groaned and cried real human tears as the man slammed the stone against her skull over and over until blood and brain matter sprayed out across the ground. Then he turned his eyes to me. 
+
+*KILLITKILLITKILLIT*
+
+I've never had any explanation for how I became the focus of his rage. Perhaps he felt me watching him. How he managed to scramble up the deep walls of the enclosure is another thing which eludes me. He was on me within a minute, raining down a hail of furious punches. The impact came again and again, blurring my vision and drawing red into the corners of the world as blood ran from my forehead. At the edge of unconsciousness, a shot rang out and the mockingbirds scattered. The man clutched at his side and staggered, allowing me to slip loose. 
+
+I ran like hell as the police, finally arriving, swarmed over top of him. 
