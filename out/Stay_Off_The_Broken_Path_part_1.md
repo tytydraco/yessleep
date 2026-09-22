@@ -1,0 +1,79 @@
+It's still been many months since I got out of that damned place. A part of me wants to try to pass it off as madness and hallucinations, and every time I try to forget it, my dreams will remind me of all that has happened. Sometimes I still think I'm there, and that I never got out, but the tears and hurt that I feel tell me the truth.
+
+I should start at the beginning so you know where I am coming from. This all starts not with a simple hike, but with a disheartening breakup. A 5 year relationship that was full of happiness and cherished moments all went down the drain when I caught my partner in the act with another person in our bed. Damnit, it still hurts to think about even after all that has happened. All she told me was that it had been happening for months. She didn't even try to justify why she did or fight for my love. She just packed up her things and left the following week. That hurt more than actually seeing the infidelity happening. It’s like she didn’t even give a damn that she betrayed my trust and broke my heart.
+
+The following night she left my life, I told my friends in our group chat in a drunken stupor. They all expressed concern and care, some felt bad that they saw signs of her acting weird but they didn't expect her to be cheating. I don't blame them however. They couldn't have known, hell I couldn't have known. I've been so busy those past few months working up to my eventual proposal to her, and all that work is gone now.
+
+I won't lie, I shouldn't have done what I did. What was that? Well, nothing. I did nothing at all. I did the bare minimum and cut myself out of society. I drank and sobbed and relived all the precious moments I shared with her. A part of my life, now a lie and lost. I questioned if I was good enough, if I had done enough to make her happy, if I made her proud of me, if she even loved me.
+
+I made a damn fool of myself. I worried a lot of people with my brief short sentences. My friends would text me and send me memes, and I would hardly react. They tried to check up on me, ask me if I was going to be alright and I would just tell them “Yeah, I will be fine.” But I was far from fine. I guess they noticed that too. That's what led them to my door and finally comforted me.
+
+I was disheveled and honestly looked terrible. I was surprised to see my three friends since middle school and best friends of 15 years. Matt, the tallest one out of all of us, asked if they could come in, and I reluctantly agreed. They sat on my couch and I sat in the recliner facing them, head down in some sort of shame after actually noticing how terrible the room looked. My friend Henry, the pastor of our local church, spoke up first.
+
+“Mark, buddy, I know things have been rough since the breakup, but it's been a month since you have spoken to us at all.” He said with genuine concern
+
+“I've answered your messages when you texted. I said all that needed to be said.” I said lowly, feeling shame that I made them worried
+
+“C’mon, you know what we mean.” Tom said, once a cop in our small town, and my oldest friend. “Man, we are deeply worried about you. I get it's been a month since you broke up, but you can't keep living like this forever.”
+
+Matt got up and put his hand on my shoulder. “Thats why we came up with a plan. Remember all those years ago we kept on going on a hiking trip with just us, the boys?”
+
+I chuckle and smile. “Yeah and I remember we never could come up with the time to do that. We've been talking about that for several years.”
+
+We all laughed and Henry said “Well looks like the time is right to do that. We all have the time to hike for a week, just us the boys. We can just be ourselves and not worry about what responsibilities we have. What do you say?”
+
+It was honestly a no brainer to say yes. These 3 were a second family to me. I loved them like family. They had been through a lot of tough parts in my life since I was young and no matter what happened to me, they were always there to lift my spirits. I felt like I could genuinely be myself no matter what and I wouldn't be judged.
+
+They had already planned out where we would go. We would take a trip out of the state of Georgia and travel towards the Appalachian mountains. We would be going to a place that would be a hot spot to see a wonderful phenomenon called the Brown Mountain Lights. I had heard tales about the brown mountain lights and urban legends that arose from them. While they were fascinating, I did know one real thing about the trek: it's dangerous. There were real stories of people going missing and being lost up on that mountain, even if it was mapped out well.
+
+We all took a day to prepare. We put in our time for this vacation we spent so many times planning in our heads. I couldn't believe that we finally decided to do it. Guess we just needed a catalyst to say screw it and go do it. Shame it had to be me isolating myself to do it. I honestly needed this after spending so much time away from people. Even as introverted as I was, that was a new level even for me, and I hoped I would never get to that point again.
+
+On the way there, I couldn't stop smiling. It felt so good to finally see all the boys again and this was a new experience. This would be the first time in several years I left my home state. On the way there to a hotel close to there, I couldn't stop taking in the beauty of the world. After trapping myself in my home with minimal contact from anything, it felt so rejuvenating to see what the world had to offer. Not even my breakup could ruin this for me. The more I left my home, the more alive I felt. I still cherish that even now.
+
+We all met up at the hotel we would stay temporarily before we would start our hike onto the mountain. We went out to a local diner near us and ate and cut up like old times. It felt like we were back in our high school years where we would act like such dumbasses and didn't give a damn who or what people thought. It felt so right to be with them and be myself.
+
+I went to use the bathroom and on the way, one of the waitresses stopped me to talk to me briefly. She was pretty, I'll give her that and I guess she had caught an interest in us cause I felt her gaze on us since we walked in. She asked if we were out of town and I told her that we were all from Georgia. Then she asked what we were doing out here so far. That's when I told her that we were going up to the brown mountain to hike for our vacation.
+
+The moment I said that, I could see her expression and demeanor change. I wasn’t one to overlook such details so I plainly asked her what was wrong. That's when she told me something that I should have taken more in mind and not passed it off. More people have been missing from the town after they went to hike up that mountain, which I thought was peculiar but what made me doubt her was her telling me that the few that do come back are greatly different from who they were when they went up there. It's like a piece of them was gone and they could never figure out why. I told her thank you for your worry and reassured her that we had prepared a great deal and it would be a miracle if we got lost up there.
+
+After that night, we would start on our hike. I won't lie, the trip wasn't easy just to get to a good spot. I won't bore with the details, but to simply put, it was difficult and I had a bit of doubt if we were prepared to do this. But we made the trek out there, and I wasn't about to ruin this trip by letting my worries get the better of me. It took us an hour to get to a good spot to park since we all carpooled. We loaded up all of the gear we would use and Tom put on his conceal carry. He didn't need to explain to us why he would wear that, especially out here.
+
+We hiked for a while and during that, we came across a clearing to look at Wiseman View. To say it was beautiful is putting it lightly. It was a sight to behold, among the prettiest I've ever seen. Then again, after staying boxed up for a month, anything would be absolutely stunning. It was here when Matt thought it was the time to announce that he was gonna have a boy. We all cheered for him and honestly decided to stay there and have a couple drinks there for the night. We all cut up and joked around, and I still remember the genuine joy that they had on their face. Honestly, out of everything, that hurts the most.
+
+Nothing much happened on the second day, besides seeing some wildlife and a bear in the distance. I was more surprised by how accurate the map was to the GPS. I distinctly remember that fact. Mainly because of what would happen on day 3. While we were hiking along the path that the map and GPS was leading us, we all could tell something was different. The path we were taking slowly became less traveled, to barely be beaten down and a few minutes later, the path just stopped.
+
+We all came to discussion as to what we should do considering the GPS and map said that we were on a path. They were hesitant to keep going though, cause we could all tell it was odd that the path would just stop. To this day, I will never forgive myself for being the voice that said that we should keep going. I should have kept my mouth shut like I was used to doing. Being the silent one that observed and listened always. I said that it was our nerves but surely the path has to pick up at some point, and we just have to find it. They reluctantly agreed and we trekked onwards.
+
+We walked for several more minutes and it became evident that the path was nowhere to be seen. I pulled out my compass I bought before we got to this mountain and it couldn't tell where North was. It was going haywire, spinning in every direction, and seeing that as well as Tom explaining that the GPS was acting funny and gave out a random direction to go deeper into the woods, well that filled me with an intense dread. The air didn't even feel right, and as I scanned the woods around me, it appeared darker, more shadows than before, even if it was midday and the sun was bright and out.
+
+Matt said that we should turn around and head back and none of us argued. We would be lost if we kept going, so we started walking back the way we came. Several minutes after that, where we should have seen the faded path, there was nothing. All we did was walk in a straight line and turn right around and somehow, we were lost. An intense guilt filled in me, because I was the one that said we should keep going. I checked my compass again and still nothing. It wouldn't set on a solid point on where magnetic north was.
+
+“I'm a damn fool. This is all my fault. I made us go on and now we are lost.” I said out loud, my head pointed down.
+
+Henry patted my shoulder and smiled, though I can see he was scared. “It's alright man. We just have to keep going and we will get to the path.”
+
+I admired his enthusiasm even now. His demeanor and comforting words always set me at ease. We all decided to keep going. Around 10 minutes and with no path in sight, I remembered that Tom had an emergency phone that could call anywhere at any time. I decided to make the call, maybe out of some sense to rectify the mistake I made. I called and a voice picked up.
+
+“Hello, this is Brown Mountain search and rescue. Can we help you?” The voice said.
+
+“Yeah, it's 4 of us out here and we were walking on a path and the path stopped but we kept going. We turned right around after a while but it seems we may have made a wrong turn. We could really use your help.” I said as calmly as I could.
+
+“Understood, we will get a team ready and we will be on our way. Stay right there and we'll be there soon” They said. Something about that command felt wrong. It was too demanding, but maybe that's because they didn't want to have to scan the entire forest for us.
+
+“Of course. I'll give you our last coordinates where we got lost.” I said and then told them where we were, but I can't remember now what that was.
+
+“Thank you Mark. You're a big help to us.” the voice said.
+
+I was about to say something but I stopped when I realized sometime was off. The forest was too quiet. There were noises far off into the distance but it was faint. I hung up, but as I did, I felt the biggest pit in my stomach. I didn't give them my name, yet they knew already.
+
+For some reason, I chose to not tell them. I can see that my friends were unsettled that we were lost and I felt like this would push them over the edge. I try to rationalize the many possibilities of how they got my name, but I couldn't come up with anything concrete. We set up camp in a small clearing and waited.
+
+Help never came. That set my nerves on edge more as we passed the 6 hour mark. We've all been silent since I told them help was coming. I know for sure I gave them the right coordinates, but at the same time, I can't remember myself if I actually did or not. Soon dusk came and I said that I would stay up and if I felt tired, I would wake one of them up to take my place on watch.
+
+I stayed up that whole night. I just sat there and waited. It must've been 2 hours after everyone fell asleep when I heard a loud crack. Branches breaking under footsteps. I got up and carried a lantern with me since I wanted to save as much battery on the powerful flashlights. I walked a little bit when I heard more cracking and leaves crunching under fast footsteps from at least 30 to 40 away from me.
+
+The forest was unnaturally dark and silent. Barely any crickets chirping or owls hooting. My lantern could only pierce the thick darkness only so far before it was engulfed by a neverending void of pitch black. I pointed my lantern to the direction of the noise when I saw 2 ghostly eyes reflecting the darkness from the edge of my lantern. I couldn't see any details but the eyes.
+
+That was all I had to see to know that something was wrong. The eyes were a dull gray all over, even covering the retina. It stared at me, but it felt so wrong. It felt like I was being hunted. I could only hear raspy breathing, like they could barely get any air into their lungs, every breath a battle to live. Unsettled doesn't describe what I felt. I felt horrified by whatever is potentially just out of reach, yet so close. Then it backed away slowly and I could hear footsteps running away deep in the woods.
+
+Then I made the 2nd worst decision I possibly could. I didn't say a thing to them until dawn. I tried to justify it that it must've been some animal or my eyes were playing tricks on me. Either way, I didn't need to get the group scared by telling them that something is watching us and something is out here. We would need all the strength and awareness we could get. I came to a conclusion right then and there. We were lost, and help isn't coming to save us.

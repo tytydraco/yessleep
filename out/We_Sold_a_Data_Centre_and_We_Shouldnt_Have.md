@@ -1,0 +1,199 @@
+The check cleared on a Tuesday.
+
+I was in line at the feed store when my phone buzzed. I looked down at the number in my account and had to put my hand on the counter. The kid behind the register asked if I was okay. I said yes. I said it three times.
+
+That night I bought my daughter new shoes. Nothing fancy. Just something that fit. She'd worn the same pair two years without complaint. When she saw them, she looked at me like I'd handed her the moon.
+
+My son asked if we could afford ice cream. I said yes to everything that week.
+
+\---
+
+Six months before the check cleared, Sarah took the kids to her sister's in town. I didn't blame her. We'd spent years one bad season from losing the farm. I couldn't blame her for getting tired of waiting.
+
+The corporation came three months later. Scott Mahoney led the neighbors in protest when the news broke: a data centre. They wanted the back forty, the rocky parcel across the creek where nothing grew. My father had left it alone. His father before him. Scott called it a desecration. Don't sell, he said. As if selling were the real threat and not the thing that would come whether we did or not.
+
+Diane from the corporation sat at our kitchen table in a grey suit and laid down a number that made my chest tight. More than we'd made in three years combined.
+
+
+
+Michael, my brother who worked the farm with me, sat beside me, his hands wrapped around a coffee cup.
+
+"You remember what Dad said about that land," he said after Diane stepped outside.
+
+"I know Dad said a lot of things."
+
+"He said never sell it."
+
+I looked out at the fields, worn and patient. At what we'd become.
+
+"Look at this house, Michael. We're one bad season from losing everything."
+
+He rubbed his face. His hands were shaking.
+
+"Okay," he said. "Let's sell it."
+
+\---
+
+My father taught me the salt work when I was twelve.
+
+
+
+We started before dawn. Stalks of rye from the last harvest burned in the north field, a thin smoke rising. My job was the ash. Dad had mixed it the night before with grey coarse salt, the kind Ma got from a man in Rolla who asked no questions about where you'd be using it.
+
+Dad didn't explain anything. He just watched. If I hurried, he tapped the shovel handle against my boot. If I held the plow wrong, he corrected me without speaking. We worked until the sun was high enough to cast shadows.
+
+The patterns didn't make sense from ground level. You had to climb the ridge to see them whole, and by the time you did, you understood why Dad never talked about it.
+
+I quit doing it in my twenties. Called it superstition. Called it the reason we were poor.
+
+Michael kept doing it. Every spring, before planting. Even after Dad died.
+
+\---
+
+The data centre construction started in June.
+
+They brought in heavy equipment, foundation crews, the constant sound of excavation. The humming started in early August. Low frequency, rhythmic. At first, you only heard it at night when the wind came a certain way. After the transformers came online, it never stopped.
+
+The sound traveled through the land differently than I expected. There was a sinkhole near the north edge, maybe thirty feet across. The sound wasn't coming from that direction, but somehow between places. At night, the fence line seemed to vibrate. I told myself it was normal, and that machinery did that, or the ground settling.
+
+Soon after the data center was set up, we started noticing things off. A heifer died on a Tuesday, north field, and she was just empty. The vet shrugged and said sometimes they go.
+
+I almost believed him until the second one failed to come in that evening. I found her by the sinkhole, sitting in the grass where something would have had to place it by hand.
+
+Michael called that night. "You need to come out here."
+
+He led me to the edge of his side, where the footprints sat pressed firmly into the dry clay. They were massive things, each one stamped deep as though whatever made them had been in no hurry to leave.
+
+"This isn't right."
+
+I didn't say anything.
+
+"You're going to tell me it's some anti-data centre idiots?"
+
+"I don't know what it is."
+
+He looked at me for a long moment. Then he turned and walked back to his house.
+
+I started paying attention to things I'd ignored for years.
+
+The journals were in the barn, tucked away in a box Dad had labeled in pencil: "Maintenance Notes." I only found them because my wife cancelled the kid's visit last minute. Something stupid, like meeting up with one of her flavor-of-the-week flings. So there I was, alone on a Saturday I hadn't planned to be alone, wandering the barn with nothing but time and a bad mood.
+
+They went back forty years. Maybe more. But what struck me was what they contained: not farming advice. Dates. Sketches of the lines. Annotations like "North sector held" or "East junction weak" with arrows pointing to specific locations. Records of animals found. The date the heifer died, nearly identical to the date Dad had written about a yearling calf.
+
+Except Dad had written: "Boundary breach—north line. Closed with additional treatment."
+
+I didn't understand what "treatment" meant.
+
+I went to find Michael. He was standing at the fence line, looking toward the data centre. The lights there burned all night now. Bright white arc lights that turned the whole area the color of bone.
+
+"Did Dad ever tell you what the salt was actually for?"
+
+He didn't turn around.
+
+"No."
+
+"The journals mention it. Maintenance. Breaches."
+
+"I know."
+
+He was quiet for a while. The data centre hummed beyond the tree line.
+
+"I think it keeps something in," he said.
+
+I waited for him to laugh. To say he was messing with me. He didn't.
+
+"The sinkhole," he said. Then he stopped. Turned back toward the horizon. "They've been digging since July. Deep. The vibration gets worse every day. And the lines—" He stopped again. Swallowed. "I can feel when they cross one. There's this instant when the sound changes. Something feels wrong. Then it passes. It's happening more."
+
+"Michael."
+
+"I know how it sounds."
+
+He said it quietly. Then: "I'm going to try something."
+
+He rebuilt a section of the line that next week. The northeast corner, the one that seemed weakest. I watched from a distance, not helping, not stopping him. He did exactly what I'd done as a child: burned the rye, mixed the ash with the salt, worked it into the earth in a pattern that made no sense until you climbed high enough to see.
+
+When he finished, he looked smaller somehow.
+
+"Did it work?" I asked.
+
+"I don't know yet."
+
+The vibration from the data centre did seem to settle that night. Or maybe I was just looking for the change. By morning, I couldn't tell if anything had actually changed at all.
+
+Things kept quiet for a while after that. Three weeks, maybe. Long enough that I started to let myself believe the whole thing had been nothing, just my imagination running wild in the dark of that barn. Then I saw something.
+
+It was in the north pasture, standing motionless in the space between fence posts. Tall and maybe seven or eight feet, and the skin of the color of wet bark. For a moment, I thought it was a person in strange clothes.
+
+Then it turned and walked into the tree line, unhurried, like it had all the time in the world.
+
+I told myself it was Scott Mahoney, trying to scare us up. He'd done it before, after all. Spray painted my truck, him and his gang of anti-data centre hooligans. Grown men in their fifties, acting like teenagers with a cause. But Scott is Five-foot-eight on a good day, with boots on.
+
+During this time, Michael grew more paranoid, and by extension, so did his family. He hadn't fucked up his marriage yet like I did, but guess it needed some time.
+
+Some weeks passed, and my nephew Eli came running inside pale and shaking, barely able to get the words out. "There's someone out there."
+
+Michael and I went out that night with a flashlight, sweeping the tree line until our arms ached. His wife phased at the whole thing, asked me the next morning if our witch hunt had produced anything. "Nothing," I said. "Just the wind."
+
+It was some weeks later I heard the screaming and shouting carry across the fields. Eli and his sister started spending more time at my side after that. I didn't bother to learn what was happening. Farming takes its toll, especially when you aren't making money. Micheal's wife, Rachel took the boys to Springfield the next morning. She wouldn't tell me why, and I didn't ask.
+
+\---
+
+Michael came over that night. We sat on the veranda with two beers, watching the lights from the data centre.
+
+"I found something in the journals," he said. "A date. December 1962. Dad wrote it twice. Different pages. Same date. He wrote: 'Lines intact' on one page and 'Lines compromised' on the other."
+
+"You're reading two different years."
+
+"Same handwriting. Same pen. Same day."
+
+I didn't know what to say.
+
+"There's a gap after that. Three years. Next entry is 1965. He talks about reinforcement. Increased frequency. Ash and salt, not just in spring anymore." Michael finished his beer. "He writes: 'Cannot afford to let this fail again.'"
+
+He set the bottle down. Looked at me.
+
+"And you think the data centre—"
+
+"I think the thing is affectiing the salt thing, everything has gone haywire since we let that thing get built on our land."
+
+He didn't say anything else. We sat there watching the lights until the beers were warm.
+
+I woke to the sound of something breaking. They were four of them, those figures we always saw. Just surrounding us on the veranda.
+
+Skin like wet bark. That smell, chemical and strange, underneath.
+
+One turned to look at me. It had eyes. I recognized something in them immediately. I'd seen them before.
+
+'Dad?'
+
+It screamed, as I fell off my chair and woke Michael. He immediately wrestled the central figure as the rest stood, as I was already running into the house for my shotgun.
+
+When I got back, Michael was on the ground. What was left of him looked like it had been split open with an axe. One of them, at least, wore Dad's face.
+
+The funeral was three days later, and Ma came. She walked in rather than used her cane, beside her nursing aide, the one I was able to get with the cash from selling to the data centre. As they lowered the coffin, she grabbed my arm and said, "The data centre. You let them break the lines."
+
+It was the first time she had spoken coherently in five years ago.
+
+"I didn't have a choice," I said.
+
+She looked at me with eyes I recognized from somewhere I couldn't place. "Everyone has a choice. That's the worst part."
+
+She turned to leave, and I looked at her. "Thirty years he spent putting it back."
+
+"What?" I said. "Ma—"
+
+I tried to pull her back, but her nurse intervened. She was already walking toward the car.
+
+\---
+
+I went to the barn that night.
+
+The sack of salt was behind the rye storage, in the corner my father had shown me when I was twelve. Michael had been pulling from it all spring, rebuilding the northeast section, but there'd always been enough. Dad used to say there was enough for years. More than enough.
+
+But the bag was open, and the salt was gone. Not scattered but removed, carefully, methodically. I stood there for a long time, before heading back and collecting some of the salt and ash already sown into the soil to protect myself.
+
+But I'm still here.
+
+I've got the shotgun by the door and what's left of the ash in a jar on the cabinet by my bed. Tomorrow I'll start rebuilding the northeast corner, the way Michael did. The way Dad did before him.
+
+[Masterlist](https://www.reddit.com/u/lex_kenosi/s/8aokOhXNI6)
