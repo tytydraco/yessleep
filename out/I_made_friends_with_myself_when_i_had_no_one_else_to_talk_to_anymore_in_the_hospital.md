@@ -1,0 +1,99 @@
+I could scarcely speak by the time the sweat had begun to cake itself onto me, a thin, foul smelling film that I learned to live with just like I had learned to live with being in the place that gave me it in the first place for over one year. I didnt like being in hospitals for this long. I didn't like being in hospitals at all, so this was a cosmic test of tolerance for me. Maybe I was a bad kid and belonged here. Maybe God wanted to exact divine punishment on me for being a bully in school. I don't know. I felt like I deserved it, so despite the discomfort, I accepted my sickly cocoon and whatever metamorphosis that might have followed it.
+
+For company, I only got as much as the people around me were willing or obligated to give. The nurses were doing their best, the doctors would come in rarely to tell me how much more or less screwed I was, and I had a bunch of bickering morons for a family that could never seem to set their differences aside. Looking back, I appreciated the staff a lot. They were cool. I mean, they saved my life so that’s *is* pretty cool. As for my family, I guess it would've been a bad look to not visit a cancer kid, so they came out here in number. I wonder still if they visited to see me, or just to show up to show they cared. I don't know. It doesn't matter.
+
+Then there's my own company I guess. When i was alone in that room, things could get all fucked up and weird, you know? Sometimes, you had to be alone with the chemo draining the life out of you like some lich. I felt like I was turning into a ghoul. When I couldn't take it, when the pain and nausea was so much that it felt like all my guts were going to come up (they did) and that I'd turn inside out, I just started talking until I got an answer back.
+
+“Can somebody help me?” There was a button they gave me to press for help. I woulda just hit that, but i didnt know where the hell it walked itself off to or what ass cheek of mine it shoved itself under. I wanted a new gown, too much sweat.
+
+*No.*
+
+I let out a pathetic whimper. “Please?” I didn't want to shout. Where did my button go? This gown felt so cold on me, and everything around me warped and danced around in the dark like a bunch of crazy people outside a liquor store at 12 am.. It was cold. I didn't want to be cold anymore.
+
+Little shadows passed through my rooms doors window. After regarding it for a bit, I looked to the other end of the room now where an unoccupied chair sat. Usually, my mom would be sleeping in it, but she wasn't here right now.
+
+When you're the only company you have left, I like to think it's good practice to make best friends with yourself. I thought I was crazy or weird or some shit, but who would know if I just started talking to the hat man. Maybe he wasn't even all that bad. Hell, maybe he'd even have some interesting things to say at this odd hour of the night.
+
+So, whatever. I was a crazy person. A crazy kid. A kid trapped in a hospital for so damn long he wondered if he'd ever get better. Maybe he could ask the hat man that.
+
+“You ever just lay here and…do nothing?,” I said to the dark.
+
+*All the time.*
+
+“I wish mom was here. Think mom will come tomorrow? I want mcdonalds instead of hospital food.”
+
+*Don't know.*
+
+“I want to see mom.”
+
+*…*
+
+“I miss mom.”
+
+It was like talking to a magic eight ball of infinitely unsatisfactory possibilities, but in the end, after sometime, I forgot who was actually doing the talking. When the red stuff was doing its worst, I fell into such despair that no child should ever need to feel.
+
+The pain felt like my body was being crushed into a ball. “Mom? Dad?” And only the dark was there to be with me.
+
+*I am here.*
+
+“Im gonna make it, right? Mom… dad… cant everyone stop fighting?” I was alone.
+
+*Keep talking.*
+
+“I want to eat. I can't eat it. I puke it up. I'm hungry.”
+
+*You should have crackers.*
+
+“I don't want them. I want real food.”
+
+*They won't make you throw up.*
+
+Saltines were pretty good, looking back. Shove one in your mouth, chew it, swallow it.  It was better than nothing, I guess. 
+
+After a while, you start to float in between. I’d be resting one moment, talking to myself in some imaginary universe beyond the comprehension of man, to next be in the presence of a group of doctors discussing my prognosis and how much *doxorubicin* I’d left out of my regimen because I’d walked off to wander the room at night to have my IV cord slip out of me. I still don’t remember walking at night, but I guess I did, huh? Those two places would combine together into some weird, eldritch fabric of reality that I still can’t quite put my finger on to this day. It was like floating in between two places at once, being with something, and being with the doctors, and with family and friends one minute and then all by myself the next.
+
+“Is that why it burned…because it slipped out?”
+
+*You went on a walk.*
+
+“A walk?”
+
+*Do you remember?*
+
+“What happen?”
+
+*IV slipped out when you got out of bed.* 
+
+“The cord they give me the red stuff with?”
+
+*Yeah.*
+
+“I don’t want any more red stuff. I feel better now.”
+
+*I’m sorry, but you need it to get better. Keep doing your best. It will be done in no time.*
+
+“All right.”
+
+I couldn’t tell who I was talking to sometimes, what I was talking to, what the hell was even going on with my own mind and body. Shivers ran down me and confusion took over, and my thoughts raced, became still, and raced again until exhaustion set in and I could do nothing but lay in a sickly bed of my own sweat. 
+
+I found my buzzer one night, but no one came like they usually did.
+
+“Can someone help me…I need a new sheet. It’s hot.”
+
+*Hang in there.*
+
+“Help…”
+
+*You’re doing great.*
+
+“Please help…”
+
+*…*
+
+Sometimes, I look back and wonder what actually was going on with me in that hospital. I mean,  I had cancer, but no shit, right? That’s not what I am trying to say.
+
+When you are with yourself in the dark and there is no one else there to hear you cry, you learn to hear yourself cry instead. All the little comforts become important, and all the little things that you took for granted, like a fresh set of clothes, a clean bed to sleep on, a bit of peace of quiet, even as a child, suddenly become the most important things to you in your life.
+
+I still talk to it sometimes. The dark. The hat man, whatever you want to call it. It is out there, and it is listening, and while we have all learned to abhor the apparition, we have no choice at some point in our lives to appreciate it eventually.
+
+It is yourself.
