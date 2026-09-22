@@ -1,4 +1,4 @@
-You might be reading this out of order, here’s [Part 1](https://www.reddit.com/r/nosleep/s/eHwOT1GTZG) and [Part 2](https://www.reddit.com/r/nosleep/s/hEFHZaKWY8)
+[Previous Part](https://www.reddit.com/r/nosleep/s/hEFHZaKWY8)
 
 I am here to make another post because I saw the homeless guy behind the dumpster, and whatever that thing is, is *not* a homeless man. I’m changing tactics. Instead of just writing “look at all the weird stuff happening here”, I’m gonna talk more about everyone who works here. So you folks at home can understand it’s not *just* the food that’s a problem here.
 
@@ -289,3 +289,5 @@ That was that, we chatted a little longer before Brent headed to his car and lef
 At the time of writing, I still haven’t been able to get an answer for what is happening. I was going to post this last Saturday and maybe provide some answers for the homeless guy, but every time I ask somebody, they either deflect, or don’t believe me. I can’t tell if this is a conspiracy, or simply nobody has taken the time to look into any of this stuff before.
 
 Last Friday, we got a delivery for meat, but I totally forgot to mention it earlier. I had almost completely blocked it from my memory actually. There was like a tentacle or something hanging out of the back of the truck. This post has gotten long enough, so I’ll explain all that in the next one after I’ve gotten some answers on what the thing behind our dumpster is, too.
+
+[Next Part](https://www.reddit.com/r/nosleep/comments/1wmwliz/theres_something_in_the_meat_delivery_truck_that/)

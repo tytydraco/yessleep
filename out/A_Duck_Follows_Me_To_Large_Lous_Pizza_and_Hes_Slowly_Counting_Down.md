@@ -1,4 +1,4 @@
-This is the second part. Go [here](https://www.reddit.com/r/nosleep/comments/1wjxob4/large_lous_pizza_is_in_desperate_need_of_a_health/) first for context on this post.
+[Previous Part](https://www.reddit.com/r/nosleep/comments/1wjxob4/large_lous_pizza_is_in_desperate_need_of_a_health/)
 
 I guess I put a little too much faith that one strongly worded post on the internet would do enough to get other people to actually heed my plea. Instead, it seems like you just want to gawk at my misfortune.
 
@@ -161,3 +161,5 @@ So yeah, that’s everything that I used to consider as a random coincidence, or
 Apologies for the late post, the weekend was exceptionally busy at the pizza place, and I hardly had any energy to write this down after I got home. But now here you go. Same rules as last time, if nothing’s changed at this place, I’ll post again, and I trust I’ve provided enough information this time that I won’t need to do that. 
 
 Please, call the health department.
+
+[Next Part](https://www.reddit.com/r/nosleep/comments/1wlzqno/theres_a_homeless_man_behind_the_dumpster_at/)
