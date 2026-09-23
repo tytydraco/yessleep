@@ -1,5 +1,3 @@
-
-
 My mom has always been a very weird person, the kind of person who makes a child grow up very fast.
 
 She loved horror movies, and sometimes she had these weird ramblings. My mom is sometimes the crazy person in a horror story. But she is nice and caring, and I love her, even if I’m too old now to tell her that without feeling some kind of embarrassment.
@@ -227,3 +225,21 @@ And I wonder:
 If I was one of them...
 
 how did I wake up?
+
+
+
+**PS:** I thought that maybe I should add some visual information of my own.
+
+First of all, I added a picture of one of the “fake stars” I can see in the sky. This one is particularly big, and this is also the place where Mom says she saw the “flying saucer.” The picture was taken with my cheap Samsung A13. I might buy a decent camera one day.
+
+[https://www.instagram.com/p/DdoCuWkDdpE/](https://www.instagram.com/p/DdoCuWkDdpE/)
+
+The second link is a page from my scrapbook of nightmares and creepy things I've experienced. I'm not an artist. I just wanted to have all of these things collected somewhere. I was inspired by the YouTube channel “Millie Paper Co.”
+
+[https://www.instagram.com/p/DdoDYKKjY5x/](https://www.instagram.com/p/DdoDYKKjY5x/)
+
+You might notice that the place in my drawing is very round. That's how I remember it. The shelves and the walls curved around a circular piece of metal in the middle.
+
+The stories I write are usually very short. I tend to cut straight to the meat of things. If you ever want to write a longer version of one of them, please feel free to do so—just credit me!
+
+And if you're some big movie studio with lots of money and you want to use one of my stories, then please give me a little bit of that money.

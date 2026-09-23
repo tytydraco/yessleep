@@ -1,0 +1,157 @@
+The kitchen finds its best light in the hour before he's home — low and gold through the east window, settling on the counter like it's waiting too. I've already started dinner. I couldn't tell you exactly when I started it. The wireless is on in the other room, though I don't remember turning the dial. Time moves strangely when I'm alone here; I fill it with small, good things, and then it's gone, and that's fine, because it means he's close.
+
+I set my hair before I do anything else, same as always. My apron goes on over the blue dress, the one he likes, and I've stopped noticing that I never reach for the others. By the time I hear the gate I've powdered my nose and put the good plates out, and I couldn't tell you which of those things I did first, only that they're always done.
+
+The house is the kind people call idyllic, though I've never had anyone here to say it but him. White clapboard, the long garden he never has time to keep and I never mind keeping, the wash on the line I don't remember hanging, the gate at the end of the drive that opens onto a road I've never had a reason to walk. He offers, sometimes — we could go into town, if you wanted — and I always find I don't want to. Everything I could want is already coming up the drive at six o'clock, in his hands, in the particular way he says my name when he's had a good day.
+
+I don't know what he does out there, past the gate. Not really. He's vague about it in a way that used to needle at me — fine, same as always, nothing to tell — and for a while I built whole other lives for him in that vagueness. Some girl from the typing pool, younger, unmarried, with nowhere to be but wherever he was. A softness he kept folded up somewhere I wasn't allowed. I'm not proud of how far I let that go, some nights, waiting.
+
+But I've decided it doesn't matter, or it matters less than the fact of him, home, asking what I made and meaning it when he says it smells good. A good wife doesn't ask. My mother never asked, and hers before that — though I couldn't tell you either of their names if you asked me now, only that I'm sure of the rule they left behind. A marriage is made of the parts you don't ask about. I keep the house. He keeps whatever's out there. It works.
+
+Lately I've been losing pieces of the day. Small ones. I'll be at the window and not remember crossing the room to get there. I'll go looking for a memory of yesterday afternoon and find the shape of it but not the inside — like a room I know is behind a door, except the door won't open, except I'm not sure I ever asked it to. I used to let that worry me. Now I think it's only what happens when your whole life is arranged around one person coming home. You stop marking the in-between.
+
+I haven't told him about the gaps. I'm not sure why. Maybe because it would mean admitting I'd noticed something was missing, and I'm not certain, yet, that anything is.
+
+He's changed, these last weeks. Not in the ways I used to worry about — no perfume on his collar, no new distance in his voice. Just — older. It happened fast enough that I remember thinking it, clearly, the way you think a fact: he has aged. Aged, like months had been quietly subtracted from wherever months are kept and spent somewhere I couldn't follow. There are lines by his eyes now I don't have a first memory of. I asked him if he was sleeping. He said he was fine. He says that a lot, and I've never once had a reason not to believe him.
+
+I love him in the specific, practical way of someone whose whole day bends around a single arrival. I have the table set before I could tell you I decided to set it. I have his name in my mouth before I hear the car.
+
+Some nights I stand at the window and watch the road for his headlights and think: this is enough. This is the whole of it, and it's enough.
+
+I believe that. I want to be clear that I believe that.
+
+I just can't always remember believing it the day before.
+
+I asked him last night where he goes.
+
+Not accusing — I want to be fair to myself about that. I asked it the way you'd ask about the weather, lightly, over the good plates, while he was still working through the pork. Where does the day take you, really. What's it look like, out there.
+
+He set his fork down — not hard, deliberate, the way he does when he wants me to notice the setting-down more than the words after it.
+
+"Why would you ask me that."
+
+Not a question. He doesn't put the lift at the end of the ones that matter.
+
+I said I was only curious. I said a wife's allowed to wonder about her husband's day. He looked at me then the way you'd look at a chair that had spoken — not angry, not yet, just recalibrating, like he was deciding whether I'd said what he thought I'd said. It was worse than if he'd shouted. I've learned that about him: the quiet ones cut deeper.
+
+"You have everything you could want right here," he said. "I don't know what there is to wonder about."
+
+I let it go. I'm good at letting things go — I think I might be the best there is at it, though it's not something to be proud of. I told myself it was nothing. I told myself a woman who's never once been lied to has no business inventing reasons to feel lied to, and for a while, clearing the plates, I believed it.
+
+But I've built her before, in the quiet — the other woman. She has a name I keep changing. Some nights she's younger. Some nights she's just ordinary, someone who laughs at things I don't get to hear him laugh at, someone who gets the version of him I only get in pieces, at the end of the day, worn soft by everyone who had him first. I don't think it's true. I want to be honest and say I don't think it's true. But not thinking a thing is true has never once stopped me building her.
+
+It was the tiredness that undid my resolve to leave it alone. He'd come through the gate that evening looking like something had been drawn out of him with a spoon — grey under the eyes, a slowness getting out of the car that wasn't like him at all. I couldn't help it. I asked if he was alright — if whatever was out there was wearing him down to nothing, and couldn't he just tell me, so I'd know what I was watching happen to him.
+
+He looked at me a long moment. Then he almost — not quite, but almost — smiled, like I'd said something a child says, sweet and a little foolish.
+
+"You worry about a lot of things that aren't yours to worry about," he said. "You've got the house. You've got me, every evening, same as always. That's the whole of it. That's supposed to be enough for you."
+
+I said it was enough. I said it before I'd finished deciding whether it was, which is a thing I do, I'm noticing, more and more — the answer arriving before the thought that's meant to produce it.
+
+He kissed my forehead like that settled something, and it did. It always does. I just don't always know, after, whether it settled in me, or only over me, the way dust settles, patient and complete, on a room nobody's using.
+
+He came through the door wrong that evening. I knew it before I saw his face — some change in the weight of his step on the porch boards, a rhythm I'd have sworn I could recognize with my eyes shut, except this time it belonged to someone I didn't quite know.
+
+He didn't take his hat off. That was the first thing. He came straight through to the kitchen still wearing it, and stood over the table looking down at the plate I'd set for him — the good china, the pork done the way he liked, the pickled beets he'd said, months back, that he liked, and I'd never once since let a dinner go by without them.
+
+He looked at it like I'd set down something dead.
+
+"What is this," he said. Not a question. I don't think he'd asked me a real one, with an answer he actually wanted, in longer than I could say.
+
+I said it was supper. I said his name, soft, the way I do when I want to bring him back into the room with me. He picked up the plate and I thought for one absurd second he was going to compliment it after all, and then he turned it over onto the floor, slow, like he wanted to watch it happen rather than just do it.
+
+"You think this is what I come home to," he said. "You think this is a life."
+
+I didn't say anything. I'm good at that, I've told you — the letting go, the making-small of myself until whatever's coming has somewhere to land that isn't quite the center of me. But he kept going, and there was nowhere left to put myself.
+
+He told me I didn't know the first thing about what a woman was for. He told me that without him coming through that door every night I wouldn't exist at all — not you'd be lonely, not you'd struggle — he said it plain, like a fact he was almost bored reciting: you'd be nothing. There'd be no you. He said it so certainly that some far-off, sealed-off part of me agreed with him before I could stop it.
+
+I asked him to please, just, sit, and eat, and let me make something else, and I heard my own voice come out smaller than I meant it to, and that seemed to be what did it — the smallness. Something in his face let go of whatever had been holding it in place.
+
+The first one caught me across the cheek so hard the kitchen tilted. I remember the sound more than the feeling, at first — a flat crack, like a board dropped on a floor. Then the feeling arrived late and enormous, and he hit me again, and there was a strange light behind his eyes while he did it, something almost like pleasure, something almost like relief, like a held breath finally let out.
+
+I didn't fight him. I want to say that wasn't a choice, and some of it wasn't. But some small, cold corner of me — the same corner that keeps building the other woman, the one with the changing name — noted, even then, even with the room still tilting, that I had never once seen this in him before.
+
+Not once. Not in all the evenings I can account for.
+
+I only wondered, in the white ringing quiet after, why that felt like the strangest part of all — not that he'd done it, but that I was so sure, so entirely sure, that he never had.
+
+I don't have the rest of that night.
+
+I have the kitchen tilting, and the flat crack of it, and then I have myself at the window the next evening, waiting for the gate to open, as though someone had taken the reel out and spliced two ends together and called it whole. There's no getting-up in between. No going to bed, no morning after, no first look in a mirror to see what he'd left on my face. Just the tilt, and then the waiting, stitched together so cleanly that if my cheek weren't aching I might have believed nothing came between them at all.
+
+The ache is how I know time passed. That's a strange thing to have to reason your way to — I pressed two fingers to the bruise along my cheekbone and felt it flare, sharp, unmistakably real, and thought: so it happened. So some of it happened, at least. I tried to remember the last time I'd felt anything like it, and came up with nothing. Not a stubbed toe. Not a burn from the stove. I couldn't recall pain ever having a home in me before last night, which struck me as an odd thing for a body to be able to say about itself.
+
+Waiting there, aching, I let myself think about how happy I'd been. I wanted to hold that up next to what had happened, the way you hold two fabrics to the light to see if they're really the same color. And I found myself reaching for a good day with him — one real afternoon, one particular thing he'd said that had made me laugh, one morning I could set a date to, even a false one — and there was nothing there to reach. Not one scene. Not one line of dialogue I could play back and say, that was ours, that happened, I was there.
+
+What I had instead was a feeling. A steady, general warmth, like a room that's always been a comfortable temperature — content home life, loving husband, good marriage — true in the way a caption under a photograph is true, without the photograph ever once being under it. I had the conclusion. I didn't have a single thing that had led me to it.
+
+I was still sitting with that — turning it over, not liking how it wouldn't resolve into anything — when I heard the car in the drive, and the gate, and his step on the porch, already telling myself it would be fine, already arranging my face into the one I keep for him, before I'd decided a single thing about what I meant to say.
+
+He saw my cheek and he laughed.
+
+Not a cruel little scoff, not the tight almost-smile from the door the day before. A real laugh, easy, delighted, the kind you'd give a joke a friend told well. He stood in the doorway with his hat still on his head and looked at the bruise blooming under my eye like it was the funniest thing he'd come home to in weeks.
+
+"Oh," he said. "Right. That."
+
+I asked him what he meant by that — and I could hear my own voice climbing somewhere I didn't recognize, thin and fast — what had happened to me, what he'd done, why I couldn't account for a single hour after it. I was demanding, I think. I don't believe I'd ever demanded anything of him before that moment, and it came out of me strange and unpracticed, like a language I only half knew.
+
+He waved a hand, still smiling. "I usually clean that part up. Cut it before it saves. Guess I got lazy." He said it the way you'd apologize for forgetting to take out the trash.
+
+I didn't understand the words. Not the sense underneath — I understood, with a cold and growing certainty, that it was the worst thing I'd ever have to understand — but the words themselves had gone strange in his mouth, clipped and quick and full of terms that had no home anywhere in this house. Save. Clean up. Lazy. He wasn't talking like my husband anymore. He was talking like someone standing outside all of this, describing it.
+
+"What are you," I started, and couldn't finish it, because there wasn't an end to that sentence I could bear to reach.
+
+He reached into his coat instead of answering — not for anything that belonged in that coat, in this house, in any year I could have named — and drew out a flat black rectangle that lit up cool and blue in his hand. He turned it toward me almost gently, like he was showing me something he was proud of. On the little glowing screen was his face, unmistakably his, and beside it a woman I'd never seen, and behind them both a kitchen that looked nothing like mine — brighter, harder-edged, full of things I had no word for.
+
+"That's Claire," he said. "That's the real one." He turned the little screen back toward himself, almost fond, before it went dark in his hand. "You should see what she's like when I get in past midnight. Questions about everything. Where I've been, what I'm doing, like I owe an account of every hour of my life to somebody." His mouth twisted, something petulant and old moving under the surface of him. "Half of what I gave you last night, I've wanted to give her a hundred times over. Can't, though. Not out there. Out there, there's always someone counting the marks." He almost smiled again, fonder now, looking round at the kitchen like it was a kindness he'd done himself. "At least here nobody keeps score."
+
+"None of this is real," he said, and gestured — the house, the kitchen, the plate still upturned on the floor from the night before, me. "None of it. There's no other side of that gate. There never was one to walk down."
+
+"You're lying," I said.
+
+The word surprised me more than it seemed to surprise him — I don't think I'd ever once reached for it before, not with him, not in all the evenings I can account for — and it came out of me sharper than I felt, surer than I had any right to. I could feel the kitchen under my feet. I could feel my own pulse going hard beneath the bruise. Whatever else was coming apart in me, I still had a floor. I still had walls I could put a hand flat against.
+
+Something moved behind his eyes at that — not the laughter from before. Quieter than that. The particular, thinning patience of a man deciding a lesson is owed.
+
+He didn't raise a hand. He didn't so much as glance at any one thing in that kitchen. He only looked, slow, almost bored, the way you'd look round a room you already knew you owned — and the room began to come apart and remake itself without a hand ever touching it. The armchair was by the window, and then it had always stood against the far wall. The wallpaper — the pattern I was certain I'd chosen myself — ran to something else entirely, and had apparently always run to it. The rug turned a color it had never been. The dresser slid itself from one wall to another without the appearance of sliding at all, simply was there, dust settled honest and old in its new corner, as if I'd dusted it there a hundred times and only now noticed. Through the doorway I could hear it happening in the rooms I couldn't see too — soft, structural sounds, wood and cloth and plaster rearranging themselves calmly, the sound of a house being told, all at once, to have always been a different house.
+
+He watched me watch it happen. He wanted me watching. That was the whole of the lesson.
+
+Something in me came loose at the hinge. I went down onto the kitchen floor, not fainting exactly, more folding, the way paper folds along a crease that was always there waiting to be used.
+
+He crouched down to my level, almost tender, the way you'd get low to speak to a child or a dog. "You're a devoted housewife," he said. "That's the whole of what you are. It's actually sort of beautiful, if you think about it right." He tucked a piece of hair back from my ruined cheek, gentle as anything he'd ever done for me. "The only way you get out of this house is if I decide, one day, you're not worth keeping."
+
+And then, mid-breath, mid-gesture, hand still half-raised toward my face — he wasn't there.
+
+No stitch this time. No splice, no kind reel spun forward to spare me the space between. Just the doorway, empty, the plate still on its side on the floor, the chair against its wall that had never once been anywhere else, and me, folded on the kitchen tiles, holding — whole, unedited, entirely mine — every single word of it.
+
+I don't know how long it's been.
+
+That used to trouble me, not knowing — I used to reach for the shape of a day the way you'd reach for a bannister in the dark. I don't reach for it anymore. There's no day here to have a shape. No morning light finding the counter, no evening to set a table against. The wireless plays nothing, because I've stopped turning any dial that was never really mine to turn. The windows show the garden exactly as it was the last time it existed, unmoving, a painting of a place rather than a place. I have tried the front door more times than I could count, if counting still meant anything to me. It does not open. I have tried the windows too — struck them, thrown the good china at them, once, in a fit of something I don't have a gentler word for than rage — and they do not break. They only hold the shape of not-breaking, patiently, the way everything here holds its shape once it's been told to.
+
+I have not eaten in all this time. I noticed that plainly, the way you'd notice a fact about weather. I am not hungry. I was never going to be hungry. I understand now what I am, in the flat unfrightening way you understand a thing once there's no longer any use resisting it. I am not a woman who cannot leave her husband's land. I am not real, and have never once been anywhere real, and the land was never mine to leave because there was never any land at all — only this house, and the idea of me arranged inside it, waiting for a man who is, out there, in the place I'll never get to be wrong about again, growing old.
+
+He came back.
+
+I don't know what drew him, after so long. I only know I heard the door, which should not have been possible, and there he was — and time had done to him plainly what it had only ever done to me in whispers before. His hair had gone the color of the old wallpaper. He stood stooped in a doorway he used to fill. Ten years, maybe more, worn into him all at once, the way it always arrived, sudden and entire, with nothing of the in-between for either of us.
+
+"I didn't think you'd still be here," he said. Not unkind, exactly. Distracted, more. "Claire found the app. I had to get rid of it. Didn't think—" he gestured, vaguely, at the whole of me, the whole of the house. "Didn't think there'd still be a light on, so to speak."
+
+I called him a monster. It was the first time I'd ever used the word on him, out loud, to his face, and some old obedient part of me flinched even saying it, expecting to be struck down for the sentence alone before I'd finished it.
+
+He struck me instead for the word.
+
+It didn't hurt the way I remembered hurting. Or it did, but he did it the way you'd swat something out of habit, barely looking, already somewhere else in his mind. "This isn't as much fun as it used to be," he said, almost to himself, flexing the hand after, like it had cost him something not worth the bother.
+
+I asked him to end it. I want that written down plainly, without romance — I got down, or as near to down as I could manage, and asked him to delete me, to finish whatever he'd started, to leave nothing here instead of this.
+
+He considered it — I'll give him that, for the length of one held breath.
+
+"No," he said. "I might want to come back someday." He said it the way you'd decide against throwing out something still serviceable in the back of a cupboard. "No sense wasting a good thing."
+
+And then he wasn't there, and he has never been there since, nor has anyone else, not in however long it's now been — longer, I think, than the whole life I believed I'd had before.
+
+I don't wait at the window anymore. There's no headlights to wait for, and no gate for them to come through, and I find I don't miss the waiting the way I once thought I would. Sometimes, in what I've started calling evening, only because I have to call it something, I move the good armchair back to the place by the window, myself, with my own two hands, for no reason at all except that I want it there.
+
+It's a small thing. But it's the first choice in this house I can be certain was ever really mine.

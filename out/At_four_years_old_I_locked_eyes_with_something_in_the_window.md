@@ -1,0 +1,41 @@
+I was about four years old when my family — my mom, my dad, and my older brother, who was six years older than me — went on vacation to a tourist camp in a pine forest. The weather was cool that day. I remember we weren't dressed for the beach at all. We were standing on a long wooden pier by the river. It must have been about twenty-five meters long and four meters wide. There were other people there too, and it felt like we were all waiting for a boat or something like that. Maybe it was a river excursion or a water tour. I don't really know. I was little, and nobody consulted me about how we were going to spend the day.
+
+But I do remember the disappointment. Deep down, I understood that our trip was ruined.
+
+We stood there, waiting. I was bored. So I started playing with my sandal — slipping my heel in and out of it, pushing it against the very edge of the pier. Looking back now, I know I shouldn't have done that. But I was little. What can I say? The sandal fell into the water.
+
+My parents were furious. My dad sent my older brother into the river to fish out my shoe. My mom told me to go straight to our cabin in the woods. Fast. I don't even remember how I got there. I just know I walked all the way alone, crying the entire time.
+
+While I was walking through the forest, I kept thinking my mom was right behind me. I had this strong feeling that someone was watching my back. I thought it was her. So I turned around. Once. Twice. Three times. Nobody was there. But I was so sure she was close. It was strange. She had never abandoned me before. Not when I was crying like that.
+
+The forest was grey and pale that day. The sky was overcast, but there was still light — that flat, colorless kind of light. It smelled like rain. The pines were tall and quiet. Too quiet.
+
+The cabin was a one-story log house with three rooms. I walked inside, sat down on a little chair in the hallway, and kept crying. I thought my mom would come in any second and yell at me some more. But time passed. I started to calm down, and then I started to wonder — where was she?
+
+I lifted my hands from my eyes. I wiped the tears away. And I saw that I was completely alone in the cabin. My mom wasn't there. I started to panic. I looked around the room. It felt strange. This was the first time I had ever been in this place completely alone. There were no curtains on any of the windows. Nothing to soften the light. Nothing to hide behind.
+
+And it was so, so quiet.
+
+Then, out of the corner of my eye — literally in my peripheral vision — I noticed a dark spot in the corner of the window. I turned my head slowly. Through the opening into the next room, I saw something staring at me through the glass.
+
+It looked like Baba Yaga.
+
+I knew her from fairy tales. Baba Yaga is a witch from Slavic folklore — an old hag who lives in a hut on chicken legs, flies in a mortar and pestle, and is known for eating children. She is one of the most terrifying figures in Russian fairy tales. As a child, I didn't know all that. I just knew she was a monster. And I knew about her. I knew about Kikimora too — another creepy spirit from Slavic folklore. I was terrified of them. Absolutely terrified. But at the same time, I loved listening to stories about them. I couldn't get enough.
+
+But this wasn't a fairy tale. This was real.
+
+The creature in the window had wide-open eyes. Not just wide — they were bulging, unblinking, fixed on me. Its mouth was gaping, stretched into something between a scream and a smile. Its forehead was wrinkled, deep lines cutting across the skin like old tree bark. And then there was the grin. A horrible, horrible grin. Too wide. Too many teeth. The kind of grin that doesn't belong on a human face.
+
+For a moment, I couldn't tell where the fairy tale ended and reality began. I had heard so many stories about Baba Yaga, about Kikimora, about monsters that lived in the woods and waited for children who wandered too far from home. And now one of them was staring right at me through the window of an empty cabin in the middle of a pine forest.
+
+I forgot every story I had ever heard. I forgot every brave hero who ever defeated a witch. I was just a four-year-old girl, alone, and the monster was real.
+
+I froze. For one second, I couldn't move. I couldn't breathe. I couldn't believe my eyes. It was true shock — the first real shock of my life. My brain just stopped. The world stopped. Everything stopped except those eyes, that mouth, that grin.
+
+Then I screamed. I screamed so loud that the whole forest must have heard me.
+
+And then my mom burst into the cabin.
+
+She grabbed me and lifted me into her arms. She started apologizing, kissing me, hugging me. That's when I realized — the face in the window was hers.
+
+Can you imagine what I feel now, understanding that she was hiding behind the trees in the forest while she followed me? That my own mother came up with the idea to walk around the house, stand where I would see her, and make the most horrifying face she could — for her little, lonely daughter? By the way, my mom was thirty years old then. She already had two children. And that same person today tells me, "Have children, it's so funny!"
