@@ -1,0 +1,104 @@
+For four generations, my family has been in the Evangelical movement. My great-great grandmother, my great-grandmother, my mother, and me.    
+When I mean Evangelical I mean the whole nine yards; big hair, long skirts, long shirts, and for a while no denim or brightly coloured ties. (Yes, my dad really got called out for having a green tie on with his black suit once.).  It was all I had grown up with, all that I had ever known.
+
+I never really wanted to go to any camps or conventions with my youth group. They just seemed kind of lame to me and I was stuck in a not like other girls stage of my life for awhile. In 2015, I finally gave in to my best friend in the whole world, Bella who had been begging me to go to youth camp for years. She was a pastor’s kid, pretty uptight, but she was the kindest and most spiritual girl I’d known. I swore that she knew God, really genuinely knew him. I’d never seen anyone with a connection quite like her’s.
+
+When we were seven she looked at her own grandma and told her when she would die, how, and why it would feel like. November 11th, 2007, ran over by a truck, and so painful that it was unimaginable. When they questioned her why she would say something so disturbing, Bella had just said that the angels told her, the angels with horns and many eyes who were sparkly like the stickers in her stickerbook.
+
+That following year, on that day in November, her grandma was hit by a speeding truck while trying to fix a flat tier by herself on the highway. The truck driver had fell asleep and drifted, hitting her head on and pinning her against the barricade. She didn’t die immediately, suffering each second until the paramedics arrived to transfer her to the hospital. Bella’s grandma passed away the turn before the street to the hospital, with every painful second of every broken bone. Pastor Mark, Bella’s father, called her a prophet. He said that his little girl was gifted with the eyes of God.
+
+I yearned to be a prophet too if I’m being honest, with everything in me.
+
+We had just turned sixteen that spring, and we, mainly Bella, were extremely excited to finally be considered “older kids” in the sixteen-and-above part of the camp. I think more than anything she was just excited I’d finally agreed to go with her.    
+I still remember the sticky, hot air in the back of our church’s small packed white youth van. It had to be at least ninety-five out, ontop a stupid amount of humidity. I remember how the windows barely rolled down, our hair even when it was so tightly pinned to our heads, frazzled and stuck up fly aways in the rush of air. Bella was sat next to me in the back, bobbing our heads along with the little road trip song along with our small youth group.
+
+“I've got the joy, joy, joy, joy down in my heart!” Half of the van sang, before the other half shouted, “Where?”.    
+The first half continued, “Down in my heart!”. The song went on for another minute before shifting back to the first verse to restart.
+
+I felt a nudge to my side, looking over Bella was pointing at the big green sign along the highway that read “\*ZION: KIDS FOR CHRIST YOUTH CAMP\*”. The bus slowed down, Pastor Mark guiding the bus into the small gravel lane with a canopy of tall, arching trees darkening the path.
+
+“This is in the middle of no where..” I muttered. Nowhere was really reaching it, this place was in the sticks. Nowhere, Indiana.
+
+“It isn’t so bad-“ The van hitting a huge pothole and bouncing out of it cut Bella off, who only squealed as the bus jerked around.
+
+“What in tarnation!” Pastor Mark yelled, gripping the steering wheel so tight that his knuckles were turning white, “They said they would fix all of this up after last season!”
+
+I heard a couple of the kids up front, Annalie and David, mutter that they had said the same thing the year before that too. Outside the window, the scenery around us welcomed our small bus into the dark embrace of its shadows.    
+It was something with how the branches swayed, how they curved and lurched  towards the sky like thousands of fingers. I couldn’t hear any birds from the crack in the window, just wind.
+
+The van came to a halt, one by one we dragged our stiff limbs out of the bus. Even standing in the fresh air, I couldn’t even hear any cicadas. My apprehensiveness must’ve shown on my face, as Bella was right next to me again, resting her head on my shoulder with a sigh. “Quit looking so tense Catie, you’re gonna make the boys run away.” My nose twitched.    
+Bella continued anyways, “Are you nervous still being away from home? Really, I swear it isn’t so bad, it’s only a week.”
+
+Yeah, a week in some hot cabins with no air conditioning in the middle of a forest with fifty other teenagers.  Suddenly, I remembered why I never wanted to go to these things, people just freaked me out.
+
+“I mean, yeah.” My bag fell from my shoulder onto the ground with a thunk, Pastor Mark was offloading our small group’s larger bags, I watched him for a moment, “Maybe I’ll finally get my Bella moment.”
+
+She laughed, stepping forward and teetering her head side to side playfully, “Bella moment? That’s what you’re calling it now?”
+
+Prophetic talk with God, Bella moment, spiritual movement, that defining point in your life that solidified your faith. I yearned for one so bad. I felt like everyone in our church had gotten a moment just like that but me.
+
+“Bels, is it always this quiet?”
+
+Out of the corner of my eye, I caught a glint of a shadow moving near the church. My head jerked that direction, I squinted, trying to make out the shape from the distance.
+
+A tall man snaked from the shadow of the building, I hadn’t even heard the sound of a door besides Pastor Mark slamming the bus’s trunk, the thing barely worked. It was a shocker the bus even ran.    
+The man walked heavy, like his feet were made of lead and his clothes, that nice suit looked too big in the wrong places the closer he got.
+
+In a few moments he was next to the bus and giving Pastor Mark  a slap on the back, laughing, “Well Mark, looks like you finally made it!’
+
+Our youth pastor flinched, surprised, arms full of bags, “You never got that hole fixed on the path, Esau.”
+
+Bella leaned in, whispering, “Pastor Esau is over the camp, he’s like, the top top man in charge.”
+
+I knew Pastor Esau, of course. Everyone in every youth group in a hundred mile radius knew him. Bella would often rave about him, how kind he was to her, how much time he took to answer her questions about the Bible, how handsome he was. Seeing him in the flesh, I didn’t really get the ladder half of any of that.
+
+“Well, campers welcome to Zion!” He turned his attention from the man next to him to us, our small group of six. Pastor Esau clapped his hands together and smiled, thin lips stretching over too white teeth.
+
+“Let’s see who we have here this year, Annalie, David, Jordan,” He pointed at each of us as he said our names, “ Lora, Bella, and….” with a click of the tongue, he finally landed on me. His eyebrows furrowed, smile widening, causing his mouth to wrinkle and sag at the corners.
+
+Bella grabbed me by my shoulders, grinning “Catherine!”
+
+“Catherine.” The pastor looked pleased. “Welcome to camp, we’ve been waiting for you.”
+
+Right.
+
+I felt Bella elbow me, I must’ve been making a face. “I’ll have you two and Annalie in cabin B. Boys, you’ll be in cabin F, then Lora in A. I trust all of you know where you’re going, if not Pastor Mark can assist you.”
+
+“C’mon Catie! Cabin B is my favorite.” Bella grabbed her bags from the side of the van, stacking them ontop of each other, Annalie and I did the same.
+
+“Yeah, cabin B is the best, we’ll show you where it’s at so don’t even worry.” Annalie smiled, she was a pretty girl with the most freckles I’ve ever seen on someone, and bright red hair.
+
+“Thanks guys!” I glanced over my shoulder at the two older Pastors as we gathered our things. Pastor Esau had led Pastor Mark with a hand on his shoulder to the front of the van, whispering to each other then shaking hands. I furrowed my eyebrows, noticing the girls had started up the a dirt path towards our cabins. I ran to catch up to them, glancing over my shoulder until the Pastors and van were out of sight.
+
+We chatted the whole way to the cabins, mainly about how we were going to do our hair the first church service tomorrow morning and which boys we thought were cute.    
+When we got to the cabins, gosh they looked like something that had come out of early America settlements. This was going to be a fun week.  “Okay so, the air isn’t the best but they got these awesome bug nets last year.” Annalie opened the cabin door, propping it open with her bag. The cabins were pretty small, with 6 beds in the main room. There were a few girls already in there, but they didn’t seem like they wanted to chat just yet.
+
+The cabin had giant windows with bug nets around the doors, then I was clued in that the showers and bathrooms were in a separate building not too far away. Great. Community showers. Annalie and Bella said they would show me in the morning, or sooner if needed.
+
+Our group had arrived to the camp pretty late in the day, the sun  setting while we were fixing up our cabin. One of the girls I didn’t know mentioned the bonfire near the dinning hall, by now dinner had to be almost ready. I wasn’t that hungry but a bonfire sounded nice, especially some s’mores.
+
+I was the last one out the door, but as I went to close it I noticed a strange symbol on the doorframe. Huh, weird. It was in an odd spot on the frame that’s hidden by the hinge of the door, so if you weren’t paying attention you wouldn’t notice it. It had to be hand carved, a circle with what looked like letters, along with lines and more circles connecting each letter. I reached out to touch it, feeling the grooves in the wood, a slight warmth emanating from the carving. Had it been here the whole evening?
+
+\*\*\*BAM\*\*\*
+
+I jumped, the girls ahead of me whipped around. Bella took a few steps forward, “Catie are you okay?! What happened?”    
+“I… I don’t-“ I looked down and there, laying on the wooden porch of the cabin was a little bird on its back, neck broken and twitching. It looked like a sparrow, “Oh.. poor thing.” I frowned, going to touch it before Annalie stopped me.
+
+“Oh my gosh Catie don’t touch that thing it could have rabies or something, c’mon we’ll tell the janitors!” They tugged me away from the small bird, still twitching, the faintest trickle of blood pooling around its head.
+
+“Can birds even get rabies?”
+
+“I don’t wanna be the one to find out!” Bella threw her hands up.
+
+The rest of the night was pretty uneventful, we ate and hung out around the dining hall before retiring back to our cabins. It took awhile to get our hair out of the tight buns and ready for bed, the most grueling part. I had glanced at the carved symbol as we came in, but decided to not think anymore about it.
+
+Whatever, it was probably some weird prank by the boys in another cabin, which would spell none of my business. I couldn’t stop thinking about the sparrow, had it seen its own reflection and ran into the glass because of that? The poor thing, the guilt of just letting it twitch on the wooden porch was killing me. The bird had been gone when we’d gotten back, which was a relief, if I’d seen it again I probably would’ve cried. I don’t know what I could’ve done for it, but surely there was something.
+
+I was the last one to fall asleep, too occupied in my thoughts and evening prayers. As I slipped into sleep, cozying up in bed, I heard the faintest tapping sound on the window above my bed. It sounded like long nails hitting the glass, a rhythmic \*tap tap tap\*, pause, \*tap tap tap\*. It had to be a branch, but I hadn’t seen any trees around the cabin when we first got there.
+
+A thought boomed in my head, if it wasn’t a branch, what was it?
+
+The treeline was pretty far away, but I couldn’t think of what else it could be. Maybe it was some of the boys playing a prank, like with the symbol. My curtains were drawn so I wasn’t about to check, I couldn’t see any shadows from what I could see of the window.    
+I closed my eyes, willing the tapping away with prayer. With my eyes closed, I slowly drifted off to sleep, hands gripping the duvet. If it wasn’t a branch, I didn’t want to know what it was.
+
+The darkness consumed me as I slipped into the deepest sleep I’d had in a very long time, not before hearing whatever was making the tapping scrape against the window.

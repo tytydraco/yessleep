@@ -204,11 +204,11 @@ I legit went out and bought more vodka once I finished reading that section. Jus
 
 >*'"Was there a third?" asked I.*
 
->*'"Alison, a beautiful young girl. She came to Club, charming them all. Sweet and modest in public, she swept them away and let them inside over and over, and she would rise to the throne." Chesca laughed then, a pretty, mewling sound. "Oh, how she was lost in the mad throes of her nightmares. Her mind rotted, her mind, her mind, not her emerald body, but she'll never know that."*
+>*'"Alana, a beautiful young girl. She came to Club, charming them all. Sweet and modest in public, she swept them away and let them inside over and over, and she would rise to the throne." Chesca laughed then, a pretty, mewling sound. "Oh, how she was lost in the mad throes of her nightmares. Her mind rotted, her mind, her mind, not her emerald body, but she'll never know that."*
 
 >*'"Any others?"*
 
->*'Twins. Allen and Alicia. They were closer than most, sharing more than they should. They ventured all around before coming to Heart, through all the doors and key holes and traps. She was stubborn, he was clever. Too stubborn, too clever. He listened first. Have you ever listened? He took the sword up, learned the song, and saw the shadows in the mirror. Snicker-snack! Off went Alicia's head! There went her golden locks! They would be buried in a dream forever, able to love and be loved. Do you know why?"*
+>*'Twins. Allen and Alicia. They were closer than most, sharing more than they should. They ventured all around before coming to Heart, through all the doors and key holes and traps. She was stubborn, he was clever. Too stubborn, too clever. He listened first. Have you ever listened? He took the bitch's sword up, learned the song, and saw the shadows in the mirror. Snicker-snack! Off went Alicia's head! There went her golden locks! They would be buried in a dream forever, able to love and be loved. Do you know why?"*
 
 >*'"Why?"*
 
