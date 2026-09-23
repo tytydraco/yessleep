@@ -1,0 +1,119 @@
+Great Grandpa George was born in 1896. He celebrated his 130th birthday this past June. That makes him the oldest known person alive. 
+
+I always thought it was impossible. Birth records were lost more often around then. Maybe he was mistaken. 
+
+Now, I know he was telling the truth. 
+
+  
+
+
+I got the call from my mother last Thursday. Great Grandpa George was finally on his deathbed. 
+
+I felt numb at first. Grandpa George was the only semblance of a father figure I had left. 
+
+But then I realized how much suffering he must have been in. After being alive for that long, death is almost a blessing. 
+
+I pulled up in front of Grandpa Geroge’s house alone the next day. I sat in my car for a moment before going in. 
+
+I forced back tears on my up the steps. I knew that this was probably the last time I’d be seeing Grandpa George alive. 
+
+Once I composed myself, I knocked on the door. My grandmother answered it. She wrapped me in a hug. Then, she pulled away and looked me in the eyes. 
+
+“Thank goodness you’re here. He doesn’t have much longer. I think he knows it, too. He’s been asking to see you all day. You always were his favorite.” 
+
+I nodded. “I’ve known this was coming for a long time, but it doesn’t make it any easier.” 
+
+Grandma patted me on the shoulder. “It never does. You know where his room is. Best not keep him waiting.” Grandma returned to baking in the kitchen. I took a breath before walking to the door at the end of the hall. 
+
+I knocked. “Grandpa? It’s Alex. Is it okay if I come in?”
+
+“Yes, yes, you know you’re always welcome.”
+
+I pushed the door open and stepped inside. Grandpa George was propped up by pillows. He’d been reading a newspaper. He set it down to greet me. 
+
+“Alex, my boy! I’m so glad you were able to make it.” 
+
+I gave Grandpa George a light hug before taking a seat by his bed. “How could I not? I heard you wanted to see me.” 
+
+Grandpa George smiled at me. That was one thing I was really going to miss about him. The warmth in his eyes when he smiled was like magic. 
+
+“I had to see you one last time. The end is near for me.”
+
+“Don’t say that, Grandpa. You can’t let that kind of thinking consume you.” 
+
+Grandpa George turned to the window where golden light filtered through. “It’s okay. I’m ready to go. I’ve been here for too long already.” 
+
+“What do you mean? If you ask me, you haven’t been here long enough.” 
+
+Grandpa George let out a chuckle. Moments later, as if a switch had flipped, his eyes darkened and his smile disappeared. He began to speak, but he didn’t make eye contact with me as he did. 
+
+“Alex, there’s a reason I called you here today, and it’s not just to say goodbye.” Grandpa George finally met my gaze. “I have a confession to make.” 
+
+A knot twisted in my gut. I didn’t know how to respond, so I stayed silent. Grandpa George turned back to the window and began to speak. 
+
+“When I was twenty-one years old, I was drafted to join the war. At the time, your great grandmother and I were trying for a baby. I got the news in a letter a month after my deployment. I was going to be a father. That was just days before it happened. The incident that caused all of this...” 
+
+A tear ran down Grandpa Geroge’s cheek. He swiped it away before continuing. 
+
+“I remember the exact date. November 12, 1917. The war was raging and I was on the front lines. We were advancing on an enemy bunker. My squadmate, Adams, was leading the charge. He was focused. He didn’t even notice the German soldier charging toward him with a bayonet. 
+
+“In that moment, my instincts took over. I had a split-second decision to make. That scene has played over and over in my head for the last hundred years. I should have shot the man. That much is obvious. But instead, I shoved Adams out of the way. 
+
+“When all was said and done, the German received a bullet to the skull and I got a bayonet to the gut. I still remember how the ground felt. How cold it got as the blood pooled around me. I remember how afraid I was of death. I truly thought that I was going to die that day. In all honesty, I *should* have died. But Adams pulled me back from the brink. I’ve never forgotten the words he said to me. 
+
+“‘I can’t let you meet your maker today, George. Not after you saved me like that. This vial contains eternal life. Be wary. From this day forward, you will not be able to die. The only way out is to pass the ability to a direct male predecessor or descendant. Use it wisely.’
+
+“Adams made me drink a glowing green liquid. It tasted like lead. Minutes later, I made a full recovery. My wound healed and I was back to the battlefield the next day. It was a miracle in every sense of the word.”
+
+A shiver rippled through Grandpa George’s body. 
+
+“Gaining immortality was both a blessing and a curse. No matter how much my body was ravaged by war, it was always stitched back together. Which meant I had to fight until the end. I saw things on that battlefield beyond comprehension. Things that I don’t wish upon my worst enemy.”
+
+Grandpa George turned to me. He placed a hand on my shoulder. 
+
+“When I left that place, I was a changed man. The only thing keeping me sane was the thought that my wife and child needed me to come home. Not knowing how long the war would last. Thinking I’d be forced to fight forever. It was torment.” 
+
+Silence fell between us. Grandpa George sounded like he was on the verge of tears, but his face didn’t show it. Suddenly, he smiled, as if recalling a fond memory. 
+
+“The day I got to return home was the happiest of my entire life. Holding my wife and child in my arms… That was a feeling of ecstasy better than any drug could deliver. But then tragedy struck. Your grandfather fell ill half a year later. He contracted the Spanish flu in June of 1919. I didn’t have a choice. He wasn’t going to make it.” 
+
+I paused. “Grandpa, did you…”
+
+“Yes. That was the first time the immortality passed between us. John kept it until he was sixteen. Old enough to know. The day he returned it to me, I had gotten into a nasty motorcycle accident.”
+
+I pursed my lips. “So part of this immortality. Does it cause those who have had it to experience more frequent… uncommon occurrences?” 
+
+“I never received concrete confirmation, but yes, I believe it does. It started slow at first, but it ramped up over the years. That’s why I was reluctant to pass it to your father until I was sure he was going to die. Once you’ve had it, it puts a target on your back when you give it away.” 
+
+“But you had to give it to Dad eventually, didn’t you?”
+
+Grandpa George sighed. “I did. When he was twenty-three, your father overdosed and went into a coma. The doctors weren’t sure if he would ever wake up again.” 
+
+A tear trickled down Grandpa George’s cheek. “It was the only way. I had to pass the immortality to your father so that he could live. You should have seen the look on the doctors’ faces. When they saw him sitting up and talking like nothing had happened, you would have thought they’d just witnessed the second coming of Christ.” 
+
+Grandpa George took a tissue from his nightstand and dabbed his cheek. 
+
+“Your father kicked the drugs after that, but our good fortune didn’t last… When you were a child, your father died in a boating accident. Your grandfather drowned trying to save him.” 
+
+Tears welled in my eyes. “I was six when it happened. So what you’re saying is, this thing. This *curse…* It took my father from me?” 
+
+Grandpa stayed quiet for a long time. 
+
+“Yes. I believe it did.”
+
+The silence that hung between us was heavy. Eventually, Grandpa George broke it. 
+
+He took hold of my hand. “Your mother told me that you’re trying for a child. You and Emilia will make fantastic parents someday.” I nodded. 
+
+“It’s a shame that I won’t be there to meet them. Alex, I know that what I’m about to do is selfish. But this old man is tired of living. I’m ready to move on. If years from now you remember any of my words from this day, let it be these: I love you more than anything in the world.” Grandpa George smiled at me one last time. 
+
+It took me a second too long to register what he meant. Before I could pull my hand away, a green glow emitted from his flesh. It traveled to mine and sent electric shocks through my fingertips.
+
+Once the light faded, I looked over to Grandpa George. His eyes were closed. I knew that he would never open them again. The look on his face told me that he was at peace. 
+
+Dread crashed over me like a tidal wave. That was the worst thing that could have happened to me. Because neither my father nor my grandfather had brothers.
+
+And I hadn’t gotten a chance to tell Grandpa George about my test results. 
+
+After multiple examinations over a span of weeks, my doctor informed me that [I'm infertile.](https://www.reddit.com/r/HorrorJunkie123/) 
+

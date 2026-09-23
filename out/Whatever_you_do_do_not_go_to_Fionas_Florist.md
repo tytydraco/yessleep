@@ -7,8 +7,10 @@ I am what would be considered an above average man. I'm no Tom Cruise or Brad Pi
  I like to take a gentlemanly approach to my dates, usually bringing flowers for whomever is joining me. The flowers I bring are always fresh and the colors vibrant, and I can’t forget to mention just how amazing they always smelled.   
 I get them from a local florist just down the street from my apartment called Fiona’s Florist, it’s a pretty popular place but not nearly as popular as it should be.
 
- It’s run by a sweet old lady named, you guessed, Fiona. Every time I came she’d always greet me the same way.  
- “Hey Charlie, who’s the lucky girl this time?”   
+ It’s run by a sweet old lady named, you guessed, Fiona. Every time I came she’d always greet me the same way.
+
+ “Hey Charlie, who’s the lucky girl this time?” 
+
 I knew jack all about flowers despite how often i came in to purchase them, so id always show Fiona pictures of the girl and his talk about her personality.
 
  Every time without fail Fiona managed to pick out her favorite flowers based on that alone. After she greeted me I swiped through a few pictures of Kiara, tonight’s chosen lady, and gave a short description of her.

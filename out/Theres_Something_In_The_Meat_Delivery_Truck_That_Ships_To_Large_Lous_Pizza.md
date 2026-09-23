@@ -191,3 +191,5 @@ That’s all of the interviews that were worth mentioning. Francine’s intervie
 I’m starting to get really overwhelmed with all of this. The stress of knowing all these creatures has gotten to me so bad that I barely noticed that the duck is under a million now. At the time of posting he’s looking at me through my bedroom window, and is at 506,525.
 
 There’s a church near Large Lou’s that I think I’m going to visit. I haven’t done anything religious in a long time, but I think having something like this will do a lot for me. Hopefully it will help me find some peace of mind, and I can dig back into the pile of information I’ve uncovered so far and make something out of it. Please comment if you can figure any of this stuff out in the comments. I’ll be updating you guys again soon.
+
+[Next Part](https://www.reddit.com/r/nosleep/comments/1wnuxwo/has_anyone_been_to_the_church_near_large_lous/)
