@@ -1,0 +1,37 @@
+Everyone thinks they know the secrets of Denver International Airport. Tourists love taking selfies with "Blucifer," that terrifying blue mustang with glowing red eyes. They also like pointing and laughing at the Leo Tanguma murals on the main terminal walls. They think it's quirky and cool, just something to pose with and show off to friends. 
+
+I am a ramp agent, and I’ve worked here long enough to start noticing things. Like how the soldiers and the weeping children seem to shift positions. Not a lot, just a few inches a month. I used to think those were hallucinations, especially because I was perpetually sleep deprived. But those paintings are always changing, observing the people who love to stare at and laugh at them. While they are staring at the art, it is scanning them, cataloging them, their voices and how they smile.
+
+My supervisor gave me one rule when I started. "If Dispatch ever calls a Code Black arrival, don't look inside the aircraft." I laughed. He didn't.
+
+Last night, at 3:07 AM, Dispatch came over the radio. "Code Black arrival. East pad." There was no flight number and no tail number. I keyed my radio to confirm, since nothing was scheduled to come in at the time. Dispatch answered in my own voice, "Bring the chocks."
+
+The east pad sits right over the airport's old, labyrinthine basements. Out of the thick emerged a Boeing 777. Its fuselage was a matte black that swallowed the amber ramp lights, with no livery or registration. Its landing gear was down, but the aircraft hovered two inches above the ground, completely silent.
+
+I walked up. The forward cargo door opened into pure, empty darkness. Something inside inhaled, and the entire 777 shuddered, creating a vacuum that pulled loose objects inward. 
+
+Then I looked up at the passenger windows. Staring back were the faces from the airport murals: the soldiers, the crying children. They were pressed against the glass. Pale, blank, and with those same neon-red eyes. One of the terminal gargoyles was perched on the engine, its stone wings twitching. It looked right at me and whispered my full name over my radio. I fled toward the terminal, but the aircraft followed me, gliding sideways across the ramp without moving its wheels.
+
+Inside the terminal, I found a tourist standing right in front of the *Children of the World Dream of Peace* mural, wearing a fleece and a neck pillow. He was staring, like he was half asleep, at the painted coffins. He turned to face me as I approached, stating exhaustedly, “My connection to Dallas got canceled.”
+
+Before I could pull him away, the terminal PA system crackled. It cleared its throat, playing back the tourist's exact voice in a flat, breathless loop: *"My connection to Dallas got canceled."*
+
+I yanked his collar, dragging him toward the underground train escalators. At the bottom, the train doors were already open. Its interior was a dark and empty cargo hold, just like on the 777.
+
+A perfect copy of the tourist was leaning in the doorway. Same fleece, same neck pillow, but with completely hollow eyes. The replica smiled and reached out a pale hand. The tourist entered a trance, dropping his suitcase and walking forward slowly. I lunged and grabbed his wrist. A sudden blast of freezing air threw me backward onto the platform. The doors slid shut, and the train disappeared, taking the tourist with it.
+
+I scrambled back up the escalators. The mural had changed, and every painted figure was looking at me. A black painting of a 777 now occupied the painted sky, with a painted version of me and the tourist standing side by side below it.
+
+My radio crackled in my own voice: "Don't look behind you."
+
+I looked anyway. The 777 that was previously outside was twenty feet away inside the terminal, having passed through the wall without breaking any window or walls. The engines were gone, the wings folded, and the landing gear elongated. It appeared like a giant insect, with the cockpit windows now living eyes.
+
+The cargo door opened wide. The darkness inside was gone, replaced by thousands of seats stretching into the distance. Every seat was occupied by the dead people from the murals. Right near the front, sitting frozen beside a little girl, was the tourist in his fleece jacket.
+
+The little girl raised her hand, pointed at me, and then pointed to the empty seat directly next to the tourist.
+
+The terminal speakers echoed: "Your shift is over. We are ready for departure."
+
+The cargo hold started expanding, swallowing the walls around me. I could see the rows of seats. The tourist was turning his head, waiting. There was only one seat left.
+
+It had my name on it.
