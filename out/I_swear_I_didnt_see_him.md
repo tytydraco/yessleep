@@ -1,4 +1,4 @@
-I don’t think anyone could have seen him. The blurry darkness taunts my sanity as my wipers screech against the pouring rain. His red sweater keeps flashing through my mind. Did I see him? It doesn’t matter. I should just keep driving. Keep driving and forget about it, right? He was old, probably. He was going to die soon anyway.
+I don’t think anyone could have seen him. The blurry darkness taunts my sanity as my wipers screech against the pouring rain. His red sweater keeps flashing through my mind. Did I see him? It doesn’t matter. I should just keep driving. Keep driving and forget about it, right? He was old, probably. He would've died soon anyway.
 
 Then the thought hits me. What if someone saw me? What if they find him and trace him back to my car? I can’t lose everything over this. I slow to a stop, my pulse pounding in my ears. I press the button on my phone, but it’s still black.
 
@@ -6,9 +6,9 @@ Dead. Great. 
 
 I grab my umbrella from the passenger seat and leave the safe haven of my car. A violent gust catches me off guard, nearly knocking me into the ditch below. God, this sucks. 
 
-The front of my sedan looks to be damage-free, I think, but that doesn’t mean much coming from a girl who doesn’t know what the L stands for in PRNDL. There are no streetlights on this road, just the black expanse of the backroad ahead of me and the pale moonlight judging me from above. I sigh before making my way in the direction of the unknown. The gravel crunches beneath my feet, each step a cold, wet nightmare. The wind blows the rain sideways, plastering my damp hair across my face. I keep my left hand clamped around the grip of the umbrella while my right is glued to my chest to keep me warm.
+The front of my car looks to be damage-free, I think, but that doesn’t mean much coming from a girl who doesn’t know what the L stands for in PRNDL. There are no streetlights on this road, just the black expanse of the backroad ahead of me and the pale moonlight judging me from above. I sigh before making my way in the direction of the unknown. The gravel crunches beneath my feet, each step a cold, wet nightmare. The wind blows the rain sideways, plastering my damp hair across my face. I keep my left hand clamped around the grip of the umbrella while my right is glued to my chest to keep me warm.
 
-The metallic stench hits me before anything else as it sneaks into my nose uninvited. I stop cold, almost dropping the umbrella. His upper half lays unnaturally against the curb, his head sunken in and his arms bent backwards. Intestines drool from beneath his shirt like a maze of thick, slimy ropes. My stomach turns and I drop to my knees beside him. The rainwater drags the pink ribbons of my vomit down the storm drain. When I finally lift my head, my eyes land on his lower half, resting a few feet down the road. His blue denim jeans are soaked in red.
+The metallic stench hits me before anything else as it sneaks into my nose uninvited. I stop cold, almost dropping my umbrella. His upper half lies unnaturally against the curb, his head sunken in and his arms bent backwards. Intestines drool from beneath his shirt like a maze of thick, slimy ropes. My stomach turns and I drop to my knees beside him. The rainwater drags the pink ribbons of my vomit down the storm drain. When I finally lift my head, my eyes land on his lower half, resting a few feet down the road. His blue denim jeans are soaked in red.
 
 Not a single set of headlights pierces the darkness. No cameras, no witnesses. Just me, the rain, and an unlucky man painted across the street. No one needs to know what happened. If I can get rid of this body, no one will ever know what happened. I step over to his upper torso, forcing myself not to look at his face. I reach down and grab underneath the wet fabric of his wool sweater, pulling up with all my strength. Nothing. The weight is dead, solid, and terrifyingly heavy.
 
@@ -64,7 +64,7 @@ I hesitate. “I… guess…”
 
 Without waiting for a real answer, he bends down. He slides one arm beneath the man's shoulders and another beneath his hips and lifts them off the pavement with terrifying ease. Blood runs down his sleeves, but he doesn't react.
 
-I hold the umbrella over him as he carries the pieces to the back of my sedan. I pop the trunk. He sets them inside, shuts the latch with a heavy thud, and turns to me.
+I hold the umbrella over him as he carries the pieces to the back of my car. I pop the trunk. He sets them inside, shuts the latch with a heavy thud, and turns to me.
 
 “Keys,” he says.
 
@@ -124,7 +124,7 @@ God, who knew technology and location tracking would be the death of me.
 
 He puts the car in drive, and it stutters forward.
 
-“Tell me more about yourself—your hobbies, your passions. If we are going to be dating I need to know more about you.”
+“Tell me more about yourself—your hobbies, your passions. If we are going to be dating, I need to know more about you.”
 
 I stay silent.
 
@@ -206,7 +206,7 @@ When we sit down, Evan puts his arm around me.
 
 He touches my shoulder and doesn't let go.
 
-“Well Lily, this is unexpected. I didn't know you were going to bring a boy over. How long has this been going on?” my mom asks very curiously.
+“Well Lily, this is unexpected. I didn't know you were bringing a boy over. How long has this been going on?” my mom asks very curiously.
 
 I try to come up with a response, but it's hard. I want to yell and scream and cry all at the same time. I don't know what to say and my head hurts.
 
@@ -264,7 +264,7 @@ Tick. Tock. Tick. Tock. Tick. Tock.
 
 Saturday morning light hits my eyes like a punch to the face. My eyes are open, but I'm still sleeping. Still mentally dead. My body aches and my skin feels sticky. For a second, I convince myself that last night was just a liquor-fueled nightmare. I shift over to the left side of the bed and it's cold. Was it?
 
-I sit up and listen to my surroundings but don't hear anything. I almost vomit as I smell the sweat-alcohol concoction emanating from my skin. I want to shower, but I don't have time. What happens today will impact me for the rest of my life. For worse or even worse. I run downstairs and head in the direction of a strong smell.
+I sit up and listen to my surroundings but don't hear anything. I almost vomit as I smell the sweat-alcohol concoction emanating from my skin. I want to shower, but I don't have time. What happens today will affect me for the rest of my life. For worse or even worse. I run downstairs and head in the direction of a strong smell.
 
 “Good morning, sleepy head,” my mom announces as I enter the kitchen. “Evan cooked us breakfast! Quick, grab some before it’s gone!”
 
