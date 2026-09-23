@@ -69,3 +69,6 @@ Conclusion: Product “Dermatector” has been approved for further testing and 
 After reading that one I think I need to take a shower in bleach. But it might disprove the rumor that these are folks who signed up for medical testing. That behavior seemed more fitting of an inmate. Regardless, it seems like Blackthorn is trying to protect humanity in the event these things escape. Albeit not for the most altruistic reasons. I wonder what they would charge for a set of “Dermatector.” Ugh, I hope they at least pick a better name.
 
 That’s gonna be it from me for a little while. I’m gonna try to keep my head down and let this heat pass over me. I could’ve sworn I saw my webcam light kick on while I was writing. But it was probably a reflection of something behind me. Even if it did, I have the camera taped over in case they try something like that. I’ll update once I get my hands on more dirt and reply to comments whenever possible.
+
+  
+Update: ([Final Part](https://www.reddit.com/r/nosleep/comments/1wohyo2/im_a_mycologist_at_the_blackthorn_experimental/))

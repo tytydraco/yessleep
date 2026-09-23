@@ -81,3 +81,5 @@ I got curious and I looked up what a “venator” was, and it led me to a trans
  
 
 I think my mother was screaming the name of the creature.
+
+(PART 2: https://www.reddit.com/r/nosleep/s/m5r3nI2Gqc)

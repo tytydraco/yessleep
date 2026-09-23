@@ -82,5 +82,4 @@ It seems that the main factor keeping the stinghorn within its endemic area is m
 
 Casey’s death continues to haunt me. I could’ve done more for him. I *should’ve* done more. Although I can’t blame myself entirely. Blackthorn holds most of the blame in my heart. They had the tools we needed to keep ourselves safe and withheld vital information on the basis of clearances and bureaucracy. Not to mention, they aim to profit from the use of *W. aculeatus* as a weapon. That’s why I’ve chosen to come forward here. I’ll update later with more stories once I get a few accounts straight. My colleagues can be slightly eccentric from time to time.
 
-  
-Update: ([Part 2](https://www.reddit.com/r/nosleep/comments/1wltk43/im_a_mycologist_at_the_blackthorn_experimental/))
+Update: ([Part 2](https://www.reddit.com/r/nosleep/comments/1wltk43/im_a_mycologist_at_the_blackthorn_experimental/)) ([Final Part](https://www.reddit.com/r/nosleep/comments/1wohyo2/im_a_mycologist_at_the_blackthorn_experimental/))

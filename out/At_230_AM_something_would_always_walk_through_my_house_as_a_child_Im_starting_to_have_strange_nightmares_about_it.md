@@ -1,0 +1,246 @@
+They started happening around a week and a half ago. The nightmares all have slight differences, but three things always remain the same: my old house, my mother, and the Venator. The dreams vary in intensity. Sometimes I’m just staring at the Venator, sometimes it’s chasing me, and other times, it’s violently attacking. The nightmares have happened every night, without fail.
+
+ 
+
+“You look tired.” I nearly jolt out of my seat. I turn to see my coworker, Andrew, standing behind me. He has two cups of coffee in his hands. He offers me one.
+
+ 
+
+“Thanks.” I take the paper cup and try not to guzzle the whole thing. My throat is as dry as a desert.
+
+ 
+
+Andrew laughs. “You sleep alright last night?”
+
+ 
+
+I shake my head. “No. I haven’t been sleeping well at all, actually. I’ve been having these weird nightmares every night.”
+
+ 
+
+“Nightmares? About what?”
+
+ 
+
+“About my old childhood house. I keep seeing a weird creature, and it’s been happening every night for almost two weeks now.”
+
+ 
+
+I give a small laugh and look at the ground. “It’s no big deal, though. I usually wake up before anything too bad happens.”
+
+ 
+
+“Stop ignoring me.”
+
+ 
+
+My head all but snaps to Andrew. “What?”
+
+ 
+
+“I said you shouldn’t ignore those dreams, Alex. They could be alluding to something more serious.”
+
+ 
+
+I sat in silence for a couple of minutes. “… Uh, yeah.” I managed to stammer out.
+
+ 
+
+Andrew nods. “I should probably get some work done. See you at lunch?”
+
+ 
+
+“Yeah. Lunch.” I repeat, unable to say anything else. I watch in silence as Andrew walks away from my desk.
+
+ 
+
+During lunch, I sit in the lunchroom, with a cup of water in front of me. I’m deep in thought about the conversation I had with Andrew. “Stop ignoring me”, I heard him say. What did that mean?
+
+ 
+
+I was so lost in my own thoughts that I didn’t notice my boss, Ron, approaching behind me. “Hey, Alex.”
+
+ 
+
+I almost jumped and turned around, surprised. “Oh, hey Ron.”
+
+ 
+
+Ron nods to me. “Enjoying your lunch?”
+
+ 
+
+I nodded, expecting him to ask me to do something. Whenever Ron is being friendly with me, he’s about to tell me he needs something done.
+
+ 
+
+“Hey, uh, listen.” He starts, “I wanted to ask you something.”
+
+ 
+
+I nod. He continues, “I asked Andrew to hand in a report a couple of days ago and he still hasn’t done it. Can you maybe check in on him and work with him to make sure it gets done by the end of the week?”
+
+ 
+
+I nodded. “Yeah, I can do that.”
+
+ 
+
+“I know you remember me.”
+
+ 
+
+I quickly look at my boss. For the slightest of seconds, his face almost seemed twisted in my peripheral vision, before returning to normal when in my direct line of sight. “What?”
+
+ 
+
+“I said thank you.”
+
+ 
+
+I hesitate for a moment. “Yeah… You’re welcome.”
+
+ 
+
+My boss gives me a quizzical look and walks off.
+
+ 
+
+Half an hour later, I’m seated back at my desk, deep in thought. First, I heard Andrew say, “stop ignoring me”. Now I just heard Ron say, “I know you remember me”. Am I going crazy? Are my nightmares blending into real life?
+
+ 
+
+I look down at my desk and close my eyes, trying to collect my thoughts. *No, that’s impossible,* I think. *It’s just sleep deprivation. I’m overthinking things*.
+
+ 
+
+My mind keeps flashing images of my house as a kid.
+
+*My mother in the nursing home.*
+
+*The Venator.*
+
+*Its face.*
+
+*Ron.*
+
+*Ron’s face.*
+
+*He almost looked like the Venator for a split second.*
+
+ 
+
+I open my eyes. But something’s wrong.
+
+ 
+
+I lift my head, noticing that all the lights in my office have gone out. It’s almost pitch-black. I shoot up from my desk. *What the fuck?* I think, my eyes darting around. My computer screen in front of me suddenly lights up. I look, seeing an image of my childhood home.
+
+ 
+
+I start to slowly back away from my desk. *What is happening right now?* My mind is racing with panicked thoughts. I keep backing up until I bump into the door to my office. Without taking my eyes off the screen, I open the door and step out, almost slamming it behind me. The lights are out in the hallway too.
+
+ 
+
+I slowly trudge through the darkened hallway, noticing that the doors to the different offices are open slightly. The rooms are darkened as well. Curiosity got the best of me, and I walked over to one of the doors. It was Andrew’s office. I slowly creaked it open. Andrew wasn’t inside. His computer was also on, displaying the same picture of my childhood home.
+
+ 
+
+All the other rooms were the same. I rushed to each one, opened each door. Nobody was there. All computers displayed the same picture. I felt my stomach drop. *I’m in another nightmare*. My mind started racing again. *I’m dreaming. I’m dreaming and I can’t wake up.*
+
+ 
+
+But a sound shook me aware.
+
+ 
+
+I hear a gurgled cry, emanating from what sounds like the other side of the floor. I shiver; it sounded like someone choking on liquid and screaming at the same time. I need to leave. *I need to leave.*
+
+ 
+
+After standing in the same spot for almost a minute, I slowly, tremblingly start to make my way towards the main lobby. When I make it to the elevator, I press the button to go down, but nothing happens.
+
+ 
+
+I press it again. Nothing. I press it again, harder. Nothing. I hear another gurgled cry. I panic and start mashing the button over and over again. Nothing. My finger starts to hurt from the force. I see a droplet of blood, so I stop. *I need to leave. I need to leave.* I back away from the elevator, looking wildly around, trying to regain my bearings. I feel dizzy.
+
+ 
+
+I need to find the stairwell. *Right. I need to go right.* My breathing grows quick and uneven. I need to go towards the sound. I take a large gulp of air and start making my way towards the stairs; to the sounds.
+
+ 
+
+As I move down the hallway, the normal blue wallpaper seems to have black mold growing all over it. I start to focus my attention on the ground. I keep walking, repeating the same mantra in my head: *It’s a dream. I’m gonna wake up soon. It’s a dream. I’m gonna wake up soon.* I start to see a trail of black liquid on the ground.
+
+ 
+
+I stop walking and follow the trail with my eyes. The trail goes up the wall, and forms an arrow that points at a door, slightly ajar. I slowly make my way towards the door. *Why am I following it?* I start to think. *Whatever’s in there, I’m not gonna like it. I’m being lured into a trap. This is a stupid idea.* I keep moving towards the door. If something bad happens to me, I’ll wake up. Just like every other time. I bite my lip and grip the door handle, swinging it open.
+
+ 
+
+When I look inside, I see a lumpy mass in the middle of the room. I can’t make out any details, it’s too dark. I slowly make my way over to the mass. It starts to look like a body. I move quicker. As soon as I can see, I almost puke. *It’s Andrew.* I pick up his arm, and I immediately drop it. *I don’t even need to check his pulse. The body is ice cold. He’s been dead for a while*. The body doesn’t look right. *Where’s his face? I can’t see his face. Is that his hair? Why is his hair covering his face?*
+
+ 
+
+With a shaking hand, I go to move the hair from his face. It’s not moving. My hand slides over his neck, but it feels weird. Twisted. With trembling hands, I turn the body over.
+
+ 
+
+His head has been turned 180 degrees.
+
+ 
+
+I scream myself awake. I’m back in my office. My head darts around. I’m drenched in sweat; my breath is quick and uneven. *I need to calm down. It was just a dream.* I stand up and make my way outside my office. I walk over to Andrew’s office and open the door.
+
+ 
+
+“Did you hear me scream?” I ask, as I push the door open. The chair is facing away from me. “Andrew?”
+
+No response.
+
+I turn the chair around. He’s not there.
+
+ 
+
+*He’s probably in the bathroom.* I walk out of his office. I want to get some fresh air. I start to make my way over to the elevator. When I go to press the button, I notice something.
+
+ 
+
+My finger looks weird. I pull my finger towards my face, and my eyes widen. My finger is bruised. Like I was jamming it into something over and over again. *How the hell?* I press the button.
+
+ 
+
+Nothing.
+
+ 
+
+I press it again. Nothing. *What the fuck? How?* I back away from the elevator, turning towards the hallway to the right. *The stairs. I’ll just take the stairs.* I make my way down the hallway, before noticing a smell.
+
+ 
+
+It smells like rotten meat. My blood runs cold. My head snaps towards the door. The same one from my dream. *The smell is coming from there.*
+
+ 
+
+I run over to the door and swing it open. There’s no body there. I sigh in relief. I look up from the spot and notice something written on the wall. In the same black liquid.
+
+ 
+
+**STOP RUNNING FROM ME, ALEX.**
+
+**I WON’T STOP UNTIL YOU ACKNOWLEDGE ME.**
+
+ 
+
+I start shaking. I slowly walk up to the writing and touch it. It burns to the touch. I yank my hand away.
+
+ 
+
+I back out of the room, then quickly slam the door. I look around, and again I notice that I’m alone in the office. *What the fuck is going on?* My mind starts racing again.  *I need to find out what’s happening to me.*
+
+ 
+
+I’m going to go back to my old home.
+
+  
+(PART 1: [https://www.reddit.com/r/nosleep/comments/1wmo2pl/at\_230\_am\_something\_would\_always\_walk\_through\_my/](https://www.reddit.com/r/nosleep/comments/1wmo2pl/at_230_am_something_would_always_walk_through_my/) )

@@ -1,0 +1,173 @@
+[Part 1](https://www.reddit.com/r/nosleep/s/JncGxTd5me)
+
+They awoke and I guess they could instantly tell that I had been awake that whole night. They asked me if anything happened and I had to tell them the truth, but I didn't tell them about its eyes. Frankly, I was just hoping that what I saw was a trick of the mind due to the forest and its unnatural darkness. However, when we went over to inspect the area where the thing was, we saw human footprints, more spaced out and deep. The tracks had an unsettling gait, avoiding any logs that may have fallen down or big branches in its way.
+
+Now we were more alert. There was someone in these woods with us and for some reason, they chose to run off instead of coming to help. I was more relieved internally that they didn't. The way those eyes stared and its labored breathing unsettled me, so I knew it could be a threat. I was getting more worried about the unexplainable mounting up and that made it so much worse.
+
+We decided to keep on going. Help wasn't coming so we had to rely on what we had to get us out. We tried to use the GPS to get back to Wiseman View, but every time we thought we were on the path to it, it would only lead us deeper into the forest. Our supplies were getting low since we only packed for a week and if we were stuck, we would need to get the basic necessities from the forest.
+
+I still felt so guilty for so many things. My isolation quite literally led to us all being isolated from the world. I tried to call again and heard only the dial tone. There were 4 bars though. I should have gotten ahold of someone.
+
+We walked for what must've been like a couple hours when we heard the sound of running water. We all rushed to the sound and came across a decent riverbank over a hill. They all felt relief and got to refilling any canteen and then they decided that they needed to at least bathe. They all got in and started to clean themselves off.
+
+I felt like something didn't add up. I called Tom and asked if I could see the map. He told me it was in his bag and I went looking for it. I got it out and I even got the GPS out. I turned it on and opened the map. Both of them showed me why I felt off. There aren't any rivers on this side of the mountain we were hiking. We would have to cross it in order to even get to a simple stream and I know damn good and well it wouldn't be a river.
+
+I closed everything and really took in the surroundings. Pine, oak, hickory, some hemlock. Then off of the riverbed, I saw trees that looked out of place. It was covered in heart-shaped leaves. I knew that they didn't belong here and only a few months later would I find out that they grow along the Mississippi River.
+
+“Guys, something is wrong. The map said that there shouldn't be any rivers on this side of the mountain.” They all stopped chatting and looked at each other.
+
+“So how is there one now? Surely it must have come from somewhere.” Matt said, trying to be the voice of reason.
+
+“I-I-I don't know. All I know is what I see and there is something happening that shouldn't be happening.” That was all I could say. I didn't want to think of the implications that this had
+
+After they got done bathed and cleaned up, we went on to any direction we could. We tried to continue to use the GPS as somewhat of a guide. We knew that it couldn't be trusted but it was literally the only thing we had to go off of. We could all feel the tension in the air. My feet were getting more tired fighting the unusual terrain. I could tell that Henry was more silent now. I could only assume that he was in his prayers more often, trying to reassure that his God will get us home safely. Matt's shoulder slumped more from the weight of the pack, I could tell. Tom was watching everything with a diligent eye, knowing that someone was out here, and that they may be a threat if they didn't seek company with us.
+
+By midday we hit a clearing, and we stopped for a break. I looked all around us. The amount of trees we saw that was natural was still there partially. There were other trees that looked off, but I tried to rationalize it with things that happen in nature. Birds may have eaten some seeds, left their remains and these trees grew from that. That should explain why I saw a couple, but it seemed like if we were going to go deeper, the more unnatural everything would be.
+
+“You okay Mark? You seem out of it man.” Tom said, approaching me. It didn't dawn on me that I didn't join the group when we took our break and that I had been just standing there looking around.
+
+“Y-yeah, I'm all fine. I'm just observing what I'm seeing. There are trees that shouldn't be here. Things just aren't making sense.” I sighed, feeling defeated.
+
+Tom placed his hand on my shoulder. “I know this isn't how this trip was supposed to go, but we'll get out of here. I promise.”
+
+“It's my fault we are out here. If I didn't cope with Elizabeth cheating on me better, we wouldn't be here. I'm starting to think a lot of things would be different if I had done better.” I rambled on till Tom cut me off.
+
+“Quit talking like that man. You did all you could and there isn't anything anyone can ask more of. It's her fault that she did that. You were a good partner and provided for her and were there for her. It's not your fault we are out here either. We all wanted this trip and yeah, this really is worrying, but we will get out.”
+
+I did reluctantly agree with his statement, but I still felt a great guilt for pushing on. I still do even now. He was right though. This is the trip we have been planning since we got out of high school and we wanted this, but we didn't expect to be stuck in this forested maze. Somehow, I felt like it wouldn't be easy to get out since this started.
+
+We sat around in silence after I pointed out more abnormalities. I think we all knew that something was wrong, but none of us wanted to say what it was. I couldn't tell if any of them were thinking the same thing I was. It became more clear that the surrounding woods we should have been are far gone. I had some ideas but I didn't want to break the morale of the group. We had each other and as long as we did, we would be ok.
+
+“Has anyone seen any signs of anyone around here?” Matt asked. We all just shook our heads. “Well, it's clear we are lost and we need to become comfortable with being uncomfortable. We need to try to find an overlook to see if we can spot any town. I know we can at least go in the general direction at that point. We should try to scavenge as much as we can if we are able to hunt. Nothing gets left behind.”
+
+“You make it sound like we will be here for a long time Matt.” Henry said, his tone a bit sharp with exhaustion and stress.
+
+“We very well may be. All I know is that we are running out of food and soon we will literally have to survive off the land.” Matt replied.
+
+Soon all three were conversing about what plans we should make. I didn't want to interject with my guilt or my crazy ideas. Instead, I tried to listen to the woods. It's unsettled me how quiet things have gotten. We have seen a rare amount of animals in the area. I don't think I heard a bird chirp or crow. Insects are far off in the distance. That made me worry more.
+
+My thoughts were interrupted by a branch cracking to my right. The group was to my left. I slowly shifted my eyes to the other side of the clearing. I saw what looked like a hand slowly shift to behind a tree.
+
+“Someone's close to the right.” I said, immediately cutting off the group's chat. They slowly came over. Another branch breaking was heard as something moved behind another tree. It was a big deer. They sighed in relief and were about to jest at me being worried about a deer before that thing started running in our direction. I saw fear in those eyes. It was scared of something.
+
+They all moved away and so did I as it sprinted right past us. I looked in the direction it was running from and all the air left my body. There in the clearing, what should have been a person was something that looked human, but horribly mangled. Its hands had thick nails that looked like a dull yellow, its body grossly contorted with one of its legs appearing broken, but still walking like a human would. Its body lost all its natural color of a human, instead gray scars appeared from underneath its clothes, writing up its neck. And its eyes were the same dull gray eyes I saw from last night. I could only assume this is the same thing I saw, but I still am unsure to this day.
+
+My friends saw it moments later, unable to speak or scream. Every breath it took was strained and forceful. All we could do is watch as it shambled about, walking unnaturally with its broken leg. Even with it broken, if it caused any pain to put any pressure on it, it didn't react at all. Tom was the first to try to call for it, but the moment he came out of the clearing, it bolted away from us, its run so precise and haunting.
+
+It took us all a minute to even speak. We were so stunned by what we saw. Now we knew for certain that there was “someone” here in the woods but they looked far from human at this point.
+
+“What was that abomination? I've never seen a thing like that in all my life.” Henry said, clearly the most shaken up. I guess that in all of his teachings and his past time of looking up unnatural creatures, he had never thought he would see one.
+
+“That must be the same thing I saw last night. Jesus, it was so messed up. I have never seen something so grotesque.” I replied as I pushed forward to where that thing ran off to. I saw the tracks, heavy and unnatural like this morning, but it was gone. I told the group this and they all just looked at each other.
+
+We set up a little camp about an hour away. None of us wanted to begin the conversation. I surely didn't want to try to be the one to bring up what we saw. Another hour later, the tension was so thick you could cut it with a knife. So I reluctantly began the conversation with a simple question.
+
+“So…what should we do now?” I asked the group. They looked at each other and contemplated. This wasn't going to be easy to decide.
+
+“I say we should get to a lookout. Try to find the nearest town and we can go from there. Survive off of whatever food we can find or hunt. Either way, I'm going to do what it takes to see my new son. I'm sure my wife is worried sick about me now.” Matt said calmly as he could. I can tell this all unsettled him and he was worried about his wife.
+
+“I think we should pick a direction and just depend on ourselves. We can't trust anything out there and this all is very dangerous. We could die out here.” Tom said.
+
+I looked at him puzzled. He was normally one for rational thinking but that sounded insane.
+
+“What type of plan is that Tom? We could get lost deeper in the woods than we already are.”
+
+He looked at me and shook his head. “Yeah…I don't know where that came from. It must be the stress from all this. I just want us all safe. I want to go home.”
+
+“We all want to go home.” Henry said, placing a hand on Tom's shoulder. “How about I lead us all into prayer? That will lift our spirits.” They all nodded and bowed their heads.
+
+“Ya'll do that, I'll scout ahead.” I said, immediately getting uncomfortable. I saw Henry give me a sad but understanding expression before he started praying. He knows why I wanted to scout. I have had problems with religion all my life. I do say I am a believer but it's hard to believe in everything. It's hard to put my faith into something so esoteric that a divine being created us all and has a plan for us. I don't know where in God's plan that it was all divine that we get lost in a forest, but I still curse that idea to this day.
+
+I walked a little bit away and heard something for once: birds chirping. I even saw a family of rabbits cross my way. It felt so relieving to hear nature in action for once. And as I walked and enjoyed the sincerity of the moment, I came across another clearing. This one actually looked like a certified path to go down. I went back and got them and with nothing else to do, we followed this path
+
+I remember just walking along, taking in the scenery because it was just a contrast to all that I saw. Everything felt normal at first. There were the usual trees known for growing.  My friends were trying to discuss what they were going to do when we got home. Things seemed to be going right, but something in the back of my mind kept alerting me to something unusual, even with wildlife in the immediate area. As we walked the path, I paid more attention to the trees that we passed, then I fully stopped and actually looked ahead at the path forward.
+
+The trees had been growing in a straight line since we started on this path. It felt like a gut punch. I can only compare it to the way trees grow in a straight line in rich people's driveways. That would be normal for that setting, but here in the middle of the woods, it defied ecology and the way nature works. It doesn't take a genius to see that this was an impossibility in the deep woods of Appalachia.
+
+My friends saw the visible confusion in my face and asked what was wrong. When I made them aware of this oddity, they were also puzzled. A man-made pathway in the woods of Appalachia. They couldn't rationalize it any better than I could, and we had walked for half an hour now. This was the only path we had seen since getting lost, so reluctantly, we kept on.
+
+We walked till it was dusk. I was purely exhausted now, and there was no way I could take the night watch this time. I had been going on with sheer willpower and determination, but even then, the human body has its limits. I told to just give me a few hours and I wouldn't mind rotating so whoever was up could also get some sleep.
+
+To this day, I will forever remember that dream that I had that night. I dreamt that I had actually woken up from sleeping and I got out to see that I was completely alone. I grabbed one of the flashlights and searched frantically for my friends. It must've been hours in that dream because soon it was dawn. As I was searching, I came across more oddities in the woods. Grass and plant life that shouldn't grow at all this far in the woods, trees that pierced the sky, and finally, I came across the most horrifying thing I had seen before.
+
+It was a tree that had unusual dark red bark, piercing the sky till the eye couldn't see it anymore, and branches that grew in irregular shapes, some of them straight out like a line, an impossibility in itself. That's not what was horrifying. As I got closer, I saw carvings into the tree. Phrases, names, rhymes, symbols, and other things I didn't know the significance of. I saw jewelry encased in the bark, bark that shaped like eyes with different coloration for the pupil, and more similar objects. I couldn't even describe what all this meant or why it was like this. What I do remember significantly, was the feeling and aura around the tree. I felt dread, sadness, anger, hatred, and emotions that I hadn't felt in years or ever. It was all coming from the tree. I reached out to touch it for some strange reason, but the bark was unusually very sharp, and it cut the palm of my hand. I shook my hand after recoiling from pain and I felt a hum in the atmosphere around me, like something had just started up and active now.
+
+Then I woke up in a cold sweat, feeling uncomfortable and scared beyond belief. I felt a stinging pain in my hand and I looked at it, only to see a small cut in my palm. I looked around and saw I was in my sleeping bag, and I could hear the birds make their calls, which I could assume that morning was approaching us. I got up and shook the gross feelings I had off of me, and looked around. Henry was up this time, and he looked over to see me. Guess I made quite the ruckus. I got up and sat next to him, trying to figure out what would be a good conversation starter.
+
+“Sleep well?” He asked. I just kinda shrugged, not wanting to really talk about that weird dream. “I just started an hour ago. It's been kinda quiet besides the usual.”
+
+“Yeah, at least we can hear some life out here. I was worried that there wouldn't be.” I sighed and got ready for the big topic. “How are you holding up man? I'm sure none of this has been easy.”
+
+“It's not, that's for sure, but I'm doing alright. As best I can be.” He said. There was a good bit of silence before he started up the convo again. “I wonder who that person was that we saw. They looked like they were in agony. I sure hope that God takes care of them in these troubling times.”
+
+“Yeah, same here.” I reluctantly agreed. “Have you ever seen anyone look like that? They looked so bizarre, almost like a corpse. I don't know how they are still alive. They were skinny as hell.”
+
+“No, I can't recall ever seeing anyone like that. Then again, it's clear that nothing is normal now, is there?” I nodded in agreement. “I have a bad feeling about these woods. Nothing makes sense here. Things happen that shouldn't. It's a mockery of what God has set in stone.”
+
+I sighed in mild frustration. I always hated when he got philosophical like this. Not like we didn't talk like this normally, just when it came to religion it always unsettled me and bothered me.
+
+“Look Henry, I don't know why most of the stuff is happening around us. I can't say what is spitting in God's image for the world out here. What I do know is I don't feel like we are lost, I feel like we are trapped. In some way, something is keeping us here.” I finally admitted what I had been thinking.
+
+“I do feel the same way, I just didn't want to say it.” Henry said. “With all that has happened, I feel like we are being tested out here.”
+
+“I agreed to a hike, not a damn quiz in the middle of the fucking woods.” I said, getting us to chuckle a bit. “For real, I don't know what is going on, but by your God, we are getting out of here. I'm sure of that.”
+
+Henry patted my back like he usually does when he is done with a conversation and we just sat in silence, just taking in the sounds of the forest. It must've been by the nearing dawn that I distinctly remember that the forest slowly went quiet. I looked around slowly, trying to take in any detail.
+
+Far off from the distance of the campfire, I saw dull blue like eyes, and as I paid more attention to them, I could hear the rapid breathing far off in the distance. It was so heavy and forceful, and in quick bursts. I won't lie to say that freaked me out more, so I grabbed a light and directly pointed it at the thing I saw.
+
+This was another person, and they looked so much worse. They looked nearly like a skeleton with skin draped over the bones, I could see their heart pumping through the ragged clothes they wore, their hair unkempt and so dark. Their fingernails were chipped and looked sharp on one hand and where the other hand should be was a hardened jagged stump, like a broken stick of an arm. Their eyes were dull like the others, and fueled by what I could only assume was malice. The rage in their eyes freaked me out the most. The last one I saw barely had any emotion, so to see this one full of it unsettled me deeply.
+
+We saw them for a few seconds when something came over me to chase them away. I can't recall why, but I felt like if they got any closer we would be in major trouble. So I stood up and started sprinting at them, my fight or flight choosing to fight out of nowhere. Henry yelled for me but I didn't listen. All I saw was a threat and I wasn't going to let them get hurt.
+
+They took off in the opposite direction down the path we would have kept on going down, their running so unnatural. Regardless I kept on running at them, yelling at them. I chased them for a minute before they outran me and ran off deeper into the woods. I slowed to a stop and tried to catch my breath. My brain was fuzzy with adrenaline pumping through me. It took me a good bit to slow down my thoughts and think clearly. That's when I noticed that I saw a big tree, maybe 100 feet from the path we've been taking.
+
+I was about to start walking towards the tree when my friends came up and asked what happened. I was discussing everything that transpired when I felt a resonance come from deep in the woods. My blood turned to ice as I remembered the dream I had. I just stopped talking and started to walk in the direction towards that tree. I felt like I needed to make sure that it wasn't what I thought it was, but once I got closer, my suspensions were correct.
+
+There, in the dead middle of the clearing, was the same tree from my dream. The same symbols, carvings, unusual objects in the tree, and the feelings surrounding it. This time, I saw a small blood mark left on the tree. I could only make the assumption that it was mine, but I can't say for sure. My friends came up and inspected the tree. They were completely thrown back by what we were seeing. I looked up and the tree pierced the sky like before.
+
+“What unholy abomination is this thing?” Henry said, his voice having a hint of fear in it.
+
+“Its not like anything I've ever seen before.” Matt said as he walked around it.
+
+“What the hell are these things carved in it? This is just a nursery rhyme. And there is a piece of a necklace in the tree. This makes no sense.” Tom said as he took a gander at it.
+
+I stepped back in horror. I knew then that this was actually real, but I still couldn't tell why this was just here. It made no sense to me. I couldn't have any more chance to ruminate on it before I felt something pierce through my chest. I saw that person's spiked arm pierce through me, and I started to cough up blood, which got them to turn around. Tom pulled out his gun and shot it twice, once in the heart and once through the head, which them dying pulled their arm out of my chest.
+
+I had my hand covering it, but it was a decent size hole. I was losing a lot of blood. They were all trying to tell me that everything was alright, and all I could do was smile and cry as I felt the life drain out of me. Holding Henry's hand as he tried to pray this away and then holding Matt's hand as he tried to tell me that I needed to hold on, and that I needed to be there to be an uncle for his son. Soon everything faded to black as I closed my eyes.
+
+What I saw next was bizarre as hell, even after everything that happened. I saw a vision of me and my now ex girlfriend and the moment I fell in love with her. I remember we went to the movies as best friends. I can't recall the movie anymore, but what I can recall is us laughing at what was probably a dumb scene in the movie. I just remembered that I stared at her once gorgeous smile and her radiant face, full of hope and ambition to become something more than our uprising. It made my heart flutter with an intense love that I became addicted to chasing. I remembered as I was in that memory that I would give anything to make this person fully happy no matter what. It still hurts to think about that memory.
+
+Then I woke up, gasping for breath, my friends crying around me, looking immediately shocked and surprised, with that tree behind them. I went to touch where I had been stabbed, only to find it healed to near completion. I say near because it left a nasty scar that spread out a little bit, some of it a light blue color. Henry looked shocked and mortified at what he was seeing. I felt sick and immediately turned over and started to vomit out the bits of blood that were still left in my throat and mouth, my mouth soon tasted like bitter copper.
+
+As I spit out the rest of the remaining blood that apparently didn't heal up, my friends helped me up, making me groan in pain from how sore I still was. Matt and Tom had tear streaks left over on their faces as Tom started to speak.
+
+“I-I-I'm stunned. How are you alive? How the actual fuck are you alive!? I felt your pulse leave your body, I saw that wound. This is impossible!” He said, shaking his head and rubbing the back of it as he started to pace.
+
+“Tom calm down. I don't know how it is even possible that he is alive, but we should be more than happy that he is alive.” Matt said, trying to keep his composure even to himself.
+
+“T-Tom, it's still me. The same Mark if you're worried about that. I don't understand it at all, but fuck man, I'm scared shitless myself. We just need to take a moment to breathe.” I said, trying to calm everyone down.
+
+“This isn't even possible. How in God's name are you still alive? Did He bring you back from death? I don't-” Henry was saying until a vitriolic tone came out of me from nowhere.
+
+“Your God didn't fucking bring me back. I'm sure he didn't want my dumbass walking up to the pearly gates, if that's what you were hoping for you dumbass.” I said with such hate and anger. I still to this day don't know why that came over me. Everyone got silent and Henry looked at me sadly. I felt so damn bad for hurting him to that degree. Even when I did have my moments, I wasn't that hateful before. “I-I'm sorry Henry. I don't know what came over me. Fuck, I fell terrible man. I'm so sorry-”
+
+He raised his hand, still feeling sad before I could see him try to suck it up and smile. “Mark, it's fine. You were scared and reacted. I shouldn't have done that to you. I'm just happy you're alive.” he said. I brought him into a hug and we stayed there for a bit, me still feeling guilty as ever about that outburst.
+
+We separated and we soon started to hear rustling behind us. We turned to see that this person, who had just been shot and killed like me, was starting to get up as well. We were dumbfounded by the impossibility of this, even if I had just died myself. As they got up, I could see that where Tom had shot them in the head was partially healed as well, but dark gray thin streaks crossed into their face. Its breathing was ragged and filled with despair. Then without any hesitation, it ran off deeper into the woods.
+
+It had been hours since that happened as we sat huddled around beside the weird tree. We didn't know what to make of everything that had just happened. I died and came back alive a minute later and that thing took 3 minutes to come back from being shot in the heart and head. I was deeply unsettled by why this had happened. Finally, Henry was the first to speak to me.
+
+“What happened after you died? Did you see anything at all?” Tom asked with genuine concern.
+
+I sighed and rubbed the area I had been stabbed. It felt so uncomfortable and tender still. “I had a weird vision of me and Elizabeth. It was when we went to the movies and I fell in love with her. I don't know why I saw that of all things. I was expecting either brimstone fire or purgatory, I don't know.”
+
+“Why would you be shown that?” Tom asked pointedly.
+
+“How the hell am I supposed to know man? I literally died. It's not like I got a choice of what I get to see when that happens.” I replied annoyed. It bugged me that he would try to ask something so redundant. I looked around at the sun rising through the trees, the shadows darker than usual. Then off handedly, I noticed that the tree that had many things on it didn't have one at all. I pointed it out to them and they confirmed as much. With all of these random occurrences and the fact that 2 people out here have been brought back from the grave gave me an unsettling realization that I have chosen to not say until that point.
+
+“We're trapped in these woods. It won't let us go.” I announced. They all just kinda stared at me with varying emotions. Tom was puzzled, Henry looked saddened and Matt seemed very concerned. I can understand why they felt that way. One of them is a man of faith and his faith was being tested to an unusable degree and one of them was about to be a father. Being trapped in woods that don't conform to reality isn't the most pleasing thought. Tom was a rational man but everything that we had seen broke any set rules that reality had, even as being brought back from death and healed.
+
+“So any ideas on how we can get out?” Matt asked.
+
+I got up and walked around the tree. It didn't take a genius to figure out that this was a centerpiece of importance, but we couldn't deduce what it was. All of it was random and chaotic, and it didn't make sense. I told them that we needed to stick together and try to find a way to get out and see if we can find out what is actually going on here. Soon we packed up and we continued onward, preparing ourselves for more of the unnatural and unreasonable nature of this cursed forest.
