@@ -1,0 +1,29 @@
+I bought my house through a foreclosure. Well, it’s less a house and more of a small cottage. Two storeys, tiny bedroom upstairs, living room and kitchen downstairs. The yard is overgrown and there’s a sunken root cellar at the edge of the lot. The house is surrounded by an old and menacing forest, but I grew up in a similar house by a forest like this one so it was quite homely to me.
+
+
+
+Things were good for a while. The house was sold as is, filled with things left behind by the previous owner. The old lady’s things were interesting to go through and try to piece together a whole picture of a person. I figured she was an old lady because of her clothes. All were rather dated, a lot of long, heavy skirts and cardigans. She must have been quite forgetful since all her pockets were filled with random items. I got a huge glass jar and slowly filled it with nails and nuts and bolts. Small things that are easy to slip into your pocket and forget you have them there. She must have been busy with her idle hands since each piece of her clothing is embroidered with red stitching. Why, I couldn’t tell you, but it’s very neatly done and not a single collar, wrist or hem has been missed. I often wear one of her cardigans now, I don’t think she would mind. I even picked out a bolt to have in the pocket, because of her.
+
+
+
+She had some peculiar hobbies. Her bookshelves are filled with what you’d expect: classics, literary prize winners and those easy-to-read paperbacks you can pick up at the grocery store. But spread all over the living room I found what I imagine is every book she could find on ghost stories, urban legends, even demonology. She must have been really into those since each is filled with notes and annotations written in a neat cursive I can’t quite make sense of. Maybe inspired by the location of the house, she seems to have really focused on stories involving the woods and things that are said to live there. I really wish I could read her writing, because I feel like she has a lot to say, but now it’s no use to anyone.
+
+
+
+Through cleaning the house, I’ve come to feel really close to the stranger who used to live here before me. She must have been a really nice old lady. Maybe a bit lonely and scared. She has put three deadbolts on the front door. You might imagine one would be more than enough living so remote, but I’ve come to understand her reasoning in the past few nights, and am seriously considering adding a fourth one. Just in case. The only reason I haven’t, is because it’s rather difficult for me to leave the house at the moment.
+
+
+
+I do appreciate the fact that she has painted all the windows shut. At first I thought about opening them up to let that fresh forest air in and be free of the old and musty scent in the house, but I can’t help but thank her now. She did not miss even the tiniest window I have ever seen, hidden in the corner of the tiniest kitchen I have also ever seen. Her paint job isn’t the neatest and the finish seems rough, like there was something like sand mixed into the paint. But it’s throughout and secure. She has done so much work on the house.
+
+
+
+I wonder if it all started the same for her. In her room upstairs, the one I now sleep in, cozy in her bed, listening to the soft sounds of the house and the woods. Gentle creaks of the boards, rustle of the pines, the metallic click of the locks against the door frame as something tugs on the door. The too fast scurry of footsteps around the house, scratches against the windows, tapping on the roof as the house is inspected for any opening, any way to get inside.
+
+
+
+I feel like I’ve gotten quite close to the old woman who used to live in my house. And last night I finally met her. Staring at me through the upstairs window while scratching at the glass, trying to find even a single opening she might have left for herself.
+
+
+
+The worst part is, she must have missed a spot. Because otherwise I wouldn’t be in here, and she out there. And now I have to find it before she does.

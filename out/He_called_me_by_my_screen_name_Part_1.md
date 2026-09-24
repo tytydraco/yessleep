@@ -1,0 +1,596 @@
+I have no idea where I'm going to post this but I'm getting desperate here. I'm not sure of the exact address but I'm being held in a house somewhere on the east side of the Springfield River. I got myself into a very shitty, dangerous situation and I need to get out of it now. I feel like I should be totally honest because even though I don't want to get the police involved I know that I'll probably have to talk to them after this, that is if I hopefully can get the fuck out of here.
+
+
+
+I just have to be honest and confess even if no one actually comes and saves me. I was always taught by my church that if I felt like my life was ending, that I shouldn't fight, I should just pray and confess.  
+Okay, fuck, here it goes:
+
+  
+   
+Very shortly after my eighteenth birthday I created a Twitter and Reddit account and started posting sexual videos and photos of myself. While other guys my age spent their 18th birthday drinking with friends, I was inventing a new identity. After very little thought I went with the name “Str8 From Sodom.”
+
+
+
+At the time it seemed like a very easy way to make money and to be fair, I was right. Going into it I knew that my audience wouldn't be women, it would be mostly if not entirely older men. You get used to that fact quickly and you learn how to cater to the proper audience.
+
+
+
+I never understood straight guys who think that they will be overnight sensations just by recording themselves in a dark room doing what they do to themselves every night. The only time that has ever worked was if they were famous actors or rappers.
+
+
+
+No, what I and many other guys my age do is different, more production and acting than anything. It's the same basic concept of people wanting to see you "enjoy yourself" but with one big difference, you don't enjoy yourself.
+
+
+
+Imagine trying to enjoy a private moment but instead of it being just for you, you know for a fact that you are going to eventually show it to a possibly uncountable amount of people. Imagine trying to reach multiple climaxes knowing that you're gonna spend all tomorrow editing away every unsatisfying moan, every burp, every flubbed voice line. I can't count the number of times I've had to edit away parts of my video because my posture was wrong or my stomach looked too big.
+
+
+
+I'm in no way a big guy, I think I'm actually bordering on underweight, but your brain has a funny way of making you hate yourself when you look at your body for too long.
+
+
+
+Also while I'm talking about my setup, it's a nightmare having to angle the lights and camera stand just right so that no one watching can tell any private information about me such as photos, local clothes brands or even the weather. All of it can be used by creeps to find your location.
+
+
+
+I almost had a heart attack one night when I received a direct message from one of my viewers pointing out that the soda can in the background of my latest video was only sold in stores in my province. That was enough to make me delete the post and send me into a paranoid spiral for a week.
+
+
+
+It wasn't uncommon for my more loyal fans to DM me, praising me or asking if I was single. They must have been so surprised when I actually messaged back and started asking about their lives, it was never serious, just a little market research. I would ask what type of job they had or what country they were from, they got to talk to a fresh sweet college boy and I got a rough estimate of my audience's background, age and yearly income.
+
+
+
+As it turned out over 68% worked in I.T or security. Call me heartless but when you are selling a product you have to know your buyers.
+
+
+
+The reason I'm telling you all of this instead of calling the police is because I'm about to get to the really embarrassing part of my "job", the part that looking back on it now is how everything got so fucked in the first place. I started taking commissions for personalised content. My public posts were just advertising for my real product; my willingness to say anything or do anything I was paid to. After reaching my follower goal I drafted up my commission post.
+
+
+
+"Hey, all you perverts. Thank you so much for getting me to 8k followers and for getting my last gym selfie to a thousand likes, it makes me so hard knowing that we are all getting off together" I remember feeling nauseous when typing that part, the bile rose in my throat as I linked my websites for what felt like the thousandth time "I have amazing news to help celebrate our milestone. I'll now be doing commission pics and videos, that's right, babies. I'll do anything. I mean it, I'll do anything you ask."
+
+
+
+"My prices are only for those brave enough to dm tho, so you better get them wallets out, here's a few little teasers"
+
+
+
+Underneath were four very short clips of me masturbating while dirty talking about fake fantasies that I never liked but knew were popular. It wasn't long before I started getting commissions, they started out plain enough with someone wanting me to moan their name or to stay fully clothed while touching myself but after a month I started to get weird requests; ones that, if they were ever linked back to me I would surely never be able to show my face in public or hold down a job.
+
+
+
+Everything from using fruit and vegetables as makeshift toys to getting blackout drunk while crossdressing. The worst one I was ever paid to do was when a very clean, friendly looking Russian man was willing to pay me a lot of money to use a Ukrainian flag as a cum rag as I repeated slurs; some I knew, others were unknown to me and likely anyone else who didn't speak Russian.
+
+
+
+I don't deserve to complain about these creeps and perverts, I have zero moral high ground.  
+One online purchase and a short Russian enunciation lesson later and I was $500 richer.
+
+
+
+Everything was perfect more or less, I was a modern day Spider-Man or Hannah Montana. That was until this morning when I was called into the dean's office of my community college. I was seated in front of the head of the college, a nearly sixty year old woman I think I saw once during orientation. She made sure the window blinds were closed and the office door was locked before she showed me a picture of my own ass on her computer screen.
+
+
+
+"Would you care to explain this image, young man?"
+
+
+
+My throat tightened as I struggled to get my lie out. 
+
+
+
+"Umm, I don't know who that is?"
+
+
+
+She turned the monitor back to her, squinting her eyes in disgust as she zoomed into something in the background of the photo. As I looked longer at the photo I realised it was one of those photos that I took in a public bathroom.
+
+
+
+Don't judge me too hard, sometimes I had gaps in my content and I didn't want my viewers getting bored or I was asked by a viewer to. She zoomed into a small window in the very corner of the bathroom stall and outside that window were the leaves of a dawn redwood tree. The same tree my shitty community college planted to celebrate some anniversary or the other.
+
+
+
+She locked eyes with me as her voice pierced me. 
+
+
+
+"You do realise that public indecency of one's body is a serious crime. What made you think this was okay, young man?"
+
+
+
+"W-wait, no no, how did you even find this?" I stammered, my brain in overdrive trying to think of a quick lie.
+
+
+
+"Well, I hardly think that's the main problem here. I should really be taking this up with the authorities, seeing that you were recording in the bathroom, but we would prefer to deal with this in-house. With that being said you will be expelled from this school effective immediately on the grounds of sexually inappropriate behaviour and misuse of campus facilities."
+
+
+
+I shook my head as she talked, as if I could deny it then she'll believe me over her own eyes.
+
+
+
+"Wait no, can I just explain myself for a second?" I said not planning out whatever sentence would follow.
+
+
+
+"If you think you can"
+
+
+
+She gave me a cold, piercing stare, the type of look that told me she wasn't actually gonna let me get a word in. It's not like I had a good excuse, anyway.
+
+
+
+I felt myself drifting out of her office and out onto the main street. I didn't think of stopping by my class or wasting any time before I walked up the street to the bus stop. I didn't check the schedule. I stood there trying not to cry as I felt hopeless to the consequences of my own actions.
+
+
+
+Just like that I was expelled, kicked out of the education that I thought I would never have enough money to attend, quietly sobbing on the bus travelling in the opposite direction from my home. Away from my parents, to whom I would soon have to explain everything. Maybe I could rough myself up and tell them I fought a teacher or I could say another guy in my class decided to accuse me of stealing from him and that his family owns the college.
+
+
+
+It wouldn't be the first time I came up with a thick web of bullshit to get out of a mess but it wouldn't matter what bullshit I told them or myself. The news would eventually spread around town and reach them just like every other rumor in this community did.
+
+
+
+I understand that some of you might be thinking that my parents will understand if I just told the truth. That might work with some “new age” parents but my parents are , for lack of a better term, Old Testament-level homophobes. Two years ago there was a rumour that a foreign exchange student was trying to seduce all of the boys in our local high school, what started as the host family finding some used condoms and an empty bottle of whisky turned into a town sized rumour that this foreign teenager was trying to corrupt the locals with drink, drugs and sex, a rumour partly started by my father and then pushed by my mother.
+
+
+
+The program was supposed to last six months but he was abruptly sent back to Asia only two months after he arrived due to half the parents in town writing to both the school board and Peter’s family about what they believed to be his crimes. The parents association were worried about him corrupting their sons or impregnating their daughters, how he was forcing girls to drink to have his way with them.
+
+
+
+That last rumor was actually thought up by my dad during one of our many family meetings about Peter. His parents had him sent back before school started, before he got the chance to study and hang out after school. For two short months he was in my life and then he was gone without a way to contact anyone.
+
+
+
+He never even got to see the snow like he always wanted.
+
+
+
+When I arrived in the centre of town, I sat on a nearby bench to get my bearings. Just as I was trying to decide whether to hide in a cafe or a bookstore instead of going home, I noticed a large, gruff-looking man walking towards me.
+
+
+
+I noticed that I was basically sitting in the middle of the small two-person bench with my bag next to me. I scooted to the side and took my bag with me to let the man know that he's invited to sit if he wants.
+
+
+
+Sure enough he makes his way over, 
+
+
+
+"Ah, thank you." His voice was as rough and gruff as he looked but it was laced with a heavy German accent. He huffs and grunts as he sits on the bench, I could hear something in his back or his legs softly crack. I can see the fabric of his blue jeans white at the seams, struggling to contain his weight.
+
+
+
+His dark brown hair was slicked to the side to hide slight thinning, his beard was nicely maintained on his face. Meanwhile the facial hairs running down his chin and his protruding neck fat, on the other hand looked painful, sharp and irritating. As he sat down I realised how wide the man was as his left hip and thigh was pressed firmly against me.
+
+
+
+As I was trying to figure out how I was going to get up without seeming rude or without rubbing against him too much, the man turned to me and said
+
+
+
+"Excuse me, sorry but what time is it?" 
+
+
+
+The aroma of tooth plaque and peppermints hits my nose. Clearly this guy thought that eating a handful of mints was a good substitute to actually brushing his teeth, the wide smile he gave me confirmed my thoughts by letting me see the thick creamy yellow gunk stuck to each tooth.
+
+
+
+I checked my phone to see it was just after 10am, I should've been in my marketing class deciding what I wanted for lunch or gossiping with the other students. I wondered if they all already knew about me being expelled. For all I knew the dean told the whole staff about what had happened and then one of those teachers had looser lips than others and told students, maybe by mistake, maybe out of boredom.
+
+
+
+"It's five past ten," I told him. The man sighed heavily as if he could finally relax now that he knew the time. 
+
+
+
+"…thank you, dear." He kept his eyes on me, at first I thought he was just trying to look at my phone screen and be nosy but then I turned to see how his eyes darted around my body, it wasn't like he was looking me up and down but more like his gaze never stayed in the same spot for more than half a second. I stared at him trying to give him a look but that didn't stop him one bit.
+
+
+
+“Excu–” I tried to get his attention but I was quickly cut off.
+
+
+
+“You dress very nicely, you are a very handsome man.”
+
+
+
+I should have just gotten up and left or just pulled out my phone and ignored him until he left me alone but instead, out of some sick habit, I put on a smile and looked up at him like it was the first compliment I had ever received.
+
+
+
+“You really think so? Thank you so much, I … love your whole outfit.” Maybe it was pity over the fact that this guy was trying to hit on me or it was just me wanting male attention no matter the source but I introduced myself.
+
+
+
+Nothing crazy, just my first name and the fact that I knew my way around the town. What followed could only be described as an avalanche of backstory as this man told me everything there was to know about him.
+
+
+
+“My name is Arthur and I'm forty-six years young, haha. I just moved here very recently from my home town in Deutschland, I work from home as a cybersecurity expert and I-” as he continued I let my mind wander to other places as he explained why he moved to Canada.
+
+
+
+I thought about how many people are working in cybersecurity these days and how guys like him must be loaded with cash. For a split second the idea of becoming a sugar baby crossed my mind. I mean, I already get paid to stroke myself on camera, would a handjob and a few dates really be any different or any less degrading.
+
+
+
+As Arthur, the big German man, continued I spaced in and out of his never ending monologuing, I finally came back to reality when I felt his clammy hairy hand rubbing against my knee.
+
+
+
+“You know, Tony, you are such a good listener. I feel as if no one in this town has really connected with me like this, I will buy you a drink” The man said in a direct and unshakable manner.
+
+
+
+“Umm no, I'm okay, really” I tried to laugh off the request if you could even call it that.
+
+
+
+“I think I'll just chill here and enjoy the weather, t-thanks though.” I tried to shrink away from him and his touch but in doing so I only managed to push myself deeper into the bench and rub my ribs against the metal arm rest.
+
+
+
+“Nein, no. I insist a young man like you deserves a good drink. Now we're going. Come on move them legs” a sharp pain shot down from my knee joint to my foot as Arthur grabbed my knee to steady himself as he stood up. His fat sausage fingers dug into the muscle as if he were trying to hook under my ligaments and twist them.
+
+
+
+I don't know if he just ignored my pained groans or if he just couldn't hear them over his strained grunts and wheezes as he straightened his back and stood up. He moves in front of me with his hand keeping its position on my knee. I looked up past his stomach as he held out his other hand, he waited for me to take it and go with him.
+
+
+
+“Come, we must get moving.” Arthur said with a hearty chuckle.
+
+
+
+“No, I said I’m good. Really, I’ve had a shitty day an-.” I tried to shrink away but was stopped by Arthur chuckling.
+
+
+
+“Oh, ho yes, I can see that. A young man like you must be very busy but not too busy for a beer, I hope?” Arthur cut me off as he guided me up from the bench, he took my hand and jerked back his arm suddenly causing me to fall forward into his stomach. My feet landed on the concrete as I straightened my legs and stood up, my face inches away from. I ripped my hand away from the older man’s hand. The last thing I needed right now was for someone to see me holding hands with another man in the middle of town.
+
+
+
+“Nuh-uh, Mein Kleiner. Come on, one beer.” he said with a shit eating grin on his face.
+
+
+
+Look, I know that the worst thing you can do with a stranger is follow them to a second location but luckily, I was actually familiar with the bar he was trying to drag me to. It's a small local spot that should be empty by now so if I need any help I can yell for the staff. I also thought that chances of being, like, killed were pretty low considering that it was midday and the town was bustling with people.
+
+
+
+I just had to keep a few things in mind, never let go of my phone, don’t let him handle my drink and do not let him walk behind me, I thought it was gonna be so fucking easy. Plus I could have really needed the drink, thought we'd just chat, maybe he'd try to flirt some more. All I had to do was play the fresh little college boy, pretend to be interested and leave.
+
+
+
+I told him that we could go to the bar together and that he could buy me a drink, but only one drink and if he tries anything weird then I could leave whenever I wanted. The grin on his face only grew as I walked beside him.
+
+
+
+I watched as the man next to me started to trudge towards the nearby bar. I made sure to slow down my gait whenever I noticed him slow down or look over his back at me. By the time we got into the bar I had convinced myself that I had complete control over what was happening, I had told myself that I'd let this pitiful sap buy me a drink and then I'd hop on a bus back home.
+
+
+
+We got inside and I was pleased to see how empty it was. It's a small hockey bar, the type that gets packed full every game night. The bartender was polishing glasses as he watched an old game muted on one of the three TV screens. One man was drinking at the bar, already on his second pint despite it being before noon.
+
+
+
+We both made our way to the bar but I made sure he was standing in front of me, not just for safety but the idea of this man standing behind me, being able to look me up and down made me feel sick.
+
+
+
+We went up to the bar, I couldn't tell if the bartender was happy to have something to do or bothered that we were in there. His face was as cold as the air outside. Arthur nodded for me to order first so I just got a sleeve of the first brand I saw on the bar as he got a full pint of whatever was imported. As soon as my small glass touched the bar I grabbed it and held one hand over the top. I tried to move around the corner to sit on some of the stools but Arthur wrapped an arm around my waist and basically shoved me deeper into the bar as he already began drinking from his pint.
+
+
+
+I tried to fidget out of his grasp but it only managed to get us a few side glances from the half asleep barflies. I was quickly shoved towards a booth by the window which was still in plain sight of the bar’s sole worker so it could have been worse. I sat just so I could get the man's sweaty clammy hand off my lower back.
+
+
+
+I gritted my teeth and spoke as we both settled into our seats facing each other. 
+
+
+
+“Hey, buddy! I told you not to try anything. You're lucky I'm still here.” It was mostly an empty threat but as soon as I finished that drink I had full intention of leaving and finding another place to wallow.
+
+
+
+My words fell on deaf ears as I watched Arthur hold his glass high and chug half his drink in one breath, I squirmed in my duct tape mended seat as I watched the frosty gold liquid drip down his chin hairs. I could already feel the tape's adhesive rubbing off on my jeans, just another reason to leave as soon as I could.
+
+
+
+I take a sip from my glass as Arthur sets down his with a deep sigh.
+
+
+
+“So wh–” I was quickly cut off
+
+
+
+“Oh no, no need to thank me. A boy as dashing as you deserves a free drink every once in a while.” The older man cooed like he was the love interest in a Victorian romance novel.
+
+
+
+I took a breath before saying,
+
+
+
+"Actually, what I was gonna say was,\`What do you want, Arthur? And be quick about it”
+
+
+
+His smile never faltered even while I tried to sound as straight and tough as I could. 
+
+
+
+“I want to talk to you, as much as I can, Tony.” My name in his mouth felt so wrong so I tried to distract myself as I glanced up to the hockey game on one of the old box TVs.
+
+
+
+My focus stayed on the game and my drink even as he continued
+
+
+
+“What is your plan for life, Mein Kleiner?”
+
+
+
+I let out a chuckle without meaning to. I was getting so tired of adults asking me what I was studying and what I wanted to do with myself, I guess now I only have to deal with one of those annoying-ass questions.
+
+
+
+“Ha, I have no idea anymore.” I said mid sip of my beer, I spoke softly into the glass making my own voice reflect back to my ears. “I think just… get a job”
+
+
+
+Arthur let out a loud chuckle making his face redden. I was getting ready for the typical lecture I'm used to from my parents. 
+
+
+
+“And pray tell, what job would you get without an education?”
+
+
+
+I remember how offended I felt and how much more on guard I felt like I needed to be. I turned my attention back to him and spat out 
+
+
+
+“Excuse me? Who said that I'm not educated?” looking back at it maybe he was testing me or maybe just fucking with me, trying to make me see that I was running out of options.
+
+
+
+A wide thin grin appeared under his dark brown moustache and his voice came out in a smooth slimy way that made my skin turn cold. 
+
+
+
+“Nein, nein, little one, you misheard. I meant, since you are no longer in college”
+
+
+
+I never mentioned that I was in college, let alone that I had just been kicked out. I looked into his eyes to see any hint of humour but I was only met with his green eyes staring back at me as he grinned.
+
+
+
+“W-what the hell do you mean?” I struggled to steady my voice, my speech came out cracking and louder than I meant it to.
+
+
+
+Arthur's big meaty hands gripped onto the side of the table as he looked at the bartender and the other patreons, checking to see if they were watching us. Unluckily for me, the other customers were too busy day drinking to care if we were there and the bartender was repeatedly polishing the same glass as he probably daydreamed of being anywhere else.
+
+
+
+Arthur's eyes darted from the bar back to me, for the first time I saw his grin falter as a glimmer of anger flashed in his eyes for a split second. He forced his grin as he spoke through his teeth, 
+
+
+
+“Quiet, Mein Kleiner. Please, don't be so loud”.
+
+
+
+My voice caught in my throat, my next words came out so choked and shaky that they were unrecognizable to myself,
+
+
+
+“I- I never- how did you know?”.
+
+
+
+Arthur chuckled out a fake laugh before stroking his chin and saying, 
+
+
+
+“How was I to know you're down on your luck? Why, it's all over your face. You're a young man kicked to the road … but you will rise again, no?” He took another gulp of his beer and he laughed to himself “Ha, such a great story.” I felt faint and nauseous as he looked proud of himself.
+
+
+
+I stood up and grabbed my bag; I had enough of this and I was ready to leave. As I move I said,
+
+
+
+“Okay, fuck this.” but that's when I felt Arthur’s hand wrapped around my wrist and pulled me back to sit down.
+
+
+
+A pain shot through my shoulder before my brain could register the shock.
+
+
+
+A pained yelp tried to escape my lips but was quickly silenced when Arthur leaned forward and focused his mouth onto mine.
+
+
+
+I didn't have any time to react as I felt his tongue drive past my lips and run along my teeth. When you grow up gay in a small town kisses are few and far between. There had been practice sessions on my pillow, a summer fling and now this. The season of my first kiss was the happiest time in my life but filled with hurt emotions and bullshit feelings getting in the way. I would instantly take all of it back if I could wash the taste of gum disease and import beer out of my mouth.
+
+
+
+He had his hand on the back of my neck stopping me from pulling away. His warm slimy tongue slid against the inside of my cheek, I could feel a line of drool roll down my chin as he smashed his mouth into mine. I was so shocked by the feeling that it took me a while to think to bite his tongue off but before I could he pulled away, his saliva and the smell of his rotten teeth still prevalent between us.
+
+
+
+From my right the bartender clears his throat loudly, annoyed. His eyes stayed down as he kept polishing the same glass. I saw a quick look of tired disgust on his face. 
+
+
+
+“Hey, take it to a hotel, you two. This isn’t a bathhouse” His words were like a stab to the stomach, for a split second my main worry wasn't the man kissing me but the fact that I was seen with another man, that even if Arthur left and wasn't there that they would still look at me like I was some disgusting deviant.
+
+
+
+I wanted to say something to him, scream, yell, throw my glass at the bar, anything to get his attention so he could fucking help but Arthur grabbed my chin, forced my head to the side so he could talk closer to my ear.
+
+
+
+What he said next turned my blood cold and made my heart lurch into my throat. He could have threatened my life, could have said he'd kill me if I screamed or promised to assault me but instead he said something much worse and personal.
+
+
+
+“u/Str8\_from\_Sodom” my Reddit username.
+
+
+
+My mouth opened and closed over and over as my mind tried to come up with something to say, each time making my tastebuds relive the flavour of the forced kiss. I wanted to say something smart or clever, deliver some crushing insult that would make this creep shrivel back away from me. I hadn’t even realised yet that I was exactly where he wanted me to be for this conversation.
+
+
+
+“...why?” That was all I was able to get out of my mouth as Arthur lowered me back down into my seat, moving my small frail body like I was nothing but a doll he could play pretend with.
+
+
+
+Arthur held me in place with one of his huge clammy hands under the table while the other hand stayed wrapped around his drink. His forced smile appeared and disappeared as he spoke. 
+
+
+
+“”Why” what do you mean … “Why”? Y-You know why, dear. We have big plans, W-we have talked about them, yes? Do not tell me you have f-forgotten them.” his voice which was once smooth and slimy was now pitchy and as wavy as his breaking smile.
+
+
+
+“Do. not .tell. me. you. have. Forgotten.” he snarled as he held my arm down, his dull dirty nails digging into my wrist and leaving crescent shaped marks of hidden anger.
+
+
+
+“S-Stop, just let me go, please. I-I’ll go, I’ll go and I won’t tell anyone and y-” I mumbled just loud enough for him to hear before he leaned in and cut me off. 
+
+
+
+“Tell? Tell whom, your police, your parents? W-Why would you ever want to go and spoil our fantasy?”
+
+
+
+“What fucking fantasy, what are you talking about?” I mumbled in a low voice as I checked to see if anyone was listening in or watching us. I glanced at the bartender to see he was busy watching the hockey and wiping the bar with his back turned to us. He had already dismissed me once as some kinda street-walking queer I doubt he'd even look our way again.
+
+
+
+Arthur's grip on me tightened but this thumb rubbed in circles over my veins in what was supposed to be a soothing way. 
+
+
+
+“You know damn well, Tony. We have talked for hours, you said you loved my ideas, you wanted to make me happy. I could make you more money than you know what to do with. You will never have to worry about making those disgusting videos ever again”
+
+
+
+“Yes, exactly. Videos, that's all they were, okay?” I bit back “I don't want anything to do with yo-”. I was cut off by Arthur twisting his grip on my wrist and his thumb driving so roughly into my arm I swear I could feel him touch the space in between the bones. 
+
+
+
+His nail just about broke skin when he growled 
+
+
+
+“Shut your fucking mouth. I am offering everything we've both ever wanted. Why hurt me now.”
+
+
+
+I tried to twist out of his grip but he held on tightly. In my pain I didn't notice his other hand move across the table until he was already holding my chin and stroking right below my bottom lip. I tried my best not to breathe through my nose or open my mouth just in case he took it as an invitation.
+
+
+
+“Why turn away from this? I don't want to have to tell people about you, Tony. Many, many people would like to know who is Sodom… who makes those … wretched videos, why don’t I tell them, hmm?” he said with a shit eating smirk, he was manically bouncing between struggling to control the situation and what sounded like practiced lines from a script.
+
+
+
+When I stopped struggling and took a few breaths his grip on my arm loosened but his dense digits stayed firm cupping my chin. I try one last time to reason with him, 
+
+
+
+“A-Arthur, just tell me. What do you want?”
+
+
+
+ As soon as the words left my mouth I regretted them as his smirk fell once again.
+
+
+
+“Stop!” he spat at me through gritted teeth. He quickly turns around to the bar to see if anyone reacted to his outburst, when he realised, like I did moments ago, that no one in here cares enough to do anything his smile returns.
+
+
+
+“You need to stop asking that question, Mein Kleiner; you know exactly what I want. Now, finish your drink, we must go.” he said through a fake confidence in himself.  
+With my one free hand I slowly raised my glass to my mouth, my hand shook so badly that the glass rattled against my teeth, the rest of my beer went down my throat flat, warm and tasting of copper.
+
+
+
+We walked out of the bar, very close together, so close that I could feel the sweat coming from Arthur's body rubbing against my back. If this was an action movie a gun would be pointed at the bottom of my spine but what was there instead felt worse, even more unstable and unsafe, Arthur's cold clammy hand pushing me out the door, stopping me from slipping behind him.
+
+
+
+His free hand slips into my jeans pocket, his thick fingers wrapped around my phone and slipped it out smoothly while pushing me through the door.
+
+
+
+As soon as I felt the cold air outside hit my face I turned on my heels and tried to run away. I turned left to make a sprint for it but was grabbed by Arthur effortlessly, his fingers digging into my shoulders as his right hand stayed still on my lower back.
+
+
+
+“Come on now, Tony.” he said in a tired almost disappointed voice as if I was a child protesting his bedtime
+
+
+
+He pushed and guided me down the empty road until I was standing next to a parked car. I didn't get a good look at the front of the car but I could tell it was a high end techy kind of car. Its tinted front window was covered in muck, dead flies and half wiped filth while the tires and the lower half of the car were covered in a film of road salt and dried dirt seemingly sticking onto every surface it could.
+
+
+
+Arthur pushed me up against the side of the car and for a second I was worried he was going to spin me around and try to kiss me again. I was relieved when he took out his phone. I watched as his stumpy fingers tapped away at the greasy uncleaned screen. After a few presses followed by a short beep the handles for the door unlocked and popped out.
+
+
+
+My dread quickly returned when Arthur opened the door and I was pushed into the passenger seat. My feet and ass collided with old takeout bags of different sizes and brands that covered the floor and seat of the flashy car. Once I had landed from the push the smell of salt, grease and feet attacked my senses.
+
+
+
+I tried to hold the door open as I could get back out but Arthur blocked my path. The car was slammed in my face, he pressed his fingers to his phone screen once again making the door lock behind me with the same short beep that opened it.
+
+
+
+I looked over the console of the car and its many buttons and black sleek screens.  
+I tried to hold down on the screen but only managed to leave my own sweaty fingerprint to the collection on its glass surface. I looked around until I found an emergency call button normally reserved for crashes or if your car broke down. I could hear Arthur grunt and puff as he moved around to the driver seat from the road.
+
+
+
+I pressed the call button only for it to come loose and fall to the ground, my eyes followed it until it rolled and landed under a pile of burger wrappers. I looked back up to see nothing but black empty space and cut wires where the button had been.
+
+
+
+Another short beep could be heard from the door to my left before Arthur opened the door and sat down with an exaggerated sigh. His seat was pushed back far as he settled in and pulled his seatbelt into place.
+
+
+
+As soon as the seatbelt clicked into place the car awoke with clinical white LEDs lighting up all around the front console. Arthur pressed his pudgy thumb to a screen, after a few seconds we started moving down the road. Before I even had time to realise what had happened we were halfway down main street and heading to the road out of town.
+
+
+
+–
+
+I'm running out of space to write this but I need to get this out quickly. I don't know when he's going to get back. I'll try to be quicker with the Next Part.
+
