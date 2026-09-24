@@ -1,0 +1,25 @@
+Part 1: https://www.reddit.com/r/nosleep/s/5gGarIzUax
+
+My blood turned to ice. Not again. I slowly turned my head in the dark, squinting. I couldn't see a damn thing, obviously. But the worst part was that I couldn't hear my family anymore either. They were literally right here a second ago—my parents asleep, my older brother losing his mind over *League of Legends* like he does every Friday night, and my sister playing *Roblox*. Nothing. It was like they had just... vanished.
+
+And then I heard it again. Three knocks. Inside the house. Coming from the kitchen, just a few steps away from where I was standing.
+
+I stood up, trying to calm down, but I started hyperventilating. I was sweating so hard it felt like a fountain. I backed away, keeping my hands out so I wouldn't smash into a wall in the dark, and slid into my sister's bedroom right next to the living room. I knew I was there because I felt her pink, warm blankets and a bunch of her plush toys on the floor. But there was no one left to use them.
+
+I shrank into the corner, burying my face in my knees, trying to quiet my breathing. My teeth were literally chattering against each other. I felt small. Pathetic.
+
+I could hear it walking around the house. Actually, not walking—dragging itself. Like flesh on a cold tile. I heard it in the living room, where I had just been. Then inside my bedroom, a breath away from where I was hiding. And it kept making that distinct *knock-knock* sound against the walls as it moved. Against the glass of a nearby window. Against the wooden table on the living room. It sounded wrong. Utterly wrong.
+
+What the hell was that thing? What did it want? Why me? My mind was racing while I just sat there shaking in the dark.
+
+I don't know how many hours passed. My shirt was soaked from the sweating, hair stuck to my forehead, eyes red from crying. I just waited for that dragging sound to come through the bedroom door, almost wishing it was over. I was certain I couldn't take more of this. My throat was burning up from holding my breath for so long, my lips were dry, my jaw hurt from clenching it all this time.
+
+But eventually, the noise stopped. The silence that came after was so heavy my ears were literally ringing. It was that absolute, dead quiet where you can hear your own heartbeat thumping inside your skull.
+
+I needed to see a clock, a light, anything. I finally forced myself out of the corner and looked out the window.
+
+There was no sunrise. It still looked like my neighborhood in Buenos Aires, but wrong. The hospital sirens down the street never came back on. I looked up at the sky, expecting the usual glow of the Argentine sky, but it was pitch black. No stars. And the moon? I couldn't see it anywhere. There was just a completely black, empty circle where it used to be.
+
+It looked exactly like an empty eye socket. Like someone had ripped the moon right out of the sky and forgot to put it back.
+
+I'm staring at my screen right now, trying to write this, and...it's still 1:00 AM.

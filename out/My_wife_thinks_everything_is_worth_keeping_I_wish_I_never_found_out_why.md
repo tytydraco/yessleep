@@ -268,7 +268,7 @@ I closed the book carefully, wincing as the items inside creaked under the new p
 
 Tucked at the end was not a bound journal, but an overstuffed portfolio, a name written in permanent marker along its folded edge. The letters buckled where the contents had cracked and warped the thick paper.
 
-RODERICK**.**
+RODERICK.
 
 Like moving through a dream, I saw myself reach for the folder and place it on the carpet in front of me. My vision grew blurry, and I put a hand firmly against the smooth front flap in a futile attempt to keep the dizziness at bay. 
 
@@ -278,7 +278,7 @@ I turned the page. A movie ticket from the first time Rod came to visit after I'
 
 Me.
 
-Anna had gone through the little collection of my life I'd managed to keep and pulled out every place that Rod touched it. 
+Anna had gone through the little collection of my life I'd managed to keep and pulled out every place that Rod touched it.
 
 The styrofoam coffee cup I'd brought home after Anna pushed me to meet him a few weeks ago.
 
