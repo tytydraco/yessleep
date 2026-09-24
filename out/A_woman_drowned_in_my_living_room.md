@@ -124,7 +124,7 @@ I closed my eyes. 
 
 His howl became wet. 
 
-Then finally, mercifully, 
+Then finally, 
 
 it was over. 
 

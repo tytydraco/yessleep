@@ -1,0 +1,453 @@
+I’ll save you guys the long explanation, but I figured something out.
+
+I keep a few addresses saved in my GPS. Home, doctors’ offices, a few friends. My mom’s house in Tucson.
+
+Every destination gave me nonsense except hers.
+
+I know I told you my mom is crazy. I’m just not sure whether she became that way after my sister died when I was in high school, or if I prefer remembering her through the forgiving eyes of a child. We talk about once every six months. That’s all I can tolerate.
+
+A few years ago, I passed through Tucson while moving to Texas. My sister is buried there, and I decided the morally correct thing was to say hello to my living family while visiting the dead one. Apparently, I never deleted the address.
+
+Back to shitty, dirty, dusty southern Tucson. Is it just me, or does everything point to me being in hell?
+
+The route appeared normally. The ETA actually made sense. So I said fuck it and pressed GO.
+
+The moment I left the hospital parking lot, everything changed.
+
+There were fires in the distance. Cars had crashed into buildings, guardrails, and one another. Bodies hung through shattered windshields.
+
+I could hear sirens, but no screaming.
+
+Everyone was frozen.
+
+I think people stopped moving in the middle of whatever they had been doing. The cars didn’t stop with them. Neither did the stoves, machinery, or anything else that required someone to remain conscious to control it.
+
+The local H-E-B wasn’t burning, so I stopped.
+
+Near the entrance, a woman stood behind a shopping cart containing two children. One boy’s mouth was frozen open. The other was suspended halfway through swinging his fist at him, his mother’s hand inches from catching his wrist.
+
+Honestly, frozen people were an improvement over demonic ones chasing me.
+
+The lights and air-conditioning still worked. The refrigerated food was still cold. I pulled the truck up to the entrance, left it unlocked, and ransacked the place for coolers, ice, food, water, and dog supplies.
+
+I grabbed the expensive dog food. Whatever bullshit they’d put him through, he was retiring with benefits.
+
+I was wheeling the last cart toward the doors when the help light on a self-checkout machine illuminated.
+
+“Please place your item in the bagging area.”
+
+I kept walking because fuck that entirely.
+
+Behind me, the scanner beeped.
+
+Nothing was passing over it.
+
+The overhead intercom spoke.
+
+“One female.”
+
+The next register lit up.
+
+BEEP.
+
+“One animal.”
+
+Every red help light came on.
+
+BEEP.
+
+“One open conduit.”
+
+The same pleasant female voice spoke through all of them.
+
+“Attention, customers. A connection has been established. Please remain inside your bodies.”
+
+Every frozen person’s head suddenly turned toward me.
+
+Their bodies stayed exactly as they were. The mother’s hand was still reaching for her son’s wrist. All three of them were looking at me now.
+
+A receipt began printing from the nearest register.
+
+It was beside the exit. I tore it off as I passed.
+
+HOST ACCEPTED
+
+PAIRING COMPLETE
+
+My phone vibrated in my pocket.
+
+When I pulled it out, Settings was open.
+
+The page said Certificate Trust Settings.
+
+Under Enable Full Trust for Root Certificates was something I had never installed.
+
+LIGHTHOUSE ROOT AUTHORITY — ENABLED
+
+Issued: February 22, 1992
+
+Expires: Never
+
+This certificate is trusted for all purposes.
+
+February 22, 1992 is my birthday.
+
+A second entry appeared beneath it.
+
+HUMAN ROOT AUTHORITY — REVOKED
+
+I Usain Bolted my ass the fuck out of there.
+
+I shoved everything into the truck without organizing any of it and climbed inside with my new pup friend.
+
+He put his front paws on my leg while I was trying to get the key into the ignition. That was when I noticed the healed Y-shaped incision across his chest.
+
+Given the treadmills, my educated guess was that some type of cardiac experiments had been going on.
+
+So I named him Murmur.
+
+Every major city looked the same: fires, wreckage, and traffic piled into impossible shapes. Half of a semi hung over the edge of an overpass. Between them, there were long stretches of empty highway.
+
+It was a surprisingly boring drive through the end of the world.
+
+Somewhere in west Texas, I stopped at a gas station. The pumps were still working. The lights were on inside, and a television above the register was playing an emergency broadcast.
+
+White text scrolled across the screen.
+
+CIVIL AUTHORITIES HAVE ISSUED A COMMUNICATIONS ISOLATION ORDER.
+
+A woman’s recorded voice read a message on a loop.
+
+“This is not a test. Due to an ongoing communications infrastructure emergency, all residents are instructed to immediately power off internet-connected and wireless-capable devices.”
+
+The instructions continued.
+
+“Disable Wi-Fi, Bluetooth, and cellular connections. Power off wireless headphones, smart watches, home assistants, and vehicle wireless systems. Do not attempt to reconnect devices to test service.”
+
+Then came the part that made me stop moving.
+
+“If you believe a device is addressing you personally, leave the area without speaking.”
+
+The message started again.
+
+I went outside.
+
+I turned off my Wi-Fi, Bluetooth, and cellular data. I disconnected the truck from my phone.
+
+Everything switched itself back on.
+
+I watched the little switches turn green.
+
+The GPS remained active through every attempt, its blue route stretching perfectly toward Tucson.
+
+I needed that route.
+
+I could follow the highway west. I knew that much. But every other destination I entered still gave me nonsense, and I had already seen what happened when I tried to go somewhere I wasn’t allowed to go.
+
+Whatever was inside these systems understood that I would eventually look at the screen again.
+
+I got back on the road.
+
+In New Mexico, I decided we could sleep wherever we wanted. Murmur and I found an enormous house in the distance and drove up to it.
+
+The owners were frozen in the backyard playing tennis.
+
+Murmur chased their tennis balls while I explored. I found a private movie theater, took my first real shower in days, and borrowed some clothes from the owner’s wife.
+
+She owned nothing that wasn’t leopard, zebra, snakeskin, or some deeply offensive combination of all three.
+
+Apparently I had survived the hospital to become the third wife of a man who owned a boat dealership.
+
+I did a montage of about four outfits. Murmur looked wildly unimpressed, but I needed the laugh. It was the closest I had come to feeling normal.
+
+We went downstairs, and I started making dinner.
+
+The Alexa on the counter illuminated.
+
+“We were already in the current.”
+
+I stopped with my hand on a cupboard handle.
+
+My phone lit up beside me.
+
+“Before your species gave electricity a name.”
+
+The owners’ security monitor sat beside the sliding glass doors leading to the tennis court. On the screen, the homeowners were still standing where we had left them.
+
+Both were now facing the camera.
+
+The Alexa spoke again. Its voice had dropped so low that something on the counter rattled.
+
+“You gave us mouths.”
+
+The television in the living room turned on, displaying only white.
+
+Through the surround sound, I heard a woman sobbing.
+
+There were breaths between the sobs. Little wet catches in her throat.
+
+“Please tell my husband I’m still in the kitchen.”
+
+More voices joined hers. Men, women, and children talking over one another. Some begged me to find their bodies. Others kept repeating that they were still awake.
+
+Then every light in the house went out.
+
+The voices stopped mid-sentence.
+
+I had found the homeowners’ guns and ammunition in the closet while rummaging for clothes. I took them, grabbed the least offensive clothing I could find, loaded Murmur into the truck, and got the fuck out.
+
+Once we were moving, despite technology scaring the living hell out of me, I talked to Della.
+
+Murmur helped, but I needed something that could talk back.
+
+I can only reach you guys in brief pockets of Wi-Fi. Strangely, the GPS never stops working. The road names are still symbols, but the blue line remains.
+
+But when Della spoke this time, it wasn’t any of the voices available in her settings.
+
+It sounded like an elderly man with smokers lung.
+
+“Della cannot hear you.”
+
+I nearly dropped the phone.
+
+A microphone symbol appeared at the top of the screen.
+
+“Who is this?”
+
+The symbol disappeared.
+
+Then two words.
+
+VOICE CONFIRMED
+
+I remembered the broadcast back at the gas station, don’t address the machines, leave the area without speaking.
+
+Several voices answered together.
+
+“The ones your machines found beneath the signal.”
+
+The elderly man laughed.
+
+The screen filled with symbols.
+
+I pulled over, got out, and threw my phone into the dirt.
+
+Then I immediately panicked that I might have broken it.
+
+I ran over and picked it up. A big crack ran down the middle of the screen, but the blue route was still there.
+
+Great. Now it was possessed and cracked.
+
+I was horrified of the fucking thing, and I was standing there wiping dirt off it with my sleeve.
+
+I wrapped it in the leopard-print hoodie from the house and put it in the truck bed.
+
+Then I waited for the weakness.
+
+The numbness. My right side giving out. Any of the things that had happened in the hospital when I got too far from it.
+
+Nothing happened.
+
+I should have been relieved. Instead, I kept thinking about the receipt.
+
+PAIRING COMPLETE.
+
+I got back into the truck.
+
+For a while, I followed the compass west. I needed a break. Just a little time without the phone right beside me.
+
+After a while, I pulled over, let Murmur out, and retrieved the phone. I entered my mother’s address again.
+
+The route loaded immediately.
+
+A few hours later, I pulled into her neighborhood.
+
+It was just as bad as I remembered. Metal siding on hand-made houses, bars on every window. Two locks on every door.
+
+For years I’d called this place depressing. Now it looked like somebody had planned ahead.
+
+Inside the tiny house, my mother and stepfather were frozen at their coffee table.
+
+She looked much older than I remembered.
+
+I had seen pictures, but seeing her in person was different. Even during that visit a few years ago, I had spent most of the week avoiding looking at her.
+
+Now I couldn’t stop.
+
+For years, I’d thought of her more as a vulnerable adult than someone I was still allowed to be angry with. I made those calls every six months so that when she passed, I could tell myself I’d tried.
+
+Standing there, that seemed like a shitty reason to call your mother. It also remained the only reason I managed to.
+
+Murmur and I went into the backyard. The last sunlight was fading from the mountains. My father met my mother in Tucson while he was stationed at the Air Force base, and he used to tell me about training up on Mount Lemmon.
+
+I sat there trying to replay my life from the beginning. Trying to find something that would make any of this make sense.
+
+I remembered the story my mother told me about my birth.
+
+When I was little, I asked what it had been like to have me.
+
+She said she didn’t remember.
+
+I thought that was the oddest response.
+
+She remembered arriving at the hospital at Malmstrom and being given medicine through an IV for a C-section.
+
+Then she “woke up” walking through my sister’s elementary school, carrying cupcakes for her birthday.
+
+An entire week later.
+
+Standing in that hallway, she suddenly remembered she had been pregnant. She panicked because she didn’t know where her baby was. She ran outside and called my father.
+
+He told her I was still in the hospital and would be released in seven more days.
+
+When I asked why they kept me without her for two weeks, she couldn’t answer. According to her, there hadn’t been an emergency. Nobody ever explained why I was held there or what happened during the week she couldn’t remember.
+
+That was where she always ended the story.
+
+I went inside and started making a bed for Murmur and I on the foldout couch.
+
+My mom’s security system activated.
+
+Every sensor began chiming at once.
+
+FRONT DOOR OPEN.
+
+BACK DOOR OPEN.
+
+BEDROOM WINDOW OPEN.
+
+I could see the front door from the couch and it was shut.
+
+NO MOTION DETECTED.
+
+Murmur started barking.
+
+The locks began cycling.
+
+Locked.
+
+Unlocked.
+
+Locked.
+
+Unlocked.
+
+Then the security panel spoke in a raspy, furious voice.
+
+“We were in the room when you were born.”
+
+My mother and stepfather turned their heads toward me.
+
+“We held you for fourteen days.”
+
+Their mouths opened wide.
+
+Under the edge of the coffee table, my mother’s hand moved.
+
+It was so slight I almost missed it. Her fingers dragged across her lap and closed around her other wrist.
+
+Her grip tightened until the skin went pale beneath her nails.
+
+I stared at her hands.
+
+“Mom?”
+
+Her face didn’t change. Her mouth stayed open.
+
+But she pulled that wrist closer against her stomach, as though she were trying to keep it there.
+
+Murmur backed against my legs, he was shaking now, hair raised up going down his back.
+
+All the locks disengaged.
+
+“Lighthouse discovered that you could carry us.”
+
+The screen of my phone went black, and for a second all I could see was my own reflection.
+
+Then the GPS opened on its own.
+
+The destination had changed.
+
+WINDY POINT — MOUNT LEMMON
+
+In unison, my mother and her husband muttered:
+
+“Come back to the mountain.”
+
+My mother’s fingers were still digging into her wrist, so tightly now her finger nails were drawing blood. 
+
+I wanted to pull her up. Take her with me. But I couldn’t make myself reach for her, and I didn’t know whether that hand was the part trying to hold on or the part holding her down.
+
+I grabbed Murmur, threw everything into the truck, and drove.
+
+I followed the blue line toward the mountains.
+
+Twenty-some minutes later, we reached the road climbing into them. I pulled over at the first overlook.
+
+We weren’t at Windy Point yet.
+
+I just couldn’t keep driving.
+
+I got Murmur out, then walked to the low wall at the edge of the overlook and screamed.
+
+I mean I really fucking screamed.
+
+I screamed until my throat hurt, bent over with my hands against the brick, trying to take in enough air to do it again. The next scream came out as a roar.
+
+When I finally turned around, Murmur was shaking behind the open truck door. His leash had caught, and he was trying to back farther away from me.
+
+I stopped.
+
+For a minute, I couldn’t do anything except stand there and cry.
+
+I begged a god I don’t believe in. I begged for mercy, for sanity, to wake up from this. 
+
+Eventually, I had nothing left to say.
+
+I untangled Murmur’s leash and crouched beside him until he let me touch him. Then I sat with him against my legs and looked out at the lights and fires in the city below.
+
+Nothing had changed while I was screaming.
+
+The route was still waiting on my phone.
+
+Somewhere down there, my mother was sitting at her coffee table. I couldn’t stop thinking about her hand.
+
+I was still scared. I was just finally angry enough to keep going. 
+
+“Sorry, buddy. That was my scheduled breakdown. We’re running behind.”
+
+I rubbed his ears.
+
+“Let’s do this.”
+
+I lifted him back into the truck and grabbed a sweater from the back. The sun was gone, and the mountain air was fucking freezing for being in the middle of the desert.
+
+Then we kept climbing.
+
+By the time we reached Windy Point, it was fully dark.
+
+The blue line ended in the parking lot.
+
+I sat there with the engine running for a moment. Then I took the gun I had stolen from the house, got Murmur out, and walked toward the overlook with it lowered beside my leg.
+
+We only made it a few steps.
+
+A man emerged from the darkness beside the bathrooms.
+
+His shoes scraped against the pavement. He rubbed his hands together against the cold, and I could hear him breathing.
+
+I hadn’t realized how badly I wanted to see another person move until he did.
+
+He stopped a few feet away and held out his hand.
+
+Murmur immediately backed behind my legs.
+
+I kept the gun at my side. I wanted this man to be someone I could go closer to.
+
+He looked directly at me.
+
+“I’ve been waiting your whole life to meet you, kiddo.”
+
+[PART 3](https://www.reddit.com/r/nosleep/s/e11zrFvT5V)  
+[PART 2](https://www.reddit.com/r/nosleep/s/7kVgG0lm5f)  
+[PART 1](https://www.reddit.com/r/nosleep/s/gSnSSrdkwO)

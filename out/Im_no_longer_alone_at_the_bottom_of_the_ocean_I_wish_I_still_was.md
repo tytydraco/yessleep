@@ -1,0 +1,107 @@
+[PART ONE](https://www.reddit.com/r/nosleep/s/7b4bwfU9Hi) 
+
+In the brief moment of silence after she revealed herself to me, the ever familiar sound of the habitat’s creaking walls echoed amongst the water. 
+
+You’ve never felt that small until you’ve seen something that big. I couldn’t even see all of it, just the mouth, the head. 
+
+But I knew she was looking at me. The mouth was bigger than my wing span, this behemoth. A creature so large that its species is a synonym for enormous.
+
+“Can you see me now?” She said, “I’m sorry I can’t quite see you.”
+
+Something deep within a feeling known only to the apes that came before us erupted. My heart beat felt like thunder rolling in. I wanted to run but where to? The bathroom that stunk of half digest hashbrowns, the living quarters next door? Anywhere I could go would still be here, in her home. Her territory.
+
+*“Why is she talking in that voice?”* I thought.
+
+“It seemed warm.  loving. Peaceful.” She said, in Sandra, my dead wife’s voice. The words echoed through my mind like ripples in a shallow pool. 
+
+“You heard that?” I asked, out loud. 
+
+“Yes and that too!” She said, if she wasn’t physically unable to, I'd say it seemed like she was smiling. “You can speak however you’d like! I can hear it, please don’t worry.”
+
+“Are you choosing to speak in that voice?” I asked slowly sitting down.
+
+“Yes! I am. I can chan-” she started before I cut her off.
+
+“Then stop. Choose someone else.” I snapped back.
+
+Silence for a moment.
+
+“How’s this.” She said in the voice of my civil engineering professor.  
+   
+“It’s… fine.” I sighed and took a swig from the bottle.
+
+“That’s good. Would you mind if I swam a little closer? I can’t see you if I float here. I won’t get too close. I promise.”
+
+“Sure.”
+
+She turned in the water, with the flare of a ribbon twirling in the wind. For a moment I saw the top her back. Completely smooth, I’m no whale expert. But I think blue whales are supposed to have blow holes. She didn’t. 
+
+She slid back into view, now in side profile, her left eye squinting slightly at me.
+
+“Hello.” She said. “You are adorned with a marking upon your left breast. Does it have a meaning?” 
+
+“Do you even know what meaning is? What a marking is? How do you know that this…” I tapped my name badge. “That this isn’t part of me.”
+
+“I know far more than you’d think.” She said carefully.
+
+Silence on both ends.
+
+“It’s my name. Herman.” I relented.
+
+Whale song, beautiful, slow, like underwater violins.
+
+“Herrr mannnnn.” She said enuciating every syllable in time with whale song. “It sounds nice.”
+
+“What are you?” I blurted out.
+
+More silence until the comms started to buzz! I rushed to the adjacent room. “Hello? Hello? Can you hear me?”
+
+Nothing, just me and the whale. I’ve already certainly lost part of my sanity why not entertain the idea until the crew comes to get me. 
+
+I sat back down in the reverse aquarium, the whale was still there. 
+
+“You asked what I am, Herman. I’m a whale.” She said as if it’d ease my mind.
+
+“Just a whale?” I asked.
+
+“I’m as much a whale as you are Herman.” 
+
+“The fuck does that mean- Why talk now? Why throughout history are whales making first contact now. Why?” 
+
+“I haven’t always been able to speak… communicate.” 
+
+“What happened?”
+
+Her eye darted away to look at something beside the habitat, within the water. 
+
+She let out a short grunt of whale song, then a slightly longer one. To my surprise, it was met with shrill half croak half cackle barely audible through the habitat wall.
+
+“What’s happening?” I asked.
+
+She kept her gaze fixed on whatever was outside the habitat and responded with another note of whale song.
+
+“I have a friend here. Another creature of the ocean who’d like to speak with you. About something very important.”
+
+“What.”
+
+“They can speak with you, but they’ll need my help… it’ll be like using your radio! Except I’ll be the radio.” She said with excitement in her voice.
+
+“What are they?” Before I could finish the thought, what looked like a dolphin swam into view. It was a dolphin, really it was. Bottlenosed, a flipper tail and grey skin. But it was lumpy? Like a wallet and phone in a set of tight jeans. Bits of it didn’t fit quite right.
+
+It seemed like it noticed my stare, it stared back. It’s black button eyes looking beyond me.
+
+“My friend will speak with you now.” She said, her eye looking to the dolphin.
+
+He started with a few clicks that warped into speech in my head. In mick’s voice “I apologize for this whale's lack of haste in her speech. I assure you that what you must do is of utmost importance.” 
+
+“Why do you look so… different?” I asked.
+
+“I’m the prime of my pack. The longest changed.” He boasted. 
+
+“Sure.”
+
+“I speak to you Herman. As we ask for a moment of servitude from you.”
+
+“What servitude then.” I asked, assuming it was to tell the oil barons to quit killing the ocean or for us to stop coming down in our loud heavy machinery but instead.
+
+“There’s an opening to your left, a door that you enter through. Go. Open it, now.” He demanded.
