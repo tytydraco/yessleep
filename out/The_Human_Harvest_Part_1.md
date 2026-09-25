@@ -1,0 +1,83 @@
+“Daaaaad cmon! We’re going to be late!” Yell my daughter from downstairs. “Just a minute!” I shakily replied while hiding away in the bathroom. She wants to be a dancer just like her mother was. “You should see her now, Sadie. She looks just like you out there on stage.” I whispered shakily to the frayed photo in my wallet. 
+
+It’s been 5 years since Sadie had passed. A freshly legal and drunk 21 year old boy had been out driving that night. I can’t remember the muted questions the detective asked me as I stared emptily at my dead wife’s corpse. Pinned between a tree and his truck. It didn’t even look like her anymore. Her arms bent in wrong angles. Her head gashed and swollen so big I didn’t even recognize her face. The only way I was able to identify her was from the smell of her perfume, and the small tattoo on her wrist. “Laila” it spelled. The name of our daughter. I had the same one on my chest. The sweet and safe smell of my wife tainted by the bitter smell of curdled blood. That was the last memory I had of her.
+
+\*BANG BANG BANG\*
+
+“Dad!!! I don’t want to miss my recital!”. The bang on the bathroom door snapped me out of my dissociated trance. I gave the toilet a flush in hopes she wouldn’t suspect me of crying. I wiped the tears from my face and headed down the stairs. 
+
+“Okay little lady. Water?”
+
+“Check!”
+
+“Extra dance shoes?”
+
+“Check!”
+
+“Extra extra big smile?”
+
+(She grinned from ear to ear)
+
+“Check!” She said through her teeth
+
+“Let’s roll!” I shouted. Trying to mask the sadness I was feeling. This was her first recital without a teachers guide on stage with them, and she was very excited. We loaded up the car and set off toward the school. 
+
+The city was clouded with overcast. A little rainy but not too bad. A chilly wind blew through the tops of the trees. It smelled funny outside. The familiar smell of rain mixed with a tinge of some sort of metal. I didn’t think much of it.
+
+“Must be a factory close by” I whispered to myself.
+
+“Dad?” Laila said shakily.
+
+I could tell she was holding back tears.
+
+“Do you think Mom will be watching me?”
+
+The question hit me like a buckshot to the chest. It’s been so hard without Sadie. 
+
+“Of course Laila. She’s always watching us. And I bet you’ll make her so proud” I said while giving her a smile in the rear view mirror. She nodded and smiled back. 
+
+\*HONK HONK\*
+
+I was so wrapped up in making sure Laila was okay that I never realized the traffic jam in front of us. Hundreds of cars all stopped butt to butt in the freeway. Horns blaring, people yelling. 
+
+“Daddy what’s going on? I’m scared”
+
+“Everything’s okay baby it’s probably just an accident” I reassured her
+
+Then we heard it. A loud droning in the sky rang out from all directions. So loud that it rattled the windows of my car. Shaking them so violently that one by one windshields and rear view mirrors began shattering all around us. I quickly covered my ears and made sure Laila was okay. Pulling her away from the windows. 
+
+The sound was gone in an instant. I pulled my hands off Laila’s ears. The palms of my hands stained red. I look down at my shoulders and realized I had been bleeding too. 
+
+“What the hell was that!” I yelled 
+
+Pandemonium ensued. Cars bashing into one another trying to get out. Children screaming for their parents. It was total chaos. Then the droning came again but not as loud. Everyone stopped in their tracks. I looked around to see what was going on. Everyone was looking to the sky.
+
+As I looked up I could see only clouds. But right above us an almost perfect circle was forming. It had a sheen like oil on top of water. Suddenly a beam of semi translucent liquid extended from the hole, right on top of me. It started in my throat. Immense vibrations and pressure coarsed through my body like a limb waking up after being asleep. I couldn’t move. Slowly my body began raising into the beam of liquid. Filling my entire body. My eyes darted to Laila. She was screaming at me from inside the car but I couldn’t hear a thing. I tried so hard to reach out I could feel my own muscle fibers tearing inside my arm.
+
+“Lai…la” I forced as I slipped away from consciousness. 
+
+I came to in an all white room. One bright light was fixed into the ceiling directly above me. Thick semi translucent liquid covered my entire body, forcing me in place on an all white table. I tried to scream but the noise bounced back off the liquid coating. A door appeared out of the wall in front of me. My heart was beating out of my chest. Two tall figures entered into the light. Their bodies form and color ever changing. The liquid substance danced and thrashed into different forms with each step. Changing hues of color in response to each other’s movements.
+
+A thick and dripping tentacle sprouted from one of the two. Sucking in the liquid barrier around me and absorbing it back into its own body. 
+
+“Where’s my daughter! Help! Help!” I screamed so hard I could taste blood. The creatures paying no mind to my pleas. Before I could move the being to my left pinned me down by my wrists and ankles and suspended me above the table. Thick tentacles shot out of the others body. Piercing my skin with ease, I could feel them moving underneath.
+
+“HELP! HEEEELP! Laila!” I screamed 
+
+The tentacles ripped their way out of my sides. Crawling and inching their way up around my neck. They forced open my mouth. Each tendril moving with newly found curiosity. They made their way down my throat, eyes and nose. Studying every texture and detail of my anatomy. The image of my daughter, alone and scared in the backseat was all I could see now. Then the light in the ceiling faded. 
+
+Years later:
+
+I don’t even notice the gashes on my ankles and wrists anymore. The skin had healed and fused itself onto the iron braces. The shackles were a part of me now. We’re chained together in an assembly line of dread. Empty eyes all around me. Our feet creating a dirty, worn down path on the floor. I’d lost count at how many times I’d walked through this corridor. A cream colored hallway that seemed to never end. Muffled screams scattered all around us as we walked foreword. Inch by inch awaiting our turn. 
+
+I don’t know how long I’ve been here. I don’t know much of anything anymore. Every day I stand in line with hopes of seeing my daughter. But I’m not sure I want that anymore. Seeing her here in line would only solidify the fact that she’s being put through the same torment. I don’t think I could handle that weight. Not here.
+
+The back of my head ached and burned. I’m not sure what they did to me, but I woke up with a spout fused to the back of my skull. Eventually becoming a part of me too. 
+
+\*BEEP\*
+
+The line was moving again. I looked up to see that I was next. I could have sworn I was just toward the back of the line. This place is fucking with my head. These things were fucking with my head. I guess that’s how it has to be now. The industrial door unlocked with a rusty pop. Damp air brushed across my body. The smell of sweat and fear filled my nostrils as I slowly made my entrance. Invisible arms dragged me across the floor. Strapping my limbs and head into a chair. Wired but flexible fingers latched to the insides of my eyelids, forcing them to stay open. A screen with flashing colors played in front of me.
+
+ \*tick\*\*pshhh\* I could feel them attach something to the spout in the back of my head. The screen changed from colors to random scenes. Some grotesque, some happy, some sad. I could feel pressure building in my head. Long tendrils like slimy worms made their way through the tube and into my skull. Picking and prodding at every synapse in my brain. When the scenes changed I could feel the tendrils writhe and move. Finding new pathways of information. The scenes changed faster. Snapping and clicking continuously through images and pictures. The pressure built up so heavily I could feel my eyes bulging out of their sockets. Then it all went black.
+
+I woke up in my cell. Chained and shackled to the bottom. A 4ftx4ft metal cage with bars on every side. Stacked continuously up and down on top of each other like chickens waiting for their slaughter. There is no hope. Only waiting until they come to get me again. This is now the human condition. This is their harvest

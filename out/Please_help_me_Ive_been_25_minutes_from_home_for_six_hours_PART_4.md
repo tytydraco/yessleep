@@ -1,3 +1,5 @@
+[PART 3](https://www.reddit.com/r/nosleep/s/Nxbpo5SUfO)
+
 I’ll save you guys the long explanation, but I figured something out.
 
 I keep a few addresses saved in my GPS. Home, doctors’ offices, a few friends. My mom’s house in Tucson.
@@ -360,8 +362,6 @@ Murmur backed against my legs, he was shaking now, hair raised up going down his
 
 All the locks disengaged.
 
-“Lighthouse discovered that you could carry us.”
-
 The screen of my phone went black, and for a second all I could see was my own reflection.
 
 Then the GPS opened on its own.
@@ -374,7 +374,7 @@ In unison, my mother and her husband muttered:
 
 “Come back to the mountain.”
 
-My mother’s fingers were still digging into her wrist, so tightly now her finger nails were drawing blood. 
+My mother’s fingers were still digging into her wrist, so tightly now her finger nails were drawing blood.
 
 I wanted to pull her up. Take her with me. But I couldn’t make myself reach for her, and I didn’t know whether that hand was the part trying to hold on or the part holding her down.
 
@@ -400,7 +400,7 @@ I stopped.
 
 For a minute, I couldn’t do anything except stand there and cry.
 
-I begged a god I don’t believe in. I begged for mercy, for sanity, to wake up from this. 
+I begged a god I don’t believe in. I begged for mercy, for sanity, to wake up from this.
 
 Eventually, I had nothing left to say.
 
@@ -412,7 +412,7 @@ The route was still waiting on my phone.
 
 Somewhere down there, my mother was sitting at her coffee table. I couldn’t stop thinking about her hand.
 
-I was still scared. I was just finally angry enough to keep going. 
+I was still scared. I was just finally angry enough to keep going.
 
 “Sorry, buddy. That was my scheduled breakdown. We’re running behind.”
 
@@ -447,7 +447,3 @@ I kept the gun at my side. I wanted this man to be someone I could go closer to.
 He looked directly at me.
 
 “I’ve been waiting your whole life to meet you, kiddo.”
-
-[PART 3](https://www.reddit.com/r/nosleep/s/e11zrFvT5V)  
-[PART 2](https://www.reddit.com/r/nosleep/s/7kVgG0lm5f)  
-[PART 1](https://www.reddit.com/r/nosleep/s/gSnSSrdkwO)
