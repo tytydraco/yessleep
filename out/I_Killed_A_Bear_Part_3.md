@@ -1,0 +1,407 @@
+[First](https://www.reddit.com/r/nosleep/comments/1we4do4/i_killed_a_bear_part_1/) and [Second](https://www.reddit.com/r/nosleep/comments/1wkcnu0/i_killed_a_bear_part_2/) parts for you all
+
+Hi again reddit. Sorry for the early update. It’s like four AM right now. I can't sleep and I've got mime school in two or so hours so I'm just giving up on getting any. And while I’ve got the free time I guess I’ll just post this anyway since I’d gotten it ready in advance. 
+
+I’m not usually like this. Well I guess it’s not a necessarily uncommon occurrence but it’s not like I’ve got insomnia or anything. It’s the neighbor that’s keeping me up. She’s got this dog and I can hear its bell ringing as she directs him.
+
+It's a puppy. Black with curly hair. I don't know exactly why she gave it the bell. She gives every new puppy she gets a bell on the first night. That happens a lot by the way. Like more frequent than a dog usually lives. She reasons that it's so she doesn't lose the dog in the dark. She has lights in her driveway.
+
+The bell only ever lasts one night anyway. She only ever brings it(the dog) out at night. Several neighbors always confront her the next day. Sometimes I'm one of them. Sometimes my mom comes with me. Actually more times than not she goes without me. But anyway she always puts the bell away after the first night. 
+
+For the longest time I had no idea what she could possibly be doing out there since I typically have better things to do at that hour like trying to sleep. A while ago though my mom told me. We were just sitting in the living room. She was on her phone and I had our cat in my lap. He was purring. I was petting him. 
+
+“You know that lady next door?” she said.
+
+“The one with the dogs?”
+
+“That's the one.”
+
+“What about her?”
+
+“She takes them to dog shows. I just found out. That’s why she’s always out at night. She’s training them.”
+
+“Okay.”
+
+“You know why she gets so many?”
+
+“Does she adopt older dogs?”
+
+“They're always puppies.”
+
+“Is it the breed? Maybe it just doesn't live long. Like a hamster.”
+
+“No. It’s not that either. I looked into it. They live longer than that.”
+
+“Okay. What is it then?”
+
+“Well. I think I do. The shows she goes to are all just for puppies. They don’t let dogs over a year or so old compete.”
+
+“She must have a lot of dogs.”
+
+“You'd think. Ever notice how she only has one at a time?”
+
+“Oh.”
+
+“I think she just takes ‘em to the vet. Puts ‘em to sleep.”
+
+“You sure she's not doing anything else?”
+
+“I don’t know anything else she could be doing. I’ve looked into it.”
+
+“Oh. Wow.”
+
+“You know that one time she brought the bell back real quick?”
+
+“Yeah. It was like a week.”
+
+“She took it to one of those shows. I remember when she came back. It was way faster than usual. They found a deformity in the puppy’s skeleton. Nothing major but it meant it couldn't perform. And I was just like ‘oh boy puppy’ and I was right.”
+
+Ihat's enough of that now. It's all I remember of the conversation anyway. Here's the third letter:
+
+Hi, Judge
+
+Still haven’t heard back from you. Well I guess I don’t need to hear back from you now that I know what I’m doing. Though I can hardly say this is an update. The bear hasn’t come by since I wrote you last. I must’ve scared him off real good. That sounds about right.
+
+And I’m not writing this letter to talk about the bear anyway. It’s just I’ve had this awfully strange experience and I just can’t do anything with it in my brain but get it out somewhere. It just so happens that this letter was my only option Judge.
+
+Technically it all started this morning when I opened my fridge and realized how very few groceries there were. In total I really only had enough for breakfast. That usually doesn’t happen but I’d totally forgotten this week with the whole bear thing and whatnot. I had a bowl of cereal and decided I might as well get some groceries. And so I went.
+
+But none of that really matters compared to what happened next. I was strolling down the sidewalk when this repugnant beast of a creature ran up to me. Its body was so bulbous and its breathing was so ugly. Its eyes were sticking out from its head. Its skin was a furled up mess of wrinkles. It's a miracle it lived past its own birth. 
+
+It bounded towards me panting with its pink tongue flailing in the wind. It had this purple collar on it and trailing behind it flailing in the wind also was a purple leash which was attached to its collar. It stopped before me and began sniffing at my feet. Its leash lay limp on the floor behind it.
+
+I stared down at it. I tried inching away but it kept following. I tried swatting it away but it ignored that too. It never looked up either so frowning at it until it noticed and left me alone wasn’t an option. I was starting to get really miffed. I wasn’t a fan of it drooling on my shoe.
+
+Then a man ran down the sidewalk who I’d never seen before. He seemed to be chasing something. He stopped right before and placed his hands on his knees with his back bent and began panting. He plucked the creature away from my feet and held it up in his arms as he spoke with me.
+
+“Sorry about that,” he said. “Thanks for keeping my dog.”
+
+“That’s your dog?”
+
+“Yeah. Why do you ask?”
+
+“I’ve just never seen any dog like it.”
+
+“You’ve never seen a pug before?”
+
+“No. Are they a new thing?”
+
+“They’ve been around for centuries.”
+
+“Oh. I wasn’t aware.”
+
+“They’re pretty popular.”
+
+“...”
+
+“I haven’t seen you around this neighborhood come to think of it. Are you new around here?”
+
+“How new.”
+
+“I dunno. When did you move here?”
+
+“A few years ago.”
+
+“Oh.”
+
+“Does that not make me new?”
+
+“No. It doesn’t.”
+
+“I haven’t seen you around either.”
+
+“Yeah. So what do you do for a living?” 
+
+(I have to admit Judge I started to get irritated right around here. I just wanted to get my groceries and go home quick as I could. I got more irritated as the conversation went on. I’m telling you this because I’m not sure I made it clear.)
+
+“Nothing,” I answered. “I’m unemployed.”
+
+“Oh. Alright. I just work at a sandwich place for money. That’s not like my career or anything though. I’m actually a student now.”
+
+“Alright.”
+
+“Business. That’s my major. Did you go to school?”
+
+“Yup.”
+
+“What’d you study?”
+
+“Optometry.”
+
+“You finished?”
+
+“No.”
+
+“Okay. And what are you doing out here?”
+
+“I’m getting groceries.”
+
+“Walking to the store?”
+
+“Uh huh.”
+
+“I’m just out walking my dog now. Well it’s more like she was walking me. Haha.”
+
+“...”
+
+“I actually went to the movie theater last night. Midnight showing.”
+
+“Oh?”
+
+“Yeah. Got to see this thing called Eraserhead.”
+
+“You did?” I said. “I know that one.”
+
+“Oh yeah?”
+
+“Yeah. I thought it was pretty good you know. This director’s got some potential.”
+
+“Really? I hated it.”
+
+“Why’s that?”
+
+“Well. It’s shot in black and white. Man. That thing was so terrible. The guy who made that should kill himself and everyone who likes him should kill themselves too.”
+
+“Um.”
+
+“What’s with your face?”
+
+“What about it?”
+
+“It’s getting red.”
+
+“Um.”
+
+I don't know what happened then but I was at a sort of loss for words. I couldn’t say anything. And so I simply continued on my way down the sidewalk without saying anything.
+
+“Oh. You’re already going. I guess I’ll see you then. Bye!”
+
+I could feel him waving. I did not turn. I did not wave.
+
+Have you seen that movie Judge? You really should if you haven’t yet. I got to watch it when it came out and I thought it was just dandy. It may not have been perfect but that boy who directed seems to have a bright future. I remember getting out of that theater and joining in with a group of people and we were all talking about what could have possibly been about anyway. I really liked that. I might’ve liked it more than the movie.
+
+I made it to the store without any trouble beyond that. That’s how I like to get there. 
+
+As I stood before the store I checked my pocket to ensure I’d brought my wallet. It was there. And I checked to make sure I had all the cash I needed. I understand that lately a lot of people including yourself probably have been using cards as opposed to cash. I’m not sure how they work though I doubt anyone is really. I just never saw a point in making the change. The physical money serves me just fine.
+
+The grocery store is really a bit new. The one I’d known back when I moved here was smaller. They sold only food there. And there was this little grey cat they kept around to keep the mice away. He’d lurk around the store. He was a sort of little guy with smokey grey fur and rounded ears. I'd often look for him when I shopped. He'd headbutt my shins whenever he saw me.
+
+I'm reminded of another store like it. My grandmother took me there often when I was a child. They had a cat there too. Often we'd buy cans of tuna to feed it. You weren't supposed to do that. The cats ate mice. Not tuna.
+
+I remember my grandma. She had this grey and frizzy old hairdo and a nice little smile on her face. She was a great lady. She had a lot of friends and they’d visit her all the time until she died.
+
+She did have a cat once though that was a while before I would go with her to the store. I hardly even remember that cat. There’s only one thing I can remember it doing now.
+
+My parents had brought me to her place and we were staying the night there. They were both asleep then and my Grandma had gone to sleep hours before while the TV was still playing but I was still awake and I’d found myself needing to use the restroom.
+
+Looking back on it now I’m pretty sure there were other restrooms in the house but then I’d only known of one and in order to get there I’d have to go through the living room where my grandma was still asleep. A thin white glow from the TV stretched over the floor of the hallway as I made my way down.
+
+When I’d reached my grandma she was snoring in the chair and the TV was still running. I wasn’t sure what was going on but on the screen they were playing a video of a naked man and a naked woman who were sort of thrusting inside each other in tandem. It really captured me. I just stood there watching. I didn’t know how it made me feel but I didn’t mind it at all. It was sort of funny.
+
+But anyway the cat was sitting on her lap and it noticed me and woke up and jumped down and came up to me. She was a very pretty cat. She rubbed up against me and I pet her little head and that’s all I remember.
+
+And by the way Judge this is how my grandmother died: a few men broke into her house. They were burglars. She heard them rummaging through her living rooms and went down to check. They’d woken her up. They fired before they even saw her. They fired as soon as they heard her slipper patting down the hall. And I never learned of any of this until I came home.
+
+Anyway that old store I was just talking about (the one where I live now) has since been replaced. And I haven't seen the cat since. Haven’t heard a word of him or any of his coworkers for that matter. Now in its place I come to this massive market. I couldn’t even count how many cars can fit in its lot. 
+
+As I stood there checking my wallet the sky above was already slipping into hues of orange. I’ve also not purchased an automobile. I prefer to walk. Honestly I get a bit overwhelmed at the thought of driving and I’m willing to make the journey to any destination. The store is about as far as I go anyway.
+
+So I went in. I located the shopping carts near the door and commandeered one for myself.
+
+I quickly located the grocery section and loaded my cart. That's another thing. It feels weird for me to say that there's a section for groceries. The section used to be the whole store! Now you can get anything you need. I guess it’s convenient. Actually thinking about it now it’s probably better that way.
+
+Really it was bound to happen anyway but there's something I miss about all those small little spots scattered across the map. They’d be one story tall. One actual regular story like the height of my house. And they’d specialize in one little niche like an anteater to ants. They were run by nice little people who’d always be there in the store ready to help. 
+
+And as I stood there with all my groceries I looked up at the ceiling. It stretched so high above me I thought it may just be another layer of the firmament by then. I stood underneath it and thought about how I haven’t seen many of those little stores in a while. I guess there was that gun store I mentioned. And that’s all.
+
+I know I’m the only one complaining about this. It is a good thing really. I don’t why I don’t like it. I can’t even place it really. I just don’t.
+
+I guess maybe there’s this one reason: it’s the whiteness of the lights that above all things appall me. Those little stores would have these yellow glowing glass bulbs in their ceilings. I noticed here the lights are these sort of rectangle shaped panels. They shine white. They shine angry. They buzz horribly like a malformed bee. And on the floor their lights reflect in these splotches of white. Their edges blur in tiny little strips along the floor radiating from the center like a flayed onion. I hate it. It makes me feel sick.
+
+I know among Romans a white stone marked a joyful day. And I’m very glad the Romans were able to see this but I have to admit I wouldn’t have made a very good Roman.
+
+And it was under these lights something caught my eye. Just by the groceries they had a wall of glass doors. There was food back there though it was packaged in cardboard boxes with all these neat little colors. They call them TV dinners. You put them in your microwave. You know the ones Judge. 
+
+You see I like to treat the store like it’s just the grocery section. I never really step elsewhere. This was actually the first time. But my eyes were drawn to the great big banner they had hung above an adjacent aisle. In big red text it read:
+
+NO COMMIE’S GONNA BOMB YOU WITH THESE APPLIANCES!
+
+And then the prices and whatnot. I just had to see what it was. Not that I’m all too afraid of the communists. And once I did follow in I was really impressed by their selection of vacuums and microwaves and toasters and whatnot. At the moment I didn’t have the budget for any of them but it was still quite interesting.  And from there I got sucked in and soon became lost and unable to find the doors.
+
+This took me to the back of the store. They were selling TVs and they had them all lined up and stacked upon one another behind these great big planes of glass that took up two entire walls. 
+
+Judge I don't own a television either(and in case you’re wondering I have a toaster and a vacuum at least). That's not my choice actually. I simply can't afford one. I already told you about the one at my Grandma’s place. We had one growing up too. It was really neat. It wasn’t hard for it to grab my attention as soon as I’d gotten back there.
+
+Now as I stood before them I viewed quite the scene through its bulging glass screen. A woman faced the camera as she sat naked on a velvet mattress. Nice draperies the same color as the mattress hung behind her. Wavy curtains with golden tassels at the ends on the back wall. And a naked man mounted her. Her face contorted as she moaned and begged for more. I felt funny.
+
+I remember once Judge when you and all your friends brought back a whole bunch of women. There was one for each of you. We were all sleeping in the same room and so you all had sex with them in the same room. I just sat atop my bunk and pretended to be asleep as I listened to the whole thing. You all made some odd noises though I wouldn’t really know if those were usual or not.
+
+I stood there and watched it in its entirety. When it faded into black I could see my tired old reflection warped in the glass. Then an ad came on. They were selling the video. It was then I noticed a stack of VHSs on a nearby table. They looked just like what was shown in the commercial(and I mean the sticker and the cover–I’m aware they all look the same).
+
+I’ve never used one of those before so I don’t really know how to use them anyway but I really  wanted that video all for myself. I thought then that I could watch it every day. So I looked side to side to ensure no one was looking or even in the general vicinity and stealthily stuffed one into my jacket. I wouldn’t want to discuss it with a cashier.
+
+“Hey,” I heard a voice say.
+
+“Hm?” I grabbed my cart and looked around in confusion. 
+
+I saw him standing down the aisle. He was a big sort of guy. Tall and kind of wide. He had a brown vest on and some dress pants and on his face he had a funny little mustache. We made eye contact.
+
+“No no,” he said. “Dont worry. You're not in trouble. I saw that though.”
+
+“...”
+
+“You can take it out of your jacket now. I won't judge. In fact I'm just trying to tell you we got more in the back. I’ll show you for free.”
+
+“You do?”
+
+“Yeah. Wanna come see?”
+
+“Um. Sure.”
+
+“You gonna keep that tape or put it back? I gotta know that first.”
+
+“...”
+
+“I can ring you up. I don’t mind.”
+
+“I think I’ll just put it back now.”
+
+I set the tape back on the table I’d taken it from and followed him down a little hall in the back. He brought me to a door there. It was locked which he explained to me as he found the right key was because it was for special viewing only. He unlocked it finally and showed me the room.
+
+It was a small little room. There was a velvet chair that seated one person. It was facing a table with a television sitting atop a little box that ate up VHS tapes. Right beside the TV was a stack of tapes about as tall as the TV. And on a little table by one arm rest of the chair there was a box of tissues and a bottle of lotion.
+
+“Yep. We got a whole selection of tapes. Go ahead and grab one and pop it in and get yourself a preview. You can buy any of ‘em if you want to.”
+
+“...”
+
+“Go ahead. Take a seat.”
+
+“Oh. Sorry.”
+
+I sat down. The chair was a recliner. It was sort of like the one my grandma used to have. The cushion was soft.
+
+“Alright. I’ll leave you to it now. And please consider buying one.”
+
+He left the room. I took the first tape and inserted it into the player. I don't need to describe every video Judge. They were all largely similar to the one I just described earlier. They were all exciting nonetheless. I found myself unable to decide which one to buy. I really wanted to be thorough so I decided I'd watch them all.
+
+It actually got boring quite fast. I was nearing the last few and still I was struggling to even pick any one tape over the others. I was taking a much longer time than I'd hoped. I came out empty handed anyway.
+
+I grabbed maybe the second to last tape and I placed it into the TV. I’d expected another video filmed in some painfully low quality in some room with beige walls and curtains concealing nothing but was instead greeted with the intro music to Popeye’s own television show. You know Popeye Judge. The sailor man with the spinach.
+
+I’d actually watched some of the old black and white cartoons(and read the newspaper strips) as a kid but this new show isn’t something I’ve seen before. The intro music seemed all fine and dandy until the title screen. There wasn’t a title. It just sort of froze there for a few seconds and then the show started up.
+
+Popeye was stomping around the port all grumpily. The score was perfect silence. His eyes looked real Judge. I can’t really describe it. They had irises and whites and veins and they glistened in the camera and as he looked around I could see them roll about in his head. It looked like he had some mighty big orbs in his sockets.
+
+Popeye stopped before an alleyway. There was this awful screaming from the alley though whatever the source was it was obscured by the dark. Some ominous string music began winding up behind him as he stared into it. He smiled terribly as he looked in. His teeth also looked real.
+
+Before it was revealed the animation cut for a few seconds to a different video. It was really dark but there was this tiny little light white scanning the room like it was looking for something. It looked like the floor was concrete. There was this heavy breathing behind. 
+
+The tape cut back and forth between this and Popeye’s stare for a few moments before finally revealing the source of the screaming. Once it stopped the darkness faded and relieved Brutus was in the alleyway. He was covered in blood and standing over Olive Oyl’s corpse. He’d ripped her open and her organs were all over the floor as blood ran down the alley. She was still screaming.
+
+For a few frames it cut back to the video in the darkroom. I could make out something other than the darkness in the frame but it went by too fast for me to realize. Once it flicked back Popeye was in frame. I thought surely he’d stop that bully but he did not. He laughed this terrible and deep laugh and cracked his knuckles and walked up to Brutus and began wailing on Olive Oyl. He beat her over the pavement before finally picking her up and squishing her head between his fists. Blood exploded everywhere. All over his face. He laughed again.
+
+From then the episode of Popeye ended and it faded to credits and it cut away and finally I came face to face with what the light had found. The subject was a cat. Its eyes were closed like it was sleeping and its fur was grey. Its body appeared to have been squished. There was a great big hole in its head and red juices were rolling down its nose. 
+
+A white glove came down and began prodding at it with a metal tool but I simply could not stand to watch any longer. I got up from the chair and dashed for the door in an instant. I swung it open. To my despair I was not greeted with the sight of the store as I had left it. I had instead opened the door to a dark room. There was a man in their crouched over the body of another cat. He was holding a camera in one hand and a surgical tool in the other. He had a light on his head pointing down at the cat. It was dead.
+
+Against the wall there were rows of little cages with small animals inside. They were stacked upon one another. They noticed me and began to cry out all at once. The sound was awful.
+
+Evidently the man noticed me. He turned his head and flashed me with his light. He blinded me for a moment. When I opened my eyes again he was standing before me. His goggles shone white and he was wearing a mask which covered his whole face. He yelled something at me though it was muffled by his mask. Then he shoved me and I fell to the floor.
+
+I looked around dazed. For a moment I was worried that the real door had disappeared. Fortunately it was just on the other side of the room. 
+
+When I came out the door the man dressed who’d brought me in was still there waiting for me. He smiled when he saw.
+
+“You sure took your time. So what'd you decide on?”
+
+“Nothing.”
+
+“Nothing?”
+
+“Yeah.”
+
+“Are you free loading or something?”
+
+“...”
+
+“What's with that look on your face? Did you see something in there?”
+
+“Sort of.”
+
+“Well what was it?”
+
+“It was tape. Of Popeye.”
+
+“Popeye? Popeye’s got you acting like this. Really?”
+
+“No no no. You don’t get it. He killed Olive Oyl. And it was cut up with this video of a dead cat. A real live dead cat.”
+
+“Oh.”
+
+“Did you know about this?”
+
+“No. That shouldn’t be there. I’ll make sure to get rid of it for you.”
+
+“Alright. Thanks.”
+
+“Do you need anything else?”
+
+“Oh. Yes. Can you point out the registers? I can't seem to find them from here.”
+
+“The registers?”
+
+“Yes. Please.”
+
+“They're at the front of the store. It's just a straight walk down. We got a big aisle leading right there.” He pointed. “Right by the doors.”
+
+“Thanks.”
+
+I located my cart at the end of the hall and walked off. The man waved at me.
+
+“I'll be seeing ya!” he said as I left.
+
+I went to the front of the store and paid. Besides the young man who rang me up and whom I handed my cash was a young woman. She picked up my three bags and began walking with me out the store. 
+
+“So how was your day?” she asked.
+
+“Alright.”
+
+“Really? What'd you do?”
+
+“Came here.”
+
+“That it?”
+
+“Yes. All day.”
+
+“Wow. What took you so long?”
+
+“Nothing.”
+
+“Come on. It couldn't have been nothing.”
+
+“Do you remember the store that used to be here? There was a cat?”
+
+“Oh. I don’t remember any store being here other than this one but I love cats. You know. My mom's allergic but my grandma used to have this cat. He was real nice. He'd purr anytime he–”
+
+“May I ask why you're following me out? And why you still have my groceries?”
+
+We both stopped. We were about halfway down the parking lot then.
+
+“Oh,” she said. “I'm here to take your bags to your car. That's my job.”
+
+“I don't have a car.”
+
+“Oh.”
+
+“Can I have my groceries now? Please.”
+
+“Alright.”
+
+She handed me my groceries and made her way back to the store. I continued down the parking lot.
+
+From there I came home and brought my groceries to the fridge. Then I sat down to write you. It’s really quite late now. I’m very tired. I can hear the bear growling still. It’s rustling through my garden. I’ll get it next time around but now I’m just too tired. 
+
+Your pal,
+
+\[Name once again either illegible or just not there. I’m going to stop putting these little sign offs now. I checked and they’re all like this.\]

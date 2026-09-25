@@ -1,0 +1,67 @@
+I never wanted one of those fancy digital baby monitors. It always felt unnecessary when an older radio monitor did the job fine. 
+
+My mother thought otherwise. 
+
+I am a single father. Fresh out of a separation and an unnecessary custody battle for my 6 month old son. 1 month with me, 1 month away. My mother insisted that the monitor would be beneficial and make my life easier, so I reluctantly accepted it without much intention of using them. 
+
+The first few nights using it I didn't even look at the camera feed, I just used it as a radio. I'd listen in when I heard him, and get up to check on him if I heard him for a few minutes. 
+
+Last night, I couldn't sleep. Stress with work and everything that's gone on in my life had me up, so I finally decided to explore the companion app for the monitor. 
+
+It came with the suite of what I'd assume are standard features; Sound/Motion detection and tracking, two way voice, “night vision.” The camera angle was awful, positioned way too high with the wall/ceiling taking up more than a third of the frame. I couldn't even see my son, just the upper portion of the crib. 
+
+That's when I noticed a folder symbol at the bottom of my screen with a notification icon. 
+
+I opened it and in the folder was 3 video files, dated for the past 3 nights. Each video was 11 minutes and 6 seconds long. 
+
+I opened the first video. I made it 2 minutes before I closed it and opened the next, and then the third. 
+
+All 3 of those videos recorded something interacting with my son. A thin and disproportionate human figure emerged from the shadows in the corner of the room. It took slow hunched steps towards my son's crib, its face nothing but a gaping mouth. No nose. No eyes. No ears.
+
+It would reach my son, and lean over him. Its wiry hair would fall as it stretched its bony arm into the crib with my son. What it did I couldn't see, the shit camera angle prevented me from knowing. It was when I was in the 3rd video I got a notification. 
+
+*MOTION DETECTED*
+
+There it was again, slowly moving towards my son. 
+
+I stopped thinking. I shot out of bed and kicked in the door to my son's nursery, ready to get him the hell out of there. But the entity didn't react at all. It remained hunched over my son perfectly silent. 
+
+Now I could see what it was doing. It wasn't hurting him. I watched as it adjusted his blanket and began caressing his face, softly running a jagged claw across his cheek. It was almost maternal in how it was. Until I went to grab him.
+
+The moment my hands went for my son, its clawed fingers pulled back and slashed at me. My arm immediately felt like it was set on fire as blood started to drip from the cuts. 
+
+My only instinct was to kick forward. Aiming at the center mass of the entity I drove my foot towards it, knocking it off balance enough to grab my son and make for the door. But the thing was quick. I had just gotten my son to my chest and it was already at my back.
+
+I felt it slam against me, its claws digging at my flesh as I tried to shield my son. I curled tightly to him, using my body weight to try and break free from the monster and escape with my son. His cries against my chest the only thing pushing me through the pain. 
+
+Near my dresser I shoved backwards with all my weight, ramming it into the old wood hard. The force was just enough to topple the large vanity mirror my grandmother had given me. Glass showered me, biting into my neck and shoulders as I curled further into a fetal position to protect the one thing that mattered most to me. 
+
+To my right I heard a wet gurgling, something like an old bathtub drain, and the assault on my back had stopped. Turning my head slightly I saw it partially hunched over, broken glass piercing from the little meat was on its bones. It twitched violently, its gaping mouth dripping a black tar like fluid. 
+
+I scattered to my feet and began moving to the door, looking down to make sure my son was unharmed. The crack of glass and broken wood got faster as the twitching frame jerked towards me. Every movement snapped like a marionette, catching on the broken mirror stuck in its body. 
+
+As I reached the threshold of the room it lunged, catching my ankle with a vice grip. Shards of glass and splinters of wood dug deep, making each attempted pull to break free feel like agony. I let out a gasp as I felt it's other hand clamp down onto my calf, pulling itself off of the floor. 
+
+I let out a scream. Something primal and fueled by pain and anger. I began stomping at the thing, screaming at it to leave me and my son alone and cursing it under every God I could think of until its grip finally loosened just enough for me to break free. 
+
+I got through the door frame and slammed the door, but just as it was about to hit the latch fingers emerged from the gap. I threw my weight at the door, slamming it multiple times. Each slam was followed by a sickening crunch, until the hand pulled back and the door shut. 
+
+I threw my weight against the door and wedged my legs on the hallway wall opposite of me. 
+
+Slam. Slam. Slam. 
+
+The thing inside threw its weight against the door in an attempt to break free. Every slam I could hear the crunch of glass and snapping of wood on the other side. It took everything in me to hold the door shut; pain shooting up my back from the monster's cuts and glass pushing deeper into my skin.
+
+Tears filled my eyes and I clung to my son as he wailed. With each further slam I could feel the door frame giving way, and my lungs burned the same heat as my muscles. I begged for any god or higher power to save my son.
+
+Then the banging stopped. I heard the shifting of broken glass move away from the door and further into the room. 
+
+I didn't get up. I stayed right there for a good while just holding my boy. When I finally got myself together to get off the floor, I immediately packed our bags.
+
+I almost called the police, until I looked around the room. They'd take my son without asking any questions. The room was trashed, and I'm covered in blood with no sign of anyone else there. With my custody dispute on record they'd see a father who broke down in a manic episode and trashed the room.
+
+It's currently 5:10 am. We are parked at a 24/7 gas station, and I don't know what to do. 
+
+The camera recorded it all. A new video file is in the folder with the same length as the others. But when I go to open the file, it has been corrupted. Go figure technology would fail when I needed it the most.
+
+Please, if anyone has been through something like this I need help. 
