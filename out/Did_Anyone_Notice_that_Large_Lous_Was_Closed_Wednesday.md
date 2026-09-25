@@ -1,0 +1,269 @@
+There was nobody there. It was 5 PM on Wednesday. I showed up to pick up my check, and inform Linda that she can screw off with whatever crappy bullshit operation they have going on here. But, the parking lot was devoid of any cars besides the people who usually worked here.
+
+While it wasn’t rush hour or anything, due to the loyal clientele, we usually had at least a few customers.
+
+When I tried the front door, it jiggled against the wooden frame, but refused to budge any further. That’s when I actually looked, and saw that all the lights were off inside, and the open sign had been turned off. 
+
+**“3,598”**
+
+The duck had followed me again. He watched me with his eternal gaze, and a booming voice that had gotten noticeably louder. 
+
+I could have walked home right then. Honestly, I’m not sure why I didn’t. Maybe it was the weird chill I felt that I blamed on a gust of wind, or the sense of dread I misconstrued for anxiety over coming to terms with the fact that I would be quitting the only stable job I’d had in ten years. No matter the reason, any thoughts left my head when a man I had never seen before dressed in a stained t-shirt and basketball shorts ran to me, calling my name, and carrying a bag of yellow mozzarella.
+
+“Charlie, holy crap you’re alright.” I realized he had genuine concern on his face, and I realized it wasn’t for me.
+
+“Hey…” I said, looking around for my coworkers, and wondering if maybe Brent was around, and told this guy my name just to fuck with me.
+
+“Everyone’s gone. I don’t have a phone, and you need to call the police.
+
+The more I thought about it, the more I realized that my personal suspicions about the restaurant being closed probably deserved more attention than I had previously thought. 
+
+“What do you mean ‘everyone’s gone’?” I asked.
+
+**“3,514”**
+
+I shot the duck a warning look, and then said to the greasy man, “Sorry, can you repeat that again?”
+
+I couldn’t tell if there was concern or confusion on his face at my lack of attention, and repeated, “Brent, Francine, Linda- all of them. They’re gone. These guys just came up and took them and threw them into some truck with a weird looking brain on it.”
+
+Everything stopped.
+
+I wanted to believe that this guy was joking. But the look in his eyes begged to differ. 
+
+I also hadn’t paid my phone bill, one of the many reasons I needed to get my check. So I did the next best thing, and hopped in my car.
+
+“Let’s go.”
+
+The guy didn’t seem to ask any questions, and got in my car with me as we drove off to the Church of Cogitology.
+
+As we drove, the greasy man explained that he lives in the sewer drain underneath Large Lou’s. He grew cheese in the sewer, and then picked up money left outside for his deliveries. He was just starting to climb out of the man hole when the church members came and grabbed Francine, Cezar, and Max. 
+
+“How the hell do you make cheese?” I asked, careening through a red light.
+
+“It’s quite simple, really, I would go into the science of it, but the long and short if it is: sewer water makes for an excellent biome for cultivating cheese mold.” He explained, “By the way, stop throwing dirty napkins down the drain. I’ve rattled the pipes more times than I can count, and yet you keep doing it. It ruins the pH levels.”
+
+My tires screeched as I turned into the parking lot of the church, and began looking around for any sign of the others.
+
+The church parking lot was emptier than the service days were. After looking in front, I drove around to the back, and found the truck with the Cogitology logo on it.
+
+I was surprised that there weren’t any members milling around, or keeping watch. I guess they assumed they wouldn’t need to worry about me.
+
+The truck was the same truck the delivery man used to deliver meat to Large Lou’s. After opening the latch on the outside, and pulling the doors open, I found the same red goo dryer, but still splattered about on the inside, and Max being tended to by Francine and Cezar.
+
+Both of their eyes lit up when I opened the door to them, and they nudged Max. He wearily lifted his head and smiled at me, and I saw they had used the sleeve of Cezar’s shirt to wrap a decent bump on Max’s head. A small red spot of blood, bleeding through the shirt.
+
+I stepped inside to help and asked “Are you guys alright?”
+
+“Cezar and I had been caught off guard, on the way into work this morning, and Max had tried to fight back.” Francine explained.
+
+Hearing that the church members had hurt Max filled me with a kind of hatred I had not felt before, and I very much wanted to hurt Bartholomew
+
+“Does he need any disinfectant for the wound?”
+
+Francine looked behind me, and noticed the greasy man, “...Sure?”
+
+The greasy man reached into one of his pockets and pulled out a small bottle and smiled while saying, “Rubbing alcohol.” as if the means of him acquiring the bottle were not important, and it only mattered that he was now able to provide disinfectant.
+
+While the greasy man helped Max, Francine explained that Linda, Brent, Marley, and Shirley had been taken away. Attempts to call the police failed again, as Francine explained that they all had their phones taken away by the church members. I groaned, not wanting to waste any time waiting for the police to arrive, and turned to the greasy man, who had finished helping Max, and was tucking his bag of mozzarella back under his arm.
+
+“I’m not sure how much time we have until the cult members do something to the others that won’t be able to be fixed. I’m going down, and I want you two to go look for the police.”
+
+I showed them where the elevator button was and then pushed it for Francine, Cezar, and I. For a moment, I almost thought I saw apprehension in Max’s eyes. But they both turned and left as the rest of us stepped into the elevator, and I pushed those thoughts from my mind.
+
+It was a long descent down. Each second that passed felt like an eternity, the subtle rumble of the elevator shook thoughts in my head about what I might find when I descended. *Why did they decide to take everyone now?* It seemed like Bartholomew was convinced that Large Lou’s was in on the whole thing. So what would suddenly cause them to kidnap everyone?
+
+**“2,607”**
+
+I jumped. We were at least halfway down at this point, and I knew there was absolutely no way the duck could fit in the elevator. That still didn’t stop me from looking around, expecting to suddenly see a giant beady eye gazing back at me. It wasn’t there, however, and Francine and Cezar were looking at me confused.
+
+“Nerves,” I said, laughing awkwardly. Strongly considering putting my head through a blender once we reached the bottom.
+
+I honestly don’t know what I planned on doing once the doors opened. Best case scenario, we break out the gang, maybe beat up some cronies on the way, and tell the police “it’s all in a hard day’s work” as we walk off into the sunset. Worst case scenario, Bartholomew is waiting on the other side with a gun, and forces us into joining wherever they’re keeping Marley, Shirley, Brent, and Linda. 
+
+The worst case scenario did happen, the only difference being Bartholomew had a few other members standing behind him, so as to make sure we were all restrained as they walked us forcefully to the lab.
+
+“Good to see you back, Charlie.” Bartholomew mused, as men and women in white robes placed each of us in cages that lined the side of the laboratory, “I’m glad you came to the church. I mean, we wouldn’t have realized how much your boss had conned us.”
+
+“We never asked you to do all that. You said you were doing it to help us.” Linda shouted from inside one of the cages, pounding on the reinforced glass.
+
+Bartholomew laughed his same hearty laugh, with the slightest hint of impatience at Linda’s remark — implying she had been doing this every time he’d come in.
+
+“I still feel slighted, Linda,” He explained, “and since we’ve shown Charlie far more than we had ever intended, we’ve found some other use for you than letting our secrets get out irresponsibly.” He rapped two knuckles against the glass of Linda’s cage, his mind already thinking about other things, “Now sit tight, we have to calibrate some things.” 
+
+We were placed inside, and the church members left.
+
+These cages were not your usual jail cell or birdcage type cages. They were far more similar to the casing of a museum exhibit, or a terrarium. The doors were the entirety of the front of the case. The security on the outside was minimal, a basic four digit number at the front of each cage was all that was needed to open the door. But once the door was closed, there was no way for whatever was on the inside of these cages to break out. The doors slid up and to the side, and then back and down into reinforced bases that kept them from being forcefully opened by anything on the inside. The only form of ventilation was 15 small holes at the top, with additional reinforcement to compensate for the compromised glass.
+
+*“2,379”* It came as a muted rumble. Accompanied by the whirring of a machine starting up.
+
+After a moment, a few of the members who wore lab coats carried in a small round creature. It had watery eyes, and thin, twig-like arms that hung uselessly at its side. Squelching screams grinded from a slit that I guess must have been its mouth, as the researchers threw him onto a table, then walked back out. Everyone else in their cages watched with dumbfounded mouths agape. Its grey flesh flopping around wetly. Glaucous slime smearing across the surface of the white table as it screeched.
+
+I looked around at everyone else in their cages. At their horror. Francine’s mouth hung open. Linda’s eyes darted between me and the thing, trying to figure out what I had to do with any of it. Brent was in shock. Cezar kept his eyes down and on the floor, in denial of what was happening. Shirley, at some point before I had arrived, had been knocked unconscious, and still laid on the floor of the cage. All while the thing on the table continued to screech the off-key tune of “Buffalo Soldier”.
+
+I sat down, in the back of my cage. The machine in the sanctuary hummed through the walls and against my back. I thought about how there’s a chance I don’t come out of this alive, and how Max and the greasy man would find the police, and when they did finally come down here, Bartholomew would have already killed us, and my sacrifice would be the only reason they get caught. I guess I was okay with that, but it felt so unexpected. There were things I wanted to do with my life that I would never get to do. 
+
+A few hours passed. The only thing giving me any measurement of time being the irregular, but gradually louder booms of the duck counting. 
+
+*“2,143”*
+
+*“1,742”*
+
+“1,354”
+
+“999”
+
+**“693”**
+
+**“453”**
+
+Then, something else broke through the mix of the creature’s groans on the desk, and the whirring of the machines.
+
+“So fast, so fast, I’m sneaky, so fast. So clever, clever smart smart quick escape, I escape.”
+
+In the midst of my misery, I heard pitter patters on the floor as they scurried about, and the mutterings of the HomeLess Man. *How the hell had he gotten down here?*
+
+A mottled face, with hair that was also a beard appeared in front of my cage.
+
+“Friend. Good friend. Safe friend. Escape friend escape, escape with help. I help, help escape. Impetus yield escape, for friend friend is good.”
+
+He punched a few numbers into my cage, and the door slid open. The HomeLess Man took a few tentative steps back, so as to let me step out of the cage, and looked back at me. Silently cocking his head to the side, and peering at me through the slit in his mouth. 
+
+When I got out, that’s when I saw Max at the doorway, beaming at me
+
+“How… How did you find him?” I asked Max, as the HomeLess man skittered to the other cages and let the others out as well.
+
+“He came up to me and the other guy as soon as we went outside. I guess he had followed you guys from Large Lou’s. He said, in his own weird wa,y that he could help.”
+
+“So, is he still looking for the police then?” I queried, referring to the greasy man.
+
+“They’re on their way, I thought about just letting this guy down here, but the more I thought about it, the more I realized I couldn’t bear the thought of leaving you down here, and me not being able to help.”
+
+Max looked at me with his brown eyes, and I was caught off guard by how much he seemed to genuinely care about me.
+
+It was around this time that Shirley started to wake up. She patted around in her pockets, and seemed to groan in frustration when whatever she was looking for wasn’t there. Then took in her surroundings.
+
+“Bartholomew has gotten you guys in some real shit, hasn’t he?” Said Shirley, rolling her eyes.
+
+I had never even heard that woman even say “heck” before now, and took in a sharp gasp when she cussed.
+
+Shirley paid no notice to this, and looked at the HomeLess Man running around.
+
+“Huh, never thought he’d be someone to be on our side. He must have taken a real liking to you, Charlie.”
+
+“Shirley?” I asked.
+
+“Yes, Charlie?” She asked, her voice having taken a much more serious tone than I had ever heard before.
+
+“Are you alright?”
+
+She sighed, rubbing her head, “Better than I’ve ever been. Seems like that brainwashing bullshit they had done to me has finally worn off, must have happened when I got hit.”
+
+Everyone else stepped out of their cages, and Francine pointed to the gray thing on the table, still singing its horrid tune, “What about him?”
+
+Max finally noticed the creature there, and recoiled in disgust.
+
+“We’re not leaving him here,” Linda stated, “I know none of you liked him very much, but he never deserved something as bad as this.”
+
+After some searching, we were able to find a small box, and placed Marley inside. I was the one who pushed him in, and he wretched a glob of the blue-grey liquid onto my hand as I did it. It took everything in me not to yelp in disgust, and watched as Max gagged, and then handed the box to Brent.
+
+We tentatively stepped into the lobby, wary of any and all signs of people. But nobody was there. 
+
+Before we got to the elevator, Shirley stopped us, “We need to grab evidence. We can shut this place down for good if we have proof.” she whispered.
+
+We started towards the library, and right as we got the door open, Bartholomew and the delivery man stepped out from the Sanctuary. 
+
+Francine, Linda, Cezar, Max, and Shirley were able to rush inside before Bartholomew took his gun, and shot the HomeLess man. It yelped before crumpling to the ground in a lifeless heap, deflating into a pile of dirty grey skin. Bartholomew then pointed the gun at Brent and I.
+
+“You two stop right there. If your asses take another step, I’ll make you regret it.”
+
+We froze, and while Bartholomew told the delivery man to go after the rest, he gestured for us to follow him into the sanctuary.
+
+Inside, there were large, person size, tubes attached to the places that were usually meant for the weird bags. Bartholomew opened the doors on two of them, and instructed us to step inside.
+
+We did as he directed, and then once the doors were shut, two lab technicians at the monitors started typing away at more buttons.
+
+**“294”**
+
+This one was the loudest one yet. It felt like the walls of the sanctuary itself were shaking. But to my surprise, I wasn’t the only one who heard it. Bartholomew, and the lab technicians looked about, almost as if they too could hear the duck’s counting.
+
+“You knew he was with me the whole time!” I shouted at Bartholomew.
+
+He looked back at me, and sighed, “Yes, Charlie. Among many other reasons why I thought you and your stupid group were believers, I also saw that stupid duck was following you around.”
+
+Brent looked confusedly between us.
+
+“What is he?” I asked, hoping this might stall my fate.
+
+“In one of our studies, that *thing* came out,” Bartholomew explained.
+
+The technicians moved from typing on the monitors, to messing with the machine.
+
+Brent continued, “He was our greatest breakthrough yet. He’s practically unkillable, and must have served some importance in hell, but once he came through the gate, he simply counted. Like he has for you. Between his immortality, and annoying counting, we simply let him go, upon realizing most people couldn’t see him anyway. Unfortunately, he made himself visible to you, and that became one of my greatest blunders in trusting you.”
+
+**“207”**
+
+Bartholomew talked to the technicians while they worked. Things seemed to be just about ready. Bartholomew walked to the monitors as they put the final touches on the machine.
+
+“Let’s see how this thing runs, while we wait for your friends. You two should be enough, but if it doesn’t work out, we can use the others for another run.” Said Bartholomew.
+
+The lab technicians stood in front, taking out note pads, while Bartholomew pressed a few buttons at the monitors, and started up the machine.
+
+Once again, the machine whirred. I couldn’t turn to see, but I could imagine the great arms swinging around. I expected the tubs to blend me and Brent up like they had the smaller creatures, but instead, a great light appeared above our heads, and a pink, sticky, liquid started to mist over us.
+
+For several moments this continued, the machine whirring louder and louder. Soon a great light from behind emanated. It was so bright I could see it illuminate the whole room, and gleam off the polished maroon pews, which were empty. No longer in need of the prayer, as both me and Brent were the replacement for teams of people.
+
+I saw my life flash before my eyes. My thoughts of my parents, whom I had long since stopped talking to, out of regret, and shame for how my life was turning out. The new life I had begun since working at Large Lou’s, and how much I enjoyed finally having something consistent in my life. How, in spite of all that was happening, Max stood in the forefront of my mind.
+
+**“111”**
+
+Sparks flew out from the machine, and a dark wave rippled through the room, making much of the machinery shudder. The technicians who were standing in front of the tubes were knocked across the room, their bodies contorting into odd shapes when they collided with the opposite wall. Bartholomew, who was a bit farther away, was knocked onto the ground, but took considerably less damage than the technicians. 
+
+The doors to the tubes slid open at the same time Max, Shirley, Francine, and Cezar burst into the room, arms full of books.
+
+“NO!” Bartholomew screams, scrambling back to his feet, and looking in horror at the machine that had failed once again. 
+
+His gun had been knocked from his hand, and now lay some 20 feet away from him. As he tried to scramble for it, Cezar was quicker, and nailed Bartholomew with a kick to the gut. Knocking the air out of him, and forcing him to fall to his knees and gasp for air.
+
+While nothing had happened to me, I felt a sudden wave of exhaustion, and could barely stand. Luckily, Max caught me before I could collapse to the ground in exhaustion. I looked up at Max and gave him a smile, which he returned. From the corner of my eye, I could see Brent felt much the same, and was held in Francine’s arms.
+
+**“ 5 7 ”**
+
+I looked back, and saw the machine had actually worked a little. It was still running, and had a small portal hovering in the circle. I could hear the screams of the damned emanate from the small hole, and noticed I wasn’t the only one who was entranced by the floating portal of horror as both Max and Brent also gazed into it.
+
+Then, the machines began to shake. One of the books Shirley was still carrying flew from her arms, and into the hole with a loud buzzing sound. Then, parts of the machine started to break off, and fly in as well. Quickly this escalated, pulling more and more in with increasing force. With as much energy as I could muster, I hobbled back to the doorway, while Max held it open for everyone to get out.
+
+By the time we were all out, the large pews of the room started to drag across the floor towards the hole. Bartholomew screamed, digging his nails into the ground to no avail as he flew in. Blood and viscera spewing out as he was forcefully sucked through. Max started to step through the door as the pews picked up from the ground, and one of them crashed hard into his side with a sickening crack, knocking him into Linda.
+
+“MAX!” I cried, limping weakly to him, and with the aid of Linda and Shirley, picking him up, and carrying him to the elevator.
+
+Once inside, I got a look at Max. Several ribs were poking from his side, and blood flowed freely from a sizable gash near his hip. I tore off my shirt, and pressed it against the wound, doing anything in my power to keep him from bleeding out before we made it to the surface. Max’s mouth opened in an attempt to scream, but it only came out in wet gurgles and coughs.
+
+**“ 1 3 ”**
+
+By the time the doors opened, Max was barely conscious. The floor beneath the earth continued to rumble, and we were met with sirens and bright police lights outside. 
+
+I had gained enough energy to be able to carry Max, and screamed for a medic. The officers radioed for an EMT, and had Max lay on the sidewalk at the opposite end of the parking lot while they waited for them to arrive.
+
+Max looked up at me with brown eyes slowly growing dim, as we both knew that he wasn’t going to be alive once the ambulance showed up.
+
+“I think…” Max weakly muttered out, “I’d like to take you on a date sometime, Charlie.”
+
+Tears pooled in my eyes, my laughter mingled with choking sobs as I took Max’s hand in mine and nodded.
+
+I never even noticed that the duck had stopped counting.
+
+\--
+
+Max was gone before the truck arrived. They wheeled him in anyway, I’m not sure if they did it for my sake, as I lay sobbing over his lifeless body, but the gesture felt redundant.
+
+It’s been a few days since then. Apparently Shirley had been brainwashed, and after she had been hit on the head, she got all her memories back. She explained Cogitology was looking for an energy that would rival oil and electricity. But Bartholomew’s methods had grown too drastic, and it became the church’s downfall.
+
+In all the chaos, we were unable to get any of the books from the library. So any information on Cogitology has been erased forever, and buried thousands of feet underground under the ruins of the collapsed church. Apparently the pizza dough is actually an old recipe for an experiment done by Cogitology, and exists as the only proof that they were anything more than a shitty cult.
+
+I wasn’t sure if I should have made this post for all of you. It felt like a lot to share about my personal life, but I guess people have posted crazier things on the internet, and I wanted to give you all a conclusion to everything that had happened. 
+
+A lot of you wanted to know what the duck was counting to, Shirley explained that he was probably counting down to Cogitology’s success, which most likely would have done immense amounts of damage to humanity, but we had been able to stop that, for whatever that’s worth I guess.
+
+At the end of it all.
+
+I really, REALLY, hate Large Lou’s Pizza.
