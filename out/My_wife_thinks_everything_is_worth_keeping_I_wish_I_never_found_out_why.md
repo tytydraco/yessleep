@@ -106,7 +106,7 @@ I didn’t know what to say, so I just responded, “Yeah, she is.”
 
 “She *is* gone. Nobody's seen her in weeks. But no reason to assume the worst.”
 
-I don't remember what I said after that. On the short drive back to our apartment, I tried delicately bringing the subject up with Anna.
+I don't remember what I said after that. On the short drive back to our townhouse, I tried delicately bringing the subject up with Anna.
 
 “By the way, you never did tell me what happened to Madeline.”
 
