@@ -75,8 +75,10 @@ When lunch came around I had the same thing as always. A cigarette and a sandwic
 
 So safe.
 
-Before I know it, I’m back home. Kicking off my heels and rushing to the fridge for a well-needed drink.  
-“Shi! Alert! Alert! Blights are near! Blights are near!”  
+Before I know it, I’m back home. Kicking off my heels and rushing to the fridge for a well-needed drink.
+
+“Shi! Alert! Alert! Blights are near! Blights are near!”
+
 “For fucks sake you can’t be serious. I just dealt with a hoard last night. Can’t I catch a fucking break?!”
 
 No. No I can’t.
@@ -152,12 +154,12 @@ My wand blasts through her forehead unceremoniously.
 
 Shimmer is dead now, but I’m not even allowed the decency of remembering her the way I want to. Long gone is the memory of someone so valiant, beautiful, and strong. Instead, I am plagued with the sight of a twitching, crumpled heap of a person that I used to know. Her body quickly starts to crumble. Withering away like ashen soot catching flight in the night air. Now a blue seal rests beside the gold and green one.
 
-I fall to the ground staring at them for a moment, before gripping them close to my chest. And in that moment I miss our laughter. I miss running off to school together. I miss our early adventures. I miss my them. I miss my friends. My hands are trembling and my vision is blurred as tears stream down my cheeks.
+I fall to the ground staring at them for a moment, before gripping them close to my chest. And in that moment I miss our laughter. I miss running off to school together. I miss our early adventures. I miss them. I miss my friends. My hands are trembling and my vision is blurred as tears stream down my cheeks.
 
 “Hold these for me Sheen, I need a smoke.” My voice is hoarse and barely audible, but he understands.  
 I hold my hand out and he takes them without a word, swallowing them up and sending them God knows where.
 
-My palm is still open, expectantly, and not long after he burps up a pack of smokes and a lighter. My hands quiver as I light it, but once the embers catch the end of my cig I take a deep inhale. The menthol burns my throat, but seems to quell my quivering. I wipe the tears from my eyes and force myself to watch as what’s left of my friend withers away.
+My palm is still open, expectantly, and not long after he burps up a pack of smokes and a lighter. My hands shaking as I light it, but once the embers catch the end of my cig I take a deep inhale. The menthol burns my throat, but seems to quell my quivering. I wipe the tears from my eyes and force myself to watch as what’s left of my friend withers away.
 
 I hate this job and I really want to quit, but, after what’s happened tonight, I can’t. I mean if I quit what would Void do? What would it do to me? What would it do to the city? Hell, the world? It keeps getting stronger and I don’t know if I can keep up.
 

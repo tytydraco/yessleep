@@ -1,0 +1,679 @@
+I’ll never forget the first day that I met Mary. It was a hot, humid day and I’d just purchased a beater from a sketchy craigslist ad from an even sketchier guy. I pulled out of the overgrown, abandoned parking lot and cracked the windows, an attempt at getting fresh air from what might've been the start to carbon monoxide poisoning.
+
+I drove about 1000 feet before I reached a red light, coming to a stop.
+
+In the blink of an eye, I faceplanted into the steering wheel, the wind getting knocked out of me.
+
+Out came Mary, jumping out of her car and hyperventilating, thinking she'd killed me. 
+
+We pulled over and exchanged information, agreeing upon meeting up for coffee the next day to sort out the details. I didn’t have car insurance, but I just needed one more reason to see her again. 
+
+The next day, we met up and hit it off pretty quickly. We kept in contact from that day on and she ended up buying me another beater that lasted me a little while. The rest is history.
+
+Later on in our relationship, Mary told me that she actually rear-ended me because she was texting and driving. In her words, it was “her greatest mistake”.  
+
+Mary gets me unlike anyone else. I’ve never been so close to anyone in my life. She’s taught me so much in the three years that I’ve known her.
+
+One of my favorite things about her is that she isn’t the traditional type. She doesn’t want kids. She doesn’t even want someone to take care of her. She’s a carefree spirit.
+
+That’s why we’re going on vacation rather than having an actual wedding. 
+
+After a year of long night shifts in the warehouse and random odd jobs for quick cash, I’d saved enough to surprise her with a decent engagement ring and a fully paid trip to the Bahamas.
+
+My hand hovered over my nightstand, finding my phone screen to snooze my alarm, having already spared myself an extra five minutes of rest. 
+
+I grabbed my phone, turning on my back, unlocking–
+
+Fuck. 
+
+Somewhere along the line in the middle of my sleep, my phone lost internet connection. There goes all my old data. 
+
+The time read 2 a.m.
+
+“Mary, we gotta get up, it's time to get ready.” 
+
+I started to nudge her shoulder, waiting for a reply.
+
+All I got back was a tired groan, followed by a whiff of morning breath, a mix of cigarettes and root beer. 
+
+“C’mon it’s time to get up. We have to get there early.”
+
+She spun around, trying to ignore me despite looking me straight in the face. 
+
+“Alright then. I’ll get ready and you better be up when I’m back.”
+
+I got to my feet, stripping the sheets off of her, thinking it would’ve done something.
+
+It didn’t. She was still in the same position that I left her in once I got back.
+
+So I turned on the lights.
+
+“Oh my gosh, can you stop?” She snatched the pillow from under her head and held it over her face. 
+
+“It’s time. Chop-chop. Take a shower so we can leave,” I hovered over her, ripping the pillow from her hands.
+
+She let out a sigh and finally got up a few minutes later after realizing it was too late for her to go back to bed. 
+
+After multiple trips and final checks, we finally walked down the steps from our apartment building to meet our driver, an angry-looking man on his phone, leaning on the trunk of his sedan. 
+
+Our eyes met and I could feel the utter rage building in his gaze.
+
+I don’t think there’s a way we could fit all of our luggage in his trunk.
+
+“Sorry about that. It’s our first time traveling haha.” 
+
+He wasn’t a fan of my joke.
+
+We rolled our bags into his hands and scooted into the backseat, settling ourselves in. 
+
+Mary placed her purse onto my lap and leaned her head back, resting her eyes.
+
+“Are you positive you have everything?”
+
+“Yes. I’m positive. It’s too early for you to be talking so much.” 
+
+I took a deep breath, exhaling through my nostrils.
+
+Just then, the driver grunted, trying to force the crammed trunk to click shut. 
+
+I looked over to Mary, already sound asleep at this point. 
+
+Better safe than sorry.
+
+Gum. Lip balm. Rabbit’s foot. Wallet.
+
+I unlatched the clasp and unfolded her wallet.
+
+Cash. Gift cards. License. 
+
+Where’s her passport?
+
+The trunk slammed shut and my stomach sank.
+
+I dumped out all the contents onto my lap. 
+
+Still no passport.
+
+The driver got in the car, staring at me through the rearview mirror, letting out a sigh.
+
+“I’m so sorry. Just give me one second.”
+
+He gave a silent nod. At this point he still hadn’t even spoken a word to either one of us. 
+
+I threw the door open, searching through every nook and cranny in our cramped one-bedroom apartment.
+
+Thankfully, I ended up finding her passport but it wasn’t where I expected it to be.
+
+It was tucked away in the bottom drawer of her nightstand, her smoking station, under her rolling tray.
+
+I slid it in my pocket and rushed to the car, almost tripping down the stairs.
+
+We made it to the airport by 4 a.m., finding our way to TSA after what felt like hours of asking multiple gloomy, hostile airport staff for directions.
+
+The line to the first security checkpoint was relatively short and moving fast, everyone taking a couple steps every minute.
+
+We remained there in silence, taking in the overstimulating environment that is the airport. This was our first time being inside of one. It smelled a bit like the hospital.
+
+I glanced down at Mary and she glanced up at me, flashing me a faltering smile. The face that she makes when she wants to act like everything’s okay but it isn't. 
+
+I broke the silence.
+
+“Are you excited?”
+
+“Kind of. Just a bit nervous for it being my first time flying. I just want everything to go okay.” 
+
+She could barely even make eye contact, her eyes wandering off in the distance.
+
+We took a couple more steps, now two places behind the front of the line.
+
+“It’ll be okay. We got here at a decent time and we have everything that we need. We deserve this babe, it’s our big day!” I wrapped my arm around her, pulling her into my chest.
+
+She flashed me another smile, the fake grin starting to fail.
+
+“Next!” called a younger-looking woman sitting on a stool next to a scanner.
+
+“I’m looking for boarding passes, IDs, and passports!” 
+
+The family in front of us stepped forward, boarding passes in hand, setting us now at the front. 
+
+Her eyes followed their hands and it was almost as if a lightbulb had formed above her head. 
+
+“Wait, what? We don’t have those. We have to go all the way back now. We might miss our—“
+
+“Relax. It’s okay. I have our tickets on my phone. I got everything covered.”
+
+“Next!!” called the younger-looking woman.
+
+She nodded her head and followed behind me, dragging her feet along the floor. 
+
+I scanned my ticket and gave the agent my passport with my ID already slipped inside it. 
+
+She looked down at my identification, and then back up at me, staring a little too long.
+
+“You’re all set. Safe travels.” 
+
+I passed Mary my phone, giving her a thumbs up as she stood there awkwardly. 
+
+The agent scanned her ticket, waiting for the rest of her documentation as Mary rummaged through her purse. The only thing she managed to pull up was her drivers license, looking perplexed as she dug deeper in her bag.
+
+“Ma’am, where’s your passport?”
+
+“Oh shoot, I don’t think I have it. I might’ve left it at home. Damn it.”
+
+She sounded automated, almost as if she rehearsed this prior to today.
+
+“I have it. It was actually in your nightstand out of all places.” 
+
+The agent took Mary’s documents, staring intensely at both images.
+
+“Hm. Something about you looks different.”
+
+I loomed over shoulder, confused, wondering just what was—
+
+“Oh, I see. In this photo you’re actually smiling!” 
+
+She let out a hearty laugh, giving Mary back her belongings.
+
+I didn’t even say anything. 
+
+I think we both know what’s wrong.
+
+We checked in our oversized baggage, rolling the rest of our belongings towards our gate, arriving ten minutes before the first boarding call. 
+
+At this point neither one of us had said anything for a while. 
+
+“Are you okay? You’ve been cold towards me all day.”
+
+She shrugged, facing the other way, not saying a word.
+
+“So are you going to talk or not? I just want to enjoy this vacation with you. We’ve been talking all about this for weeks and now you’re acting weird.”
+
+She finally broke.
+
+“I’m sorry. I’ve been nervous ever since last night. It’s just one of those moments that I get a bad–”
+
+“Is that why your passport was in your nightstand? Were you planning on having us miss the flight all because–” I stopped myself from rambling. 
+
+She was on the verge of crying. I didn’t like making her feel like this but she wasn’t communicating with me and her attitude was eating at me. 
+
+“I’m sorry. I should’ve said something sooner. I just didn’t want to upset you.”
+
+“You should’ve. At this point let’s just go back.”
+
+“No. You worked hard for this. You do a lot for me so I'll do this for you at the very least.” 
+
+I wiped her tears and waved one of her curls hanging over her face.
+
+“You sure?”
+
+“I’m positive.” 
+
+For the first time today, she flashed me her first real smile.
+
+“Thanks babe. I’m telling you this trip is going to be perfect. Heck, maybe even the flight too. Plus you have the window seat.” 
+
+Minutes later, after waiting for the early boarders and premium flyers, we were the last people to enter the line going into the skybridge.
+
+The line came to a halt, leaving us right outside the plane door.
+
+I pulled my phone out, checking the time, accidentally pressing the capture button in the process.
+
+I looked drained. Lifeless even. I needed some sleep.
+
+“Hey babe. Look,” I shoved the camera in Mary’s face, a dead look in her eyes.
+
+“Let’s take a photo together.”
+
+She rubbed her eyes before throwing up a piece sign and pursing her lips for the camera.
+
+“To a new start!” I raised the camera above our heads, angling the lens to capture us both.
+
+The moment my finger hit the button, both Mary and I jumped, choking out a gasp. 
+
+Out of the corner of my camera lens, a dark figure emerged from the glass pane behind us, someone coming from the runway. 
+
+In came a stocky man. Short and stout with a serious look on his face. The embodiment of a Napoleon complex.
+
+“Sorry for disturbing the peace. The plane’s completely full and there’s no more space in the overhead bins so we'll have to check your carry-on bags in. You can pick them up once you land.” 
+
+He even sounded like a dick. The shades didn’t help. Who wears shades this early in the morning? 
+
+He took our bags and opened the door behind him, disappearing back into the night. 
+
+At least it’s one less thing for each of us to carry.
+
+Turning back around, the line had finally picked up.
+
+We entered the plane, catching up to the shuffle of passengers.
+
+Both sides were lined with two seats in each row, a long narrow walkway running down the middle. 
+
+The plane was packed to the brim with many faces. People with different stories as to how they got here. 
+
+We found our way to our seats, 12A and 12B, and buckled ourselves in.
+
+“You ready?”
+
+“Yes, I am. Thanks again for all of this. I appreciate you very much.”
+
+“Anything for you.”
+
+Yawning, I stretched my arms and legs, adjusting to my shoebox of a plane seat.
+
+“I’m pretty tired from leading us all this way, so I’m going to take a nap till we get there. You should do the same.”
+
+“Maybe. I’ll probably read for a bit. Goodnight love.”
+
+She retrieved her book from her purse and rubbed my cheek. 
+
+“Goodnight.”
+
+I rested my eyes, settling myself into my seat.
+
+“Excuse me, sir you can’t have your tray table down until we’re up in the air.” 
+
+I opened my eyes, confused.
+
+Two rows ahead, a male flight attendant confronted a man feasting on a can of sardines, his hands soaked in oil.
+
+“Who does that?” called a voice from the seat behind me.
+
+I whipped around, two pairs of eyes peeking over my seat.
+
+“People really don’t have any sense of self-awareness,” came another voice from behind me. 
+
+“So much for this being our first flight, am I right Mary?” 
+
+Mary was fast asleep, her head leaning on the window while her book sat on her lap. 
+
+They let out a laugh, using the moment to introduce themselves.
+
+Nate and Natalie. Another couple around our age that’s going on a vacation to celebrate their anniversary. We talked for a while until the lights started dimming.
+
+“Alright, that's my cue,” I faced forward, noticing something I hadn’t seen before.
+
+There were a few overhead bins left ajar, no luggage in them at all.
+
+The male flight attendant from before came into view, clicking them shut as he walked down the aisle.
+
+So what was the reason that we had to give them our luggage? 
+
+I decided to just forget about it, pulling my arms from my sleeves and spinning my hood entirely around, creating myself a makeshift sleep mask. 
+
+“Hey, can you move so I can use the bathroom?” whispered Mary’s voice in my ear.
+
+I let out a groan and didn’t move a muscle, my way of getting back at her from her early morning shenanigans. 
+
+She let out a sigh, maneuvering over my legs to the back of the plane. 
+
+I fell back asleep, eventually woken up by the dual-tone chime. 
+
+“We’ll be landing in the next ten minutes. Make sure to keep your seatbelts on and– ” The rest was pretty much nonsensical static echoing throughout the cabin.  
+   
+“Wow, we’re almost there.” 
+
+No reply.
+
+I reached over to my side, my palm meeting the warm, textured plane seat. 
+
+“Mary?” 
+
+Just how long–
+
+“Hey. Can you get up this time so I can sit in my seat?”
+
+The voice came from the aisle. 
+
+I peeled the hoodie off my face, snapping my head to the direction of the voice.
+
+It wasn’t Mary.
+
+It was a random woman with a resemblance to her.
+
+Her silhouette was the exact same, tall and curvaceous. Mary had been talking recently about wanting to lose weight for our trip but I’d always remind her that I loved her no matter how she looked. 
+
+Still, it wasn't Mary's voice.  
+
+“I think you have the wrong seat. My fiancee’s using the bathroom right now.” 
+
+“I’m pretty sure this is my seat. I’ve been there the whole flight. Plus, I’m the only one who was in the bathroom so I don’t know where you got that from.” 
+
+“Uh, sure. You can sit.”
+
+Mary’s probably playing a trick on me. She loves to do this all the time, knowing I don’t have the patience for it.
+
+I readjusted my hoodie, shooting up from my seat, exchanging an awkward silence as I leaned on the seat adjacent to me.
+
+“Sir, you cannot stand up right now. The seatbelt sign is up,” called the male flight attendant out from the dark. 
+
+He’s there for literally everything. 
+
+“Just give me a second, I gotta use the bathroom real quick.”
+
+I rushed to the bathroom, fidgeting with the metal plate.
+
+It was locked.
+
+I knew it. The lady was in on it and Mary’s in the bathroom laughing at me. 
+
+I fumbled with the door handle as I waited, rattling the lock in hopes to get her nervous.
+
+Eventually, the toilet whooshed and the door came unlocked. 
+
+I positioned myself, ready to jump out and get her back. 
+
+The door opened. 
+
+It wasn’t Mary.
+
+“What were you doing to the door? I could barely even shit in peace.” 
+
+It was sardine guy. 
+
+He closed the door shut, squeezing by me, his breath reeking just as bad as the stench leaving the bathroom.  
+
+Okay, so she’s been pranking me with one of those dumb voices that she does. I look so stupid right now.
+
+I shuffled back to my seat, plopping down and turning my head to face Mary, only to realize she’d fallen back asleep in the same position as before. Leaning on the window with her mouth drooping open. I sat there, admiring her beauty. 
+
+“WE’LL BE LANDING RIGHT NOW, STAY SEATED AND THANK YOU FOR FLYING WITH–” The voice sputtered from the scratchy speakers before cutting off, multiple heads jerking up in unison. 
+
+The window shade was now halfway open, strands of daylight flooding through the window.
+
+The person sitting next to me was not Mary. 
+
+She had at least ten years on me and a face that could turn you to stone, sporting a nose so sharp that it could be considered a deadly weapon.
+
+My fiancee has gone missing. 
+
+A mechanical whir came from inside the plane as we descended, last night’s dinner floating in my stomach.
+
+The plane came down hard, the sound of wheels grinding against the pavement at a high speed.
+
+We eventually came to a stop and I ripped off my seatbelt, standing up and searching through every row for jet-black curly hair.
+
+“Sir, you can’t be standing right now. We’re still—“
+
+The dual-tone chime rang again.
+
+“You are now free to take off your seatbelts. Thank you for flying with us. Have a great day.”
+
+The clicking of unbuckling seatbelts echoed through the air, multiple people springing up and racing to gather their luggage from the overhead cabin.
+
+I felt a vibration from my pocket, my gaze now dropping to my phone.
+
+It must be Mary. Yeah. She’ll laugh at me about how scared I’m acting and apologize for taking it too far. We'll laugh about this and it’ll be another memory. 
+
+I snatched the phone from my pocket, an incoming call from a phone number that I didn’t recognize. 
+
+“Hello?”
+
+Nothing. 
+
+“Mary?? Mary!!!” I screamed as loud as I could, hoping I’d get some type of reply.
+
+The call ended abruptly, but not before a voice was heard from the other end.
+
+It was the shrieking of my voice from somewhere in the distance, echoing right back at me.
+
+“Hey, are you okay?” called out Natalie from behind me.
+
+I spun around to face her, sympathy washed over her features. 
+
+“Am I okay? Did you not notice that my fiancée isn’t here anymore? She was sleeping next to me when the flight started and now she’s gone.”
+
+“That’s the same lady that’s been next to you the whole entire flight. You told us how she’s your friend and—“
+
+“He is not my friend,” The lady bolted up, visibly upset at the thought of even being associated with me.
+
+“I never said anything about a friend. Are you serious?”
+
+At this point the line ahead was starting to move faster, people rushing to get away from the commotion.
+
+“You believe me, right Nate?” 
+
+“Yeah. I do.” 
+
+His eyes didn’t match his words. 
+
+Adjacent to me, an elderly woman braced herself against the headrest of the seat in front of her. She remained transfixed, observing every small movement I made. 
+
+A mother and father blocked the aisle a couple rows ahead of me, multiple backpacks slung over their shoulders as they rushed their kids out ahead of them. 
+
+Everyone thinks I’m crazy. As if Mary disappearing into thin air was something normal. 
+
+I leapt out into the aisle, tailing the family until—
+
+“Sir, you’re scaring everyone,” called out the male flight attendant from before.
+
+He was standing in front of the plane door with his hands raised.
+
+“I’m looking for my fiancee. She’s gone missing during the flight and I need to get to her. She should be in the airport by now.”
+
+“Alright.” 
+
+He slowly shook his head with a furrowed brow.
+
+“I got a call from her. See?” I thrust the phone towards his face.
+
+“Why don’t you have her saved as a contact?” 
+
+“Because she might–you know what? I have more proof for you!”
+
+Honestly, I’m not even sure if the photo from earlier actually took.
+
+I quickly opened my camera, noticing his eyes darting to the back of the plane. 
+
+I followed his eyes, confused. 
+
+No one had moved a muscle, almost as if I was the one holding them hostage.
+
+I glanced back down, a small preview appearing in the corner of my screen. The only evidence of Mary Bourne. 
+
+She’s always loved my last name. Personally I’ve always hated it.
+
+“See? This is us before we boarded the flight earlier.”
+
+“I don’t know what I’m looking at. All I see is you and Dennis.”
+
+I turned the phone back towards me, a blurry photo of me and the stocky man from before, no Mary in sight.
+
+“Just let me through, we’re losing time!” 
+
+“If you have a fiancee, then why don’t you have a ring on?” He flashed a smirk, as if he caught me in a lie.
+
+I’ve never taken off the ring ever since the day we got engaged. Not for any reason at all.
+
+I pushed my way through, knocking the flight attendant to the ground and running down the long hallway into the airport, completely unencumbered.
+
+Once I got to the end of the hall, I slowed down to a casual pace, a lump in my throat.
+
+I found my way to the nearest bathroom, my head down and my hood pulled up.
+
+The bathroom reeked of urine and musk, my shoes squeaking every other step.
+
+I locked myself in the last stall, standing with my hooded sleeve over my mouth, holding back heavy sobs with one hand as I tapped the screen with the other. Copying and pasting messages between Mary and the random number that called me. 
+
+‘Mary. Where are you? This is getting annoying now.’
+
+‘Please just answer.’
+
+‘We need to talk. NOW.’
+
+I kept hitting send, waiting for the tiny word delivered to appear on my screen.
+
+Did I maybe hurt her feelings way more than I thought I did? Maybe she got cold feet and figured that this is all too much for her? That I’m not good enough for her? 
+
+She’s real. She’s definitely real. She’s my fiancee.
+
+No. She’s actually my wife. We said we’d technically be married once she landed. I even had to–
+
+Wait.
+
+I wiped the tears from my screen and typed in a phone number. The only other phone number that I knew by heart, drilled into my head for as long as I can remember. 
+
+Emma. Our close friend who grew up with Mary. Mary always made it a point to get Emma’s blessing even before her own parents. 
+
+I dialed her number, pressing my phone to my ear and walking in circles, each ring slower than the last. 
+
+“Hello? Who is this?”
+
+“Emma? Hi. It’s me, Mr. Nutsack!” 
+
+Crickets.
+
+I snapped the phone from my ear, questioning if I’d called the wrong phone number. Emma’s always loved my corny humor.
+
+Or did she? 
+
+‘It’s me, Riley. Your best friend’s fiancee.”
+
+“Doesn’t ring a bell.” 
+
+“Mary? Your best friend? The one who–”
+
+The call ended.
+
+I gave it a moment and redialed the number again, chewing onto my already jagged fingernails. 
+
+Maybe she’s just woken up or something.
+
+“Hello?”
+
+“This is Emma Boyd, right?”
+
+“Um. Yes. How do you know—“
+
+“Do you know where Mary is?”
+
+“You again? I don’t know anyone by that name and I most definitely don’t know any Riley.”
+
+We both went quiet.
+
+That’s the first time she ever said my name correctly.
+
+One thing about Emma that I’d noticed when I first met her is her speech impediment. She’d always pronounced my name “Wiley”. She’d told me countless stories about how her parents would always correct her growing up and how she was insecure about it all her life.
+
+I ended the call, sliding my back against the wall, my knees now buried against my chest on the dirty bathroom floor.
+
+I threw the back of my head onto the ceramic tile, landing with a cold thud. I kept at it until a loud voice over the intercom broke the silence.
+
+“Attention passengers from flight 800 from Boston. This is the final call for baggage claim.”
+
+I picked myself up, wiping away my tears and blowing my congested nose.
+
+Pushing open the stall door, I was met with a face staring back at me that was all-too-familiar. The face that I’d make when I act like everything’s okay even when it isn’t.
+
+I washed my face and strode my way out, keeping my head low, ready to face reality.
+
+Most of the people from the flight had left by now, only a couple families and single travelers left. 
+
+She’s here. I know she is. I can feel her.
+
+Minutes passed and the conveyor belt stopped, everyone now leaving with their belongings.
+
+My knees buckled and I fell to the ground, crying.
+
+My head remained low, staring at the ankles of people walking by me, all of them subtly staring at the man crying on the floor of an airport.
+
+“Hey. What’s wrong?” In the blink of an eye, a pair of shoes appeared in front of me, pink chuck tayl—it was Mary. Same outfit, ring, and everything, our bags lined up behind her.
+
+She held out a hand and helped me up, hugging me tight. Tighter than I’ve ever been hugged before.
+
+“I thought I lost you. What happened?” 
+
+“I’ve been here the whole time, silly. What’s up with you?” 
+
+“But the lady in your seat? And the phone call? Was this all a prank?” 
+
+She flashed me a smirk and wiped my remaining tears.
+
+“Yes. I’m sorry for dragging it so long.”
+
+I couldn’t even let myself get mad. I was just glad that everything was okay.
+
+“Please don’t do that again.” I gave her a half smile, lips trembling.
+
+“I don’t know about that!” 
+
+We laughed, leaning forward and resting our foreheads against each other, hands intertwined. 
+
+“You should go clean yourself up, Mr. Ballsack. I’ll be here waiting.”
+
+“I hope so,” I took off my hood, undoing my hair tie, my matted curls hanging in my face. 
+
+“I’ll be here waiting. I’ll always be here.”
+
+She gave me one last kiss on the cheek before passing my luggage over to me.
+
+The bathroom smelled slightly pleasant this time, somewhat tolerable.
+
+It’s crazy how different you experience everything when you’re in a better mood.
+
+I plopped my bag onto the granite countertop, droplets of water landing on my clothes.
+
+Now looking back at me in the mirror was a happier version of myself.  Puffy, bloodshot eyes, bitten lips, and a huge smile.
+
+“I got something for that,” I mumbled to myself.
+
+I unzipped my bag, opening a Ziploc baggie and pulling out my beauty products.
+
+In the midst of putting on my lipstick, I was interrupted by a scream followed by a sprint, the person already gone before I could turn my head.
+
+I proceeded to finish putting on my lipstick, now pulling out the cute travel-sized matte concealer that I’d bought specifically for this trip.
+
+Before I could click the concealer cap back on, someone entered the bathroom, taking a couple of steps before stopping. 
+
+As they took their last steps, the figure materialized in the glass. 
+
+It was a female security officer. 
+
+“May you please leave the bathroom? You’re scaring people.” 
+
+My eyes skimmed the room, a realization hitting me.
+
+I was the only one in the bathroom.
+
+“What did I do?” 
+
+“Just please gather your belongings and leave.”
+
+“No. There’s no point in me leaving,” I leaned into the mirror, making final adjustments to my look.
+
+“I’m going to ask one more time. Please leave the bathroom.”
+
+In the reflection of the mirror I could now see the security guard advancing towards me, arms raised.
+
+The sputtering static of the walkie-talkie shattered the silence:
+
+“Does anyone have eyes on the suspect? We have officers on the way.”
+
+Our eyes met, tension building in the atmosphere.
+
+“Sir. No one is going to hurt you. If you would—“
+
+I pushed my way through, the security officer’s head hitting the wall with a hollow thud, knocking her to the ground. 
+
+Barging through the door, I scanned the airport, a wave of panic hitting me.
+
+“Where’s Mary?” 
+
+She was nowhere to be seen, all of our bags in the same place as before. 
+
+I just stood there frozen in place. My eyes locking onto—
+
+“Hey! Stop right there!” called out an officer, knocking over my bags and snapping me out of my haze. 
+
+I bolted through the airport, not looking back at all.
+
+Coming to, I found myself in a janitorial closet, dim lights flickering overhead.
+
+My body stayed hunched over, retching violently into a mop sink.
+
+I don’t know what to do. The cacophony outside of the door just heightens my anxiety.
+
+The chiming of the intercom, squeaking of shoes, rolling of plastic wheels. Literally everything. 
+
+My return flight is in exactly a week, I only have my phone, and it’ll be god knows how long until someone finds me here. 
+
+What should I do?

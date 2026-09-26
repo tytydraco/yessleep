@@ -118,7 +118,7 @@ Her fork clattered loudly against the plate, causing me to wince at the loud, sh
 
 “I don’t think it’s important,” she said.
 
-I studied her for a moment. Her eyes were dark and locked onto the yellow tablecloth in front of her. Her dark hair was graying now at her temples, and wrinkles lined her forehead and her mouth. They deepened as she frowned, seemingly lost in thought. I realized in that moment just how old she looked. How tired, even. I never noticed before how uncomfortable the subject actually made my moment. I glanced uneasily at my brother. I was unsure if I should keep pushing and looked to him for a reaction.
+I studied her for a moment. Her eyes were dark and locked onto the yellow tablecloth in front of her. Her dark hair was graying now at her temples, and wrinkles lined her forehead and her mouth. They deepened as she frowned, seemingly lost in thought. I realized in that moment just how old she looked. How tired, even. I never noticed before how uncomfortable the subject actually made my mother. I glanced uneasily at my brother. I was unsure if I should keep pushing and looked to him for a reaction.
 
 Eddy’s teeth ground together as his jaw locked in place. He looked angry. I thought at first it was directed at me for bringing up the ghost again. But his dark glare was fixed on our mom. She still refused to meet our eyes as the silence stretched before us for an awkward moment.
 
