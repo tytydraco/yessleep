@@ -1,0 +1,39 @@
+Chapter 1: The Discovery
+
+I had always believed that I knew every game in the world whether it was board games or video games I had played them all. Yet there was one game that I could not understand and which left me feeling confused and scared.
+
+That was the game my father used to play with me.
+
+I can recall the first instance of it. At the time I was only a small girl, pure and naive. My father said that he was going to play a special game with me. I was excited because I thought it would be similar to all the other games we usually played.
+
+However, this situation was different. It began in a harmless way when my father tickled me and that made me laugh, but it then took a negative turn since he started to touch me in places he wasn't supposed to and this made me feel uncomfortable and scared.
+
+I had no idea what was going on. I wasn't sure how to respond. All I was aware of was that this game seemed wrong. It didn't at all seem like a game.
+
+Chapter 2: The Confusion
+
+As I got older, the game went on. My father always managed to play with me and could always come up with reasons for being alone with me. I tried to get him to stop, to let me know that I didn't want to carry on playing any more. But he always found some way of making me feel guilty and of making me think that I was the one at fault.
+
+I felt trapped, bewildered, and frightened. I had no idea how to get it stopped. I didn't know how to make him see that this game was hurting me or that it was damaging our relationship.
+
+I tried to hide my feelings and act as if all was well, but inside I was aware it wasn't. I knew that the game was driving us apart and that it was corrupting the love we had once known.
+
+Chapter 3: The Revelation
+
+I didn't fully understand what was going on until I had grown older, and it was only after I had learned about sexual abuse and the methods that abusers use to manipulate their victims that I suddenly saw everything clearly.
+
+I came to the realization that the game my father used to play with me wasn't really a game; it was a nasty and twisted kind of abuse, a means by which he could assert power and control over me, and I knew that I had to get it stopped.
+
+I told my father that I knew what he was up to. At first he denied it and tried to make me question my own judgement, but I kept my position and would not give in, and in the end he gave in and admitted the truth.
+
+I was deeply saddened and heartbroken since the man who had once been loved and trusted had betrayed me in the most terrible way; at the same time I experienced a feeling of relief and emancipation, for I was now free from the game and free from the abuse.
+
+Chapter 4: The Healing
+
+It took some time, but in the end I did manage to get over it. I got therapy and surrounded myself with friendly friends and family. And gradually and definitely, I started to reconstruct my life.
+
+I was able to learn to trust once more and to love again. I met a partner who showed me respect and kindness and thus gave me an example of what a healthy relationship should be like. And I decided that I would never allow anyone else to play that nasty game with me again.
+
+Although I had once thought I knew all the games in the world, the one my dad used to play with me was a game that I never wanted to go back and play again, and as a result I was now able to live my life on my own terms, free from the influence of the past.
+
+The End.

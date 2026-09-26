@@ -1,3 +1,5 @@
+[Previous Part](https://www.reddit.com/r/nosleep/comments/1wnuxwo/has_anyone_been_to_the_church_near_large_lous/)
+
 There was nobody there. It was 5 PM on Wednesday. I showed up to pick up my check, and inform Linda that she can screw off with whatever crappy bullshit operation they have going on here. But, the parking lot was devoid of any cars besides the people who usually worked here.
 
 While it wasn’t rush hour or anything, due to the loyal clientele, we usually had at least a few customers.

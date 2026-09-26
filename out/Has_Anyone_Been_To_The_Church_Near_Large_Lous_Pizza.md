@@ -332,3 +332,4 @@ He just said “135,130”, and I couldn’t care less what he’s counting to a
 
 I was supposed to get a paycheck last Friday that I never received, and since I’m kind of done with working at Large Lou’s, I’ll just go in tomorrow, pick up my check, and tell them I quit. But once I do this, I will never EVER even step foot near Large Lou’s pizza ever again for as long as I live.
 
+[Next Post \[Final\]](https://www.reddit.com/r/nosleep/comments/1wq8478/did_anyone_notice_that_large_lous_was_closed/)

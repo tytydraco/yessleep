@@ -1,0 +1,41 @@
+It’s amazing how good the mind is at managing grief when fixated on a specific task. I mean, managing my emotions and keeping calm under the most extreme situations is kinda part of the job, or was, but it still bewilders me how far beyond the cockpit that mindset reaches.
+
+I am still dead, legally speaking. Not too sure how the hell the government is supposed to undo that since people usually don’t recover from being dead. While it has been two weeks since the incident the search for the wreckage is still ongoing. These days the news seems only seems to run updates about the search for Flight 411.
+
+Ships and planes from over 15 different nations all partaking in what they’re calling the largest coordinated search and rescue operation in history. An entire world holding their breaths hoping for the rescue of people they’ve never met. Millions if not billions of dollars to recover what they believe are 140 corpses and some twisted metal. 
+
+I guess if i still had any family or friends they’d be glued to their screens too.
+
+I’m beginning to notice inconsistencies in my memory. Now assuming that I did somehow survive a plane crash, some minor brain damage would be the bare minimum I’d walk away with. So I guess I have that running for me. On that note I did manage to remember something very important: the passcode for my door lock. 
+
+Recently I bought a keypad door lock after my ancient door lock finally seized with my key inside it.  Some advice, if you have an old lock on your house, replace it before it becomes a problem so you dont have to saw a hole in your door. Anyway, the beauty of a keypad lock is that I don’t need a key, which is helpful when you wake up in a hospital bed with nothing but a patient gown. 
+
+My house was, thankfully, exactly as I left it. Not that I could really remember how I left it, but nothing looked as if it had been rummaged through by some sort of collecter or estate manager-type. The fridge needed some clearing out but all in all it was like I hadn’t left. I rarely stayed home as it was, working 3 days a week sounds amazing until you realize that the other four days of your work week are spent at holiday inn’s in different cities. 
+
+It’s a strange feeling to constantly reach for a phone that is long gone, yet I still feel its phantom in my pocket every time I move. 
+
+For most of the first days back home from the hospital, between the endless DMV appointments, I just sort of surfed the web on my laptop for news coverage regarding Flight 411. Every article had the same photos, every article showed that same man standing next to my First Officer, that same man who looked nothing like me.  
+
+I swear if I’d had more photos of myself they’d show his face instead of mine. 
+
+I thought about getting into contact with the airline, but I doubt they’d believe me with just my voice. Not until I get my credentials back together. Who would I even call if I did? The closest thing I had to a friend was Jason…
+
+I always kept a cash stash in the event I lost my debit card, so I at least wont starve, but at some point I’m going to need to sort out the whole “dead” thing with the bank. 
+
+Now that I think about it, what does happen to someone’s things when they die? If nobody claims their estate does the state just take it? Does it just sit and collect dust if there’s money in the account to pay the bills? Can dead people hire lawyers?
+
+If anyone has any experience with this, as impossible as it seems, please enlighten me. 
+
+God, sorry for the incoherent rambling. To be honest I’m still in complete shock. It’s like the world is fast forwarding around me and I’m standing still. I’m a stone sticking up from beneath the rapids getting bombarded by the unrelenting current of time. 139 people on that plane and only I survived, only I got to come back home. 
+
+Ugh, I can mope later. First things first, prove that I’m alive. I know this update probably isn’t what most of you were looking to see, but I gotta focus on getting my life back together. 
+
+-
+
+Sorry, I’m writing this last bit here because it’s been keeping me up the past few days. You’d think that it would be the weird, almost hollow feeling that the world has now. Or the mysterious static build up around my airplane before it crashed. Both are nagging at me for sure but this particular thing is shouting at me from the recesses of my memory.
+
+I distinctly recall being told that my assignment to Flight 411 was a temporary one. Like a one off “can you sub in for this captain” you know typical scheduling bullshit. Yet they kept me on that route for almost six months. Of course I still flew other routes, mostly long-hauls but I was always scheduled so that I would be at base to fly Flight 411. I rarely ever called off or got sick, but the one time I did try to call off when I was scheduled I was immediately and firmly denied. 
+
+Mind you, I’d flown for this airline for over a decade. Seniority and tenure doesn’t even approach what myself and other captains with this airline had with that record of service. It was to a point that I was begged to take time off and sick leave because I had maxed out on hours. I had a mind to go to my union rep about it but something just felt off. This didn’t feel like it was some corporate play, or if it was they were being real nice about screwing me out of my PTO. When I pushed them for answers they kinda beat around the bush about why, using the excuses of “scheduling conflicts” or “pilot shortages” that you’d expect. May seem strange but I remember them being real weird about it. Any other days seemed to be without incident but god forbid my PTO requests fell on a day flight 411 was scheduled for. 
+
+Makes me think that if I’d died prior to this they’d find a way to reverse death itself just so I could Captain Flight 411. Just what the hell was so special about this flight?
