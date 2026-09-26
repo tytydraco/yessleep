@@ -1,0 +1,198 @@
+**In Bloom**  
+**PART 1:**
+
+*AFFIDAVIT AND DYING DECLARATION*  
+*I, \[****Nicholas James Matthews****\], do hereby solemnly and sincerely declare under penalty of perjury under the laws of \[Jurisdiction/International Criminal Court\]:*
+
+   *1. Competence and Intent: I make this statement voluntarily, while possessing full testamentary capacity and sound mind. I am acutely aware of my imminent mortality, having been diagnosed with terminal \[Specific Cancer, e.g., Mesothelioma / Acute Myeloid Leukemia\], a direct and proximate result of chronic, long-term occupational exposure to \[carcinogenic agents, e.g., ionizing radiation / volatile halogenated solvents\] during my tenure as an instrument scientist. Knowing I have no hope of recovery, I offer this definitive account as my final dying declaration.*  
+   *2. Statement of Accountability: I am executing this instrument to fully confess to, and document my complicity in, actions that constitute gross violations of international humanitarian law, specifically classified as crimes against humanity under the Rome Statute.*  
+   *3. Nature of the Offence: In my professional capacity as a specialist in analytical instrumentation and system calibration, I knowingly designed, optimized, and maintained specialized equipment utilized for the \[clandestine production / deployment / monitoring\] of \[harmful agents / prohibited weaponry / mass surveillance architecture\]. I acted with full knowledge that the technical outputs of my work would directly facilitate systemic, widespread attacks against civilian populations.*  
+   *4. Conclusion: I execute this confession to ensure that the technical methodologies, chain of command, and full scope of these operations are preserved for the record, providing a truthful basis for justice that my impending death will otherwise deny to the tribunal.*
+
+***This is the account of Nicholas James Matthews, Born 7/02/1962.*** 
+
+Authors notes:  
+God has forgiven me. 
+
+*In late December 1989, Parkes was running high-precision radio astronomy programs targeting non-optical frequencies. Two years after the 1987A core-collapse supernova exploded in the LMC (Large Magellanic Cloud), Parkes maintained continuous monitoring schedules to measure the expanding radio shell and search for a newly formed central pulsar.*  
+*On 22/12/1989 Two interns sat past hours in the viewing bay of the Parks Observatory. One of them, Scot, observed that the Supernova 1987A core, seemed to be flaring out rhythmically. He asks his colleague, Phil to look through the viewing window but he sees nothing out of the ordinary. Scot then tells Phil about what he saw, that it should be pulsing. When Phil looks again, he sees that it is in fact flaring out in a beautiful bloom of energy. This discrepancy between the two scientists' perceptions inspired the men to work on their own theories; that what could be seen could be codified and shown in real time. After hundreds of hours of work, Dr Phil Lucas Holland and his partner Dr  Scot Chromanski, built a device that could connect diodes to a user's scalp, read the  Electroencephalography (EEG) data, and show what the subjects were seeing on a television. It was a device so extraordinary that upon its release, many thought it to be a hoax. Today, the Angel Foundation is the leading research organisation on ONI (Ocular-Neural Imaging), the technology being across industries; from medical applications especially in psychiatry, to platforms contracted for use in many of the ANZUS defence platforms.*
+
+This is the history on the ‘About’ page of the Angel Foundation website. The thing I must have read probably a thousand times before my interview for this damn job. It wasn't a particularly prestigious organisation, but I’d had a rough go of employment for the previous few years. I actually interned at the same astronomical observation site that Dr Holland got his start at, though he'd left for bigger things a few years before I started. The Parks Observatory was doing High-Latitude Pulsar Surveys In 1999; running high-sensitivity pulsar searches pointing away from the galactic plane into higher celestial latitudes. They were sweeping for fast-spinning millisecond pulsars and binary systems using the high-frequency multibeam receiver array. 
+
+It was amazing work but I was an Instrument Scientist, so my part in the grand exploration was pretty monotonous. I was monitoring vacuum seals, swapping compressor units, and purging lines to prevent receiver drift. I ran daily test tones (cal-injections) through the signal chain to verify channel phase alignment, system temperature, and baseline stability across all observing bands. I also spent plenty-enough hours climbing up into the focus cabin high above the dish structure to physically install, realign, or service feed horns, sub-reflectors, and drive control encoders.  
+I hated the last one. I’ve always been afraid of heights.
+
+I was told my job at the foundation would be similar to my original assignment, though a lot more complex. But I will say, I always had a knack for it and came to be a sort of guru for the greener technicians at the observatory. That was before my life was torn apart. But I was back on top of it, life mostly sorted and ready to do something for the betterment of all mankind. And I had been for two years. 
+
+*EMPLOYMENT AGREEMENT*  
+*This Employment Agreement (the "Agreement") is entered into and made effective as of this* Monday *of* **02/02/2003**, *by and between The Angel Foundation****^(TM)****, hereinafter*  
+*referred to as the "Employer" or "Foundation",and* **Nicholas James Matthews**\*, born on\* **7/02/1962**, *residing at*  
+**64 Bathurst St, Condobolin NSW 2877**\*, hereinafter referred to as the "Employee".\*
+
+*1. Position and Duties. The Employer agrees to employ the Employee, and the Employee agrees to serve the*  
+*Foundation in the capacity of Instrument Scientist. The Employee shall perform all duties customary to this position,*  
+*including but not limited to the design, calibration, maintenance, and optimization of advanced analytical*  
+*instrumentation, laboratory infrastructure, and specialized technical systems as directed by management.*
+
+*2. Term of Employment. Employment under this Agreement shall commence on* **14/03/2003**, *and*  
+*shall continue indefinitely until terminated by either party in accordance with the provisions herein.*
+
+*3. Compensation and Benefits. As full compensation for services rendered, the Employer shall pay the Employee a*  
+*Gross salary of* **$73,372** *per annum, payable in regular installments in accordance with the Foundation's*  
+*standard payroll practice. The Employee shall be eligible to participate in health, retirement, and other benefit*  
+*programs generally made available to full-time personnel.*
+
+*4. Confidentiality and Non-Disclosure. The Employee acknowledges that during the course of employment, they*  
+*will have access to highly sensitive, proprietary, and classified research, instrument data, system designs, and*  
+*institutional operations of the Foundation. The Employee agrees to maintain absolute confidentiality regarding all such*  
+*proprietary information and shall not disclose, duplicate, or distribute any technical or corporate records to external*  
+*third parties without express, written institutional authorization, both during and after their tenure.*
+
+*5. Governing Law and Severability. This Agreement shall be governed by, construed, and enforced in accordance*  
+*with the laws of the jurisdiction in which the Foundation's primary laboratory operates. If any provision of this*  
+*Agreement is held invalid, the remaining provisions shall remain in full force and effect.*  
+*IN WITNESS WHEREOF, the parties hereto have executed this Employment Agreement as of the date first written*  
+*above.*
+
+*Angel Foundation Authorized Representative:*  
+**Marcus John Wilson**  
+*Date:* **02/02/2003**,
+
+\*Employee:\***Nicholas James Matthews**  
+*Date:* **02/02/2003**,
+
+Today was just like any other day; waking up in the onsite living facilities. The sun's rays were already setting on the earth as a torrent through the ozone. I’d get dressed in a rush and walk the two-hundred and fifty or so strides north to the Free Tech Laboratory. A massive concrete box in the middle of rural New South Wales. I’d take one of three elevators, fitted with those nausea inducing infinity-mirrors to the eighth floor. That would open into a cold reception hall clad in textured, white drywall. Unnecessarily bright cool-white linear fluorescent tube panels scorching down on the entire space, the everpresent 50hz hum. It honestly could have been mistaken for a hospital waiting room.   
+Then everyone scuttled off down the irregular maze of halls to their pristine labs or offices. Most of which, devoid of natural light. 
+
+I walked past the cute girl with a prissy poney-tail and rimless cat's-eye glasses at the front desk. She wouldn't even look up from her screen at me when I scanned my card. Just handed me a notice to not be late for the presentation on that day. Management had been finding new, cruel and unusual ways to be on my arse as of late. Handing me a clipboard with a list of deliverables was getting old. But a reminder, for a presentation that I was notified via email at 4pm the previous afternoon, was a new low.
+
+At 2:15pm, the cofounder and quack Scot Chromanski would be unveiling a new discovery on his cursed love child; The Canonical Observer Effect. Sometimes a video of him having a melt down during the initial testing of The Ajna project, was shared via email chains in-house. It's not a particularly interesting video, but it seemed no one I speak to has a copy of it any more. It goes something like this;  
+*The camera is in the centre of a control room with some sort of two-way mirror on the wall, and a large desk made up of wires, knobs and other electronics. A television is set to the right of the window. And through the glass is the back of a woman's head.*   
+*She sits facing a television that is the only lightsource in an otherwise pitch-black room, a net of diodes hanging from her scalp.*   
+*They begin the test, showing simple geometric shapes on the subject’s screen, and waiting for the magic of the Ajna to read and generate the same image on the screen in the control room.*   
+*Square reads correct, then five-point star, then triangle, then circle initially, but then it starts to flare out.*   
+*Four points begin emanating from the circle and stretch long and thin. It's hard to tell if the television is casting the flared light or if it's a trick of the lens.*  
+ *Scot can be heard throwing things and shouting obscenities id rather not repeat. The woman looks back through the glass at the camera, the cold white from the screen reflecting in her eyes.. The operator tells her that they're going to take a short break.*   
+*You then hear Philip trying to calm Scott, down telling him to go get a coffee or something. That he's been up too long. Scot can be heard leaving and slamming the door behind him.*   
+*The circle returns to normal and the video ends*.
+
+It was funny the first time it went around and had to be purged from the VPN, warning and terminations sent about. But now I just felt bad for him. Imagine spending your whole career in the shadow of your partner because you can't let go of your unprovable theories.  
+My day was as uneventful as it could be, climbing into holes, taking measurements, writing reports. The canteen selection was as unremarkable as always, I had my regular chicken Caesar wrap.   
+I'm getting off track.
+
+The notification rings out and two hundred or so bodies meander  into the auditorium. I find a seat as close to the back row as I can manage. Though those usually filled up first on these occasions.   
+Then he walks out,  and spouts promises of amazing new findings he's made and what the technology could do for the greater world. A copy was sent out to all staff if you’d like to read it.   
+I’ll admit that his use of Shielded solid-state SQUID magnetometers, and zero-point noise diodes deployed within the physical boundary of each testing center, surprised me. I couldn't guess how he got the funding for it. 
+
+The poor soul, after his grand speech, opened up the room for questions, and there were many hands cruel enough to pop up. Some argued the fallacies in his data acquisition, yadda, yadda. But most questioned the fallacy of his thesis in its entirety. 
+
+"Dr. Chromanski, if staring at baseline noise causes the universe to bend to your mind, can you ask your conscious envelope to fix the bad coffee in the breakroom, or does your theory only apply to high-budget hallucination?”
+
+A wave of hushed chittering flowed through the room.
+
+He scoffed and adjusted his tie, preparing to speak but was cut off.
+
+​"Let me get this straight: when your cryogenic sensor drops by half a percent, your immediate conclusion isn't hardware calibration or atmospheric noise, but that human thought is rewriting the laws of physics?”
+
+More hushed bickering and some giggles.
+
+“Uhhh, you’re misunderstanding the very foundation of the-”
+
+"With respect, Dr. Chromanski, if forty two hundred people listening to a radio tone can alter physical reality, why hasn't a packed stadium at the Cricket Test Matches ever accidentally levitated the ball?”  
+More hushed laughter.
+
+“It’s about intent, if you’d just-” his head began to droop, as if he could hide it in his now asymmetrically actuating chest cavity. I could see the white of his knuckles as he rang his hands, even from where I sat.
+
+“Enough!” Scot’s voice roared through the chatter, so cutting that I instinctually sat up straight in my seat like a school boy. “I'll prove it with a demonstration.” He paced the room madly mumbling to himself, before stopping dead and pointing out someone from the crowd seemingly at random.  
+“You will have your very mind changed by my intent.”  
+He stood for a while in a strange pose, a toddler standing stiff and lent over slightly, with feet wide and knees bent slightly. It almost looked like he was trying to defecate himself on command. His face went beat red and a broad vein on his temple became visible even from where I sat. The woman he chose, one I didn't recognise, laughed for a while before. She then burst out of her seat and took the same pose as him. It was obvious that she was mocking him and the room erupted in laughter once again. 
+
+He then broke concentration, hanging his head between his knees and bashing it with the heel of his palms. He then paced some more before trying again, this time nearly a quarter of the room stood up. Fifty or so respected scientists making a huge fuss to mock a mad man like children, it was quite the spectacle. They stood in that cramped position for a few seconds too long. Too long to be funny. Their eyes were bulging and their faces grew flushed and pink. Still people laughed.
+
+“You wanna laugh at me‽” I just made out through the cachophy “Go ahead and laugh!”
+
+And so they did. Almost everyone aside from myself and maybe six others in the auditorium stood, took the pose and cackled to themselves. They cackled and hacked and spat, head banging  so hard that their necks seemed to hyper extend. It was as if they had no control of themselves. Heck, even I had the inexplicable urge to follow. But ultimately my confusion, amusement and fear kept me down. That is before both Scot and the lady he’d picked out collapsed. Suddenly it wasn't funny anymore.  
+I still remember the contorted face she wore when they rolled her body past us spectators. Some said it was elation and I understand that assumption given the raised cheeks, squinted eyes and furrowed brow. But to me, I saw a rancid mixture of agony and bliss. We found out later that she'd had an aneurysm.
+
+New hires started rolling the following month as some staff simply stopped showing up. The company definitely wanted to bury the whole fiasco. 
+
+I found out later that some genius from tech had smuggled a copy of the footage out of the lab and handed it to his buddy who worked at a radio station. It immediately became the most popular video to send out in email chains. Even clawed its way out of the building servers and spread like a virus. Three weeks later, Scot did a radio interview where he was baited into another meltdown . They seemed to ask genuine questions about his work at first, but it quickly took a cruel turn. They played a sample from the video of the room laughing anytime Scot tried to make one of his awful jokes. I tried to ignore the whole pandemic, sticking to my shit job and keeping my head down. At some point a video was posted to NewGrounds. A sort of mockumentary with the tone not unlike the 1937 Chevrolet educational film *Around the Corner*. It looked pretty official, with the classic 3D word-art of the company logo rotating slowly at the beginning. Fair to say the company tried to bury it.
+
+He was now a laughing stock both *in* the scientific community and *outside*. Fair to say there was nothing that Ol’ Phil could do to save his dear friend's career. They bought him out of his share of both the company and his research. We all stood and watched in silence as he was escorted from the building screaming nonsense. Then we went back to work. In the following month I would be assigned to a taskforce set to ‘redistribute’ the swath of insanely delicate and expensive technologies that he held in his private lab. But his office was emptied by the higher-ups and security team and sealed off before we even began. There were some things that were very out of place and I’ve listed them below. To this day, I have no idea what he could have used these ancient bits of kit for.
+
+* *Stacks of CDRs & Printouts: Shelves filled with unlabeled spindle disks and thick dot-matrix printouts labeled TESS\_FLUX\_DATA\_SPICA\_2011.CSV or CASSINI\_RPWS\_SATURN\_RAW.DAT.*
+* *An Old Windows XP Tower humming loudly under the desk, running early Python scripts, custom C++ sonification code, and an unregistered copy of Max/MSP 5 or Photosounder.*
+* *Tektronix 2213 Oscilloscope: A vintage green-screen oscilloscope sitting on a shelf.* 
+* *Eventide H3000 Ultra-Harmonizer: A legendary rackmount pitch processor from the late '80s/90s.* 
+* *A custom-built rack of synth modules with tangles of colored patch cables.* 
+* *A Slouched Leather Recliner placed directly in the center of a concrete room. It had industrial bass-shakers bolted directly to the wooden frame of the chair, wired to a 1000-watt PA amplifier.*
+* *A NIST-Disciplined Rubidium Atomic Frequency Standard: A heavy, beige rackmount box.*
+* *A clunky black tower with eight disc drives used to burn discs on mass.*
+
+A few months later, I was transferred to a lab closer to Sydney. An old psychiatric hospital that the company, now rebranded to Angelica Inc., bought to start preliminary human trials of their shiny new Piezo-Electric Neurological Regulation Relay System. PENRRS for short. The building was old, like Colonial Female Factory old. A fifty-six acre compound made up of two main sections and a scattering of old utility buildings; on-site shared housing, an old chapel, and a whole building the size of a three bedroom house set aside for book-keeping. I won't give you the full tour and history on the building like I was given, as it's not really a page turner.  
+I will say, something about this place felt… different. The windows, though barred, were tall. Stretching from waist height to the twelve foot high ceiling. The inner walls were painted in two tones. a  sort of muted yellow  up top and a deep blue that reached down and matched with the speckled epoxy flooring. It felt alive. It felt good. The tour was a private viewing with the assistant manager. A gorgeous little thing, half my age and nearly half my size. She had these eyes. A deep murky green outlined with amber rings and roots that shone in the sunlight. Fair to say I was chuffed to be in her presence, though it had been a particularly dry spell the last few years. Angel Corp sites were isolated, and their rules about internal… ‘relations’ were staunch and enforced with vigour. According to Melissa, her name was, my six-foot frame would be mostly spared the cramped crawl spaces. Said she would ask to hire an instrument scientist, and I'll be ‘sciencing with instruments’. A slightly demeaning joke at my expense, but my back was grateful for the opportunity. My first day would be Monday, so I had the weekend to settle into my studio apartment and familiarise myself with the manuals.
+
+Monday rolls around and my radio alarm goes off, "Mind's Eye" by Wolfmother. I'd have to change the radio station on it when my shift ended. Got dressed at my own pace, had a quick coffee and a cigarette on my balcony. Then I took a brisk stroll through the grounds to the intake building. Having another cigarette.   
+The lady at the desk that smiled and called me Doctor, made eye contact with me while she handed over my daily task list and handover report. The map clipped to the file led the way through the grid-like complex. As I wondered, I was skimming my ‘To-do List’.   
+It all seemed pretty run-of-the-mill. Though the *High-Risk Patient & Ward Alerts* were new. I’d never had patients before. I’d never really been responsible for any living thing before. My charge was always the dead, cold and calculating machines.  
+My new boss was an old bloke with a pot belly and a window for god on the back of his head. He damn near looked like if George R R Martin was a hippie-santa. His beard hanging to his nave, tied off with beaded bands. 
+
+“Name’s Crowley, man.” He sat up in his chair with his palms in his lap facing together. He was looking out the window and seemed to be rocking in a circle. Honestly, he looked more patient than scientist. 
+
+“Uhh… Nick… nice to meet you.” I replied politely, staring out the window with him to see what he saw.
+
+“New shipments coming in”
+
+“Shipment?”
+
+“A new batch of weary, diluted souls.”
+
+It’s then I caught on. A minivan had pulled up to reception. The pretty little assistant manager stepped out to greet the inpatients. She looked so bright and inviting. Crowley interrupted my musing.
+
+“It’s your first day so I’ll cut you some slack.” He dropped a box of manuals on his desk and placed his wrinkled finger on the top of the stack.
+
+“I’ve already read these-”
+
+‘Read ‘em again, and thank me later.” He forced out in a groan. He didn't even look at me.He didn't look present. I didn't argue. I took the stack graciously and stepped into the office adjacent and doddled about for a few minutes, adjusting and readjusting the pen holder on my desk. Then I set to rereading.
+
+I don’t know what it is, but the first half of the shift went by so fast. Before I knew it I was sitting in the dining area eating a sub with my new coworkers. Management ordered it as part of their weekly KPI incentive. 
+
+“Hey new guy,” some kid with a stained white shirt called out to me. 
+
+He was rocking slightly in his seat and picking his bottom front teeth with his tongue. I looked at him to acknowledge his presence. 
+
+“You’re that tech from Free Science, right? Did you see Chromonski’s hissy fit?” he scoffed, “what a sight to behold.”
+
+“Yeah look it's actually pretty sad when you’re used to seeing it.” I shifted forward in my seat and lent heavy on my elbows. “Man is sick, like your patients. You think your patients like that?” I glanced down at his name tag. “Derrick,” over enunciating the word like I was hucking a loogie. I’ve never liked kids like that. Those who think everything is one big joke. He didn’t speak more of it.
+
+Lunch hour ends and I follow the map to my first real assignment for the day. A room, three-by-five metres, with a solitary restraint chair sat in the rough centre. It had a sticker on the head rest, a green circle with crosshairs. The chair faced the far wall, which was painted white, in contrast to the common colour scheme displayed on the remaining walls. I set to follow the room guide, a camera facing the white wall, along with a projector. It was attached to the back of the chair with an intuitive bracket system. The next camera was sat by the wall facing where the patient would sit, their face must be centre frame. I grabbed the dolly in the back corner of the room and wheeled it to sit behind the chair. I then set to wiring the rig, ethernet cables plugged into the ports they were labeled for. I opened the screen on the laptop sitting above the computer rack, fixed to the dolly. When I opened it, the software automatically launched. Four to be exact, each displayed on the four corners of the screen. Top left was a facial recognition program fed by camera one, the dots and lines bouncing around the green sticker on the headrest.   The top right was a plain live feed from camera two. The bottom left looked like a spectrograph with no input readings. The left was a black screen, I surmised that it was the Ajna software. 
+
+The door swings open and three men in lab coats march in, followed by a young boy in a hospital gown with a shaved head, and that teeth licking guard from lunch. I didn't make eye contact with him, and no one made eye contact with me. The boy was sat down at the chair and the teeth-licker strapped him in. The doctors looked at me expectantly and I sat dumbfounded for a moment, before remembering the net of diodes that were listed as being in the top drawer of the dolly. I stood and opened the drawer finding the net, carefully retrieving it from its foam base. It took some finagling to get it over the camera/projector rig and onto the boys head. He winced when I placed it on his bare scalp and I understood his feeling. Those probes were unnaturally cold, the sheet of foam they sat on seemed to absorb heat rather than retain it. I had to meticulous, given the companies adoption of Microelectrode Arrays (MEAs). another series of wimpers hisses from the kid, made it take longer than usual.
+
+With the net tightened around the boy’s scalp, I lent over to the computer and typed in the first macro. I worked hard to memorise all the macros and command short-cuts. I liked to look like I knew what I was doing regardless of my level of practice. 
+
+The bottom two screens came to life, the spectrograph taking readings. The bottom left window took some time but eventually, an image came into view that could be mistaken for camera feed two. But it was different, a slightly lower angle and a vignette of blur around. The top left feed was seemingly struggling to map the boy's face, blipping in and out in strange positions, before finally resting its tracking dots on the edges of the lips, nasal labial folds, eyes and brows. 
+
+The doctors gave me a nod and I ran the next macro. The projector showed a green dot, not unlike the one on the headrest. The dot moved slowly around the screen and the view of the bottom right screen moved in kind, it sort of looked like the 007 opening. I’d been working with this sort of kit for years now, but still a sort of astonishment filled me when it kicked on. 
+
+The dot became two and they moved in parallel, dipping and dancing across the screen, growing ever further apart. With that the blurred vignette dissipated to the far corners of the screen.
+
+Macro three; a series of rorschach tests flashing up on screen. Though the boy didn't name what he saw. That was the job of camera feed one, tracking his micro expressions. The doctors watched intently as the cycling on Ajna display became… delayed? Each previous ink splotch left an after-image on the following. The images overlaying each other to create I don't know what. At times it looked like a face, then a scene of burning trees. It wasn’t my job to pay attention so focused on the numbers. But in the corner of my eye, I could see that the Ajna display had shifted. It wasn’t cycling anymore though the projector clearly was. It was as if the boy was transfixed on something he’d seen. The image began to move, not like a 2D image, bouncing around the screen like the DVD logo. It moved as if it were a three dimensional object. It undulated from side to side, its 3D form becoming more absolute. 
+
+More… real… 
+
+Like it was testing and feeling out its own actualising existence in the room. Within the physical space. It had no face. It had nothing. But it felt like something. For moments it looked angry, then confused, then curious, then frustrated, then lonely, then disorientated then-
+
+The boy's gut wrenching scream broke my hypnosis. It was loud as all hell. Louder than it should have been. His face was blank, no emotions, just wide eyes and an open mouth. One of the lab coats got sick of it and pressed the escape key, ending the show. The boy didn't stop screaming. I mean, he did. His mouth was still open and I could have sworn I could still hear him but it no longer hurt my ears. It hurt my soul. It was like electrical heat emanating from the base of my skull. It was nauseating, confusion, disorientating, curious, frustrating, lonely-
+
+It took me a moment to find my bearings. But when I did, the lab coats and the guard had left the room. They’d left me alone with this screaming fucking brat. Every instinct within me told  me to follow them. To get away from this god damn screaming. To this day, I've got no clue what possessed me to do this. But I leaped from my chair at the boy. I grabbed his face and turned him to face me. The screaming stopped. The boy stared at me cold and distant, his mouth now closed. I knew that if they caught me manhandling this patient, I’d be absolutely fucked. But before I could let go he spoke a string of nonsense. 
+
+“To the Ngalia people of the Northern Territory, the clouds are home to the Walanari spirits. They symbolize the enforcement of sacred laws; if someone breaks cultural secrets, these spirits are said to throw hot stones to Earth in anger.”
+
+When he’d finished his speech, he let me go. Or I let him go, and returned to my seat. And then the scream returned, not as loud, though. It's more like you’re walking through an abandoned cement building. And no matter where you go, the source of the sound is impossible to pin-point.
+
+I still hear that boy. His voice ricocheting through the halls and dying at my feet. But I guess I've gotten used to it. It's just background noise now. 
+
+Author Notes:
+
+Hey guys your feedback is much appreciated

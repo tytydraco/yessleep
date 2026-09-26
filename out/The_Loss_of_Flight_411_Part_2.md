@@ -1,6 +1,6 @@
 It’s amazing how good the mind is at managing grief when fixated on a specific task. I mean, managing my emotions and keeping calm under the most extreme situations is kinda part of the job, or was, but it still bewilders me how far beyond the cockpit that mindset reaches.
 
-I am still dead, legally speaking. Not too sure how the hell the government is supposed to undo that since people usually don’t recover from being dead. While it has been two weeks since the incident the search for the wreckage is still ongoing. These days the news seems only seems to run updates about the search for Flight 411.
+I am still dead, legally speaking. Not too sure how the hell the government is supposed to undo that since people usually don’t recover from being dead. While it has been two weeks since the incident the search for the wreckage is still ongoing. These days the news only seems to run updates about the search for Flight 411.
 
 Ships and planes from over 15 different nations all partaking in what they’re calling the largest coordinated search and rescue operation in history. An entire world holding their breaths hoping for the rescue of people they’ve never met. Millions if not billions of dollars to recover what they believe are 140 corpses and some twisted metal. 
 

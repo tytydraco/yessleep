@@ -194,13 +194,11 @@ I ran down the stairs to the kitchen to make something to eat quickly, and as I 
 
 So I checked my phone to see if she left me a text saying where she was going, but there was nothing, which was unusual of her not to say anything.
 
-I fixed myself breakfast and tried turning on the TV, but it wasn't working.
+I fixed myself breakfast walked over to the living room, placed my plate down on the coffee table and realized the remote was missing.
 
-I checked to see if maybe it wasn't plugged in, but it wasn't.
+I pressed the power button on the TV and that didn't work so I checked behind the TV and it was plugged in. I started looking around for the remote again.
 
-I got up off the couch and headed to the kitchen where we kept the batteries, and suddenly the TV turned on while my back was turned.
-
-I turned around to the TV showing static and that tune of a child singing:
+While I was facing away from the TV it turned on. I quickly turned around to the TV showing static and suddenly I could hear a little girl singing the words:
 
 "There's a door and it's black, it was gone, now it's back." (x3)
 
