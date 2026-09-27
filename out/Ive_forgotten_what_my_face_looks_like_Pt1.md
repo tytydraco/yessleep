@@ -1,0 +1,195 @@
+I could not tell you the last time I've seen natural or even artificial light.
+
+I could not tell you the last time I've felt a surface that wasn't musty concrete.
+
+To be honest, if my eyes were to even graze what could be considered my reflection, I wouldn't be sure if it was the face I was once so familiar with.
+
+\*\*\*I know that I used to be filled with passion and purpose, that I had love in my life, that I had friends, and family, but long forgotten have I felt the once natural feeling of the muscles in my face construing into what was once a smile.
+
+\*THUD\* \*THUD\* \*THUD\*
+
+But this sound I am familiar of\*. Soon I'll hear the creaking of the door, and the ear ringing scrape of a metal sheet slide in my general area. I only hope it's close enough to the wall for me to actually reach this time. I reach out into the dark, crawling on the floor feeling for anything my fingers can touch that isn't cement. I can barely feel the tin on my fingertips, I'm so close, and I need this so bad. I can feel my hip getting moist from the excrement that I have to leave in my corner. But I know that sustenance is right there. Another day to be alive, but for what. Wouldn't it just be easier to die? Why do I cling on to life when it would be so much easier to just close my eyes and let fate carry my consciousness away to a place beyond my understanding. Why do I want to go on living, why?
+
+On the last day of 8th grade, my friends and I spent our entire lunch period discussing what a "kick ass" summer we had planned before we were going to be inevitably split up to go to whichever highschool our district seemed fit for us. This was our last chance to send off a final hoorah into the last 3 years of middle school together, before we would be introduced into new cliques, hit puberty, and essentially start to learn what type of people we were going to become as we went through the more intense years of teenage development. For me however, it was my last chance to try and make a connection stronger than friendship with the one who first caught my eye, Hannah Bailey.
+
+My family had first moved to this city in 6th grade, which left me heartbroken to leave all my past friends from elementary school behind. I'm sure I wasn't the only student new to this whole dichotomy, but to hear all of my peers, excited to see their friends from their respective elementary schools, left me with a feeling of alienation, to which I couldn't distance myself from. I was always a quiet kid until you got to know me, and the idea of making the first move to make friends, was a scarier thought to me than if I had just endured a 6th grade life of solidarity and kept to myself. It wasn't until the last period of the first day that someone who wasn't an adult in charge of keeping us in line, actually spoke to me.
+
+I sat at the same table I had been at all day, all to myself, while those around me had spent most of the day learning each others friends from previous times well spent in former years. The disembodied voices were eventually broken by the \*BANG\* of a large binder slammed down on the table across from me. Quickly taking a seat without even announcing themselves, an energetic girl with dirty blonde curly hair sat down right away in front of me. I had only used my voice all day to answer when teachers called upon me, so my breath was without practice, trying to find any way to rationally respond to this sudden action from this strange girl.
+
+"Hi, Im Hannah", she spoke with a hand outstretched. I stared blankly, unsure of the sincerity of the sudden introduction. I felt my heartbeat catch a pace that my head was unwilling to match. Even at my old school, girls didn't care much to be associated with me. I had my group of guy friends who I had become accustomed with in the early years, and stuck through until my move.
+
+"Hi, Hannah, I'm uh, Max."
+
+"Max like Maxwell? Do you prefer Max or Maxwell?"
+
+"Actually, it's Maximilian, so I prefer Max"
+
+I let out a slight embarrassing laugh. It was a statement I had made plenty of times over my life, but never to a girl who seemed genuinely interested.
+
+"Wow, Maximilian? I thought that was just a made up name for like, movies, and Yu-Gi-Oh?"
+
+"Ya know, I've gotten the movies one a few times, but never the Yu-Gi-Oh one. I know who you're talking about though"
+
+I let out another small laugh, not out of embarrassment this time, but truly out of relativity. Other than my best friend in 3rd grade, Dakota Marsh, no one had ever made that connection between my first name and the character from that kids show.
+
+"What elementary school did you go to?" she asked with a gleam of pure curiosity. I wasn't entirely sure how to answer. Although I was new to the state and city, not even a single one of my teachers had asked throughout the whole first day.
+
+"I actually just moved here from Washington." I let out. "I don't really know anyone here, so I'm just trying to get by and kind of blend in."
+
+"Oh, well, I've lived here my whole life. I can introduce you to my friends if you like?"
+
+I felt a sudden thud of my heartbeat. It was hard enough to memorize pairing one face with a name, but a whole group of them? I suppose in a way I had an in with Hannah, but what if they didn't like me? I like to think that I have a good sense of humor, in my own introverted sense of way, but if they reject me in their group, would that also mean that I wouldn't be able to still be friends with Hannah?
+
+I paused for a moment, just staring blankly into her green eyes.
+
+"Um, yeah, yeah, I would love that. I've found it kind of hard to make friends when I don't really know anybody"
+
+"Awesome!" she quickly responded. "Class is about to start, but tomorrow morning before the bell rings, meet me on the upper part of the courtyard, near the tree, that's where we like to hang out before school."
+
+I smiled and assured her I'll make it in time. She decided to sit there across from me for the rest of class. Anytime the teacher would make an extremely outdated joke about the content of what she was teaching us, Hannah would look over to me with this "Can you believe this" kind of look.
+
+Meeting her friends the next day went a lot easier than I was anticipating. We actually shared more common interests than I expected. We liked the same video games, cartoon shows, and surprisingly, swimming. I had always loved the water, growing up on the coast of Washington, Ruby Beach was where we would spend most of the time during the summer. I was taught to swim at a young age, mostly because my mother really loved the beach, and insisted I wouldn't truly be her son if I didn't share the love for it as well. Jokingly, sure, but there was something about the serene tranquility of silence and waves crashing against the shore that I do think brought peace to her through the years of raising an absolute mommas boy as a single mom.
+
+The next few years of middle school went a lot better than I could have imagined. I actually had friends, primarily just those I met that fateful day in the courtyard, but I was never one who wanted much, just enough to keep me from being the quiet kid who would have had rumors made about him from time spent in so much solidarity. I grew to truly feel like one in this group, and it was all because of Hannah.
+
+Towards the end of 7th grade, a friend in the group, Anthony, pulled me aside in the courtyard during lunch period. Anthony was always the friend who I felt most connected to, we essentially had the exact same sense of humor, style for clothing, and as cheesy as it sounds, would know exactly what the other one was thinking. I often thought how lucky I was to have met Hannah, if only to introduce me to a great mind like Anthony.
+
+"I think I'm gonna do it." He said to me, looking away towards the main group of other kids, gathered in their cliques in the courtyard.
+
+"I have no clue in hell what you could be possibly talking about, man. Do what? Gonna try Dark Souls? That game is really hard. I'm not sure you got it in you."
+
+He continued to just stare off into the crowd.
+
+"I'm gonna ask her to be my girlfriend."
+
+"Ask who? We don't really talk to girls, and this is the first I'm hearing of you even like liking someone."
+
+"Hannah, dude. She's perfect. And she, like, gets us, ya know. Like, I feel like she feels the same way. I think if I don't go for it, then what's the point?"
+
+"I think just having a friend who gets you?" I abruptly responded. "Not everything has to be, like, going out, or just like, wanting more than friends, ya know?"
+
+He still hadn't faced me. We both just stood there while the crowds of various friends gathered in the courtyard shared timing on a joke that someone huddled in a circle would tell, allowing time for the rest of the gaggle to let their place and position be shared around them, in a circle of similar sounding cackles and out bursting laughs.
+
+"I'm serious man, I've known this since 2nd grade, and I think I might have always loved her."
+
+I sat silent for a few moments.
+
+"We're 13 dude, I mean, I don't want to sound like I know it all, but I don't think we're old enough to truly know what love is."
+
+He still didn't look back to me. The sounds of the various students gathered around started to sound more silent, as I just stared at his back. Someone I called a true friend, maybe my best friend at this time, was truly pouring it out to me, and telling me how he felt, yet for some reason, there was a part of me that wanted to reject his claims. Something in me, that refused to push him on, to pursue something he truly felt passionate about. Was I a bad friend? Should I had lied and told him to just go for it? Were my words a source of unknowingness of seeing my friend get hurt? Or was there something deeper than that. Were there feelings that I also had? That I was afraid would be overshadowed by his success? What the hell did I feel for Hannah? It wasn't every anything I truly thought to myself up until now. Of course I wanted to see Anthony win the girl, but if that girl was Hannah, why did I feel trepidation in my voice when offering him my own truths.
+
+\*THUD\* \*THUD\* THUD\*
+
+I sat with my head against the cold wall. Where the creak of the door would usually meet my ear, there was a silence. I couldn't find the strength to even attempt to strain my eyes to see through the darkness where the familiar metal door would sometimes open. Instead I sat slumped against the concrete. I reached a hand down toward my ankle, the dry dead skin around the shackle leaving a texture like sandpaper. How long has it been? How am I even still alive? I get the tray every couple of days, and it's impossible to tell what I'm drinking every so often is even water.
+
+Still silence.
+
+Maybe this is it. I'd honestly hoped for it. Please, if there is a God, put this to an end. I know I never did much with my life, but I like to believe that I still matter. For nothing else, if for my mother. Please, God, please.
+
+Then came stumbling. The figure known to have fed me all this time had lost some of his usual demeanor. I could barely make out the silver in the room, the tray I have come so accustomed to for survival. Although scraps, what baseless nourishment kept me going. Make an attempt to stand, but the strength isn't there. I hear the tray hit the ground, and the sound of a glass shattering. I move on all fours towards the sound, I need anything to keep me going. As I stamp around the concrete floor on all fours, I stamp my hand into an intense sharp pain. I know I can't see it, but I'm bleeding. I feel it, like washing your hands with your wrists too high. I feel a liquid running down my forearms. Suddenly I feel myself yanked up.
+
+A deep slurred voice speaks quietly yet firmly, directly into my ear.
+
+"I'm getting bored of your ass, boy."
+
+I don't have the strength to speak. I just have to make my strongest attempt to stand on my feet. He's pulling at my neck and I need the little breathing I am able to manage on my own.
+
+"Bread is getting expensive these days, and you don't snivel or cry like ya used to when I first brought ya in."
+
+I try to find decent footing, but my malnourished body is matching the swaying of the man holding me.
+
+"Ya know what they do to the runt of the litter, don't ya? Well, I'm starting to think ya look like a runt to me."
+
+The voice takes a moment to hack a big spit towards the area that I assume, is where I'm usually seated.
+
+"Your time's comin, better enjoy these scraps on the floor while ya can."
+
+I hear labored steps towards the only opening in the room, and then a slam.
+
+I know my time is up, and I know there's nothing I can do about it.
+
+The glass in my hand makes it hard to think. I just feel blood getting all over my shirt and pants.
+
+It's nothing out of the ordinary. I imagine if I was to donate these clothes to a goodwill, they would burn them before attempting to wash them. The blood stains, the piss stains. I might as well be wearing the same outfit I wore as a 2 month old, waste and all.
+
+I grab the scraps that I can, and lay against the wall. My breathing is labored, I wish that even for a second, I could actually feel dizzy, but feeling dizzy would imply that I have an object I could see, and for as long as I could remember here, it was nothing but black.
+
+Needless to say, things between Anthony and Hannah never took off. For some reason, maybe of my own words of advice, Anthony never did confess to her. Our friend group continued to act as normal, even Anthony, who had previously admitted his confession of love for her, continued as if he and I had never had that conversation in the middle school courtyard.
+
+Now here we were at our last day of 8th grade. We were all making plans for the summer, and I suggested that we spend more time at the local pool. I can't deny that my love of swimming was finally going to come into play. I hadn't talked to Hannah in particular about how big into swimming I am, but Anthony definitely knew. I even would encourage him to go to the local pools with me and swim, even though I knew he wasn't a strong swimmer. I guess I somewhat saw it as a strength of mine I had, one of very few, and I thought maybe he could also see it as such.
+
+Anthony was good at swimming. Anytime I showed him a different way to swim, breaststroke, backstroke, butterfly, he took to it so quickly and easily. It was another reason I knew that him and I were meant to meet.
+
+But during our 8th grade summer that we planned so hard, one day, Anthony never surfaced.
+
+I swam over to where I last remember him being, and saw the bubbles rising to the surface. I quickly delved down and saw him lifeless in the water. I dragged him up and to the side, where he continued to lie lifeless on the side of the pool.
+
+"ANTHONY. TONY. ANT-ANTHONY!"
+
+He continued to lay lifeless.
+
+I started to search around for any adult who could help, when suddenly I looked back at him and he had a smug smile on his face.
+
+"You bastard" I let out breathlessly.
+
+"Just keepin ya on your toes, Pamela Anderson" he said to me.
+
+"Dude that was not cool. I was fuckin worried. You know, I grew up on the beaches of Washingt-"
+
+"Yeah, Yeah. I know you grew up lovin the coast, and all that. But c'mon man, its hard to get a rise out of you these days, so I just kind of went for it"
+
+He started to chuckle to himself. Coughing up bits of water as he did. Honestly just knowing that he was okay, I started laughing as well.
+
+"Alright, I know you're good at swimming, so lets just do that."
+
+I gave a quick laugh, as if I also enjoyed his joke.
+
+9th grade started, and it felt like the start of 6th grade all over. Our friend group from middle school was split up. It was similar to 6th grade. We had people talking about what middle schools they went to, as opposed to which elementary schools. It was familiar yet distant. I was just hoping for another Hannah Bailey to sweep in and tell me who I should be friends with, but that never came. There were familiar faces from my middle school, but nobody from my friend group. I missed Hannah, she would surely save me from being all alone again in this new environment.
+
+Then 3rd period geology, I saw Hannah come into the classroom. I smacked the table a couple times, completely out of character for me, but I needed her attention.
+
+She came and sat down across from me. It was like 6th Grade all over again.
+
+"Maximilian" she said as she sat down.
+
+Hearing her voice soothed what was an already stressful first day.
+
+I realized in that moment that she had complete control of me. I was absolutely awestricken by this girl and I was a puppet in the palm of her hand.
+
+We had been friends throughout middle school, but I was just now realizing the value of the relationship that we truly had. We saw each other as equals, we saw each others as lovers. At least, that was the theoretical headspace that I had put myself into. She was never mine.
+
+"Hey, Hannah. I haven't spoke to Anthony, lately, have you heard from him"?
+
+"Anthony?" she let out.
+
+"Was that someone from middle school?" she faintly muttered.
+
+"Um, yeah, Anthony, you know who I'm talking about. I mean, Anthony."
+
+She looked confused.
+
+"I'm sorry, Max, but I don't think I know who you're talking about."
+
+My heart skipped a beat. Anthony. Anthony Vilmer? How could you not know.
+
+She continued to just stare at me blankly.
+
+How long have I been down here? It's impossible to count the days when I can't even see if there's light outside or not. Are my eyes even open? If I had the strength to move my hand in front of my face, would I even be able to feel it? Would I know if it was even my hand?
+
+I hear footsteps above me, one, no there's two. Two sets of footsteps. Three? No, even more than that.
+
+Every second the stepping above me continued louder, and more and more footsteps. It was as if a clown car was parked at the front door and the circus was about to begin. More and more footsteps. They paraded all around the floors above me, a deafening cacophony of waltzing heels smacking deteriorating wooden floor. Louder, louder, I want to, no I NEED to cover my ears, but I don't have the strength to lift my hands. What the fuck is going on? I can't hear myself think, am I losing it?
+
+And then out of nowhere, complete silence.
+
+I gently hit my head against the back wall to rest.
+
+Am I losing it? Did that really happen? I know I'm in an absolutely horrid state of body and mind, but I know what I heard, or did I? Was this the start of my mentality beginning to dwindle?
+
+Quick, what's my name. Damn, what's my name. You got this, Max. Right, right, Max.
+
+Suddenly, I heard the door slowly swing open. I did what I could to truly believe I was opening my eyes, and across the dark room in the doorway, stood a figure with a light.
+
+It was a younger girl with a look of sadness on her face. Man I love that face.
+
+Wait a fucking minute. Why do I love that face. My eyes widen and with more energy than I thought I had I let out, "Hannah?"

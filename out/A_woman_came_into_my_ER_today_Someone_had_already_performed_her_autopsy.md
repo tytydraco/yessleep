@@ -1,0 +1,686 @@
+I'm an emergency physician in New Orleans. I'm not going to tell you which hospital, and I've changed every name in this post. That’s for my own safety, and after today, I’ll take all the safety I can get.
+
+A woman came into my Emergency Room today with an autopsy incision on her chest.
+
+She was alive. More importantly, by the end of my shift, a lot of other people weren't.
+
+I’m writing this because if you or someone in your family ever consulted a vodou witch doctor in New Orleans, you need to read this very carefully.
+
+To start: You can call me Dr. Wendy. I have been a physician for over 20 years, all at the same hospital. There isn’t much I haven’t seen coming through those doors. Gunshots, industrial accidents, pet weasel attacks, heat stroke, hypothermia (don’t ask), alligator bites, you name it.
+
+There are other things too, but I can’t tell you about those unless I tell you about Variance Consult.
+
+Every hospital has systems of dealing with patients who require specialized care beyond what the treating physician specializes in. Infectious disease gets called in when someone comes in with a fever that can’t be explained, toxicology when we don’t know what someone swallowed, etc.
+
+At our hospital, we have a Variance Consult. If it sounds innocuous, that’s by design. Everyone who works at this hospital knows that there are sometimes cases that surpass the understanding of *any* doctor; not because it’s a particularly challenging medical mystery, but because it requires an explanation outside of anything taught at medical school.
+
+If there’s something inside a patient that needs to be X-rayed, someone calls Radiology. If during that imaging, absolutely no bones are found inside the patient’s body, someone calls for a Variance Consult.
+
+And it’s most likely me who will answer. Well, me, another physician, one nurse practitioner and a pathologist who technically retired six years ago but still answers her phone whenever we need her.
+
+Membership changes. The cases…not as much. We keep records, of course, just not in the hospital's electronic system. At least, not the important parts. Those go in a book.
+
+Calling it a “book” is perhaps underselling it. Currently, it's three leather binders, with the oldest pages transferred from ledgers that predate the hospital building we're sitting in. Some entries are typed, some are handwritten, and a few of the oldest are in French. There are photos, pathology reports, sketches, instructions written by people who are long dead.
+
+The instructions are the important part.
+
+If a patient comes in complaining of severe gut pain and imaging shows a second stomach, you check whether the second one contains food. If it does, you do not feed the patient until you've identified what the other stomach has been eating.
+
+If a patient has a pulse but no detectable cardiac activity, don't start compressions unless their blood pressure drops.
+
+Some of the entries are less helpful.
+
+**October 14, 1978. Male, approximately 40. Do not permit patient to sleep.**
+
+That's the whole entry.
+
+I hate that one; I hate all the logs that don’t give every scrap of useful information, because what’s the point in that? These aren’t campfire stories. At the end of the day, this is healthcare.
+
+And that’s why I’m still on this team, after 23 years. It’s why I put up with getting paged by Pediatrics twice a week because the attending physician is spooked that kids claim to see people who aren’t there. (They do by the way, but until they start leaving marks or helping the kid speak ancient Aramaic, they’re not my problem.)
+
+It’s why I stayed after Hurricane Katrina. The ordinary part was bad enough. People drowned. People were horribly injured. People couldn't get medications or oxygen or dialysis. We worked exhausted and undersupplied while the city came apart around us.
+
+But New Orleans has always had a complicated relationship with its dead.
+
+If you've never lived or died here, you should know that much of the city sits at or below sea level, with a water table high enough to make traditional burial difficult. Dig deep enough and the grave can fill with water. That's one reason New Orleans is famous for its above-ground tombs and family vaults, although plenty of people have been buried below ground here too.
+
+Usually, the dead stay where we put them. Floods really complicate that. Water gets into cemeteries, vaults crack. During Katrina, coffins and human remains were displaced from their resting places. And New Orleans is an old city. There are graves beneath places that haven't *been* cemeteries in generations. There are remains nobody recorded, buildings constructed over unofficial graves, and things deliberately sealed away by people who apparently had very good reasons for wanting them left alone.
+
+For a while after Katrina, Variance was getting called almost as often as Trauma. I could fill a fresh book with what came out of that water. Some of it was human, if you can still call it that. Most of it had been dead for a long time. Not everything stayed that way.
+
+But that’s a story for another day.
+
+Today has quite enough to talk about.
+
+At around 6:30 this morning (technically yesterday morning, I’m realizing now), I was finishing my notes on a patient who’d shown up with pointed ears. I’d referred him to plastic surgery. Eighty percent of Variance Consultants’ jobs are to try to find a reason why our services aren’t needed. It turns out lots of pretty regular medical cases look close enough to what goes bump in the night that folks want a second opinion just to be sure. I hadn’t had a *real* case in weeks. Then my pager went off.
+
+**VARIANCE CONSULT - ED 16**
+
+I glanced at the message and kept typing.
+
+There are two kinds of Variance pages. A regular “Variance Consult” means somebody has found something medicine can't explain. A “Code Variance” means whatever medicine can't explain is actively killing someone.
+
+This wasn't a Code, so I finished my note, washed my hands and headed downstairs to the Emergency Department.
+
+One of our triage nurses - the nurse who first sees patients walking through the door and decides how serious their situation is - caught me before I reached Room 16. 
+
+"You need to see this one." The nurse, Julie, said.
+
+"That's generally why you page me."
+
+"I'm serious, Wendy."
+
+Julie had worked in the Emergency Department almost as long as I had. She'd seen enough Variance cases that very little impressed her anymore.
+
+"Fine. What've we got?"
+
+"31-year-old female. Severe abdominal pain, sudden onset. Vital signs are stable. No significant medical history."
+
+In other words, the patient had a tummy ache, but was fine.
+
+"So why the hell am I here?"
+
+Instead of answering, she handed me a tablet. The intake photo showed a young woman lying on an exam table with her gown pulled aside. There was a scar across her chest. Two lines began beneath her collarbones, angled inward and met over her sternum. From there, a single line descended toward her abdomen.
+
+A Y-incision.
+
+Even if you don't recognize the term, you've probably seen one on television. It's how you open a body for an autopsy.
+
+"How old is the scar?" I asked.
+
+"That's the problem."
+
+I looked at Julie.
+
+"The patient says it wasn't there when she woke up this morning."
+
+I pinched outward to zoom in on the photo. There was enough scarring to confirm that the wound wasn’t fresh. There was no blood. There were no sutures to close the wound, indicating fresh surgery. There wasn’t even inflammation. The skin had completely healed.
+
+If you'd shown me the scar without context, I'd have guessed she'd had it for years.
+
+"Previous surgery?"
+
+"Appendectomy at fourteen. Nothing that would cause a scar like that."
+
+"Okay…any transplants, then?"
+
+"No."
+
+"Drugs?"
+
+"Go Fish, Doc. Her tox screen's clean. I don’t think she’s had as much as a Tylenol in the last 24 hours."
+
+"And she's awake?"
+
+"Very."
+
+"Oriented?"
+
+"Name, date, location, all of it. Even her multiplication tables."
+
+“Smartass.” I handed the tablet back, unable to smile at Julie’s quip. There are certain things you learn to recognize after enough years on Variance. A surgical scar from a procedure the patient never underwent is one of them. A sour feeling rose in my stomach.
+
+An autopsy incision on a living patient narrows the possibilities considerably.
+
+"FM?" I asked.
+
+Julie shrugged. “That’s my guess. That’s why you’re here.”
+
+FM stands for Frankenstein's Monster. Yes, somebody thought they were funny when they named it. No, I don't know who. The term appears in our records going back to at least the mid-1970s, so we're stuck with it. I blame Gene Wilder.
+
+An FM is exactly what it sounds like. Someone dies, then someone else takes that as a challenge.
+
+The methods vary, but what comes back is usually reconstructed from whatever material was available. Skin from one body. A kidney from another. Bone from a third. Think organ transplantation, except nobody involved is especially concerned with consent or tissue compatibility.
+
+The Y-incision made FM the obvious place to start. I opened the curtain to Room 16. The woman inside was curled onto her left side, both arms wrapped around her abdomen. Sweat had pasted strands of dishwater blonde hair to her forehead.
+
+She looked up when I entered. "Are you the specialist?" she groaned.
+
+"One of them. You can call me Dr. Wendy."
+
+"I’m Dorothy."
+
+"Dorothy, I'm going to ask you a question that's going to sound ridiculous."
+
+She grimaced as another wave of pain hit. "Go for it."
+
+"Have you ever died?"
+
+She stared at me. "No."
+
+"Ever been resuscitated?"
+
+"No."
+
+"Any period of time you can't account for? Waking up somewhere you don't remember going…?"
+
+"No."
+
+"...like a funeral home?"
+
+"What?"
+
+"Just covering my bases."
+
+"*No*."
+
+I rolled a chair beside her. "Huh. Then we can probably rule out the easy answer."
+
+She looked at the scar running down her chest. "That was the easy answer?"
+
+"Unfortunately, yes."
+
+“Sorry to disappoint.”
+
+I examined her abdomen. It was soft, but she nearly jumped off the bed when I pressed below her ribs.
+
+I grimaced at her. “Sorry.”
+
+“Everyone keeps saying that right before they hurt me.”
+
+“It’s one of the first things they teach us in medical school.”
+
+That got half a laugh out of her. I asked the usual questions. Nausea, vomiting, bowel movements, pregnancy, medications, family history. 
+
+I asked a few less usual ones too. Had she ever participated in any religious ceremonies she didn't understand? Had anyone ever given her something to eat or drink and told her it would protect her? Had she ever woken up with blood on her clothes that wasn't hers?
+
+No, no, and definitely no.
+
+I ordered another round of labs, a CT of her chest and abdomen (to check for any fractures or obvious swelling), and admitted her to our service.
+
+Variance doesn't have its own spooky unit hidden behind a wardrobe, if that's what you're imagining. We have six rooms at the end of an ordinary medical floor. They're private, and they're far enough from the Nurses' Station that when someone or something starts screaming, fewer patients complain.
+
+More importantly, that's where we keep the books.
+
+Dorothy was being transported upstairs when I called the rest of the team.
+
+Dr. Rodriguez, the other physician, was already in the building. Our nurse practitioner, Marcus, was forty minutes into his day off. Once I got him off the phone, I called Dr. Delacroix.
+
+She's the pathologist I mentioned earlier. If you've never needed one, pathologists are the doctors who examine blood, tissue, and cells and tell the rest of us what we're actually looking at. She retired years ago without successfully convincing any of us that retirement meant we should stop asking her to work.
+
+She answered on the fourth ring. “This better be good.”
+
+“Possible FM.”
+
+A pause. “Patient is alive?”
+
+“Enough to walk into the Emergency Room.”
+
+Another pause. “Y-incision?”
+
+I looked at the photograph again. “Yes. Textbook.”
+
+“I'll be there in 20.”
+
+She arrived in 18.
+
+While Rodriguez and Marcus went through Dorothy's labs and imaging, Delacroix and I went through the books.
+
+FM cases are rare, but rare isn't “unprecedented.” The first confirmed one in our records dates to 1816. The most recent was in 2009.
+
+None matched Dorothy. Every FM in the books had been dead before reconstruction. That wasn't just a common feature. As far as we could tell, it was a prerequisite.
+
+You can't resurrect someone who hasn't died.
+
+We searched Y-incisions next. Postmortem examination. Living dissection. Ritual dissection. Then, we were looking for anything involving scars that only appeared long after the wound itself.
+
+Nothing.
+
+I was halfway through an entry from 1936 involving a woman whose appendix had grown back for the fourth time when my pager went off.
+
+**CODE VARIANCE - 6 WEST**
+
+Dorothy's room. I dropped the book. By the time I got there, she was screaming, and not the kind of scream you hear from someone who's frightened.
+
+Pain. Pure, agonizing, bloodcurdling pain.
+
+She was buckled on her side with her knees pulled toward her chest. Marcus was already beside her. Her blood pressure had dropped to 78 over 46. That was low enough that her organs were starting to lose the argument over who got blood first. Either her heart wasn’t pumping fast enough or the blood was going somewhere it shouldn’t.
+
+“What happened?”
+
+“Pain spiked about thirty seconds ago.”
+
+“Where?”
+
+Dorothy answered for him. “Stomach!” she hissed. Her face had gone gray.
+
+I pulled back the blanket. Her abdomen was swollen. That changed things very quickly.
+
+Rodriguez grabbed the bedside ultrasound, pressing the probe against her abdomen to see how the organs and blood looked. She was too dazed to notice.
+
+His expression changed. “Wendy?” I was watching the screen too. Dark spots where dark spots weren't supposed to be.
+
+Free fluid in the abdomen. Given Dorothy's blood pressure and how quickly her belly was expanding, we didn't need further testing or imaging to know what was happening. She was bleeding internally.
+
+At that point, it didn't matter whether the cause was a surgical complication from an operation Dorothy swore she'd never had or something that would eventually earn three pages in our books.
+
+First, you keep the patient alive. Then you get to be curious.
+
+What followed was considerably less mysterious. It was surgery. Messy, urgent, ordinary surgery. And I was grateful for that. Then the surgeon found the source.
+
+A section of artery supplying Dorothy's bowel had ruptured. In other words, the thing meant to be carrying blood near her stomach popped open like a water balloon. Specifically, the vessel wall had deteriorated so badly that the surgeon initially assumed she'd had some undiagnosed condition.
+
+She hadn't. The surrounding blood vessels were pristine. But this one small section looked like it belonged in someone 40 years older.
+
+They removed the damaged segment, repaired the artery, and sent the abnormal tissue to pathology.
+
+Dorothy stabilized almost immediately. By the time I got back upstairs, Delacroix was waiting for me. She had that expression pathologists get when they've found something deeply upsetting and are therefore having the best day of their lives.
+
+“Her blood is hers,” she announced a little too proudly.
+
+“Super. Good start. I guess that’s why they pay you the big bucks.”
+
+“Her skin is hers. Cheek swab is hers. Hair follicle is hers.”
+
+“Delacroix, do you need *more* coffee or *less*?”
+
+“The artery isn't.”
+
+I froze. “What does that even mean?”
+
+“I mean, genetically. The artery has someone else's DNA.”
+
+“Contamination?”
+
+“No way, it’s real. I ran it twice.”
+
+My brain started recounting the weirder sections of medical precedent. “I - uh…Chimerism?”
+
+It's rare, but people can naturally carry two sets of DNA, usually because two embryos fused very early in development.
+
+“We’re not talking about anything like that, Wendy.”
+
+“A really shitty transplant?”
+
+“She's never had one. And according to the surgeon, that artery is hers; it’s connected seamlessly, like it’s always been there. But it’s not…well shit, it’s not *hers*.”
+
+“Then whose is it?”
+
+“No idea.”
+
+“Run it again.”
+
+“Already am.”
+
+“And take samples from the Y-incision itself, I want to know more about it.”
+
+“Way ahead of you.”
+
+“Anything?”
+
+“Well, the scar tissue is hers, if that’s what you mean.”
+
+FM moved back to the top of my list. It didn’t fit, but nothing else came close.
+
+We started trying to answer the question of how much of Dorothy was Dorothy. Not cutting pieces out of her indiscriminately, obviously. We used what we could get safely. Blood. Cells from inside her mouth. We ended up leaning pretty heavily on needle biopsies guided by imaging. Essentially, that meant we took samples of Dorothy’s insides using a needle designed to get into tight spaces and take just enough not to cause any trouble, using an ultrasound to ensure nothing’s poked that shouldn’t be.
+
+Her heart was Dorothy. Her right kidney was Dorothy. Her bones were Dorothy.
+
+Then we sampled an abnormal area of her liver. Not Dorothy.
+
+A suspicious section of bowel. Not Dorothy.
+
+A patch of tissue surrounding her left kidney. Not Dorothy.
+
+Both lungs. Not Dorothy. Whoever Dorothy's lungs belonged to, they had apparently come as a set.
+
+And none of them matched the artery.
+
+By noon, we had identified four distinct genetic profiles inside her body. By 2 pm, seven. By 4:30, thirteen. Fourteen, if you counted Dorothy.
+
+I remember staring at the list and thinking that at least we finally knew what we were dealing with. An FM. Somehow, at some point, somebody had taken Dorothy apart and put her back together using pieces of 13 different people.
+
+The fact that she remembered none of it was strange. The fact it was so well done that it took pathology to determine these pieces didn’t belong was even stranger.
+
+But Variance exists because “impossible” is occasionally just another word for “we haven't found the relevant page yet.” So we went back to the books, flipping past innumerable pages of how to treat the unexplainable, all falling short of what we needed.
+
+Then Dorothy started coughing. One cough. Another. Then she sat upright and grabbed her throat. Her oxygen saturation fell from 97 percent to 88. For the record, anything between 95-100% is great. 90-95, keep an eye on it. Lower than that, get your ass to the Emergency Room. 
+
+In the blink of an eye, Dorothy’s saturation was 82. I listened to her chest. Her lungs crackled and heaved wetly with every breath.
+
+She coughed again, more forcefully this time. Something splashed over my ear and across the blanket, and for a terrifying second, I thought it was blood.
+
+But it was clear. It was, somehow, water.
+
+Dorothy stared down at it. Then at me. “I can't breathe,” she wheezed. 
+
+Her saturation hit 76. I felt a buzz at my hip and instinctively looked at the pager screen.
+
+**CODE VARIANCE - 6 WEST**
+
+Yeah, no shit - thanks Nurses’ Station.
+
+Moving rapidly through the motions, we suctioned her airway to force anything out that shouldn’t be there, put her on oxygen, called Respiratory Care to get some experts in the room…we did everything you're supposed to do when someone's lungs start filling with fluid. Except Dorothy's lungs weren't filling with fluid from her bloodstream, like you’d expect in a situation like this, because where the hell else would her lungs be getting fluid?
+
+She was inhaling water. On dry land. With nothing in her airway.
+
+And we'd already tested the lungs. They belonged to the same person. They just didn't belong to Dorothy.
+
+When she was finally stable enough to leave her unattended with Marcus and a lung specialist, I took Rodriguez and Delacroix aside.
+
+“We need to know everything about where the organs and body parts came from that aren’t Dorothy’s. Which morgue they were stolen from, which cemetery they were dug up from, which black market human chop shop they were bought from.”
+
+Rodriguez looked almost disappointed. “You think she’s lying about getting a transplant?”
+
+“I don’t know who’s lying and we can’t rely on anyone’s honesty anymore. Dorothy has almost died twice from two separate pieces of foreign tissue in an hour. I need to know what is wrong with the shit that’s been put into her body before it happens again.”
+
+Delacroix shook her head. “Wendy, I’m telling you, this isn’t an FM. From what I’ve seen in her pathology reports and what Surgery told me, nobody operated on her, not recently.”
+
+“Tell that to the goddamned autopsy Y-cut across her body!”
+
+“The fully healed scar, you mean?”
+
+“Delacroix, you told me yourself, the artery isn't hers. We confirmed it, and we've found 12 *other* genetic profiles in tissue that, as far as we can tell, were perfectly healthy before she came in.”
+
+Rodriguez looked back and forth at us with a “mom and grandma are fighting again” frown.
+
+*Control yourself, Wendy. This is your team. Just breathe.* I pushed my anger away, fighting to compartmentalize my emotions and logic. “Maybe I’m wrong, maybe you’re wrong, maybe none of us are wrong; it doesn’t matter. But if we don’t figure it out soon, Dorothy *will* die. It’s only a matter of time before something else fails.”
+
+So we set out to find the bodies Dorothy's foreign tissue had come from.
+
+Hospital records called me back surprisingly quickly.
+
+“Dr. Wendy, Variance Consultation Team?”
+
+“Yeah, you got her.”
+
+“Got something else too. The lung tissue you sent? It’s a match to a patient we got a few years back.”
+
+Years back? Even the best-preserved tissue wouldn’t look as functional, water-logged or not, as the lungs inside Dorothy.
+
+“Weird, okay. Give me a name and any info the morgue can provide on the chain of custody for the body. Unfortunately, I may need to find it.”
+
+“I can do you one better. You can find him at his law firm downtown. He’s very much alive.” She gave me the name and I scribbled it down without understanding what she was saying.
+
+“Alive? So…” I pulled at the threads of my scattered thoughts, looking for something that would guide me toward the right question to ask next. “Wh-why was he in the hospital a few years ago?”
+
+“The notes are kind of ironic, given the context. Looks like he fell off his yacht. His wife brought him in just as a precaution. Demanded we test everything. She couldn’t believe it. Guess the guy can’t swim, and he’d been floating around for an hour before the Coast Guard plucked him out of the water. Some kind of miracle: should’ve been long-drowned, but he was perfectly fine.”
+
+I could feel the puzzle pieces fighting to put themselves together, to show me the picture that was right in front of me, but I knew I was still missing something.
+
+“Then how are both of his lungs in my patient, 10 yards away?”
+
+The woman on the other end of the line sighed then offered a light chuckle. “Doc, that’s your department. Literally. Good luck.” She hung up.
+
+One thing was for sure. Delacroix was right. It wasn’t an FM. No Frankenstein’s Monster can be made with pieces of people who are still alive. And it sure as hell can’t be made from people who still have all their original parts.
+
+We were dealing with something new, something with no record in the books that centuries of doctors had spent putting together to save the lives of the cursed, damned, and hexed.
+
+And for the first time in a long time, I was afraid. I’m not talking about the controlled fear that comes with a dying patient, the kind you put somewhere else until the work is done. I mean genuinely afraid. For Dorothy. For all of New Orleans. For myself.
+
+We had books full of things that shouldn't exist. Decades and decades of very good doctors had left us instructions for surviving them. For the first time in my tenure, I was looking at something none of them had seen before.
+
+I briefed the team, and they looked at me with jaws hung open. Well, not all of them. Marcus regarded me stoically.
+
+Everyone on this team has their own reasons that justify why they turned their backs on the comfort of the medically explainable and dedicated their lives to helping the supernaturally afflicted. But Marcus’s story was unique, and he had more reason than most of us to recognize this kind of thing. His mother had an aunt who practiced vodou. Years ago, according to Marcus, she'd done something to his father that destroyed his mind. Marcus had spent most of his adult life trying to understand what happened.
+
+So when Marcus looked back at me with a sternness in his eyes, expression devoid of surprise, I didn’t rush him. And when he said what he said next, I didn’t question him.
+
+“This is a vodou ritual. It’s rare. It’s also hard to get right, and it requires a lot of power.”
+
+“But what is it?” Rodriguez asked.
+
+“A vessel ritual. Someone can make another person carry a death that was meant for them.”
+
+I stared at him. “As in, to make someone immortal?”
+
+“Not exactly. But whatever the original reason was they should’ve died, that gets outsourced to someone else. It gives the original person, the client, more time. Could be years, decades.” 
+
+We looked at him quizzically, and he sighed. Reluctantly, he said, “After what happened to my dad, I spent years studying this stuff. I thought if I understood what had been done to him, I could undo it. I read everything I could get my hands on. Vodou, hoodoo, folk Catholicism, African traditional religions, grimoires, stuff people made up on the internet. Most of it was useless, probably made up.”
+
+He looked toward Dorothy's room. “I thought this was too until now. I remember this one.”
+
+“Why?” I asked.
+
+“Because there's a way to identify the vessel.” Marcus explained what to look for: three sides of a square with a small circle where the fourth should have been. An old text he'd found called it the Empty House.
+
+“It won't look carved or tattooed,” he said. “It'll look like it belongs there.”
+
+Dorothy had a birthmark beneath her right shoulder blade. Three dark lines. An open fourth side. A circle in the gap.
+
+Dorothy stared at us as we stared at her. “I've had that my whole life.”
+
+I called her mother. She confirmed the mark had been there at birth. Then, when I asked whether anything unusual had happened during her pregnancy, she simply said, “Not exactly, not during,” then she went quiet.
+
+Apparently, she and Dorothy's father had tried to conceive for almost nine years. Fertility treatments. Miscarriages. Eventually, they'd been told to stop trying. Then someone gave her the name of a woman who could help.
+
+“What kind of woman?” I asked.
+
+Her mother hesitated. “A spiritual healer. A witch doctor, I guess. I don't know what you'd call her.”
+
+“What did she promise you?”
+
+“A baby.” Her voice started to weaken, and she spoke as though embarrassed. “She did something to me. Drew something on my stomach. Gave me something to drink. Three weeks later, I was pregnant. It was a miracle!”
+
+I got closer to the phone receiver. “What did she draw?”
+
+“The same little birthmark my baby girl has.” Her breath quickened. “The name ‘Dorothy’ comes from Greek, you know. Gift of God, it means. And that’s what she was, that’s what she is. Oh God, oh God, what have I-”
+
+I interrupted her to ask for the healer's name.
+
+“You think that all that, way back then, has something to do with my daughter being sick *now*?”
+
+The woman had a point. If Marcus’s theory was right, and so far it definitely seemed to be, why would all this be happening over three decades after Dorothy had been designated as a vessel? If she was born to hold the deaths for rich clients to extend their lives, why was she experiencing all their demises all at once?
+
+I searched the name Dorothy's mother gave me. The first result was an obituary posted that afternoon. A picture of the vodou priestess, looking no more menacing than any other 76-year-old woman, accompanied a brief description of her unexpected passing early that morning.
+
+Just before Dorothy had been admitted to the Emergency Room.
+
+“Marcus,” I called him over to the computer. “We’re going to need your research on the Empty House, and anything that ties to breaking vodou spells or bonds.”
+
+“You bet. I can even get you what I have on the witch herself.” He nodded to the photo. “That’s my great-aunt. The one who cursed my father.”
+
+I didn’t know what to say, and I certainly didn’t know how to tell him what I needed to. Fortunately, I didn’t have to. He saw my face, a collage of sympathy and impatience.
+
+“It’s a focus for another day, I know, Dr. Wendy. Today is about saving Dorothy. Besides,” he put his finger to the screen on top of the grainy black and white image, digging his fingernail into the woman’s face. “Now I know where to find her.”
+
+Marcus came back ten minutes later with a stack of books and folders from his locker. As he started to splay them across my desk, I felt a buzz at my side. 
+
+**CODE VARIANCE - 6 WEST**
+
+*Shit*. Now what?
+
+We ran to Dorothy’s room and found her vomiting.
+
+Rodriguez was rolling her onto her side just before a convulsion tore through her body.
+
+“Dorothy!” He called to her as she shook violently, more to say *something* than in expectation she would answer.
+
+Her eyes were open but unfocused. Sweat soaked her gown. She gagged again, and this time there was blood in it.
+
+We all looked at the monitors as one.
+
+“What the hell happened?” I heard myself scream.
+
+“She was talking to me two minutes ago!” Rodriguez said. “Then she said she felt sick.”
+
+We got medication into her and stopped the convulsions, but stopping them didn't tell us what had caused them. The bloodwork did.
+
+Her liver was failing, and not in the way we’d expect from disease that had been quietly destroying it for months or years. It was happening *now*.
+
+And we already knew part of Dorothy's liver wasn't Dorothy's.
+
+“Poison?” Rodriguez asked.
+
+It certainly looked like it. We tested for everything we could think of while we kept her stable. Eventually, the medication kicked in and the seizures stopped. Her breathing improved.
+
+But her liver didn't recover. The numbers kept getting worse.
+
+Delacroix looked at me from across the room. “It's the foreign section.”
+
+I knew. The artery had tried to bleed her to death. The lungs had tried to drown her. Now somebody else's liver was trying to poison her.
+
+We could keep Dorothy alive through this one for a while. There are pills, machines, and entire specialties devoted to keeping people alive while their organs try their damnedest to kill them.
+
+But there were 13 foreign genetic profiles inside her. Three had come due. And they were getting closer together.
+
+I looked at the clock, then at Marcus.
+
+“Whatever you've got on breaking the Empty House, I need it.”
+
+“How much time do we have?”
+
+I looked back at Dorothy. She was too near to death to imagine a scenario in which she walked out of this hospital alive. “Let’s say none, to be on the safe side.”
+
+We asked a nurse to stay with her while Marcus, Rodriguez, Delacroix, and I went to my desk to go through Marcus’s findings on his aunt and her magic.
+
+It was Delacroix who figured it out. She had been staring at the photo we'd taken that morning.
+
+“Why today?”
+
+I looked up. “Why the deaths? The way I figure it, it’s because the priestess died. Part of the spell’s binding stopped, but not all of it. The deaths are still real, and time’s up.”
+
+“No, Wendy, not the deaths, the incision.” She turned the picture from Dorothy’s intake toward us. “Dorothy's been the vessel since before she was born. Why did this scar appear today?”
+
+Marcus stopped turning pages. The answer was obvious once she'd asked the question.
+
+The witch had died this morning. The scar had appeared this morning.
+
+“It wasn't there because she had an autopsy,” I said.
+
+Marcus looked at me. “It appeared because…she needs one.”
+
+Nobody spoke for a moment. Rodriguez finally broke the silence. “You want to autopsy a living woman.”
+
+“No,” I said. “I very much do not.” I looked toward Dorothy's room.
+
+Marcus stood up and looked at us. “You study this long enough, you start to see patterns. All magic comes with a price, and with loopholes. Witches aren’t gods. I think her vodou still persists after her death, but it’s like you were getting at, Wendy, she can’t control it anymore.” He grabbed the photo. “The incision’s always existed, but it was metaphysical, not something we could see. But now…now it’s telling us exactly what we need to do to break this.”
+
+The Empty House had a door. The Y-incision was ours.
+
+We took Dorothy to an operating room. For the first time that day, the incision on her chest stopped being supernatural.
+
+A surgeon put a scalpel against it and made it real.
+
+He followed the scar exactly. Across the chest. Down the middle. Then we opened Dorothy the way you're only supposed to open someone after there's nothing left to save.
+
+I told the surgeon to do the liver first, handing him a fresh scalpel. I steadied the organ while he drew the angled blade through the first line of the symbol.
+
+The scalpel clattered onto the table.
+
+Something bitter flooded my mouth. My stomach clenched so violently I doubled over, catching myself against the operating table. Beside me, the surgeon gagged and stumbled backward.
+
+For several seconds, every nerve in my body seemed convinced I was dying. Then the sensation released us both at once.
+
+The surgeon stared at me over his mask. “Did you feel that?!”
+
+I nodded. I could still taste something chemical at the back of my throat.
+
+Then, the tissue beneath the mark changed.
+
+There wasn’t a flash of light or smoke. It just…looked *healthier*. I took a sample and sent it to Delacroix to analyze.
+
+We waited. Those were some of the longest minutes of my life.
+
+Then the speakers crackled back to life with a screech loud enough to make the surgeon and me both wince.
+
+“Sorry, sorry,” Delacroix’s voice said. “It's hers! The DNA. It's Dorothy's.”
+
+That was good enough for me. We found the other marks where we'd found the foreign tissue. Twelve more.
+
+I turned to the surgeon. “Break every fucking one.”
+
+He looked down at his shaking hands. “I can't do twelve more of those.”
+
+I couldn't blame him; I wasn't sure I could either.
+
+Then Rodriguez's voice came through the speakers. “You don't have to.”
+
+Within minutes, Rodriguez and Marcus had scrubbed in. Delacroix stayed where we needed her, running every sample we sent out. We treated touching Dorothy’s cursed organs like any other exposure and limited everyone's dose. One mark each, then rotate. If someone couldn't continue, the next person took over.
+
+It barely qualified as a protocol, but it was the best one we had.
+
+Rodriguez broke the next mark. His whole body went rigid. He made a strangled sound behind his mask and clenched his fists tightly until it passed.
+
+Marcus took the scalpel from him.
+
+Then me.
+
+Then the surgeon again.
+
+Each mark gave us something different. A burst of pressure. A violent impact. Heat where there shouldn't have been heat. The terrifying sensation of being unable to draw a breath. Marcus came back from one with tears streaming down his face and wouldn’t tell us why.
+
+None of it lasted more than a few seconds. We kept rotating. Cut a mark. Endure whatever came with it. Take a sample. Send it to Delacroix. Wait.
+
+Next person. Next mark. Test.
+
+Again.
+
+By the 9th, nobody was volunteering anymore. We just looked at whoever had gone longest without holding the scalpel.
+
+By the 11th, I had started watching the others more closely than Dorothy. I was afraid one of us was going to collapse and stay that way.
+
+We kept going until there were no marks left, and 13 strangers had disappeared from Dorothy’s body.
+
+Then Marcus, shaking and weak with pain: “The outside mark. Let’s check it.”
+
+Dorothy was still lying open on the table. I reached beneath her shoulder and bent down to look. The birthmark was gone.
+
+Thirty-one years after Dorothy had been marked as the Empty House, there wasn't so much as a freckle where it had been.
+
+We closed her. Over the next hour, Dorothy's liver began recovering at a rate I would have called impossible yesterday. Her lungs remained clear. Her blood pressure returned to normal.
+
+The only part of her suggesting the slightest injury was the fresh Y-shaped surgical wound across her chest, down to her abdomen.
+
+Dorothy was completely Dorothy again.
+
+At 8:17 PM, an ambulance brought in a man who had drowned in his office.
+
+There was no water around. His secretary had watched him collapse behind his desk, coughing up mouthfuls of seawater.
+
+I knew his name before they finished giving the report. He was the lawyer who'd fallen off his yacht years ago. The man whose lungs had spent part of the afternoon inside Dorothy. He died before I reached the Emergency Department.
+
+My pager went off. **CODE VARIANCE - ED 7**
+
+Then again. **CODE VARIANCE - ED 9**
+
+Then again.
+
+One patient arrived with injuries from a car accident that hadn't happened.
+
+Another was dying from a gunshot wound. There was no bullet and no hole in his clothes.
+
+By the fifth time I was paged, I understood. We hadn't destroyed the deaths inside Dorothy.
+
+We'd returned them.
+
+The pages kept coming. Nine deaths tonight. That’s how many people would have died already if Dorothy hadn’t been their death-absorber, their second chance. Four other people will die someday exactly as they were always supposed to.
+
+While I was downstairs trying to keep dead men alive, Marcus was going through his aunt's records. He called me back upstairs sometime after midnight.
+
+He showed me names. Dates. Payments. Some went back decades.
+
+Dorothy's name was on a list of babies born, but so were many others I didn't recognize. Some born long before her. Many long after. They’d still be children.
+
+“How many of them are Empty Houses?” I felt myself getting emotional and handed him the list to get it out of my sight.
+
+Marcus took the page like I’d handed him a stack of bricks. “All of them, I think.” He looked through the papers, face burdened with their weight.
+
+Tonight had taught us more about his great-aunt's practice than Marcus had learned in years of searching on his own. We knew one way that she bound one person to another. We knew what some of her marks meant. Most importantly, we knew how at least one of her spells could be broken; hell, we’d *survived* it. And we were pretty sure there wasn’t much she could do to stop us in her current state.
+
+Marcus had spent most of his life trying to understand what she'd done to his father. Until tonight, he'd been trying to do it alone.
+
+I put my hand over the page he was reading. “We start tomorrow.”
+
+He looked at me.
+
+“Your father. We will find out what she did to him.”
+
+His eyes moved around the room. At Delacroix. Rodriguez. Me. The books that generations of Variance doctors had left behind. For the first time, he wouldn’t be the only one looking.
+
+But this story isn't over yet. Because as I said, Dorothy wasn't the only vessel.
+
+That's why I'm posting at this ungodly hour instead of getting some sleep. Dorothy was just the first one to make it to my hospital.
+
+I don't know how many people bought themselves more time from that woman. I don't know whose deaths have already come due. I don't know who is walking around right now with someone else's drowning waiting in their lungs, someone else's poisoning waiting in their liver, or someone else's aneurysm waiting in an artery.
+
+I've spent 23 years treating things most doctors don't believe exist. I'm telling you this because what we found tonight scares me more than any of them.
+
+So if you or someone you love paid a woman in New Orleans to prolong your life, protect you from death, give you more time, whatever she called it - I need you to understand something.
+
+If the person carrying your death wakes up with a Y-shaped scar, you better find them before they find us.
+
+Because if they end up in my Emergency Room, I'm going to save them.
+
+You bought yourself more time. You didn't buy forever.
+
