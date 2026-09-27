@@ -1,0 +1,131 @@
+# A Room That I Shouldn’t Have Entered
+
+The tube light in the storeroom of our apartment didn't flicker randomly. It flickered to the rhythm of the humming cooler. I had always wanted to go into the room, but every time I tried, the owner's warning would create a massive wall that stopped me.
+
+It was Sunday, just past midnight, when I started hearing footsteps coming from the storeroom. It wasn't close to my room, but the footsteps were loud enough to reach my bedroom.
+
+I glanced at my phone.
+
+**2:57.**
+
+I got out of bed and started walking towards the storeroom.
+
+This time, there was no humming from the machine.
+
+The light was flickering spasmodically.
+
+I pushed the door open and peered inside. The cooler was silent, like a sleeping beast. I stepped inside, ignoring the owner's warning. I had never heard the cooler turn on ever since I moved in. Some kind of electrical problem, maybe.
+
+**Slam.**
+
+The door shut behind me.
+
+Silence.
+
+Too silent.
+
+Something moved behind the cooler.
+
+I froze.
+
+There was something there. I was sure of it.
+
+I crept towards the cooler and scanned the area.
+
+Nothing.
+
+The light went out.
+
+I scrambled for my phone and switched on the flashlight.
+
+There was a door behind the cooler.
+
+I stepped towards it and reached for the handle. Cold sweat broke across my skin as I slowly turned it.
+
+The door opened.
+
+A narrow hallway stretched ahead of me, ending at a rusty steel door.
+
+I checked the time.
+
+I could have called 911. I could have gotten the fire brigade to open the door. I could have gone back to my room and gone to sleep.
+
+But not knowing what was behind that door kept me there.
+
+I pushed it open.
+
+The smell of copper almost knocked me out.
+
+The room was filled with iron bars. Rusty iron bars. Scratched into each bar were names I couldn't read.
+
+A floorboard creaked behind me.
+
+I turned around.
+
+Nothing.
+
+**What could it have been?** A floorboard wouldn't creak by itself.
+
+I stepped farther into the room and lifted one of the iron bars. It was heavy. Scarlet liquid dripped from the bar as I tried to get a grip.
+
+Heavy footsteps replaced the silence.
+
+Heavy. Deliberate footsteps.
+
+I scanned the room for somewhere to hide. An office bench, thrown on its side, caught my eye. I squeezed myself between the wall and the bench.
+
+Nothing.
+
+The footsteps stopped.
+
+I pressed the power button on my phone five times.
+
+My left shoulder suddenly felt cold.
+
+I glanced over it.
+
+There was a green spot.
+
+**PLOP.**
+
+Something dripped from above.
+
+**PLOP.**
+
+Another drop.
+
+I looked up.
+
+Adrenaline pumped through me.
+
+Still, I was frozen solid.
+
+Before I could fully register what I saw, I darted towards the door. I dropped the iron bar. The rusty metal tore through my skin.
+
+I ran.
+
+I didn't turn back. I sprinted faster than my brain could process my surroundings. I slammed every door shut as I passed through them.
+
+Finally, I reached the storeroom.
+
+With all the strength adrenaline gave me, I pushed the cooler against the door.
+
+Blue and red lights pierced through the windows as sirens filled the room.
+
+I trudged towards the apartment exit as three police officers barged in.
+
+I couldn't tell them what happened.
+
+I couldn't even breathe.
+
+I just stood there like a mindless zombie. I still couldn't process what I had seen.
+
+The owner and some other tenants came out of their rooms with sleepy faces.
+
+The owner looked at me.
+
+Then he whispered,
+
+**“You entered the room, didn't you?”**
+
+{This is story is not created by any AI}

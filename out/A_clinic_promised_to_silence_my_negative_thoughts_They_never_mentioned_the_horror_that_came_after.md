@@ -1,0 +1,155 @@
+You know that inner voice that keeps telling you you're not good enough? Mine's been there my whole life.
+
+I'm standing on the field at tryouts and it says, *"I'm way too small and skinny for football. Look at those other guys."*
+
+I look at the prettiest girl in class and the voice whispers, *"I’m not in her league. She needs a real man, not a wimp like me."*
+
+After graduation I wanted to be an artist. When I paint, the voice goes quiet, just for a minute. So when I tried to apply to art school, it jumped in there too. *"Way too risky. Starving artist, that's what I'll be. Besides, my paintings aren't even that good. Nobody on earth would pay for that."*
+
+So I got a job at an accountant's office instead. I told myself the voice was just trying to protect me. From getting hurt on the field. From getting rejected in front of the whole class. From going broke.
+
+More years went by. My days, weeks, months all blurred into one gray mass where nothing happened. Friends got married, had kids, bought houses, got divorced, fell in love again, traveled the world, started new jobs. Their lives were a rollercoaster. Mine was standing in the endless line, watching everyone else get on the ride.
+
+The more burned out and tired I got, the louder the voice got.
+
+*"What's the point of any of this. Why even get up in the morning?"*
+
+*"Nobody loves me."*
+
+*"This is my life. And it's never getting better."*
+
+*"If I disappeared tomorrow, nobody would even notice."*
+
+Then on my way to work I found this flyer. "Unhappy with your life? Don't know how to change it? Try DROP-Link. The neuroplasticity revolution. You won't recognize yourself!"
+
+I decided to check it out, no matter how loud my voice protested. The address led me to the medical center downtown. Sixth floor, the DROP-Link office, more like a  startup than a doctor's office. I was the only patient, barely sat down in the waiting room. Portraits of famous, successful people on the walls. Were they patients too? I didn't dare ask. I got called into a treatment room, where Dr. Osteria greeted me. Warm smile, easy to talk to. A psychiatrist. She asked about my life, my childhood.
+
+"The idea is simple. We are not our thoughts. Your brain does incredible things, but it also generates a lot of garbage. My husband and I found a new way to push the brain's neuroplasticity further. We help the brain stay focused on what matters. No distractions."
+
+"Isn't that dangerous?" I asked first.
+
+"No known side effects. Completely harmless."
+
+"But what does that even look like? Will I stop being scared? No more negative thoughts?"
+
+"You'll still have negative thoughts. Just only the ones that actually help you. If you run into a snake, one very important thought is going to show up: RUN!" Dr. Osteria laughed. Then she got serious again. "We're just switching off the background noise. So you can reach your full potential."
+
+It all sounded so clean and reasonable. I thought about those portraits in the waiting room, probably patients too. They'd reached their full potential because there was no voice holding them back. That's why they made it.
+
+I said yes. I wanted to start right away, before my thoughts could catch up with me. *"This is way too dangerous. They're scamming me. It's not going to work anyway."*
+
+They took me into some kind of sleep lab and fitted a small, thin helmet on my head.
+
+"We use a new kind of neurolink that controls the impulses. No surgery needed."
+
+"You're going to sleep for a while now. Think of something nice," the nurse said.
+
+I had strange dreams, kept surfacing out of them. I'd open my eyes, knowing I was still in the clinic, but I couldn't move. I was a shadow by the door. Someone was standing there. Silent. Just watching me. Then I sank back under, dreamed about the farm where I broke my arm as a kid, woke up, stared at the shadow by the door again. Felt like forever.
+
+When I finally opened my eyes for real, Dr. Osteria was sitting by my bed with that warm smile. Her husband stood next to her.
+
+"How are you feeling?"
+
+"Good... just... a bit of a headache."
+
+Before Dr. Osteria could say anything, I already knew: DROP-Link had worked. Because my inner voice said, *"The headache will pass soon. What matters is I got through this fine."*
+
+Dr. Osteria smiled, like she already knew exactly what my inner voice had just told me.
+
+From that day on, my whole life changed. Just like the flyer promised. The negative voice only showed up when my life was actually in danger, and since I wasn't fighting Smilodon on my daily commute, that was almost never. I started painting again, and this time I put it on Instagram.
+
+*"I poured my heart into these. Somebody out there is going to like them."*
+
+I quit the tax job and applied to a historical art museum, just like that.
+
+*"Who knows. Maybe they'll want me."*
+
+The museum director liked my energy and my love for art. I got a job in the registrar's office. Instead of staring at boring numbers all day like at my old job, I was surrounded by art from all over the world.
+
+And when I met Emma, a conservator there, I just asked her if she wanted to grab coffee sometime. We did.
+
+This would be a nice place for a happy end. But the story doesn't end here.
+
+A few weeks after the treatment, I kept noticing a man in a dark hooded raincoat watching me on my way to work. During lunch, too. He'd stand at the bus stop across from the bench where Emma and I ate. And even though it was sunny that day, he had the raincoat on, hood up, so I couldn't see his face.
+
+"There, the guy in the raincoat," I said to Emma, pointing at the bus stop.
+
+She raised her eyebrows. "There's nobody there."
+
+She laughed. "You need to see an eye doctor. Or a psychiatrist."
+
+When I looked back, he was gone.
+
+That night I couldn't sleep. I looked out the window and saw him standing under a streetlamp outside my building, looking straight up at me. Then he started moving. Toward the front entrance. I closed the curtains and sat on my bed. My inner voice spoke up, calm as ever. *"Nothing's going to happen. He's not getting into the apartment. And if he tries, I'll just call the police."*
+
+I turned off every light and listened. Heavy footsteps in the stairwell. Getting closer. Then keys jingling. Someone put a key into MY front door. And opened it. For the first time since the operation, my negative voice spoke up. "*How does he have my key. I need to get out of here. Now."*
+
+I hid behind the door. He walked in like he owned the place, like he'd done it a hundred times before, like he knew exactly where everything was. He grabbed a Coke from the fridge, flipped on every light while I stood there behind the door, holding my breath. When he went to the window to pull back the curtain, I made my move and bolted for the front door.
+
+Like he knew it was coming, he beat me to it and tackled me the second I got the door open. Slammed me to the floor. I fought back, threw punches, but he had me pinned.
+
+I turned my head and he pulled the hood back and I finally saw him. **It was me.** I was the hooded man. Except his eyes weren't my eyes. When I looked into my own face, there was nothing there. Just a dark, empty void.
+
+"W... what is this?"
+
+He didn't answer. Instead he pulled a knife and stabbed me twice in the side. Pain tore through my whole body. He went for a third strike, but my neighbor, woken up by the noise, yelled through the wall.
+
+"HEY!"
+
+He let go and ran.
+
+I kept bleeding. Then everything went black.
+
+I woke up in a hospital hours later. The doctor said no vital organs were hit, but I'd lost a lot of blood. The police wanted to talk to me. I obviously didn't tell them the attacker was me. They filed a report  and left. I stayed two more nights in the hospital, dreaming about the hooded man every time I closed my eyes. On the third day I checked myself out against medical advice and went straight to the DROP-Link office. Dr. Osteria's warm smile disappeared the second I showed her the stab wounds and told her what happened.
+
+"What the hell is this?" I asked.
+
+"I... I don't know."
+
+"Bullshit," I shouted. "I want the truth. What did you do to me?"
+
+"We don't know," she said. "It looks like a side effect."
+
+"Looks like? How many times have you done this procedure? Has this happened before?"
+
+Her silence said it all: **I was patient number one.**
+
+"Damn it," I said quietly, and slumped in my chair. The painkillers were wearing off, my wounds burning.
+
+"Your negative thoughts became independent, and it seems like they've taken on a physical form. My husband theorized about something like this once. But it was only  a theory."
+
+"So what does it want? I mean, the other me?"
+
+She looked at me, blank. "Your negative self is fighting your positive self. For control."
+
+"What does that mean? It wants to kill me?"
+
+She nodded slowly.
+
+"So what do I do now? Can you reverse it?"
+
+"No. That... that doesn't work."
+
+Dr. Osteria stared at the wall for a long time, silent. There's no worse feeling than watching the expert you've pinned your whole hope on run out of answers. 
+
+"You have to kill it first," she said, flat. Then added: "But here's where it gets complicated. Your positive self can't hurt anyone. Not even to save itself. You only see the good in the world. You will never take another life."
+
+And before she finished the sentence, I already knew she was right. "I will never kill another living thing," I heard my own voice say. I remembered how two days after the operation I'd spent a full hour trying to gently guide a fly out of my apartment instead of just swatting it.
+
+Dr. Osteria and her husband offered to help, hide me at their cabin by the lake, call the police. But I could feel it. All of it was pointless. My thoughts were positive, my feelings were realistic: I'm going to die. Today.
+
+A storm is rolling in tonight. Officials have issued a tornado warning. The clouds are turning black and the shutters are banging against the windows like they're trying to warn me. Emma's trying to reach me, but I push her away and block her number. She's not getting dragged into this. Now the power's out too. And on the last bit of laptop battery I have left, I'm typing this out for this subreddit.
+
+My negative self is standing across the street. The raincoat finally makes sense. Like he planned this from the start. Kill me on a stormy night.
+
+He's walking up to the building.
+
+*"The storm will pass soon. Then the sun comes back out,"* my voice tells me.
+
+The hooded man puts his key in the door and opens my apartment.
+
+*"Every bad situation has a silver lining,*" I hear my inner voice say.
+
+The hooded man steps into my apartment, knife in hand, eyes empty.
+
+And I hit [post](https://www.reddit.com/r/Howtoscream/).
