@@ -1,0 +1,423 @@
+I’d been working at this job for about six months before my boss, Javier, finally let me go into apartment 1001. I live in unit 1004 across the hall so I had been vaguely aware that something was going on there. As far as I knew Javier had been visiting that apartment once a week every week since I got here but every time I asked him about it he would act all dodgy.
+
+He’d say things like, “Don’t worry about it, it’s just a work order,” or “I’ll tell you when you’re ready.”
+
+And when I would ask about the work order form he told me, “We never make a record for them.”
+
+I had always assumed he was trying to protect their privacy for some reason. Our complex was old, built in the 80s, and there were a lot of low-income residents who had been there for a while. I thought maybe they were elderly and needed a little extra attention or maybe they suffered from a mental illness or maybe they were hoarders and Javier was protecting them from eviction. I never pried too much but they did live across from me so I can’t say I was without concern.
+
+What if there was some kind of hazard to my safety? What if they acted out violently sometimes? I wasn’t going to snitch on anyone but I wanted to know what was going on. If not for me at least for my girlfriend’s sake. She was kind of paranoid and thought that every neighbor that gave her a strange look was planning on robbing us.
+
+I had never seen them come out of their apartment so I had no idea what they looked like or how many people lived there, which wasn’t too unusual. I had seen most of the faces around the complex at least once but there were a few I hadn’t met yet. Maybe they worked the night shift or they were never home or they were just really private. While some people were regulars in the office putting in work orders for every little thing they could think of, some people never put in any at all.
+
+The residents of 1001 remained a mystery to me until one day when Javier called me into his office.
+
+His office was cramped and in it sat a small desk and computer and on the opposite wall was the key cabinet containing a set of keys to every unit. He had bought me breakfast as he occasionally did. It was a QT breakfast pizza and an amber Red Bull, the breakfast of champions. There were no chairs so I sat on an old paint bucket with my pizza on my lap and my drink on the floor. He let me get settled and start on my food before he finally spoke.
+
+“So, are you ready to go into 1001?” he asked.
+
+I was surprised  and nearly spit pizza into my drink. Emilio, the other maintenance guy, said he had been there over a year before Javier finally let him go inside.
+
+“Sure, whatever you need, boss,” I replied.
+
+He chuckled. “We’ll see. She certainly thinks you’re ready.”
+
+“When do we go?” I asked.
+
+“Not we, just you. Only one person at a time can enter her unit and she’s finally requested that you come.”
+
+Something about his tone made me feel uneasy.
+
+“She requested me? How does she even know I work here? We’ve never met?”
+
+“Oh she knows all about everyone we hire. You would have never got the job if she wasn’t okay with it.”
+
+Now I was confused. “Does she work for the company or something? Is she one of your bosses?”
+
+“No, she’s been here longer than the company,” he replied cryptically.
+
+“Then what does she have to do with hiring me?”
+
+He ignored my question. “There are some requirements that we have to follow to the letter.”
+
+“Okay...”
+
+“First, like I said, no one can go in there but you. Do not let anyone see you at her door. If you see another tenant in the hall or in their unit you must come back to the office and start over. Don’t worry, there’s no rush with this work order. I don’t care how many work orders you get done today as long as you finish this one.”
+
+“Got it. No one should see me.”
+
+“Are you writing this down?” he asked. “Because you should be writing this down.”
+
+I swallowed my food and pulled out a pad and wrote down the first rule.
+
+“Second, when you go to knock on her door you must wipe your feet on her mat. Four times per foot. Then you must knock four times with each hand. Do not enter until you hear her invite you in.”
+
+“Third, make sure you enter with only what you need to complete the work order. If you find that you have so much as an extra screw, then leave. Calmly and immediately. Do not look at her. Do not excuse yourself. Just go. Come back to the office and start over.”
+
+“How would she even know if I brought something I didn’t need?” I asked.
+
+“Listen, just trust me when I say you need to follow the rules. Don’t take any risks.”
+
+“Okay, okay. I hear you.”
+
+“Once you are inside make sure to greet her, saying, ‘Thank you for inviting me. I am here to work.’ Do not comment on her appearance or on anything you see in the apartment.
+
+“After that go straight to performing the work order. Do not go into any of the rooms you don’t need to go into. Do not speak to her again until you are finished. Ignore any questions she asks you. Do not make any small talk.
+
+“Then finally when you are finished let her know. Tell her exactly what work you performed, then tell her, ‘We’ll be back again next week.’ If she tries to get you to stay, don't. You must leave. No matter what she says or offers you.”
+
+After all that I sighed and said, “Okay, sounds easy enough. What am I doing in there?”
+
+“She needs her disposal replaced. Go grab a new one from the shop.”
+
+“Right, I’ll get to it then.”
+
+Just as I was about to head out the door Javier suddenly grabbed my arm and said, “One more thing. If you hear whispering or crying in any of the other rooms you must run. If that happens we are done for the day and we won’t need to go back until next week.”
+
+His face was grim and he looked directly into my eyes. I felt uncomfortable. I’d never seen him act so serious before.
+
+“You got it, boss. I’ll follow the rules.”
+
+I stopped by the shop to grab a disposal. I took every precaution I could think of. I opened the packaging and pulled the disposal out and removed any extra parts I didn’t need. I left my tool bag and put my wallet and keys in the fridge next to the batteries. I placed the disposal in the back of my golf cart and put my 11-in-1 screwdriver in my pocket then drove down to 1001.
+
+I stood in front of the door. It hadn’t been painted in who knew how long. The locks were outdated. All the other locks in the complex were smart locks that could have the keys changed if you had the right tool. I was pretty sure it was keyed to the same key when the place was first built. Just as I was about to knock on the door I caught sight of movement in the corner of my eye.
+
+Someone was pulling out of the parking lot. I wasn’t even sure if they could have seen me. *This is so stupid,* I thought. How would anyone even know if I broke this rule? I raised my hand to knock but I heard Javier’s voice telling me I need to follow these requirements to the letter. I sighed and walked back to the cart.  
+When I got back to the office I found Javier working on the budget. He spun around in his chair then smiled.
+
+“Someone see you?” he asked.
+
+“I think so. Tell me now, Javier. Is this some kind of joke? Some long-term hazing on the still kind of new guy?”
+
+Then his face became serious. “This is no joke. Just make sure you do what I tell you and it’ll all be fine.”
+
+I returned to the chipped, old door. I wiped each foot four times, then set the disposal on the ground and raised my right fist and knocked four times, followed by my left. I waited. A little longer than I thought I would. Then I finally heard a voice.
+
+“Come in!”
+
+As soon as I opened the door I was hit by a stench. A stench I had given a name. This isn’t the most charitable thought that’s ever crossed my mind but all of the most run-down apartments I worked in shared a similar scent. I call it “The Stench of Defeat.” It’s probably just the mixture of grease, body odor, cigarettes, mold, and just a little bit of rot all coming together in a disgusting symphony of smells. Normally, I rubbed chapstick under my nose to help with the smell but I left that behind and this was the strongest I had ever smelled it before.
+
+The apartment itself wasn’t any better. There was litter everywhere. Wrappers, plates, bowls, cans, and tupperware, some of which had half eaten meals sitting in them. Every light was filled with the corpses of dead insects and the appliances were strangely new. From what I could tell they were all no more than a year old. They were squeezed in next to ancient cabinets that had been painted so many times I wasn’t sure they could even be opened. There were little holes in the once white wall which was now a faded deep yellow.
+
+My eyes flicked over to her. She was sprawled out on a worn out couch. She was the largest woman I had ever seen in my life. I felt bad but my first thought was that she reminded me of Jabba the Hutt. Her legs seemed to have disappeared under the rolls of her belly. Dark veins criss-crossed her body in disconnected patterns. The most awkward part of all was I realized I did not know her name. Javier never told me and I couldn’t ask.
+
+I finally eked out, “Thank you for inviting me. I am here to work.”
+
+She let out a little grunt and I turned and walked into the kitchen. I pried open the cabinet doors and expected to see a broken disposal but it was brand new. I couldn’t tell if it had ever been used before. I turned it on and it seemed to run just fine. Normally, I would just tell the resident it works now and to give us a call if it breaks again but when I turned back and saw her weird expectant smile I just decided to switch them out.
+
+I lay down and stuck my head under the sink and got to work. As soon as I did that, I heard the springs in the couch loudly gasp with relief. I stopped. I heard her quickly walk over to the kitchen. I didn’t even think she could walk much less move as fast as she did. I tried to keep working but then she began to speak. She sounded as if she had smoked a thousand cartons.
+
+“So, how long have you been working here?”
+
+“Do you have a girlfriend? What’s her name?”
+
+“What do you think of Javier? Is he a good boss? Does he pay you enough?”
+
+Her questions were innocuous enough. It was nothing I hadn’t heard before from half the other residents, but it was uncomfortable coming from her. Supposedly, she already knew the answers to at least some of those questions if she’s the reason I was hired. I tried to work quickly and decided I didn’t need to replace the flange. I figured it was okay because Javier didn’t mention anything about needing to replace that and I could cut down my work time by more than half by skipping it.
+
+Her questions became increasingly specific and then she asked, “Does she still think I’m going to rob her?”
+
+I hit my head on the plumbing and nearly blurted out a response but I managed to hold my tongue. How the hell would she know that about my girlfriend? That was a joke I kept between me and her.
+
+I finished connecting the new disposal then stood up and tested it. It worked fine and didn’t leak and I nearly stormed out of the apartment. Then I remembered. I explained to her the job I performed in as much detail as I could manage.
+
+Then I said, “We’ll be back next week.”
+
+“Thank you so much for your work,” she replied. “Why don’t you stay a little longer? I’ll work up some tea and I’ll give you a big ol’ tip for your work.”
+
+Even if it weren’t for the rules, that was the last thing I wanted to do and I turned and left. As soon as I was out I felt like I could breathe. The air was so fresh. My relief was momentary before it was replaced with anger at Javier.
+
+I stormed into his office. I didn’t care if the property manager or anyone else heard me.
+
+“What the hell was that? Why would you send me in there? What was wrong with that woman...”
+
+I kept going for a solid five minutes before Javier quietly opened a desk drawer and produced four one-hundred-dollar bills. 
+
+He handed them to me and said, “This is your bonus for going into apartment 1001. You will get it every week. Always in cash. Always tax free.”
+
+Well, that shut me right up. I was in there for no more than fifteen minutes and now I was being given four hundred dollars and I was promised that on top of my paycheck every week. I needed the money just like anyone else.
+
+“Okay then. Sounds good, boss. I’ll get back to it.”
+
+I slipped the cash into my pocket and left. I took the rest of the day easy. Javier said that was the only one I had to get done and I took him literally. My girlfriend had the day off so I took her out to a long lunch at Red Lobster.  
+I dreaded the next visit to Unit 1001 and I knew the day had arrived when I saw an extra Redbull and breakfast pizza on Javier’s desk. The dread all but dissipated when I found out all I had to do that day was change an air filter. No more. No less. Literally a two minute job for $400.
+
+Over the next few weeks each work order in 1001 felt easier. Not that the job itself was always an easy one. A lot of the time it was a really easy fix. Sometimes it was as simple as replacing a filter or unclogging a toilet, but sometimes I had to spend quite some time in there. There was one time I had to replace the stackable washer and dryer which was in a painfully tight and narrow closet but I managed to get it done. It took what felt like hours just trying to shimmy it out of there while she watched over my shoulder and jabbered on and on. What became easier was all the weird stuff.
+
+The wiping, knocking, the greeting, and the promise to return the next week, it all became second nature. I learned the best time of the day to stop by when it was most likely that no one would see me enter. Only sometimes did her questions bother me. She continued to seem to know things she shouldn’t.
+
+She asked about my father’s receding hairline, my mother’s menopause. She asked when my brother was going to tell the rest of the family he’s gay. He hasn’t told anyone besides me. I haven’t even told my girlfriend.
+
+But no matter how much I was steaming I would cool off the moment Javier pulled the Franklin quadruplets out of the desk. I took my girl out every night after I went to 1001. We started paying off our credit cards with the money we saved buying all our groceries and food in cash. After a few months we bought a used car.
+
+Eventually I started to look forward to the off-the-books work order. It stopped mattering what she knew as long as I got paid. I never became lazy either. I followed all the rules exactly but one of them had never come up, to the point where it was only vaguely in the back of my mind. Until one day I was in there replacing a toilet fill valve when I heard a noise.
+
+At first it was only an extension of the hissing from the toilet valve but it continued even when the valve stopped. Then I thought it was maybe the wind outside or some kind of animal.   
+*Great,* I thought. *There’s probably rats.*
+
+For several minutes that’s all that I had judged it to be until it changed. It sounded like a voice. Maybe someone talking outside or some kids playing. It kept going and so I finally stopped to really listen. It took me about another thirty seconds to piece together what it was.
+
+Crying.
+
+Javier’s words immediately flashed in my mind.
+
+“If you hear crying, run.”
+
+I stepped into the hall. I was ready to dash but she was blocking the door. Her hulking figure made me feel small. Like all that I could ever be was an appendage temporarily separated from the pile of flesh that blocked my escape. I looked around the apartment for an answer. My eyes instantly locked onto the window just above the tub with only the screen blocking the way. I knew she was fast though I never actually saw her move but this was my only chance.
+
+I rushed toward the window with the sounds of impossibly fast footsteps behind me. My foot landed on the rim of the tub and I pushed off as hard as I could and dived through the screen and out the window. It came down with me and I landed on the concrete scraping my hands and arms. I scrambled to my feet not ready to stop and ran straight to my cart landing with my foot on the gas.
+
+Before I even started to even catch my breath I found myself outside Javier’s door. I finally looked behind me to see if she somehow followed me out of 1001. It looked like I was in the clear. I looked down at my hands and arms. They were covered in little droplets of blood. I shrugged it off and walked in.
+
+Javier was in the middle of cutting a key when I came in. He ignored me to stay focused on the grinder and slowly finished cutting the key. He shut off the machine and finally glanced up at me. His eyes flicked towards the key and then immediately back at me finally registering what he saw.
+
+He took off the safety glasses and, mouth agape, asked, “What happened to you?”  
+“1001,” I answered.
+
+“Tell me everything,” he said.
+
+I recounted to him what happened and when I got to the crying he stopped me.
+
+“Wait, you said crying? Not whispering?”
+
+“Crying,” I assured him.
+
+“How long did it take you to realize?”
+
+“I don’t know. Maybe all together, five minutes.”
+
+His face seemed to pale. “This isn’t good. What changed? Did you bring an extra tool? Even a pen?”
+
+“No, I was exact. Although I left everything in there.”
+
+“Don’t worry about it. You did what you were supposed to do once you realized you heard the crying. What about your previous work orders?”
+
+“The past few were a shower head, the fridge filter, the microwave.”
+
+I kept going as far back as I could remember.
+
+Javier seemed confused. “What about the very first one? What was that?”
+
+“Uh, the garbage disposal!”
+
+“You only brought that and any tool you needed, right?”
+
+“Yes, and that’s all I did. Just the garbage disposal. I didn’t even change the flange.”
+
+“Wait. You didn’t change the flange?”
+
+“No, it was basically new anyway. There was no leak.”  
+Javier suddenly sat in his chair.
+
+“Oh God...” he whispered. 
+
+He opened a drawer and pulled out a bottle of scotch and a glass and immediately poured a shot and drank it. Then he set out another glass and poured two more shots and offered me one. 
+
+I took it. Grateful but alarmed.
+
+“This is all my fault,” he said. “I should have been more specific. You were supposed to replace the whole assembly.”
+
+“How the hell was I supposed to know that? The flange had no issues, no leaks. I would have done it in any other apartment,” I insisted.
+
+“1001 isn’t any other apartment.”
+
+“What do we do now?” I asked.
+
+“We have to go back together. Next week.”
+
+“But you said only one of us can go in there at a time.”
+
+“After an incident like this it’s required. It’s too dangerous to go alone.”
+
+“Why do we have to go back at all? Can’t we just board up her apartment until she starves?”
+
+“Do you know what happens when you leave a leak? Does the water just evaporate or go away? No, of course not. That water can start to slowly rot and destroy everything around it until one day you touch your wall and find that it’s mush. By then it’s too late. Who knows how many thousands of dollars it will take to fix it and how much mold you’ve been breathing in from the air. You can’t leave a problem alone. It will only get worse.”
+
+“I can’t go back in there, man. I have to think about my girl. I shouldn’t be taking risks like that.”
+
+“That’s exactly why you have to, mijo! You live across the hall. But if you really don’t want to go I can take Emilio. He’s still my brother-in-law. He’ll go if I ask him to.”
+
+He was right. Whatever was going on in 1001 it would spill over into my apartment first. Besides, I wasn’t about to let someone else clean up my mess.
+
+“No, I’ll go. When do we have to go back?”
+
+“Exactly a week from today. It should be within an hour of when you first went in there.”
+
+“That was around two.”
+
+“Then we’ll meet back here before we go. We have to do this exactly right. I’ll explain everything then.”
+
+The next week passed by dreadfully. My girlfriend could tell something was off. I didn’t take her to dinner that night. I couldn’t stomach anything. I barely talked to her. I wasn’t about to burden her with all of this. It was my responsibility and I didn’t even know where to start in explaining all this. I never told her any of it and she never cared where the extra cash came from. She just smiled and accepted it, same as me.
+
+The day finally arrived and I felt sick. The clock seemed to turn painfully slow and terrifyingly fast at the same time. I didn’t do any other work orders. I just sat on the floor in an empty apartment we were turning and scrolled on my phone. When the clock struck two I sent my girlfriend a love-you text and went to Javier’s office.
+
+Javier was at his desk and on it was a brand new disposal flange and the hardware for it and nothing else. His face was stone.
+
+“It’s time,” he said. “Listen carefully because what we have to do now is different.”
+
+I swallowed nervously and waited for him to keep going.
+
+“The way we enter is almost exactly the same. We still can’t let anyone see us. The only thing different is one of us will only knock and wipe with their left hand and foot and the other uses only his right. Once we get inside that’s when things get weird. One of us must replace the flange you didn’t replace before. Ignore last week’s job. As long as all goes well you can take care of that next week.
+
+“While one is working the other must speak to the resident. He must answer her questions and he must answer truthfully. When she tries to make a deal or an offer he must respectfully decline everything. He keeps that up until the other person is finished with their repairs. Once the repairs are finished we both must apologize and promise to return the next week. Any questions?”
+
+“No. Let’s do it, boss.”
+
+I sounded far more confident than I felt though I was a little relieved I wasn’t going to be the one talking. We wasted no time and made our way over to 1001. We saw no one. Even on the ride over. I almost wished we would see someone just so that I could delay a little further.
+
+At the door Javier did his part with the left and I did my part with the right. We heard her voice and it sounded the same as it always did.
+
+“Come on in!”
+
+We entered the apartment and we were immediately assaulted by the Stench of Defeat. I could have sworn it was twice as bad as last time. The discarded corpses of insects and wrappers crunched under my feet as we stepped inside. She was sprawled out on the couch as she always was when I entered but her eyes were bloodshot. They darted back and forth between us like a predator deciding which prey it wanted to pursue. 
+
+Javier spoke, “Thank you for inviting us. My colleague is here to work. I will be speaking to you.”
+
+She licked her lips and smiled at him. I could see her jagged, rotting teeth, all grey and yellow.
+
+“Get to it,” he whispered. “And be fast.”
+
+I hurried to the kitchen and the disposal I had replaced. I immediately went to work detaching it from the sink so I could get to the flange while I listened. By the time my head was under the sink she had already started her barrage.
+
+“What is your name?” she rasped.
+
+“Javier.”
+
+“What is your wife’s name?”
+
+“Maria.”
+
+“What are your children’s names?”
+
+“Juan and Gloria.”
+
+“Which one is your favorite?”
+
+He hesitated only briefly. “Gloria.”
+
+“Why?”
+
+“Because Juan is a teenager and she’s still sweet.”
+
+“I can make Juan behave. Just say the word.”
+
+“No, thank you,” he replied.
+
+“How about a raise for your wife?”
+
+“No, thank you.”
+
+She kept digging deeper and deeper into his family and offering to do things that would seemingly improve their lives. Javier kept responding in the same monotone voice and declining each and every one of her offers. Meanwhile, I was struggling to replace the flange. It took me some time to get the old one off. Despite how new it appeared to be I had to practically pry it off. I started installing the new one when I heard her start asking about me.
+
+“What do you think about your new employee?”
+
+“He’s a good kid and a hard worker.”
+
+“Does he know about your bonus?”
+
+“No, he does not.”
+
+“I can give him your thousand dollars each week? Do you think he’d like that?”
+
+“He might, but no, thank you.”
+
+“Did you know that his brother is gay?”
+
+“No, I did not.”
+
+“What do you think of that?”
+
+“I don’t care.”
+
+“I can turn him straight if that bothers you.”
+
+“No, thank you.”
+
+“Does your employee know why you hired him?”
+
+“No.”
+
+“Why did you hire him?”
+
+“So that he could be a sacrifice.”  
+I froze. What did he mean by sacrifice? To whatever she was? Suddenly, I felt sick. I was nearly finished. My shaking hands kept dropping parts as I hurriedly put it all back together.
+
+“In exchange for what?”
+
+“My freedom. I wanted to leave this place.”
+
+“Do you still want to make that deal?”
+
+“No.”
+
+“It’s time for you to choose. Do you want to give yourself up or him?”
+
+Now I was frantically plugging the disposal back in and getting ready to go. I finally stood and saw her lumbering over Javier. She seemed taller than ever before. Her mouth hung open, drool falling upon him.
+
+Javier hesitated and looked back at me before he said, “I’d rather it be me.”
+
+Immediately, her jaws unhinged and clamped down on Javier’s shoulder. He screamed and I rushed towards him to try and help.
+
+Suddenly he shouted, “No, finish testing the disposal!”
+
+It felt absurdly tedious but I knew it had to be done. I quickly turned the disposal on and started running water. All the while I could hear Javier’s screams and struggles from behind me. I crouched down and checked the pipes. No water. Good. 
+
+I shut it all off and immediately ran to assist Javier. The thing was holding him with both arms and tearing chunks of flesh out of his shoulder. Blood was pouring everywhere. I tried to pull it off but one of its hands shot out and grabbed my wrist. Its grip was unnaturally strong, so painful and tight that I fell to my knees.
+
+“You... have to tell... her what work you did,” Javier gurgled out.
+
+I was panicking but I tried to focus.
+
+“I removed the disposal from the plumbing, then I removed the old flange and installed the new one. After that I put the disposal back into place and ran it and did a leak check. It should be good now, uh, ma’am.”
+
+“Now for the goodbye,” Javier said.
+
+Then we both said, “We’re sorry for our mistakes and we promise to return next week.”
+
+Suddenly, she released her grip on Javier’s shoulder and on my wrist. As soon as she let go I could already see there was a bruise forming in the shape of her disgusting hand. Javier dropped to one knee holding his wounds. I threw his uninjured side over my shoulder and hauled him out of the apartment never looking back at her. The second the door closed I called an ambulance and ran into my apartment across the hall to grab a med kit.
+
+I returned and started attending to his wounds. I could tell he was starting to black out. His skin was pale and his eyes were barely focusing.
+
+“Stay with me, boss. We’ll get through this,” I assured as I started pouring cleaner and wrapping bandages around him. The paramedics soon arrived and took over. He was soon in the ambulance and heading to the hospital. I got in my car and followed.
+
+It was a little touch-and-go at first with the blood loss but eventually the doctors told me he would pull through. I didn’t know the first thing about how to explain his injuries to them but when they asked where it happened and I told them about our complex they immediately stopped asking questions. It was as if they expected this.
+
+I was finally allowed to see him. His family had been called and they were already in his room. His wife sat in the seat next to him. 
+
+When I walked through he turned to her and said, “Honey, please take the kids and go get some food. I have to talk to my employee.”
+
+She tried to stay but he assured her he would be okay.
+
+As soon as she was out the door, he spoke, “I’m sure you have many questions, mijo, but I wanted to say thank you for saving my life. I wouldn’t have made it out of there if it weren’t for you.”
+
+“I wasn’t about to leave you in there. And yes, I do have questions, but mostly I want to know: was everything she said in there true? ”
+
+“Yes, in exchange for you being fed to her, I would have been allowed to leave but that’s not the case anymore! Not even by the time I let you go in there for the first time.”
+
+I could have hit him if he wasn’t laying in a hospital bed.
+
+“What the hell is wrong with you?” I spat. “I trusted you. How could you do that to another person?”
+
+“I’ve worked here for fifteen years. I was only a little older than you when I first started. This whole time I’ve lived with that thing hanging over my head knowing that one little mistake could cost me my life or the lives of my employees and sometimes it did. I am not the first person she’s ever attacked. I wanted out and when I hired you I tried to be okay with it but I couldn’t. I came to know you, and even care about you, and now I don’t know how I ever even considered it.”
+
+I understood his reasons but I was still hurt by them. 
+
+“I don’t know if I can keep working with you,” I said.
+
+“Don’t you understand by now? We can’t just leave. She won’t let us. We have to keep servicing her. You’re stuck with it but know this: I am sorry for everything.”
+
+“There has to be another way.”
+
+He sighed. “There is one thing. You can have my job. If you agree to become the supervisor I will be allowed to leave. You would still have to take care of 1001 and you would be responsible for who goes in there but you wouldn’t have to work with me anymore.”
+
+I kept pressing and pressing trying to see if there was any way we could both get out, but there was none. Eventually I came around to accepting the position and Javier was allowed to go free. 
+
+Now I wasn’t the most qualified for the position. I had to learn a lot on the job and I still had to attend to 1001. I had no idea what she needed next. Then on the day of the work order, I got a call on my work phone. There was no caller ID. I answered it. A voice that sounded like it had smoked a thousand packs was on the other side.
+
+“I need the toilet fill valve to finish being replaced.”
+
+Then she hung up.
+
+Now you might think I’m crazy for continuing to work here but what choice did I have? I was already used to it and Emilio helped by going in sometimes as well. Besides, a thousand dollars is a thousand dollars and I started getting that every week after we went in there.
+
+Pretty soon we hired a new guy. He’s not ready for 1001 yet but one day he will be and I won’t let him get fed to her. It might not have been right to not tell him about it before he started the job but what could I have even told him? Besides, he’ll probably take the bonuses just like I did.

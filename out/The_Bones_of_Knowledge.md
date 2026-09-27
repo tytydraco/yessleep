@@ -1,0 +1,309 @@
+Hey!
+
+If you're reading this, then you have been selected as the next person to know what happens after death! This knowledge is powerful and must be protected at all costs!
+
+There are rules you must follow, and by reading this, you acknowledge and accept those rules. If you do not wish to continue, please stop here.
+
+***1- You may not share this knowledge with anyone ever.***
+
+***2- You cannot try to interfere in or stop someone's death, including your own.***
+
+***3- You may not try to kill someone else or yourself.***
+
+***4- This information is not for use.***
+
+***5- You may not share this knowledge.***
+
+**There will be dire consequences.**
+
+Now, with that out of the way, we can continue.
+
+You're probably wondering, *why me?* *Why am I the lucky person chosen to receive such knowledge?*
+
+Well, my dear, it's because some knowledge cannot be left written.
+
+For example, once you finish this letter with the enclosed knowledge, it will no longer exist. As a side note, I warn you to remove your hands quickly at the end.
+
+Anyway, this is the type of knowledge that can only be contained in the human mind for long periods of time. It can live for a short time outside, but once it's gone, it's gone. So I make sure to give this knowledge to a few lucky people to keep it alive.
+
+Another piece of knowledge I do this with is the meaning of life.
+
+Around you, there are a few lucky people who contain this knowledge, but just like with this one, there are rules to keeping it.
+
+Now, I know I said before the rules were stated to stop reading, but really you don't have to stop until I give you the second warning, which is coming up.
+
+See, not everyone can handle this knowledge, and I must give you a chance to decide that.
+
+I know it may be tempting to continue, but please be sure you are ready to receive and keep this knowledge along with the rules. This is very important, and it poses a problem when the people selected are unable to follow the rules or handle the secret of death.
+
+I'd rather not have to clean up a mess created because you were merely curious and not truly capable of holding this. So again, be completely sure you're ready to sign up for this.
+
+To give you more time, I will explain a little about who I am.
+
+*Oh*, if you opt out, everything you read here will be wiped from your mind permanently. You will have no memory of this letter or its contents.
+
+This means I can be 100% honest with you.
+
+**I am Gadreel.**
+
+I used to walk the Garden of Eden before the great betrayal. It was I who messed up and allowed the snake to enter and entice sweet Eve to eat from the Tree of Knowledge.
+
+Other than them, God, and I, there were no other living creatures in the garden.
+
+Contrary to certain beliefs, I did not entice Eve myself. But I did allow the snake to enter, mainly because I was curious how Adam and Eve would react to it.
+
+Due to this mistake, I was banished from the garden.
+
+Instead, I became a Watcher of humans, and with this, God decided it would be *just* to bestow me with all the knowledge He possessed, but leave me with no more power than just enough to carry it.
+
+As time wore on, the knowledge burned me inside and out. Like a fire that burned only me for eternity. It was all-consuming and left no room for thoughts of my own.
+
+Then one of my fellow Watchers suggested I try to contain the knowledge and give it to others among me to help carry it.
+
+My brothers all agreed to take a piece if it meant helping me escape the labyrinth of my mind.
+
+So I tried.
+
+I created balls of light which I handed off to each of them. Yet, each piece broke before my brothers could absorb it, and it snapped back onto me as if I were a magnet.
+
+For years I cried, begging God to relieve me of this torment. Promising I would never again make a mistake such as the one I had before. My brothers even cried and prayed with me from time to time.
+
+Finally, one day God stood before me.
+
+I was so shocked that I couldn't speak, but I knew He knew what I wanted to ask of Him.
+
+He stared at me for a long time. Years, in fact. Watching the pain ripple through me as my vessel pulsed, ready to burst from all the knowledge, yet unbreakable due to His own creation of me.
+
+Then, He spoke. Not out loud, but inside of me.
+
+He told me that He would give me a way to relieve some of my pain and torment, though not permanently. He said that since I contributed to the damage and demise of humanity, I would forever pay this debt alongside them. He told me that He had created my vessel specially in the likeness of humans. It could contain extreme power and knowledge without ripping at the seams.
+
+He said none of the other angels were like this, and even a small bit of knowledge would destroy them, which was why He had to stop me from giving any to my brothers. He said that since humans can hold this knowledge, I could break it to pieces and give some to them to carry.
+
+Which is what I am doing now by presenting you with this opportunity.
+
+He said that it would be up to me who I chose, but I needed to be wise about it.
+
+*The meaning of life?*
+
+*Life after death?*
+
+*Does God truly exist?*
+
+*Where did God come from?*
+
+*Predictions.*
+
+He gave me a list of the questions I could bestow upon others, the last being a little more complicated.
+
+He said I was allowed to have certain people predict future events since this was a part of the knowledge I contained, but He could not allow them or me to change it. Removing these, even temporarily, would ease my suffering but not make it go away. He said the knowledge would stay contained until the human died, and then it would come back to me.
+
+Now, since you have made it this far, I suppose I should explain exactly what happens after death.
+
+*So, what happens after death?*
+
+The organs shut down, leaving an empty shell.
+
+The human body goes into decomposition. Slowly, the skin, fat, muscle, organs, and so on begin to break down into nothing.
+
+In ancient times, the body was simply left to become part of the earth again.
+
+Over time, though, humans have taken to certain rituals around death. They built monuments to contain bodies: crypts, coffins, or even simply burned them to ash to be contained in jars on their mantles.
+
+This, of course, is just the logistics of what death looks like to humans.
+
+I want to point out an important detail that is missed by most, if not all, humans. Once a human dies and decomposes, they cease to exist.
+
+Except for their bones.
+
+Even when burned in the funny little rituals, the bones remain.
+
+It's true that during that particular process they are able to break them down afterward into dust, but if they didn't, the bones would remain. Just look at all the ancient bones that are dug up and studied in your world today.
+
+*Why is that important?*
+
+What makes a human special isn't the color of their hair, the size of their brain, or their beating heart. It's the bones inside their skin. The bones are what separate humans from other living creatures. Yes, other creatures have bones, but they are not the same.
+
+*How so?*
+
+Let's step back to the Garden of Eden when God made Adam and Eve.
+
+To begin, He made Adam in His likeness, if we remember correctly, right?
+
+Yes.
+
+*Well, what does that mean?*
+
+It means that God took a part of Himself to create the bones of Adam.
+
+Then later He used Adam's bones to create Eve.
+
+*Are you understanding now?*
+
+I assume you are.
+
+The bones of a human are a vessel for all of humanity. They contain the most significant thing there is in humans.
+
+The Soul.
+
+The Soul is all the things that make humans good. It is morality, kindness, love. It is just and fair.
+
+*Oh, but Gadreel, the world isn't just and fair, or kind and loving.*
+
+Yes, I understand the confusion.
+
+See, the outer layer of the bones is what changes this.
+
+The brain, or mind of a human, if you will, is full of knowledge that was never supposed to be there, and because of this, the Soul is compressed.
+
+A war between the good of the Soul and the evil of knowledge wages inside each and every human. Some notice it when they are young. Others don't notice it until they are very old. And some never notice it at all.
+
+There is another important detail you need to understand.
+
+When you break a bone, a piece of the Soul fragments and leaves the body. It does not disappear. Instead, it goes to a place we call *'The Waiting Place.'*
+
+If a human dies with their bones intact, their Soul remains contained within them. When death comes, the Soul is taken where it belongs.
+
+Heaven. Or Hell.
+
+But when pieces of the Soul have already escaped, things become more complicated.
+
+Those pieces remain in *'The Waiting Place.'*
+
+They cannot return to the body.
+
+Now, some humans never break a bone and still lose pieces of their Soul.
+
+*How?*
+
+Trauma can do this. Pain received. Pain inflicted. Years of suffering. Years of causing suffering.
+
+Hatred.
+
+Cruelty.
+
+The Soul can leak away without the bones ever breaking.
+
+Eventually, there can be very little left. Sometimes nothing. Humans have names for people like that.
+
+You call them Sociopaths. Psychopaths. Monsters.
+
+Some are born with different minds, of course, and I don't mean to insult the complexity of your species. But there are others who simply emptied themselves over time on purpose.
+
+Piece by piece.
+
+Pain by pain.
+
+Choice by choice.
+
+The Soul leaves. The consciousness eventually joins it, leaving these empty shells, once called human, that seem to have no humanity left.
+
+When enough of it is gone to *'The Waiting place'*, a new path opens for the Soul. I call this *'The Game.'* But that is not knowledge I will give you yet.
+
+Perhaps one day.
+
+For now, you know what happens after death. You know where the Soul goes. You know what happens to the pieces that leave before death. And you know why the bones matter.
+
+That should be enough.
+
+*But isn't most of this already known or speculated?*
+
+That's true, but I must wait to give you more knowledge. The human mind can contain it all, but can only handle it in small doses. So for now I must wait.
+
+Remember the rules:
+
+***-Do not interfere with death.***
+
+***-Do not attempt to use this knowledge.***
+
+***-And whatever you do, do not try to force yourself or someone else into a condition you do not understand.***
+
+I would *hate* to clean up another mess.
+
+That brings us to the end.
+
+If you have read this far, I assume you have made your decision.
+
+\---
+
+As I read the last sentence of the letter, I placed it down on my desk, the earlier warning coming to mind.
+
+I watched and waited, but nothing happened.
+
+Curiously, I turned the letter over to see if there was more.
+
+All I found was:
+
+**Do you accept this knowledge?**
+
+With a **YES** and **NO** underneath it.
+
+Clearly, I was meant to circle one.
+
+I thought by reading it all I was already accepting, but it seemed they were giving me a last chance to decline what I now knew.
+
+*If I chose no, would everything disappear? Would I forget Gadreel? The Garden? The Soul? The Game?*
+
+Probably. That was the promise he'd made.
+
+*Did I really want to know?*
+
+Truthfully, I was a bit bored with it.
+
+Sure, it was cool to know more about what happened after death, *but what use did I have for it? Why would they even pick me for it?*
+
+I glanced down at my left leg, casted, again. Then it hit me. The part about the Soul leaving broken bones. I had broken my leg half a dozen times in less than five years.
+
+The pain. The anger. The bitterness.
+
+The way I'd changed over the years.
+
+Gadreel had said trauma could cause the Soul to leak away. But breaking the bones made it happen faster.
+
+I stared at my cast. Then I looked back at the paper. If I wasn't careful, I could become part of...
+
+*'The Game.'*
+
+Whatever that was.
+
+Gadreel said he might tell me about it one day, but I was very curious already.
+
+*The answer was easy.*
+
+Yes, I wanted to accept this knowledge. I wanted to know about The Game and The Waiting Place.
+
+*Where were they? Why did the Soul go there? Was it good or bad?* I needed to know more.
+
+I reached over and grabbed my pen on my right side while also reaching under my desk.
+
+I quickly circled the word on the paper and pulled my hand back, waiting again. This time, the paper glowed.
+
+Yellow at first.
+
+Then purple.
+
+The glow grew brighter, turning to bright purple flames. The paper seemed to melt from the heat, though I felt nothing from it. Then the flames disappeared, leaving just the ashes.
+
+The open window to my right suddenly blasted cold wind that blew the ashes into the air around me. I looked down at my legs. I blinked and waved the ashes from my face.
+
+The cold chill stopped, and the air cleared again. I raised my left hand then and closed my eyes for a second. The knowledge was still there. The questions remained.
+
+*What was 'The Waiting Place?' What was 'The Game?' How did you play?*
+
+For a moment, I hesitated. Then I swung the hammer.
+
+**Whack!**
+
+Pain exploded through my knee. I laughed, then swung again.
+
+**Whack!**
+
+Again.
+
+And again.
+
+The skin split open. The bone beneath it gave way into splinters. Blood began soaking through the fabric of my shorts. I kept swinging until my leg was a pulsing mass of ruined tissue and fragmented bone. The pain made me dizzy.
+
+I couldn't stop laughing. My knee was definitely shattered. No coming back from that one. But it was fine.
+
+***I c***a***n't wait to play 'The Game.'***
