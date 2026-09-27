@@ -1,0 +1,155 @@
+Let me start out this story by explaining how I met Molly. When I was 14 my mom moved me and my two younger siblings from our small town out to Rapid City, South Dakota to escape her failed marriage. We settled down, I started at my new high school, and life went on for the next six years in relative peace. I gained a new stepdad who treated my mom nicely, managed to graduate on time, and eventually I moved into a small apartment with my girlfriend Sierra.
+
+After high school ended, I decided not to take the college route as academia was not my strong suit. I started working at one of the local hardware stores, which is where I met Molly. If we had not been working at the same store, Molly and I probably would have never become friends. She was a fierce take-no-shit type, smart as a whip, and I always felt five steps behind her whenever we interacted. She was extroverted and bubbly, and as a quieter guy, we gravitated towards each other eventually. After a few weeks we got to know each other more, and we learned that we shared a few of the same interests, one of which is caving.
+
+In South Dakota, we have some of the longest and most intricate cave systems in the world. Some of my friends and I had taken guided tours of a few cave sites, but at that point in my life I had never met anyone who was interested in going to the harder and more complex cave systems. Molly had the same issue. Her girlfriend Adelaide was absolutely terrified of the idea of going into the cramped, dark, creature-filled tunnels, and many of her friends felt the same way. After discovering this about each other, Molly and I had planned to go to Wonderland Cave shortly after. This began our long friendship and spelunking partnership.
+
+If you are a spelunker yourself, you know that eventually you exhaust the cave sites in your general area, and soon you start to interact with other cavers who tell you about the lesser-known cave sites that are not overrun by tourists and don’t require a guide to hold your hand and usher you through the caverns the entire time. This is how Molly learned about Echo Cave.
+
+One Monday I went into work, and Molly, who had worked the day before, immediately walked over to me and started talking rapidly as is her usual way of greeting me.
+
+“Hey Dan! You look like shit dude, no offence. I hope your upstairs neighbor isn’t keeping you guys up again” she said, and I glared at her. “Anyways you have to hear this crazy thing this customer told me yesterday. He was looking for a new head lamp right,” I gave her an eye roll. “I know, I know, the ones here are so shitty, not bright at all. But he’s like ‘My head lamp broke so I need a new one for Black Hills next weekend.’ And I’m like, telling him about the tours there,” She continued.
+
+“So then he starts telling me that he broke the lamp at this place, right? Wait ‘til you hear this, it's one we haven’t been to yet,” she said giddily.
+
+“We’ve been pretty much everywhere around here, are you sure he wasn’t talking about Bethlehem Caves again? I’m not falling for that, Mol. Two entrances to the same tunnels does not mean a cave we haven’t been to-” I start.
+
+“No, this one is different! And hey that was one time, relax. This place sounds crazy too. Something tourists would eat up. He said that it’s a part of Wind Cave National Park, but it's off one of the hiking trails, not in the actual caves there. Apparently, there’s a small opening in the cliff off the trail, you walk down some wide tunnels after and then there’s a squeeze that takes you into this big cavern. The guy called it ‘Echo Cave’. I guess there’s stalactites in the cavern ceiling and water drips down and it echoes off the walls. Guy said it sounded so cool and we have to hear it, he said ‘the walls call out to you’, hah, what a weird guy,” she finished.
+
+My interest was piqued, this did sound like a cave I hadn’t heard of in the area. “I don’t know Mol, Sierra wants me to go camping with her this weekend…” I say.
+
+“C’mon Dan! Just tell her you can go camping next weekend. We have to see this, pleeeeease?” she said. Reluctantly, I agreed, and the rest of the week passed by uneventfully.
+
+On Saturday, we hiked out to the spot where the customer said the cave entrance was located. “He said there was a dead tree with a rock beside it that has the initials C + L scratched on it, that’s where we’re supposed to turn off” she instructed.
+
+“Molly, how are we supposed to find that? We passed like 50 dead trees already” I grumbled. My caving pack was making my back sweaty. We had already hiked for about 30 minutes, and while I enjoyed caving, I did not enjoy walking in the hot sun lugging my equipment.
+
+“It’s supposed to be after the Badlands lookout on the right side, he said we can’t miss it,” she said.
+
+Sure enough, after we enjoyed the view of the rolling grasslands, we passed by another hiking group then came upon a tall pine tree on the right that had lost most of its needles. I approached the rock at the base of the tree and saw the initials that Molly had mentioned. “Did this guy say how far we needed to go? Doesn’t look like there’s much of a path here,” I ask.
+
+Molly took the lead and guided me through the sparse trees. We hiked for about 10 minutes before I started to gripe at her again. “I could have been setting up a tent right now, Mol. Sierra was going to make burgers. She’s still kinda pissed at you. I can’t blow her off next weekend ok-”
+
+“Addy’s not happy either,” she interrupts, “she still hates that I go caving with you all the time, y’know. Freaks her out. She says the only dark tunnel I should want to explore is her-” I am about to start chuckling when she trails off. We came up to a steep cliffside, and she started to laugh ecstatically. “I told you he wasn’t bullshiting me! Ok, we have to look for a small hole, should be a foot off the ground, big enough for us to crawl through” she instructs.
+
+ We split up and I took the left side. I walk along the cliffside until I spot a 3-by-3-foot opening in the side of the cliff, partially obscured by a dying bush. Oddly enough, the brush beside the opening is dried up in a near perfect half circle, like someone salted the earth beside it. I call Molly over and she looks at me gleefully. We get our gear ready, and I go first through the opening.
+
+After crawling through the rock for about 10 feet the tunnel opens up enough to where I can crouch hunched over, then eventually stand fully. The tunnels are smoother rock with a few feet of space on each side of me, gradually sloping down further into the earth.
+
+I turn around and see the top view of Molly’s red hair as she crawls her way over to me. She looks up at me when she can stand again, and I can see the joy in her eyes at having found this place with me. She always gets this way when we’re underground, a joyful feeling that we share. There is something that is inexplicable about being inside the earth, something that someone who hasn’t been caving wouldn’t understand. There is an exhilaration of feeling the cool, damp stone all around you. The adrenaline of being squeezed in a cramped tunnel is outweighed by the atmosphere of total uninterrupted blackness and relative silence.
+
+At this point, the light coming from the entrance casts shadows around us. I flick on my headlamp to illuminate the dark tunnel ahead, and Molly does the same.
+
+“Well Danny boy, let's start walking,” she said affectionately.
+
+We trek down the tunnel, and the surrounding walls start to become more jagged and develop interesting rock formations. The only thing we can hear is our footfalls and each other breathing. We continue walking down the sloping path for another 20 minutes in silence, preferring not to talk once we are in the cave. Eventually I started to hear it.
+
+Coming from the darkness ahead, I hear the sound of water dripping. Not uncommon for a cave at all, but there is something different about this sound. The echo is almost amplified louder, after the initial water drop there is a rhythmic echo that repeats for about four times, getting louder each time after going into silence again. The sound seems to come closer to us every time it echoes. I turn to face Molly, who has heard it too, and she looks at me with wide eyes again. This must be the sound that the customer was describing.
+
+“Damn, when this guy described the cave, he didn’t tell me how creepy the echo sounded”, she said. I chuckled in agreement. We continue to walk forward, and the closer we get the more clearly we can hear the echo. Eventually we come to a widening that quickly slopes back into a smaller squeeze in the rock. The echo is louder here than ever.
+
+“This has to be the squeeze before the cavern” Molly said. As the bigger of the two, I usually go first through the tighter spaces. If I can’t fit, then Molly can easily back up until I can come back out. We don’t like to separate for too long, so this way we can continue to explore close together instead of one going ahead and leaving the other behind. I look ahead into the darkness and see that this would be one of the tighter squeezes I’d have to do in my experience.
+
+“Ok, here goes nothing”. I turn back to Molly and she gives me a goofy encouraging smile. I smile back, then take off my pack to drag behind me. I walk for a ways, then turn my body to the right to walk sideways. The rock scrapes into my shoulders as I sidle between. Eventually I need to turn my body all the way to the right, I quickly look back and see the faint silhouette of Molly’s red hair and pale face in the darkness, confident that she will soon follow me through the squeeze. Then, I turn my head back to continue, as soon my helmet will be too big to let me turn my head back around through the squeeze.
+
+I shuffle, once, twice, three times. My breathing has become shallow. I do not have claustrophobia, you can’t really when you like caving as much as I do, but when I’m in between the two walls the deeper I breathe, the more the stone presses into my back and my ribcage. I shuffle forwards a few more times and the breathing becomes easier.
+
+I can now see the darkness ahead has shifted, and the beam of my lamp bounces off an opposing wall 30 feet ahead of me. I shuffle until I can sidle my way through the small gap and turn my body back to normal.
+
+The cavern I am in is impressive, it has a wide radius, and the walls rise into a high ceiling above me. Through the oppressive darkness, I can faintly see a massive formation of stalactites above me, arching down into one long formation where drops of water slowly collect and drip down. I watch in wonder as one drips down and lands in a small pool of water in the centre of the room. It hits the pool, and the murky grey water ripples slightly, starting the echo. I listen in amazement as the sound bounces off the walls and seems to grow louder as it echoes around me. The sound is no longer eerie, and I stand there for a moment amazed by the beauty of the cavern.
+
+“Holy-” I start, and the sound of my voice starts to echo louder around me as well. It shocks me for a second, and then I laugh which also starts to bounce around the room. I turn back to the small slit in the rock that I entered the cavern from, and I call out for Molly. “Dude! Its crazy in here! Hurry up,” I shout to her, and I can hear my voice all around me echo through the cavern.
+
+“It’s ok Dan, I’ll be right there. It’s just a tight squeeze,” I hear coming from the darkness in front of me. Bemused at how calmly she is talking, for once, I wait for her to come out.
+
+I turn back to the cavern and start to explore a bit more, hearing my footsteps echoing as I go. I first approach the pond. The surface is still until a drop falls to disturb it. I can see about a foot in until it becomes murky grey. I can tell it probably stops at two feet, still I don’t approach it any closer than the edge as in all my years of caving I have no desire to go cave diving. Being trapped underwater is definitely one of my fears. My reflection is disturbed by another drop, and I turn back around. I make a full rotation around the pond, appreciating the crystalline formations on the walls as I go. I am filled with a sense of calmness that I never usually feel when underground. The vast expanse of the cavern is enrapturing, the sounds playing again and again in my ears. 
+
+As I round the room, I am back at the exit. It has been about 5 minutes and Molly is still not through the squeeze. “Mol, did you get stuck? You know my fat ass was able to get through there, you’re taking forever,” I call out again.
+
+“It’s ok Dan, I’ll be right there. It’s just a tight squeeze,” I hear her say, again. She doesn’t sound strained like she’s going through the tight rock. I start to get irritated. I want her to come in soon to see how beautiful this cavern is. She’s the one that dragged me out here in the first place. I round the room one more time. I can see now that the rock is streaked with small veins of green and yellow. I press my hand to the cool, damp stone, and I calm down a bit more. Suddenly I hear a splash of water behind me, I whip my head back to the noise, but the water is still. Molly is still not in the cavern.
+
+I make it back to the exit, and now I’m starting to worry. It should not be taking her this long to get through the squeeze. I call out for her again and get no response. What the hell? I call a few more times, hearing the words echo around me, and nothing. My mind starts to wonder if she got hurt and turned back around, but that is so unlike anything she has done before. After calling out one more time and hearing no response, I take one more look around the impressive cavern and then make my way through the squeeze again.
+
+I sidle back until I have to turn fully sideways, turning my head to look forwards into the tunnel. I shuffle forwards a bit more. Once the stone is back to pressing on both sides of me, nearly caging me in, I hear something that sends my heart into my throat.
+
+Behind me, the echoing sounds of water dropping is accompanied by the sounds of footsteps. Instinctually I try to whip my head back around and my helmet jams on the rock, making me dizzy, scraping my cheek in the process. I can’t turn my head enough to see, and I dart my eyes as much as I can, but the corners of my vision are too blurry. I swear, and I hear more footsteps behind me. The echo amplifies the sound louder, and it sounds closer to me the longer it goes on. My heart is pounding, and I am unable to fully breathe enough to calm myself down, rock pressing into my sternum.
+
+My head kicks me back into gear and I wriggle and thrash my way through the squeeze, scraping and gashing myself in my terror to get out of the tight spot. I can hear the footsteps behind me come closer to the exit, then stop. I manage to maniacally shuffle my way back into the widening tunnel and whip myself back around to stare at the darkened slit in the rock. I see nothing. At least I think I see nothing in the dim light of my headlamp. Were my ears playing tricks on me? There was no way someone was in the cavern. I circled the room twice, and there was no other opening, and nowhere for someone to hide. I continue to gasp for air, my heart racing.
+
+Then, the footsteps start out again, and I am filled with terror once more. I am fastened in place as I hear them retreat from the opening, and then I hear the splashing of water. My brain turns back on, and I hightail it the other way, back out of the cave. I slow down halfway through to catch my breath and start to call for Molly on my two-way radio. No response. I feel horrible, I left her behind, with whatever was making that noise still in the cave. Then, I feel angry. I didn’t see her in my mad dash out of the cave, she just left me here? As some sort of prank maybe? She *is* the one who brought me here, maybe she came earlier and set up the noises to play and then left, hoping to scare me as I ran out of the cave. But that doesn’t seem like something she would do; she knows how dangerous caving is. I continue walking back to the cave exit.
+
+After a few minutes I hear footsteps behind me again. My heart is back to racing, and I whip around. In the beam of my headlamp, I see a familiar head of red hair approaching. Molly sees me, and she looks *pissed*.
+
+“What the hell Dan? You just fucking abandoned me like that? We agreed, no exploring alone, ever. We agreed! That way we would never get lost-” she starts. I’m too stunned to speak. I look at her with wide eyes as she continues, “You just left, without telling me? I looked back and you were fucking gone. I didn’t even hear you leave. Then I’m stuck in this cavern and you don’t even reply when I call for you? Also what was with the staring, dude you creeped me out so much. I’m literally never going into another cave with you, you suck” she finishes as she comes closer.
+
+Now I can finally see her clearly. She looks horrible, her pale skin even whiter, eyes darting around, not looking at me for too long. She’s also muted in a way I’ve never seen her before, her wisecracking bubbly demeanor gone. Her words catch up with me, and I am confused.
+
+“What do you mean? I went into the cavern and waited for you, and you never came in! I waited for so long, and then I got worried about you and came back out,” I didn’t tell her about the footsteps I heard. “You weren’t there! I thought you got hurt and left without me, so I started walking back to leave” I said.
+
+She looked at me with rage in her eyes. “You WERE in the cavern when I came in, and I WAS in there for like 5 minutes. You stared at me all silent the whole time, being a creep and not moving, and I was just trying to appreciate the cavern. Then I look back at you to tell you how cool it was, and you’re GONE. You left. And I called out for you, and you said nothing? You just left me in there?” she said, tears in her eyes. I just looked at her, confused and feeling horrible at the hurt and fear I could see on her face.
+
+“Mol, I… I don’t know. I was in there and I didn’t see you. I got scared and left. I’m sorry,” I apologized. She still looked like she didn’t believe me.
+
+“Whatever. Let’s get out of here. I’m done,” she says, irritated.
+
+We walk through the tunnel in silence. Soon the tunnel is filled with soft light, and we both turn off our headlamps and crawl through the small opening. I still can’t hear anything behind me, not even the echo of the water drops. As the dying sunlight hits my face again, I start to calm down. Molly is waiting for me near the tree line. We walk back to the dead pine tree, then hike back to our cars in silence. Once we get there, we say curt goodbyes to each other, get into our respective cars, and pull out of the park.
+
+Sunday passes and I go back to work on Monday. My dreams after leaving Echo Cave are restless. I am back in the cave, standing in waist deep water, looking up to the ceiling. The sounds of the cave echo around me. After a while I start to hear laughter, quiet at first, then growing so loud that it is the only sound that fills my ears. I wake up in a panic, and Sierra calms me down and says that I need to stop going caving when it freaks me out so much. I start to argue, but I don’t want to tell her what happened because she would either not believe me or not let me go anywhere with Molly again.
+
+When I get into work Molly is already there. She looks at me, anger contorting her face again then looks away. She does not talk to me the whole day. She is also different when I see or hear her talk to our coworkers or customers. Her happy-go-lucky customer service persona is replaced with a muted, calm one. She scowls at me a lot too. She is clearly still pissed off, but I know in my heart that I did nothing wrong that day.
+
+Eventually on Wednesday I approached her. She looks up at me and I say, “listen, I know you’re mad. But I’m going crazy, and I have no one else to talk to. There is something wrong with that cave.”
+
+She seems to soften at that. “I don’t know what really happened, but I’m not mad at you. I just… I was so scared, and you weren’t there,” she said.
+
+“I know, I felt the same way. Can we just put this behind us?” I ask. She smiles and says we can.
+
+“Still, I can’t stop thinking about it. As creepy as it was, and I never want to go back there, it was beautiful in that cavern. I can still hear the weird echoing when I sleep,” she muses, and I nod, feeling the exact same way. I don’t tell her about the nightmares I’d been having, afraid she would laugh me off. 
+
+Friday rolls around, and Sierra and I pack the truck for two nights at our favourite campsite. For once I do not have the dreams of Echo Cave, and I go to bed holding my girlfriend, feeling peaceful for the first time this week.
+
+I wake up to Sierra talking lowly. “Babe. Dan. Your phone is buzzing. Pick it up. Please I can’t sleep,” she moans. I look at my screen and read the time, 3:06am. The screen lights up with a few missed calls and new voicemail from Molly. Confused, I assume she’s on another midnight binge of a TV show and has called to tell me about the finale. I dial my voicemail and listen to the message.
+
+She talks in a hushed voice, like she’s scared that Adelaide will wake up. “Dan, listen. I know we said we would never go back to Echo Cave. But I can’t stop thinking about it,” she whispers, and my heart rate starts to pick up. “Its so beautiful. I just want to hear the echoes again, up close, not when I’m dreaming. I’m going back tonight. You can come too if you want, I’ll wait for you there,” I shoot up in bed as the message ends. Sierra looks at me, pissed off that I woke her up again, but when she sees the look in my eyes, she starts to ask me what’s wrong.
+
+I can’t get the words out at first, but eventually I start to tell her everything that happened at Echo Cave. She looks at me, horror growing on her face, until I’m done with the story. I play her the voicemail again.
+
+“We can’t just let her go back there; she’s losing her mind!” Sierra exclaims. I sit in stunned silence.
+
+“I can’t go back. I can’t. There’s something in that cave, something not human. Something not right,” I say worriedly. She calms me down again. We agreed to call the police and see if they can go out to the park to find her. The operator says they will send a cruiser out there, and we pack up our campsite and head out to Wind Cave National Park as well.
+
+When we get there, I can see two police vehicles with their lights on. Behind them Molly’s beat up van is sitting there, left in a mess, with the door open and caving gear strewn about. I start to panic again. We approach the two officers that are there.
+
+“I’m Daniel Nicholson. I called for Molly Fisher? That’s her van. Have you located her yet?” I ask frantically. The female officer turns to me.
+
+“Hi Daniel,” she gives me a warm smile, “We have two officers on the trail right now. It seems like she got here about 5 minutes ago, we contacted her partner who heard her leave around 3:15am. I will update you two with any news, but I suggest you wait in your car,” she finishes.
+
+We thank them, and I walk back over, but I can’t sit in the truck. I pace back and forth, thinking about Molly, alone, in the cave, with something dark and shadowy creeping up behind her. Sierra looks at me pacing, concern growing on her face.
+
+Eventually I hear the searchers radio the two officers. The female officer approaches us again, bracing herself, “I’m sorry Mr. Nicholson, they searched the entire trail but were not able to find her. Search and Rescue are being contacted. I’m afraid there’s nothing else we can do-”
+
+“No, she’s not on the trail, I told you she went into the cave, by the tree with the rock, you can’t stop-” I start, voice rising with every word.
+
+“They located the cave Mr. Nicholson, but our officers aren’t trained to go inside, we need to call the rescue service-” she says, but the rest of her words are drowned out by the rushing in my ears. She would have made it into the cavern by now. Whatever is in there would have her.
+
+Sierra and I stay until the rescue service comes, and until the sun rises over the grasslands. Eventually they all come back, reporting that no one was in the cave. When they got into the cavern they searched the entire room, even the shallow pool, and nobody was there. They were going to continue to search across the trails of the park. I listened to them speak, and then Sierra ushered me back into the truck, driving me back home as I stared numbly out the window.
+
+A week passed by, and I called every day, asking for more news. Apparently, she had left most of her hiking gear in her van. Police dogs track Molly’s scent to the entrance of Echo Cave, and it stops after that. Every night I am plagued by dreams of Molly, alone in the cave, and the maniacal disembodied laughter wakes me every time. We went by to check on her girlfriend Adelaide, and she is beside herself. She wouldn’t even look at me once.
+
+Days pass until I am awoken again in the middle of the night by my phone ringing. I look at my illuminated screen, and I immediately bolt up at seeing Molly’s name as the caller ID. Amazingly, I don’t wake up Sierra, who also hasn’t been sleeping well this past week.
+
+I press the answer button, “Mol? Where are you? Are you ok?” I ask frantically. My stomach drops when I hear her voice.
+
+“Hi Dan. I wish you were here. It’s so beautiful inside, the walls call out to me. I had to see it again. Will you be here soon?” she spoke in a calm voice. Behind her I can hear the unmistakable echoing water drops, growing louder, and something else, it almost sounded like, splashing water? Her voice fills me with dread. It’s that same monotonous tone she used when she spoke to me through the squeeze in the tunnel, when she told me she would be in the cavern soon.
+
+“Molly, what’s going on? You’re… not yourself. You need to get out of there right-” I start.
+
+“Hi Dan. I wish you were here. It’s so beautiful inside, the walls call out to me. I had to see it again. Will you be here soon?” She repeats, almost like a recording of herself, the exact same as before. I listen in stunned silence, hearing the echoes again, sending a cold wash of fear through my chest. I start to hear it, the sounds that at this point I had only heard in my dreams; distant, dark laughter, barely audible and without any echo. The faint splashing continues.
+
+“Molly…” I choke out, my voice barely above a whisper, “You need to leave. Now. Please.” The laughter rings louder in my ears. I start to wonder if I am in one of my nightmares again. “Listen to me, plug your ears, stop listening to it-” I plead. It sounds like the laughter is coming from my room now, right beside my bed.
+
+“Hi Dan.” I hear Molly say again, “I wish you were here. It’s so beautiful inside, the walls call out to me. I had to see it again. Will you be here soon? Wait-” my breathing picks up again as she pauses for a second, “I can see you now. I’m coming!” I hear Molly say, and then the call drops.
+
+I sit there, numb, and eventually I try to call back and no one picks up. I just hear the voicemail message that I’ve listened to hundreds of times this week. I’ve reached Molly Fisher; however, her voicemail is full and to try again later. Sierra wakes up when daylight breaks and looks at me with concern until I lie back down, but I don’t close my eyes.
+
+In the morning, I get up, put on my work uniform, and get in my truck. I tell Sierra that I’ll see her after work. When I get to the hardware store, I drive past, and start to head south on Highway 79. I’m going to Echo Cave. You should come too. It’s so beautiful inside, the walls call out to you.
