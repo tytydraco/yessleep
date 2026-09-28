@@ -1,0 +1,55 @@
+Ever since I’ve been five years old I’ve loved the woods. The event that caused my love for trees was when I was playing in the backyard of my parents house and while they were talking and facing away from me, I wandered in the forest behind the house and got lost. While I was lost, I was as fascinated as a five year old could be by it all. I loved every piece of bark around me, every leaf and branch above and below me, every insect hiding from my sight, everything. When the police found me I was disappointed at no longer being able to explore this amazing place, but also relieved as I was starting to get kinda anxious as I started to realize that I had no idea how to get home.
+
+By the time I was twenty-four, I got a job at a firewatch tower and was put deep into a pine forest which I was really happy about. I worked for five years and had fires which were always small and never lasted too long. While on break one day, I was walking along a trail when there was a turn that, based on the maps back at the tower, shouldn’t exist. I went down it to investigate and it was completely normal for about a minute before I paused when I saw two birch trees side by side. There wasn’t a single birch tree anywhere near the forest I was in. As I kept walking all sorts of different trees were lining the trail, an impossible mix of wood going on and on. How was there nearly every type of tree lining this path? How was the path even here?
+
+Then I blinked and all of a sudden there was a turn in the path. Again, how? I swore that the path in front of me just kept going forward for as far as I could see. When my eyes blinked again, I was turning even though my feet were planted on the ground, unmoving. When I finished turning I was in a clearing standing a foot away from the tree line made up of multiple different trees and in the middle of the clearing was a cabin with a porch and one window at the front with the curtains closed. I went up to the door and knocked. “Hello? Anybody in there?” I heard footsteps after three seconds and then a middle aged man opened the door. “Didn't anyone tell you that we only lock doors at night?” “No, nobody told me that. You aren't even on my map, that trail, this forest all aren't on my map, what the fuck is happening? Where am I?” He then looked at me with a sympathetic look before speaking again. “Oh. You're new. Let me get the guy in charge here. In the meantime, look behind you.” He then closed the door and after a second or two I turned around and saw in the distance a gigantic tree that pierced the clouds, hell it might be going through the atmosphere. It had multiple branches that could've been redwood trees shooting off randomly. What the fuck is happening? What is that? Where am I? None of this makes any sense.
+
+Then, while I was staring at the impossible landmark, I heard the same guy again. “Come in.” I proceeded into the building and inside there was a living room with a wall at the back that had one door and one empty doorway that led into a kitchen, there were two three seated couches, one under the window that shared the same width, and one near the door that essentially formed a choke point when you entered. An armchair and a TV that was one of those old box TV's on top of a small table that was pressed against the wall across from the couch that made the choke point. Sitting on the armchair was a man who looked like he was in his early thirties with brown eyes and hair and he was wearing a stereotypical suit with grey sneakers and there were two people sitting on the window couch.
+
+The middle aged man sat at one end of the couch near the door and motioned for me to sit at the other end which I did and then the man in the suit spoke. “What's your name?”
+
+“Liam Di-”
+
+“We only use first names here Liam.”
+
+“And where's here?”
+
+“We don't know. My name's Terry by the way. What state did you live in? Or are you from Canada?”
+
+“Why does that matter? What's going on?”
+
+“It doesn't. We just like to know. As for what's going on, you're now trapped in this forest and we have no clue how to get out. And don't try looking at the gigantic tree for too long or too much, too many people get obsessed with it already, we don't need another.”
+
+“What are you trying to do here? How did you set this all up?”
+
+The man then buried his face in his right palm. “Dammit, he's one of those…Listen, I don't know an easier way to prove this is all real when it's this late, other than one way. Stay outside overnight. Or, even better, go in the barrier.”
+
+“What's the barrier?”
+
+“When you start seeing redwood trees that are giant, even for redwoods, you're there. Although, I'd personally advise you to just wait outside the door till it's night. Actually, know what, if you do exactly that and only come in when you see something coming through the treeline, we'll let you go free. Show you a way out of these woods.”
+
+“You said there's no way out.”
+
+“Just fucking do it.”
+
+After a bit, I decided to wait until night. It's my best chance at leaving anyway. And if they did try anything, I had a handgun concealed away. I found the most comfortable spot on the porch, sat down, and waited while trying not to look at the tree. After an hour and three minutes of waiting, it turned pitch black out, although my eyes were starting to adjust just in time for a screech to echo out from the woods. It sounded like a mix between metal scraping metal, a wet gurgle, and a person screaming at the top of their lungs. A while later I saw something red entering the clearing and as it got closer I could see it was a human. But why are they red? That's when I saw the pulsing flesh that made up its body, exposed muscle, veins that would randomly poke outside the flesh, green eyes that were on its shoulders, the nails broken into sharp ends and pushed into the front of its fingers to make claws, and broken, rotted teeth inside the gaping maw that made up its entire face.
+
+I shot up and started banging on the door while I heard its wet footsteps getting closer and closer. “Let me in! I believe you! I fucking believe you!” Two seconds passed and the door handle started moving and by the time it was cracked open enough for me to slide in, it was almost able to grab me and so I went in as fast as I could, escaping it with only three gouges going from my left elbow to the point where the arm turned to a hand, bleeding like hell, and then I heard the door slam shut and the ‘person’ produce a low, wet growl. “Don't worry about the cut. You only die if something physically destroys your brain, and things heal faster than normal. I'd say it'll heal up in a day and a half and maybe scar up."
+
+“What the fuck was that thing?”
+
+“We call them Skinless. They used to be people until a Skintaker got to them. We don't know exactly what they do, but we know it's a lot more than just skinning them.”
+
+“What do you mean you only die if your brain is destroyed?”
+
+“I've seen people with their bodies torn apart, shredded, broken in every possible way, and every time their eyes follow me until I stab the brain. You don't just stab it once either, you have to make sure it's destroyed, no way of being even somewhat useful to the body, it's why stomping on it is better if you're able to do it.”
+
+“Is there anything else out there?”
+
+“Pleanty. A lot only appear during events, and those are a whole other thing with the most common types being seasonal and weather events.”
+
+“Why isn't it trying to break in?”
+
+“Well, normally every other safe place here has a carving or drawing of a Rowan tree on the door, which I was told by this one guy who knows a lot of mythology and folklore stuff that it symbolizes protection, so I guess here it becomes true. And as for here, we don't know why things react the same to this cabin even though there isn't one on our door. Probably has something to do with how anyone who doesn't have a fucked up entrance to this place always ends up at this cabin. Now, we should all get some rest. You never want to be tired in this place.”
+
+As the next ten months went by so did my fear of this place and the empty feeling left behind would always be replaced with astonishment and love for this place. The horrific things I've witnessed over the past two years didn't disgust me by the time I saw the fifteenth living corpse that I always gave and still give mercy by stomping on the brain, as much as they showed me what happens if you don't adapt to this place, if you don't respect it. Even the barrier isn't that bad once you learn how to evade and hide well or even get to another pocket fast enough. My favorite is still the first one though, all the other pockets are different forest types instead of the mixture of trees that makes up the one with the entry point to this place. I love it here. I don't want to go back home. My parents are dead, have been for a total of eight years now. Never had a relationship, so there isn't a wife or girlfriend to return to, never had sex so no kids to go to. I have no reason to leave. I was alone and most of the time sad, but here I'm always surrounded by all different types of my favorite thing instead of just pine. I have friends, even a girlfriend now, I only have reasons to stay. Not like there's a known exit, but still. This place is my favorite place I've ever lived in, and I'll never leave, even if someone finds a way out.

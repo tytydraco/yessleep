@@ -74,7 +74,7 @@ I could hear the sound of slapping bare feet on the wooden floor and banging ins
 
 My brother grumbled the whole way, but he came back with a flashlight in hand. My mom took it from him and flicked it on. She stepped into the closet and shined the light into the other plumbing access hole. She leaned her head into the hole, causing my body to tense up tight. Part of me was worried she would find nothing like always. He’d been so real — so vivid and solid right in front of me. It had to be real.
 
-I waited for her to lean back with a sigh and tell me nothing was there. Instead, my mom froze, her dead tucked inside the hole giving her the look of a beheaded woman. My brother and I stared, confused, as she suddenly gasped and jerked back. Thomas walked over to her cautiously as my mom had begun to hyperventilate.
+I waited for her to lean back with a sigh and tell me nothing was there. Instead, my mom froze, her head tucked inside the hole giving her the look of a beheaded woman. My brother and I stared, confused, as she suddenly gasped and jerked back. Eddy walked over to her cautiously as my mom had begun to hyperventilate.
 
 "What is it?" I said. It went unnoticed.
 
@@ -126,7 +126,7 @@ Eddy’s teeth ground together as his jaw locked in place. He looked angry. I th
 
 “You need to tell her, Mom.”
 
-My mom only bit her lip and shook her head. I stared at her dumbfounded at the sudden emotional flip-flop the question brought. I turned to my brother for an answer. He shifted from foot to foot nervously. Eddy also glanced away from me as I waited for an answer. He now looked reluctant to keep speaking.
+My mom only bit her lip and shook her head. I stared at her dumbfounded at the sudden emotional flip-flop the question brought. I turned to my brother for an answer. He shifted in his seat nervously. Eddy also glanced away from me as I waited for an answer. He now looked reluctant to keep speaking.
 
 “What is it?” I snapped, tired of this back-and-forth game.
 
