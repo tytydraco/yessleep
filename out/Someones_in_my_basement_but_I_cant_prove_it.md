@@ -1,0 +1,59 @@
+I honestly don’t know if I’m being paranoid anymore.  
+I live alone in a small house. It has two bedrooms, a kitchen, a living room, a bathroom, and a basement.  
+The basement is mostly used for storage. There’s Christmas stuff, clothes, tools, and a bunch of random boxes down there.  
+I barely go down there unless I need something.  
+About three weeks ago, I started hearing noises at night.  
+The first time, it sounded like something had fallen over. After that, I heard something scraping across the floor.  
+I went downstairs to check and found nothing out of place, so I went back upstairs. As I was walking up, I thought I heard another noise behind me, but when I turned around, everything was quiet.  
+The next night, I heard footsteps.  
+It was just one step, then a pause, then another step.  
+After that, nothing.  
+I stood at the top of the stairs for a few minutes, listening, but I didn’t go down. It was around 2 AM and I was tired. I also didn’t really want to walk around the basement in the dark.  
+I checked it in the morning and didn’t see anything wrong, except for a box I’d left beside the basement door. It was now halfway down the stairs.  
+I figured I must have moved it and forgotten.  
+A few days later, I came home and noticed the basement door was open a little.  
+I always close it because the basement gets cold and the draft comes upstairs.  
+I closed it and went about my night, but after that I started noticing other things.  
+One of the kitchen chairs had been moved.  
+My water bottle was on the counter instead of beside my bed.  
+The basement light was on one morning, even though I never leave it on.  
+I checked all the doors and windows, but everything was locked. Nothing was missing either.  
+I felt stupid for thinking someone was inside the house. It seemed more likely that I was just forgetting where I put things.  
+Then last Tuesday, I put a small piece of tape across the basement door before going to bed. It connected the door to the frame, so I would know if the door opened.  
+I also set my phone on a shelf at the top of the stairs and started recording the hallway. I wanted to see if anything happened while I was asleep.  
+I went to bed around 12:30.  
+At 3:17, I woke up for no obvious reason. I checked the time, and then I heard a footstep downstairs.  
+A few seconds later, I heard another one.  
+I got out of bed and went into the hallway. The basement door was closed, and I could still see the tape across it.  
+I stood there for a while, trying to decide whether I should open it. I had my hand on the doorknob when I heard something move on the other side.  
+It sounded like someone shifting their weight.  
+I took my hand off the knob and went back to my room.  
+I called my brother, and he told me to call the police if I really thought someone was inside the house.  
+I didn’t call them. I didn’t even know what I would say.  
+In the morning, the tape was still attached, but when I looked closer, it had been peeled off and stuck back down.  
+I checked the recording on my phone.  
+Nothing happened for the first few hours. Then, at 3:17, you can hear the footsteps.  
+At 3:18, the phone moves slightly. It isn’t pointing directly at the basement door anymore.  
+I don’t remember touching it.  
+There’s also a sound that might be breathing, but I can’t tell for sure. It could just be the heating system or something else in the house.  
+I haven’t slept much since then.  
+Tonight, I heard footsteps again.  
+They weren’t coming from the basement this time.  
+They came down the hallway and stopped outside my bedroom door.  
+I’m typing this with the lights on, and I still haven’t checked the hallway.  
+I know I should leave or call the police, but I keep telling myself there’s probably a normal explanation.  
+This morning, I checked the basement again and didn’t find anyone there.  
+One of the boxes was open, though.  
+Inside was a jacket I haven’t worn in six months.  
+It was sitting on top of everything.  
+I almost picked it up, but stopped when I saw the sleeve.  
+The cuff was damp, like someone had been wearing it outside in the rain.  
+There was dirt pressed into the fabric near the shoulder, and the inside of the collar smelled faintly like my house.  
+I checked the jacket again a few minutes later.  
+It was cold by then.  
+But the box was still warm inside.  
+I haven’t gone back downstairs since.  
+A few minutes ago, I heard the basement door close.  
+I’m still upstairs.  
+And now there’s a jacket hanging on the back of my bedroom chair.  
+I don’t remember bringing it upsta
