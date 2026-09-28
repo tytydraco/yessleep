@@ -1,0 +1,255 @@
+“Hey, Caleb, this was the fucking dumbest idea you’ve ever had,” Miles said angrily.
+
+Josh just grunted in agreement, Hailey laughed, and I tried to lighten the mood.
+
+“Come on. We’d just be sitting at our computers playing games otherwise. At least this way we’re out in the woods getting some fresh air. We’re doing something healthy, right?”
+
+“Yeah, sure, Lily. You and Hailey have smoked almost a whole pack between you since we got here, so somehow the whole ‘we’re doing this for our health’ thing doesn’t really add up,” Miles muttered.
+
+Caleb looked at us, his eyes shining.
+
+“I’m telling you, we’re going to be the first ones to find her cabin and put it online.”
+
+Hailey gently placed a hand on his shoulder.
+
+“Caleb, I know you’re excited about this, but witches simply don’t exist. They never did. The fact that people who went looking for her disappeared in these woods is just bullshit. It has nothing to do with a witch.”
+
+“Then what happened to them?” Caleb asked, clearly offended. “Can you tell me? Jessica, Carl, Petr, Ema, Jack…”
+
+“Hey, man, just because those people disappeared doesn’t mean a witch took them. Something could have happened to them, or maybe they just wanted to disappear and blamed it on this whole story. We’ve been walking through these woods for hours. We’re not some fucking Blair Witch heroes,” Miles snapped.
+
+“We should go home. This is fucking stupid,” Josh added.
+
+“Absolutely not,” Caleb objected.
+
+“Fine. Let’s vote,” Miles said. “Who wants to go home?”
+
+Josh immediately raised his hand, and Miles followed. Hailey hesitated for a moment before raising hers too. I felt bad for Caleb, so I kept my hand down. It wouldn’t change the result anyway.
+
+Caleb looked at me gratefully, then reluctantly raised his hand.
+
+“Okay. Let’s pack it up.”
+
+We turned on the navigation and headed back toward the car. After a few minutes of walking, we came across a little girl sitting on the ground and crying.
+
+She had curly red hair, big green eyes, and a few freckles around her tiny nose. She looked about five years old. She was wearing a Frozen T-shirt and light blue jeans. There was a hole in one knee, surrounded by blood. She had no shoes on.
+
+“What happened to you, sweetheart?” I asked gently as I knelt beside her.
+
+Between sobs, she explained that she had seen a little bird on the slope and wanted to catch it, but she had slipped. She managed to climb back up, but tore her jeans, and her shoes had fallen down the slope.
+
+“It’s going to be okay,” I said. “What’s your name?”
+
+“Vivian,” she answered immediately.
+
+“Okay, Vivian. I’m Lily. This is Caleb, Hailey, Miles, and Josh. We’ll help you. Where’s your mom?”
+
+“Home,” she said.
+
+“We live near the woods. But I can’t go home because Mommy will be angry. I lost my shoes and ruined my pants,” she sobbed again.
+
+“Don’t worry. We’ll explain it to her.” I gently stroked her hair.
+
+Caleb came over and offered to carry her so she wouldn’t have to walk barefoot, but Vivian pressed herself against me in fear.
+
+“It’s okay. I’ll carry her. Do you want to ride on my back?”
+
+She smiled and clapped her little hands. I lifted her onto my back, and we followed wherever the girl led us.
+
+We kept walking deeper into the woods. After about half an hour, Miles turned around and asked her,
+
+“Are you sure we’re going the right way? You said you lived near the woods, but it feels like we’re going deeper and deeper.”
+
+“I’m sure,” Vivian said, sounding offended. “We’ll be there soon.”
+
+A few minutes later, we found ourselves standing in front of some kind of cabin.
+
+“Wait,” Josh said in surprise. “You live here? It looks like nobody’s been here for years.”
+
+“Definitely,” Miles agreed. “And it’s not even near the woods. We’re literally in the middle of them.”
+
+Hailey picked up her phone.
+
+“I’ll check how far we are from the car.”
+
+“Shit, guys. Problem. My phone died.”
+
+“Shit, Hailey. We said we weren’t going to use our phones so we’d have full batteries,” Caleb said.
+
+“We wanted to record in case we happened to find the witch’s ca—”
+
+He stopped mid-sentence and slowly began to pale.
+
+He looked toward the cabin Vivian had called her home.
+
+From the look on everyone’s faces, I knew we had all realized it at the same time.
+
+I slowly let Vivian climb off my back.
+
+Then it hit me.
+
+She was messing with us. She probably did this kind of thing with her friends. Maybe they were filming us somewhere, laughing at how stupid we were.
+
+The others angrily looked at Vivian.
+
+She burst out laughing. She laughed so hard that tears began running down her face.
+
+“Well, great. Thanks, Caleb,” Miles said sarcastically. “Not only have we been out here all fucking day, now some local brats are making fun of us too.”
+
+“I just wanted to find the witch,” Caleb said. “And besides, maybe Vivian was messing with us, but the cabin is here, and this has to be it!”
+
+He pulled out his phone, and I saw his forehead wrinkle.
+
+“I think my phone died.”
+
+“Of course,” Hailey said sarcastically. “After all that lecturing me.”
+
+Miles rolled his eyes, took out his own phone, and handed it to Caleb.
+
+“Take mine. Record it, and let’s get the hell out of here.”
+
+Caleb took his phone, and the expression on his face changed. His anger slowly turned into fear.
+
+“Yours won’t turn on either.”
+
+Josh pulled out his phone, and then I checked mine.
+
+It was the same for all of us.
+
+“Then let’s at least take a look inside,” Caleb suggested.
+
+“Have you lost your mind? None of our phones work. We should get the hell out of here,” Miles said, but Caleb was already inside.
+
+Of course, whether we wanted to or not, we followed him.
+
+Inside, lanterns hung everywhere. Crayons and drawings were scattered across the floor. Every picture showed the same little red-haired girl with someone else. Sometimes the person was lying on the ground surrounded by blood. Other times, they were missing a head or parts of their body.
+
+“Okay, that’s enough,” Josh said. “We’re going home. Those kids are messing with us, and we’re falling for it.”
+
+Caleb sadly looked at the drawings around us and nodded.
+
+“Yeah. I guess you guys were right. I’m sorry. Let’s go.”
+
+Then a voice came from the corner behind us.
+
+Sharp and hoarse, as if it belonged to someone who had been alive for centuries.
+
+We slowly turned around.
+
+It was Vivian.
+
+She was speaking in a voice that didn’t belong to her.
+
+“You wanted to find me so badly. So why are you leaving?”
+
+“What… what are you?” Caleb stammered.
+
+Vivian smiled.
+
+“But… you’re not a child,” Caleb whispered.
+
+Her smile widened.
+
+“No.”
+
+“The one you wanted to find so badly,” Vivian said, then ran toward him.
+
+She jumped on him, and Caleb started screaming. The boys tried to pull her away, but they couldn’t. After several endless seconds, they finally managed to grab her and throw her into the corner.
+
+Caleb was screaming with his face in his hands. After a moment, he collapsed to the floor.
+
+Miles immediately dropped to his knees beside him and started shouting. We stared at Caleb, and Hailey burst into tears.
+
+He was missing his eyes.
+
+Josh pushed Miles aside.
+
+“He’s not breathing!” he shouted, and started performing CPR on Caleb.
+
+After what felt like forever, I crouched beside him.
+
+“We have to go, Josh. Caleb is gone.”
+
+We got up and looked toward Vivian.
+
+She was sitting on the floor. She was holding something in her bloody hands.
+
+When I looked closer, I saw what it was.
+
+Caleb’s eyes.
+
+She smiled at us, then shoved them into her mouth and started chewing until she swallowed them.
+
+I looked at Josh and saw an expression I had never seen on him before. His face was filled with anger and hatred.
+
+He ran toward Vivian, but stopped just before reaching her. His feet lifted off the ground.
+
+Vivian simply raised her hand.
+
+Josh slowly began to rise.
+
+Then she moved her hand to the left.
+
+Josh shot in the same direction.
+
+Then to the right.
+
+Then back again.
+
+For a while, she laughed, looking like a child who had just been given a new toy. Josh screamed and tried to grab onto something, but there was nothing around him.
+
+“This is fun,” Vivian laughed.
+
+After a while, she sighed.
+
+Then she suddenly jerked her hand.
+
+Josh slammed into the floor with such force that I heard a dull crack.
+
+Vivian stared at him for a moment. Then she looked back at us, as if waiting to see who would be next.
+
+When none of us moved, she shrugged and started walking toward Miles.
+
+Miles grabbed Hailey and shoved her in front of Vivian.
+
+“What are you doing?” I screamed and tried to help Hailey, but Vivian lunged at her throat and bit into her artery.
+
+I immediately knelt beside Hailey and tried to hold the wound closed.
+
+“It’s going to be okay,” I kept repeating. “It’s going to be okay. We’ll get help.”
+
+“I don’t want to die,” Hailey whispered.
+
+A few minutes later, she died in my arms.
+
+I sat there, stroking her hair and crying. I didn’t see what happened to Miles. I didn’t want to. All I heard in the distance was his desperate screaming.
+
+I was shaking and crying.
+
+Vivian came over to me and leaned down.
+
+“I haven’t let anyone go in a long time. I couldn’t help myself. But I have to let you go.”
+
+I slowly stood up and began backing toward the door.
+
+“Wait,” she said. “It won’t be free. I want you to tell as many people about me as you can. If you don’t, I’ll come for you. You know, when people stop talking about us, we die. And I wouldn’t like that.”
+
+She giggled.
+
+“And one more little thing. I’m going to take something from you as a keepsake.”
+
+I was almost at the door when I saw her clench her hand into a fist and squeeze it as hard as she could.
+
+A horrible pain exploded through my ears and head. Blood began running from my ears.
+
+Everything around me went silent.
+
+I have never heard anything since that day.
+
+I only saw her point toward the door.
+
+I opened it and ran.
+
+When the police searched the woods, they never found my friends.
+
+And I’d like to say I was brave, but the only reason I’m writing this is because if I didn’t, she would come for me.

@@ -1,0 +1,17 @@
+This is from 2021 december, when my grandma passed away.
+
+Me and my grandmother werent the closest, but since we lived in a joint family, we had a sweet bond, she was very talkative and would always take my side whenever id have an argument with my parents. She loved this one traditional song from her village, i can picture her singing it in her cracky and bold voice still.
+
+During covid, she had some neurological issues going on, her cerebrospinal fluid wasnt regulating correctly if im not wrong, this caused her to be on continuous bedrest aswell as numerous medications.
+
+She would get seizures often, wouldnt remember things or names of people, and eventually stopped responding to anyone. I couldnt see her like this, so helpless and troubled.
+
+One afternood, in December of 2021 she passed away, all my relatives came over to mourn the loss. This was one of my first experiences of losing a family member and dealing with grief, it was indeed very overwhelming. My dad cried alot, i hated seeing him cry though, despite me not liking him as much. I still felt awful. Ever since i was a little girl id hated crying, it always made me feel like a horrible mess no matter how many times someone told me that it was totally normal and a way to let the emotions out, i still hate it.
+
+In our culture, bodies are kept in a cooled container before the cremation for some certain procedures that i never paid attention to, just not appealing to me at all.
+
+So the same night of her passing, it was around 4-4:30AM and me and my elder cousin couldnt sleep. We were in my room which was just adjacent to my grandmother's and my cousin tried her level best to distract me from the fact that grandma was no more. Ive always adored her and wanted to be like her.
+
+Like i said, we were just in our room, talking about unrelated stuff and i hear something, i first get quiet and raise my hand a bit signaling her to stop talking, she scrunched her brows and looked at me weird.
+
+We both heard it then, a very similar song, sung by an even similar voice. It was my grandmother's voice, just very gloomy perchance, i dont know, a bit gloomy, a bit relieved, unnerving to be exact. I remember the exact tone. It was the song she loved to listen to the most, some old traditional folk song from her village that was often sung at celebrations. She would sing it too, with great enthusiasm. Listening to that voice though, the one we both heard in the middle of that quiet night was not something that calmed us, it was odd, aswell as confusing, because it was just the two of us along with my parents on the floor, and both my parents were asleep. I was scared and even more curious and asked my cousin to check it out. She was just as scared as me and at that point we both just awkwardly started laughing because we had no idea about wtf was going on, we decided to peek outside together but it was extremely dark, we could still hear her, or "it" singing but none of us was brave enough to go outside and actually inspect the sound, we shut the door and stood by it till we felt like the sound fainted away, we couldnt sleep that night and tried telling the others about it the next morning but we figured it wouldnt be the best time since most the family members/ relatives were very disheartened by the loss. It still creeps me out in a weird way to this day and i choose not to tell this to any member of the family because i am aware that nobody would believe me, or  us.

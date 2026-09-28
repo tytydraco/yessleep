@@ -1,0 +1,54 @@
+When they took me from my jail cell and told me to sign up for a chance of "freedom" I knew that I should have declined. I knew it was too good to be true but I signed up anyway. I was serving 50 years, that might as well be a life sentence. Didn't have anything to lose anyway.
+
+For the record, I went in for a string of murders that I honestly don't regret.
+
+I have never been a good person, never tried to be honest. Never saw the point. Everyone that is and was in my group had the same decades-long sentences as me.
+
+Maybe that's why the outside of our bodies displays the monsters we are on the inside.
+
+Our hair, nose, ears, lips, eyelids are gone. Completely dissolved. The rest of our bodies are covered in scabs and chemical burns. Could have just been the chemical weapons they make us use. Or it could have been the mixture of the weapon with the "combat stimulants" they make us inject to keep us from collapsing on the spot. Who knows, better yet who cares.
+
+All I know is that as long as I keep taking them I don't feel all the things wrong with my body. Like my dry eyes underneath my gas mask. Or the open wounds on my hands.
+
+10 months ago we received the new gas canisters. They didn't bother to even tell us what it is called. But when we saw the string of warning labels on the canisters together with receiving new stronger gas masks we already knew this would be way worse than the old stuff we had before. But we had no clue just how extremely bad it would be.
+
+Thankfully I didn't get picked to be in the crew to release it the first time. We didn't expect it to be as bad as it was, so just about everyone outside of the officer didn't take the new stricter rules seriously.
+
+When they attacked us again, it was released like we were told to do. The people of our own crew were the first to suffer the effects of their lack of safety measures. About 10 seconds after release, they started to scream and flail around like they were on fire. Every hole in their clothing it could find, the gas seeped into. Turning skin into blisters and burns. At least they survived for how much that is worth around here.
+
+One idiot in the group decided that the new gas masks were too uncomfortable so he stuck to his old one despite the warnings. I am sure the only reason the officer didn't beat him into submission is so he could be an example for the others. When he started to scream his lungs out, our officer ordered us to pay attention to what happened to him. He tore his gas mask off.
+
+All the soft tissue on his head was melting off. His nose was drooping down and was hanging over where his lips used to be. His eyes were bubbling inside of their sockets. His screaming turned into a gurgle in the span of 20 seconds. When he fully collapsed and started to spasm and convulse on the floor, the officer decided we had learned the lesson. He then caved his skull in with an entrenching tool until he stopped moving.
+
+Don't feel too bad for him he was a useless drug addict who had killed his mom before he got here. He got what he deserved, just like all of us will.
+
+When we release the gas, it finds the lowest elevations in terrains and sticks around for a while. Turning shell craters and trenches into small gas chambers. The people that are stuck in there turn into a slurry of sorts because it's so acidic. Their clothes stick to their bodies. Their skin sloths off their body together with anything else that's soft and squishy in the human body. So you end up looking at this amalgamation of clothing and equipment in a fleshy puddle around a skeleton.
+
+And trust me you really don't want to step on one of the fresh bodies by accident. Your boot goes straight through them. It feels like stepping in one of those mud puddles that is going to cost you a boot to get out of. And guess what it might cost you a boot to if you haven't tied your laces good enough.
+
+It's even worse when they decided to die on top of something you need. I am so tired of scraping human soup off equipment we need. It's stringy, it's sticky and has all the colours a human body should never have.
+
+Well, at least I can't smell it anymore not having a proper working nasal cavity anymore. But from my earlier days when I still had a nose I remember vividly what it smelled like. I used to live around this industrial area that had a huge chicken slaughterhouse in the middle. During hot days of summer, the horrible smell of blood and chicken shit would hang around that area for months. Now mix in that smell with someone holding vinegar directly under your nose and you get the idea of what it smells like here.
+
+You cant even throw up properly if you want to because you don't want to open your mouth in fear of the smell going into your mouth and then having to taste it. Thank god I decided to rather throw up in my mouth and swallow it back down. Because some of the others that didn't keep their mouths closed can't taste anything and their tongues are covered in random spots of scar tissue.
+
+But the bodies don't really decay at all. Since the gas kills just about anything that is alive. That means thankfully no rats, insects or other pests to deal with. What's not so great is that all the old shell craters are filled with a human slurry that reaches up to your knees if you are lucky.
+
+New cannon fodder gets the honorable task of sifting through the human slurry for anything useful like weapons, etc. When I think about it long enough, I can still feel what it's like to do this amazing task. It's basically like reaching deep into mud and taking any solid object out until it's something useful instead of human bones.  
+After a bit you can feel by shape alone that you are once again holding onto someone's ribs.
+
+Our outpost is so heavily understaffed it might as well be empty. "Outpost" fancy way to describe a muddy trench that connects 3 bunkers together. Of those 3 bunkers, only 1 hasn't collapsed yet. I think you can figure out from where I am typing this.
+
+We haven't called in to command for a week now since our radioman is probably dissolving in a puddle somewhere together with our officer. Can't even use the contraband phone that I found in the human slurry in a random shell crater. Since there is not really any reception after months of bombardment. Thankfully the phone at least made me able to type this out so I have something to distract myself with.
+
+But Command not hearing from us means that our barrier troops meant to keep us in place should show up soon to discipline and/or kill us. I wish them good luck since they are going to have to kill our not-so-friendly neighbours outside the bunker first.
+
+They told me that if I lasted for 4 months, my prison sentence would be dropped. I already knew that was a lie there was no way it would be that short.
+
+I figured if I lasted 1 year they might actually grant me my freedom. It has been at least 26 months at this point. I have been lucky or unlucky enough to last this long with a handful of others. Most cannon fodder they bring in lasts a couple of hours at most.
+
+Speaking of a couple of hours, that's probably the amount of time we have left at this point. Our chemical weapon storage is in one of the 2 collapsed bunkers. I think that once our friends outside figure that out, they will give us a taste of our own medicine.
+
+I intend to blow my brains out before I turn into a human puddle. And looking around me, I am sure the rest of us that are left are thinking the same. We don't deserve to leave this place.
+
+For whoever is reading this. I hoped it sucked to get the phone out of the human soup that is my body.

@@ -1,0 +1,175 @@
+In a simply furnished living room, eight of us were waiting for the concert to begin. Mrs. Anna was in the kitchen, making coffee for all of us, and no one in the living room was talking to anyone else. There was a three-seat sofa, two armchairs, and three old wooden chairs arranged in rows for the audience. My mother and I had arrived early and claimed the armchairs.
+
+I wanted to ask my mother something, to say something to her, but I didn’t want to disturb the harmony of the silence in the room. Everyone in the room except my mother and me believed in the legend, and for all of them, this was at least their third experience. It was our first; nothing had been proven to me yet, and I was having trouble believing in what was about to happen. My mother said she believed, but I wasn’t sure.
+
+Mrs. Anna was our upstairs neighbor, and my mother said that on some nights she could hear Anna crying loudly upstairs, with the sound of her sobbing blending with the notes of the theremin. 
+
+When Mrs. Anna entered the living room carrying the theremin, the room seemed to grow even quieter. It was so quiet that we could all clearly hear one of the audience members scratching her calf, and my mother turned her head and looked at the woman. Immediately after that came the sound of Mrs. Anna placing the theremin on the floor, followed by a faint creak from one of the chairs occupied by an old man. The three sounds, one after another, formed a pleasing little sequence. 
+
+As the old woman went back to the kitchen to bring us the coffee, a long note came from the theremin. It was an unexpectedly spooky sound, monotonous and completely without vibrato, like the horn of a ferry. Everyone flinched, and the sudden movement of everyone sitting in the chairs made all of them creak at once. 
+
+Murmurs of “It’s here” rose throughout the room. A young couple were holding hands, and my mother had covered her mouth in fear.
+
+Mrs. Anna handed out the coffee to everyone, then went over to the theremin and stood beside it. Once again, silence settled over the entire room. The only sounds were the occasional sips of coffee and the clinking of a spoon as a middle-aged woman stirred sugar into hers.
+
+“My husband came to me in a dream last night. You know, we talk in my dreams at least once a week. He asked me to serve all of you filter coffee, and (she looked at her watch) “he announced that he would give his concert exactly five minutes from now.”
+
+I took a sip of my coffee. It was very weak, almost like water, and I didn’t like it. My palate was accustomed to espresso. I never drank filter coffee.
+
+I looked at my mother. She looked at me too. She put her index finger to her lips, telling me to be quiet.
+
+“I’ve been teaching the theremin for about sixteen years, and yesterday I heard a composition played by my husband that was more beautiful than anything I had ever heard in my life. He told me in my dream last night that this would be his final concert. He said he could never compose anything better, and that after playing it, he would stop coming into this world.”
+
+She took a sip from her own coffee and looked at her watch again. She still had four minutes. She closed her eyes, as if trying to feel her husband’s presence.
+
+Mrs. Anna’s husband had died of lung cancer four years earlier. According to my mother, his spirit had returned to the world a year later.
+
+“With every concert, I become more convinced that my husband is still with me. Of course, at first I thought it was a coping mechanism. I thought I was making it all up, that it was just a trick my mind was playing on me. I loved my husband with all my heart, and my mind would naturally do whatever it could to keep me from accepting that I had lost him. After all, it would be perfectly natural for my mind to invent something like this.”
+
+She took another sip of coffee. Then she looked at her watch again.
+
+It was time.
+
+“But my husband said in my dream, ‘Invite other people too. Let them all listen to me. Let them be proof that I exist.’ He is terribly bothered by the thought that I might believe he’s something my mind made up.”
+
+Small, indistinct sounds came from the theremin. At the same time, Mrs. Anna was moving her hand as she told her story. I assumed that was what was producing the sounds.
+
+I looked at the others. The woman who drank her coffee with sugar had covered her eyes with one hand, just in case. She didn’t want to see anything frightening.
+
+“Soundcheck,” someone else muttered.
+
+Mrs. Anna looked at her watch again.
+
+“In the beginning, he would only visit me in my dreams. It was nice, it was good. I felt both happy and sad. When I woke up, his absence hit me terribly, but when I went to sleep, the possibility of seeing him again was wonderful.”
+
+A beautiful melody came from the theremin, lasting three or four seconds. Then the sound suddenly stopped. Mrs. Anna wasn’t moving her hand at the time.
+
+“If he comes to me in my dream tonight, I’ll tell him. He should do the soundcheck beforehand. He keeps interrupting me. And as always, he’s late for his own concert. Jason, you’re always the same.”
+
+“Anna, are you serious? I don’t know why I listened to you and came here. I don’t know how you’re doing it, but something ridiculous is going on here. Seeing you like this makes me really sad, and I’m honestly furious that the other six people here are just sitting there and saying nothing. You’re making this up in your head, and all of you are acting as if nothing is happening,” my mother said, getting to her feet.
+
+She hadn’t raised her voice much, but she was angry. She liked Mrs. Anna, and she had liked Mr. Jason too. They were the neighbors we had become closest to during our twenty-five years in this apartment building, which we had moved into before I was born. 
+
+The woman who had put sugar in her coffee got up abruptly.
+
+“Why are you in such a hurry? If you’d just wait another two minutes, everything would be revealed and you’d hear it for yourself. Couldn’t you wait until it was all over before explaining your theory? You’ve ruined the whole evening.”
+
+Mrs. Anna continued with her story, paying no attention to my mother and the other woman. 
+
+“One day, after I had gone to sleep feeling miserable, and after not seeing him in my dreams for a month, we were finally together in my dream again. He was incredibly excited.
+
+‘I found it,’ he said. ‘I found a way to interact with you. I was tired of constantly coming into your dreams. I wanted to meet you in real life. But you couldn’t see me.
+
+It’s a dream, after all. None of it is real. You’re not in control, and what you say to me in your dreams might not be true. You told me you still loved me, that you couldn’t forget me, but all of that was happening in a dream. In real life, you weren’t doing any of those things. Maybe you were thinking about everything in your head, maybe you were thinking about me, but I had no way of knowing that. I was walking around you, but I couldn’t communicate with you.
+
+You didn’t cry even once after you started seeing me in your dreams, for example. Yes, maybe seeing me so often in your dreams was enough for you, so you no longer needed me in real life. But we can’t know that. I couldn’t trust a dream. Maybe you didn’t love me anymore.’
+
+‘Don’t be ridiculous, Jason,’ I said. ‘If you want, I can tell you how I feel after I wake up too. You never asked me to. You never asked me to talk about you in real life, look at your picture, tell my friends things about you, or tell them that I was sad. You never asked me for any of that. If you had, I would have done it.’”
+
+My mother was getting angrier and angrier, and by now she was completely convinced that Mrs. Anna had made the whole thing up. She had been talking for so long that my mother had grown tired of listening to her.
+
+Then we heard another beautiful melody coming from the theremin, while Mrs. Anna was still talking.
+
+The melody continued. It really was magnificent. My mind was in complete confusion. Mrs. Anna stood perfectly still. Her eyes had filled with tears.
+
+A beautiful composition was being played, and it appealed deeply to my sense of pleasure. But was it really Mr. Jason’s ghost playing it? I couldn’t stop thinking about that question. I felt like I was about to pass out. The composition was still in my ears, flowing onward. At the same time, my thoughts were flowing through my mind at almost exactly the same speed, moving along with the music. 
+
+I looked at my mother. Her eyes were wide open, staring motionlessly at the theremin.
+
+Everyone else seemed spellbound too. 
+
+The melodies flowed on. For half an hour, we were treated to a magnificent feast of music. Everyone silently listened to the theremin, which no one was standing beside.
+
+Throughout the entire performance, Mrs. Anna listened to the music with her eyes closed, her coffee still in her hand. For half an hour, I felt like I was on the verge of passing out, yet I never lost consciousness. The music had slipped gently into my softened state of mind and wandered through it, mingling with my thoughts. I didn’t want to believe it.
+
+Everyone except my mother and me suddenly stood up. There must have been silence; I hadn’t noticed it. I had been so completely absorbed in the music.
+
+The concert was over.
+
+Everyone was applauding. The room filled with a high-pitched sound.
+
+Mrs. Anna gestured for the audience to sit down. Everyone took their seats. My mother had just started applauding, loudly and enthusiastically. Mrs. Anna gave her the same gesture.
+
+“Today, I’m giving up the theremin. Today is September 28, 2026. I will never play the theremin again.”
+
+We heard another chair creak.
+
+“Thank you all. If it weren’t for you, I would have thought I had imagined everything in my head. Thank you.”
+
+With the last of my strength, I got to my feet and asked Mrs. Anna how this was possible. The others didn’t seem particularly interested in finding out. Yes, they had seen the concert before. I didn’t know whether they knew the story, but even though they all looked spellbound, they didn’t seem surprised. It was strange. I couldn’t understand how they had managed to accept something like this so calmly.
+
+Why wasn’t this room overflowing with people? Stories like this spread from person to person incredibly quickly.
+
+“Does it matter how it happened, Albert?”
+
+“Why wouldn’t it matter? How is something like this even possible? I can’t wrap my head around it. Why doesn’t everyone know about this? Why isn’t everyone coming here and banging on the door? I mean, this is a ghost revealing itself to the world.”
+
+“That’s my husband’s entire audience. There were seven of them, and now there are nine. And they won’t be able to hear my husband play again.”
+
+I turned toward the small group.
+
+“You never told anyone about this?”
+
+“We did. They didn’t believe us,” said a young man sitting on the three-seat sofa, between two old men.
+
+“How could they not believe you? You should have proved it.”
+
+“How were we supposed to prove it? Force a ghost to play the theremin?”
+
+“We tried, Albert,” said another person. I think it was the one who had put sugar in her coffee. My head was getting foggy, and I couldn’t quite make it out. “We brought twenty people here. And we made fools of ourselves. Accept it, Albert. It happened. And sadly, it will never happen again.”
+
+“Okay, Albert. Calm down. No ghost played the theremin. Everything was staged. I played the theremin from my phone without anyone noticing. It was just a recording. I put on some old song, and that’s what played. Everyone here knew about it except you and your mother. All right? Calm down now,” said Mrs. Anna.
+
+“What? Why did you do something like that?”
+
+“Enough, for fuck’s sake. Shut up and let me finish the story. Enough. You can interrogate what was real and what was fake when you get home. You’ve ruined this beautiful moment. Enough, shut up. Say one more word and I’ll make you drink cyanide-laced coffee.”
+
+I turned to my mother. Once again, she was holding her index finger to her lips, telling me to be quiet.
+
+I didn’t understand. Was I dreaming? Was any of this real? Why was everyone going along with something like this? Was it all so that Mrs. Anna could fully feel her husband’s presence? Was it designed to give him a proper farewell? If so, why hadn’t anyone told me about any of this?
+
+“Sorry, Albert. One of us had to believe it was real so that Mrs. Anna could fully feel her husband’s presence and say goodbye to him,” said the young man sitting between the two old men.
+
+“It has nothing to do with that. He’s just making that up so you won’t tell anyone about it,” said another person.
+
+My mind was a complete mess. 
+
+Then, suddenly, the theremin started playing again.
+
+It came in beautifully once again, and once again we heard those incredible melodies.
+
+My mother leaned toward me and whispered:
+
+“An artist who couldn’t resist the audience’s insistence and came back to play one last song. That’s when I finally became convinced, Albert.”
+
+And then, silence again.
+
+The same deep silence that had greeted us when we first arrived at the house.
+
+Waiting, and silence.
+
+Until Mrs. Anna began to speak.
+
+“Yes. My husband had found a way to communicate with me.
+
+One day, while he was wandering around the house, he passed by the theremin and noticed that it made a sound.
+
+‘You left the theremin on, sweetheart. I’m glad you did,’ he told me in my dream.
+
+‘Then I walked past it again. Yes, I can’t touch things. Yes, I can’t show myself to anyone. But the theremin... the theremin, I could interact with it. Without touching it. I don’t know, I think it has something to do with frequencies. I didn’t understand it. But what did it matter?
+
+I’ll be there tomorrow, and every day, at two o’clock, sweetheart. Teach me how to play the theremin. Don’t worry, I’ll hear you, and don’t be afraid of the sounds coming from the theremin. I’ll be your most devoted student.’
+
+When I woke up that day, I couldn’t wait for two o’clock to come. And at two, when I stood in front of the theremin, he was there.
+
+Yes, I could feel him. He tried to imitate my movements. At first, he couldn’t do it. He couldn’t produce a steady sound. But he learned over time.
+
+Every day at two, we met at the theremin.
+
+And now he’s a virtuoso, just like his wife...”
+
+Everyone stood up again and applauded enthusiastically, my mother included. I didn’t feel well.
+
+The guests gradually said their goodbyes. They congratulated Mrs. Anna and told her that, had her husband been alive, he would have become a magnificent musician, and that his death was a great loss.
+
+My mother and I were the last to leave the house. My mother believed Mrs. Anna. I had no idea what to believe.
