@@ -1,0 +1,37 @@
+I‘m hunting there for the first time—staying in the exact house where all those tragedies happened—already I can hear something crawling up the stairs. It slowly climbs up each step. Every time it presses down, it sounds like a wooden door from an abandoned house slamming shut and crying as the wind blows it open. 
+
+*Slam!*
+
+The stairs scream. I can hear them telling me to run. Telling me something’s coming. Something that can’t be human. Just to be safe, I secured motion sensors on all the doors. I’m the only one here. Nobody can get in. 
+
+Another cry of weakened wood comes from the stress of weight leaning on the bannister.
+
+The light starts to flicker, like it’s scared and signaling me to hide. Telling me to duck under the bed—dash into the closet—find clothes to bury myself under. Do something other than sit here waiting. 
+
+I don’t move. I can’t. I try to wiggle my toes but they’re curled into my feet. 
+
+Every time I inhale it’s like I’m breathing with my chin underwater. The air’s choking me. The sharpness of a spike pierces the center of my chest as if something’s twisting it inside me.
+
+I hear the floorboards. The weight shifts in the house. A scratching noise scrapes the wall headed towards the bedroom. The floor creaks heavy like bending metal.
+
+A cold breeze presses on my face and slides down my spine. It heats up as hot as boiled needles pricking into me. My ears stretch the skin on my forehead. I don’t blink. Not once.
+
+I try to ease my labored breathing and squeeze my hands into fist to resist the tremors rocking my body. It’s useless. I’ve lost all control. Something knocks on the door. 
+
+I close my eyes. I hold my breath. I go somewhere familiar in my mind. Somewhere safe. The door clicks. It unlocks. It opens with the slow sound of someone struggling to push their last words out.
+
+I gasp. The lights go out. My eyes lose focus. The sound of footprints amplify next to my ears. I start tasting rust and smell rotted flesh. Something brushes the hair on the top of my head. My body goes cold and I can’t stop shaking. I can’t unlock my hands. Something’s hovering behind me. It whispers.
+
+*“Where…“*
+
+It tickles my ear and raises the hair on the back of my neck. My body bounces as I snap my head over my shoulder—the moonlight glows blue through the window—illuminating the wall, and all I see is the pillow between me and the headboard, nothing’s there. Nobody’s in the room. 
+
+No one I can see. A branch outside slaps against the window. A shadow casts on the floor in the shape of a hand with claws. I hear the wind shriek and a twig tap at the glass. Something wants my attention.
+
+ *I have to be sleeping*.
+
+I try convincing myself. A pressure pushes down on my arm.
+
+I can’t take it. I know something’s here. I jump up as quick as I can and grab the video camera from the dresser and bolt out of the house.
+
+I dash in my car, breathe, collect myself and drive home, shaking the entire way. Once I get inside, something tells me to check the camera. So, I rewind the footage and randomly press play and I see a child on the video, asking, why I didn’t stay.

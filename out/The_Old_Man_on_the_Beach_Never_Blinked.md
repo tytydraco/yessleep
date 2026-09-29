@@ -1,0 +1,40 @@
+I grew up on the coast. Small town everyone knows everyone. Most of my childhood memories involve salt air and sand in places it shouldn't be. There was this one old man though who was always there. Always sitting on the same rock looking out at the ocean. Even in winter when no one else dared to brave the biting wind he'd be there. People called him Old Man Hemlock. No one knew his real name or where he lived. He just existed on the edge of our world like a fixture of the landscape. 
+
+  
+I must have been about ten when I first properly noticed him. My dad and I were fishing. The tide was low and the water calm. I was bored and casting my line half-heartedly. That's when I saw Old Man Hemlock. He was sitting on his usual rock. But he was closer to the water than I'd ever seen him. His face was turned towards us. I waved. He didn't wave back. He didn't even acknowledge me. My dad said he was probably just deep in thought. Said some people just like to watch the waves. 
+
+  
+But as we got ready to leave I kept looking at him. He hadn't moved an inch. His eyes were wide open staring right at me. And he hadn't blinked. Not once. I remember thinking it was weird. But then my dad called me to the car and I forgot about it. Kids forget things easily. 
+
+  
+Years passed. I went through high school college moved away for a bit. Always came back though. The ocean has a way of calling you home. Every time I came back Old Man Hemlock was there. Same rock same spot same unblinking stare. It became a kind of inside joke with my friends. "Old Man Hemlock's still got those crazy eyes." We'd laugh. But it always had a slight edge of unease. 
+
+  
+Last month I took a week off work. Decided to just relax on the beach. I brought a book a blanket and some snacks. The weather was perfect. Sunny but with a nice breeze. I found a good spot not too far from Old Man Hemlock's rock. He was there of course. I tried not to look at him too much. But it was hard not to. Especially when he was staring directly at you. 
+
+  
+I must have dozed off for a bit. When I woke up the sun was lower. The air was cooler. And Old Man Hemlock was gone. I blinked. He was just... gone. It was the first time I'd ever seen his spot empty. A strange feeling washed over me. Not relief exactly. More like a new kind of dread. 
+
+  
+I packed up my things and headed home. The next day I went back. And the day after that. He wasn't there. His rock was bare. I asked around. No one in town had seen him in days. No one knew where he'd gone. No one even seemed to care all that much. He was just Old Man Hemlock. A part of the scenery. 
+
+  
+Then yesterday I went for a walk at dawn. The light was still dim. The air was crisp. I reached the beach and there he was. Not on his rock this time. He was sitting right at the water's edge. His back to me. The tide was coming in. Slowly but steadily. The waves were washing over his feet then his ankles. He didn't move. 
+
+  
+I hesitated. A weird instinct told me to just walk away. To pretend I hadn't seen him. But I couldn't. Something felt wrong. Terribly wrong. I walked closer. The water was up to his knees now. He was still perfectly still. His shoulders weren't moving at all. No signs of breathing. 
+
+  
+I called out to him. "Old Man Hemlock? Are you okay?" No response. The waves were around his waist now. I got closer still. Close enough to see the back of his head. His hair was long and matted with seaweed. His skin was pale. 
+
+  
+I reached out. My hand was shaking. I touched his shoulder. It was cold. So cold. And stiff. Like he was made of stone. The water was swirling around his chest. I pulled my hand back as if burned. Then slowly very slowly he started to turn his head. 
+
+  
+His face was still his. But his eyes... his eyes were gone. Just smooth empty sockets. And the skin around them was stretched tight. Like something had been pressing against them from the inside. And he was smiling. A wide slow unnervingly peaceful smile. The kind of smile you see on statues. Not living people. 
+
+  
+The water was at his neck. His mouth opened. No sound came out. But I heard it. Clear as day in my head. A whisper. "Welcome home." And then he was gone. Swallowed by the rising tide. The ocean was calm again. Too calm. 
+
+  
+I haven't been back to the beach since. I can't. Every time I close my eyes I see that smile. Those empty sockets. And I hear that whisper. I don't know what he was. Or what he is now. But I know one thing. The ocean always takes what it wants. And sometimes it gives it back. Changed.
