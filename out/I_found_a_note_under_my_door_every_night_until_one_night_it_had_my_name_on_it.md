@@ -1,0 +1,787 @@
+&#x200B;
+
+I live in a small apartment building where almost everyone knows everyone.
+
+Nothing interestinTitle: I Found a Note Under My Door Every Night — Until One Night, It Had My Name On It
+
+I live in a small apartment building where almost everyone knows everyone.
+
+Nothing interesting ever happens here.
+
+That’s why what happened to me still bothers me.
+
+It started on a Monday night.
+
+I came home from school, ate dinner, watched some videos, and went to my room. Around 10:30 p.m., I heard something slide across the floor outside my bedroom door.
+
+I thought it was probably a piece of paper that had fallen from somewhere.
+
+When I opened the door, there was a small folded piece of paper sitting on the floor.
+
+I opened it.
+
+It said:
+
+“DON’T OPEN THE DOOR AFTER MIDNIGHT.”
+
+No name.
+
+No explanation.
+
+I laughed because I thought one of my friends was playing a joke on me.
+
+I threw the note away and forgot about it.
+
+The next night, there was another note.
+
+This one said:
+
+“YOU DIDN’T LISTEN.”
+
+That one made me uncomfortable.
+
+I checked the hallway.
+
+Nobody was there.
+
+I even asked my neighbor if they had seen anyone walking around. They said no.
+
+On Wednesday, I stayed awake until midnight.
+
+At exactly 12:03 a.m., I heard three knocks.
+
+Knock.
+
+Knock.
+
+Knock.
+
+I froze.
+
+The sound had come from my front door.
+
+I didn't move.
+
+A few seconds later, someone whispered from the other side.
+
+“Are you awake?”
+
+I didn't answer.
+
+The voice sounded strangely familiar.
+
+Then it whispered:
+
+“Please open the door.”
+
+I stayed completely silent.
+
+After about a minute, the footsteps moved away.
+
+The next morning, I found another note.
+
+“GOOD. YOU DIDN'T OPEN IT.”
+
+At this point, I was genuinely scared.
+
+I told my older brother about it, but he thought someone was trying to prank me.
+
+That night, he decided to stay at my apartment to see what would happen.
+
+We waited.
+
+11:30 p.m.
+
+11:45.
+
+11:59.
+
+Then midnight came.
+
+Nothing happened.
+
+My brother laughed.
+
+“See? Someone's messing with you.”
+
+Then we heard the three knocks.
+
+\*\*Knock.
+
+Knock.
+
+Knock.\*\*
+
+My brother stopped laughing.
+
+Someone outside said:
+
+“Are you awake?”
+
+My brother looked at me.
+
+I whispered, “Don't answer.”
+
+Then the voice said something that made my blood run cold.
+
+It said my brother's name.
+
+My brother hadn't told anyone he was staying with me.
+
+He stood up and walked toward the door.
+
+I grabbed his arm.
+
+“Don't.”
+
+Then the voice changed.
+
+It sounded exactly like me.
+
+“Please open the door.”
+
+My brother stepped back.
+
+We didn't sleep that night.
+
+The next morning, there was another note.
+
+This time, it said:
+
+“IT CAN SOUND LIKE ANYONE.”
+
+We called the building manager.
+
+He looked at the note and became strangely quiet.
+
+Then he asked:
+
+“How many nights has this been happening?”
+
+I told him.
+
+He stared at me for a few seconds.
+
+Then he said:
+
+“You need to leave this apartment.”
+
+I asked him why.
+
+He didn't answer.
+
+Instead, he told us something that I still think about.
+
+Apparently, someone had lived in my apartment several years earlier.
+
+A teenager.
+
+One night, the teenager disappeared.
+
+There were no signs of a break-in.
+
+No evidence that anyone had entered the apartment.
+
+The only thing police found was a piece of paper underneath the front door.
+
+It said:
+
+“DON'T OPEN THE DOOR AFTER MIDNIGHT.”
+
+I asked the manager why nobody had told me.
+
+He said the landlord didn't like talking about it.
+
+That afternoon, I packed a bag and stayed at my brother's place.
+
+I thought that was the end of it.
+
+It wasn't.
+
+At around 1 a.m., my phone buzzed.
+
+I had received a message from an unknown number.
+
+There was only one sentence:
+
+“You left before I could explain.”
+
+I blocked the number.
+
+Another message appeared immediately.
+
+“You shouldn't have done that.”
+
+Then another.
+
+“I'm still outside.”
+
+I didn't sleep.
+
+The next morning, I went back to the apartment with my brother and the building manager.
+
+The hallway was empty.
+
+My apartment door was locked.
+
+Everything looked normal.
+
+Then I noticed something.
+
+There was a piece of paper underneath the door.
+
+I didn't touch it.
+
+The building manager picked it up.
+
+He unfolded it.
+
+His face went pale.
+
+I asked him what it said.
+
+He handed it to me.
+
+There were only four words:
+
+“YOU LEFT THE DOOR OPEN.”
+
+I looked at my brother.
+
+Then we slowly turned toward the apartment.
+
+The door was still locked.
+
+But from inside the apartment...
+
+we heard three knocks.
+
+\*\*Knock.
+
+Knock.
+
+Knock.\*\*
+
+And then a voice whispered:
+
+“Are you awake?”Title: I Found a Note Under My Door Every Night — Until One Night, It Had My Name On It
+
+I live in a small apartment building where almost everyone knows everyone.
+
+Nothing interesting ever happens here.
+
+That’s why what happened to me still bothers me.
+
+It started on a Monday night.
+
+I came home from school, ate dinner, watched some videos, and went to my room. Around 10:30 p.m., I heard something slide across the floor outside my bedroom door.
+
+I thought it was probably a piece of paper that had fallen from somewhere.
+
+When I opened the door, there was a small folded piece of paper sitting on the floor.
+
+I opened it.
+
+It said:
+
+“DON’T OPEN THE DOOR AFTER MIDNIGHT.”
+
+No name.
+
+No explanation.
+
+I laughed because I thought one of my friends was playing a joke on me.
+
+I threw the note away and forgot about it.
+
+The next night, there was another note.
+
+This one said:
+
+“YOU DIDN’T LISTEN.”
+
+That one made me uncomfortable.
+
+I checked the hallway.
+
+Nobody was there.
+
+I even asked my neighbor if they had seen anyone walking around. They said no.
+
+On Wednesday, I stayed awake until midnight.
+
+At exactly 12:03 a.m., I heard three knocks.
+
+Knock.
+
+Knock.
+
+Knock.
+
+I froze.
+
+The sound had come from my front door.
+
+I didn't move.
+
+A few seconds later, someone whispered from the other side.
+
+“Are you awake?”
+
+I didn't answer.
+
+The voice sounded strangely familiar.
+
+Then it whispered:
+
+“Please open the door.”
+
+I stayed completely silent.
+
+After about a minute, the footsteps moved away.
+
+The next morning, I found another note.
+
+“GOOD. YOU DIDN'T OPEN IT.”
+
+At this point, I was genuinely scared.
+
+I told my older brother about it, but he thought someone was trying to prank me.
+
+That night, he decided to stay at my apartment to see what would happen.
+
+We waited.
+
+11:30 p.m.
+
+11:45.
+
+11:59.
+
+Then midnight came.
+
+Nothing happened.
+
+My brother laughed.
+
+“See? Someone's messing with you.”
+
+Then we heard the three knocks.
+
+\*\*Knock.
+
+Knock.
+
+Knock.\*\*
+
+My brother stopped laughing.
+
+Someone outside said:
+
+“Are you awake?”
+
+My brother looked at me.
+
+I whispered, “Don't answer.”
+
+Then the voice said something that made my blood run cold.
+
+It said my brother's name.
+
+My brother hadn't told anyone he was staying with me.
+
+He stood up and walked toward the door.
+
+I grabbed his arm.
+
+“Don't.”
+
+Then the voice changed.
+
+It sounded exactly like me.
+
+“Please open the door.”
+
+My brother stepped back.
+
+We didn't sleep that night.
+
+The next morning, there was another note.
+
+This time, it said:
+
+“IT CAN SOUND LIKE ANYONE.”
+
+We called the building manager.
+
+He looked at the note and became strangely quiet.
+
+Then he asked:
+
+“How many nights has this been happening?”
+
+I told him.
+
+He stared at me for a few seconds.
+
+Then he said:
+
+“You need to leave this apartment.”
+
+I asked him why.
+
+He didn't answer.
+
+Instead, he told us something that I still think about.
+
+Apparently, someone had lived in my apartment several years earlier.
+
+A teenager.
+
+One night, the teenager disappeared.
+
+There were no signs of a break-in.
+
+No evidence that anyone had entered the apartment.
+
+The only thing police found was a piece of paper underneath the front door.
+
+It said:
+
+“DON'T OPEN THE DOOR AFTER MIDNIGHT.”
+
+I asked the manager why nobody had told me.
+
+He said the landlord didn't like talking about it.
+
+That afternoon, I packed a bag and stayed at my brother's place.
+
+I thought that was the end of it.
+
+It wasn't.
+
+At around 1 a.m., my phone buzzed.
+
+I had received a message from an unknown number.
+
+There was only one sentence:
+
+“You left before I could explain.”
+
+I blocked the number.
+
+Another message appeared immediately.
+
+“You shouldn't have done that.”
+
+Then another.
+
+“I'm still outside.”
+
+I didn't sleep.
+
+The next morning, I went back to the apartment with my brother and the building manager.
+
+The hallway was empty.
+
+My apartment door was locked.
+
+Everything looked normal.
+
+Then I noticed something.
+
+There was a piece of paper underneath the door.
+
+I didn't touch it.
+
+The building manager picked it up.
+
+He unfolded it.
+
+His face went pale.
+
+I asked him what it said.
+
+He handed it to me.
+
+There were only four words:
+
+“YOU LEFT THE DOOR OPEN.”
+
+I looked at my brother.
+
+Then we slowly turned toward the apartment.
+
+The door was still locked.
+
+But from inside the apartment...
+
+we heard three knocks.
+
+\*\*Knock.
+
+Knock.
+
+Knock.\*\*
+
+And then a voice whispered:
+
+“Are you awake?”g ever happens here.
+
+That’s why what happened to me still bothers me.
+
+It started on a Monday night.
+
+I came home from school, ate dinner, watched some videos, and went to my room. Around 10:30 p.m., I heard something slide across the floor outside my bedroom door.
+
+I thought it was probably a piece of paper that had fallen from somewhere.
+
+When I opened the door, there was a small folded piece of paper sitting on the floor.
+
+I opened it.
+
+It said:
+
+“DON’T OPEN THE DOOR AFTER MIDNIGHT.”
+
+No name.
+
+No explanation.
+
+I laughed because I thought one of my friends was playing a joke on me.
+
+I threw the note away and forgot about it.
+
+The next night, there was another note.
+
+This one said:
+
+“YOU DIDN’T LISTEN.”
+
+That one made me uncomfortable.
+
+I checked the hallway.
+
+Nobody was there.
+
+I even asked my neighbor if they had seen anyone walking around. They said no.
+
+On Wednesday, I stayed awake until midnight.
+
+At exactly 12:03 a.m., I heard three knocks.
+
+Knock.
+
+Knock.
+
+Knock.
+
+I froze.
+
+The sound had come from my front door.
+
+I didn't move.
+
+A few seconds later, someone whispered from the other side.
+
+“Are you awake?”
+
+I didn't answer.
+
+The voice sounded strangely familiar.
+
+Then it whispered:
+
+“Please open the door.”
+
+I stayed completely silent.
+
+After about a minute, the footsteps moved away.
+
+The next morning, I found another note.
+
+“GOOD. YOU DIDN'T OPEN IT.”
+
+At this point, I was genuinely scared.
+
+I told my older brother about it, but he thought someone was trying to prank me.
+
+That night, he decided to stay at my apartment to see what would happen.
+
+We waited.
+
+11:30 p.m.
+
+11:45.
+
+11:59.
+
+Then midnight came.
+
+Nothing happened.
+
+My brother laughed.
+
+“See? Someone's messing with you.”
+
+Then we heard the three knocks.
+
+\*\*Knock.
+
+Knock.
+
+Knock.\*\*
+
+My brother stopped laughing.
+
+Someone outside said:
+
+“Are you awake?”
+
+My brother looked at me.
+
+I whispered, “Don't answer.”
+
+Then the voice said something that made my blood run cold.
+
+It said my brother's name.
+
+My brother hadn't told anyone he was staying with me.
+
+He stood up and walked toward the door.
+
+I grabbed his arm.
+
+“Don't.”
+
+Then the voice changed.
+
+It sounded exactly like me.
+
+“Please open the door.”
+
+My brother stepped back.
+
+We didn't sleep that night.
+
+The next morning, there was another note.
+
+This time, it said:
+
+“IT CAN SOUND LIKE ANYONE.”
+
+We called the building manager.
+
+He looked at the note and became strangely quiet.
+
+Then he asked:
+
+“How many nights has this been happening?”
+
+I told him.
+
+He stared at me for a few seconds.
+
+Then he said:
+
+“You need to leave this apartment.”
+
+I asked him why.
+
+He didn't answer.
+
+Instead, he told us something that I still think about.
+
+Apparently, someone had lived in my apartment several years earlier.
+
+A teenager.
+
+One night, the teenager disappeared.
+
+There were no signs of a break-in.
+
+No evidence that anyone had entered the apartment.
+
+The only thing police found was a piece of paper underneath the front door.
+
+It said:
+
+“DON'T OPEN THE DOOR AFTER MIDNIGHT.”
+
+I asked the manager why nobody had told me.
+
+He said the landlord didn't like talking about it.
+
+That afternoon, I packed a bag and stayed at my brother's place.
+
+I thought that was the end of it.
+
+It wasn't.
+
+At around 1 a.m., my phone buzzed.
+
+I had received a message from an unknown number.
+
+There was only one sentence:
+
+“You left before I could explain.”
+
+I blocked the number.
+
+Another message appeared immediately.
+
+“You shouldn't have done that.”
+
+Then another.
+
+“I'm still outside.”
+
+I didn't sleep.
+
+The next morning, I went back to the apartment with my brother and the building manager.
+
+The hallway was empty.
+
+My apartment door was locked.
+
+Everything looked normal.
+
+Then I noticed something.
+
+There was a piece of paper underneath the door.
+
+I didn't touch it.
+
+The building manager picked it up.
+
+He unfolded it.
+
+His face went pale.
+
+I asked him what it said.
+
+He handed it to me.
+
+There were only four words:
+
+“YOU LEFT THE DOOR OPEN.”
+
+I looked at my brother.
+
+Then we slowly turned toward the apartment.
+
+The door was still locked.
+
+But from inside the apartment...
+
+we heard three knocks.
+
+\*\*Knock.
+
+Knock.
+
+Knock.\*\*
+
+And then a voice whispered:
+
+“Are you awake?”

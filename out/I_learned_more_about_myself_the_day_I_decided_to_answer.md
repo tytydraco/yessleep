@@ -1,0 +1,76 @@
+I moved into the house in October. It was cheap—that should have been the first warning. The second was the note the previous owner left taped to the refrigerator:
+
+DON’T ANSWER THE KNOCKING.
+
+No explanation. No signature. I laughed and threw it away. The house was old: two stories, three bedrooms, a basement, and creaky wood floors.
+
+The first night, I heard three knocks: Knock. Knock. Knock. They came from inside the wall behind my bed at 2:17 a.m. I checked the pipes, the basement, and the exterior wall, but found nothing. The next night, it happened again at the exact same time.
+
+On the third night, I recorded it on my phone. When I played it back, there were four knocks instead of three. The following night, I stayed awake. After the third knock, there was a pause, followed by a fourth knock—this time coming from inside my mattress. I slept on the couch.
+
+The next morning, I called my landlord. When I mentioned the knocking, he asked, “Did you answer it?”  
+“No.”  
+“Good.”  
+He explained that the previous tenant moved out after hearing it, adding, “Everybody hears it eventually,” before hanging up.
+
+Soon, the knocking began happening during the day—from the walls, the basement, and inside the kitchen cabinets. Then, three knocks came from the front door. Nobody was at the peephole. My phone rang; it was the landlord. He whispered, “Whatever you do, don’t knock back... because it knows you’re listening.”
+
+I left and stayed at a motel. Three days later, I returned to gather my things. As I carried the last box to the door, three knocks echoed from upstairs. Then came a fourth knock from the front door, even though I was standing outside looking into the dark hallway. A voice whispered from deep inside: “Can you let me out?” It was my voice. Same tone. Same crack in the middle.
+
+I ran and never went back. The landlord sold the house six months later.
+
+Months passed until last Tuesday. In my new apartment at 2:17 a.m., three knocks came from inside the wall. My phone lit up with an audio file from an unknown number. I played it: three knocks, followed by my own voice saying, “Can you let me out?”
+
+The phone rang, then stopped. Then three knocks came from my bedroom door. I realized the original note didn't mean "don't answer the door"—it meant "don't acknowledge you can hear it." Something in that house was waiting for awareness to anchor it.
+
+I pushed my dresser against the door and turned on every light. The knocking stopped for three nights. On the fourth night at 2:17 a.m., I heard breathing right beside my bed. When I turned on my flashlight, the room was empty, but fresh, bare footprints led from my bed, across the hall, and stopped at the front door with no returning tracks.
+
+I researched the property records and found the former owner, Daniel Mercer, died in the house. A newspaper article reported he had been shouting at unseen sounds, begging someone to stop knocking. A photo showed the note on his fridge, with faint writing underneath: IT ALREADY KNOWS YOUR NAME.
+
+Texts from an unknown number followed:  
+"Daniel was wrong."  
+"It doesn’t need you to answer."  
+"It only needs you to listen."
+
+I checked into a hotel, Room 217. At 2:17 a.m., the knocking started on the door. Then, an old, terrified voice from inside the bathroom whispered, “Please don’t let it know you’re awake... It’s pretending to be me.”  
+Immediately, my voice spoke from under the bed: “Don’t listen to him. He’s lying.”  
+Both voices began arguing simultaneously. I screamed for them to stop. Silence followed, then a child’s voice inside the wall giggled: “You’re doing it again. You always forget.”
+
+The next morning, I woke up barefoot in the hotel lobby with no memory of coming down, having asked the clerk what year it was.
+
+I returned to my apartment and found an old photograph on my table showing Daniel Mercer's family in 1989. The back read: HE STILL THINKS HE’S ALONE. Online records showed his nine-year-old son, Thomas, had gone missing from the house. In the mirror, my reflection smiled while I stood still, mouthing: "You’re not the one outside."
+
+I packed and drove until sunrise. Yesterday, I found a box in my storage unit containing the photograph, the article, the note, and a cassette tape labeled with my name.
+
+I played the tape. My recorded voice said: “If you’re listening to this, you’ve forgotten again... Every time you hear the knocking, you think something is trying to get inside. But it’s trying to get out.”  
+In the recording, three knocks sounded, followed by my voice whispering, “Don’t open the door,” and a boy asking, “Why?” My voice replied: “Because we’re inside.”
+
+I turned the tape over. Before playing Side B, three knocks came from inside the cassette player itself, and the boy's voice whispered, “Finally.”
+
+I realized the entity doesn't want to enter; it wants you to open the door because you are what's containing it.
+
+I locked the tape in a drawer and put the key in my car. At 2:17 a.m., breathing returned beside my bed, and a voice whispered, “You’re doing very well.” The next morning, the key was sitting on my nightstand, warm to the touch.
+
+At work, my phone rang from my own number. My voice said, “You’re getting close.”  
+A text followed: DON’T BE AFRAID. YOU’VE DONE THIS BEFORE.  
+I asked, "Who are you?"  
+The reply: "You are."
+
+I stayed at a friend’s couch that night. At 2:17 a.m., three knocks sounded from his wall. Pale, he revealed he had heard it since he was nine. He showed me a childhood photo; behind him in the window was a face—my nine-year-old face. Knocking echoed from behind the photo.
+
+Five knocks sounded. My friend wept, saying his father had heard five knocks before opening the door, and "something came back pretending to be him."
+
+I returned home and played Side B of the tape. My older voice stated: “You think the knocking is coming from outside. But there is no outside... We are the universe’s memory of something that happened before it existed.”
+
+As I listened, the photo changed in real time—the boy aged into my current face. Knocking resonated from every surface, including my own chest. The tape concluded: “You were never the person who moved into the house. You were the thing that moved out. The house wasn’t containing it. It was containing you.”
+
+The voice on the tape distorted: “Every place you go becomes the house. Every apartment. Every hotel. Every bedroom... 2:17.”
+
+The walls vibrated with a deep voice commanding: OPEN. Outside, the sky was a black void before snapping back to normal reality. Our universe, memories, and bodies are merely a temporary room hiding us from what lies beyond.
+
+The tape whispered: “When you hear the final knock, don’t answer.”  
+Three knocks sounded. Then a fourth knock hit the front door. Millions of voices spoke at once, communicating a name beyond human language. In that moment, my mind opened: I saw the boundary separating existence from non-existence. The entity had been knocking to find where reality was thin.
+
+Three knocks sounded inside my head, accompanied by a whisper: “Thank you for answering.”
+
+Now, the clock remains fixed at 2:17. The outside world is silent. Far beyond the walls and the sky, three knocks are echoing from the edge of the universe. They aren't trying to get in—they are searching for the door, and I am beginning to remember where I left it.

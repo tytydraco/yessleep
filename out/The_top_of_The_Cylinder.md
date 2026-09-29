@@ -6,8 +6,6 @@ I am writing this ten… no, eleven years later. I keep getting the date mixed u
 
 It’s taken a long time to formulate my thoughts on what happened to me on that day.
 
-
-
 As a kid, I lived in Evansville, Indiana. My parents moved there when I was about five, and I lived there until I was eighteen. It’s one of the larger cities in Indiana, but it’s one that not everyone knows about. I was always called bright, and I was resourceful, as I was in the local Boy Scouts program, which hopefully explains some of my skills throughout this retelling.
 
 I had a friend named Jayden, but we called him Jay. I wasn’t his closest friend, but I had known him since the sixth grade.
@@ -16,7 +14,7 @@ I was invited to his fourteenth birthday party, which was at a bowling alley.
 
 I had bowled maybe two or three times in my life. I knew how to play, but I wasn’t great at it. It didn’t matter what it was though, I would go to any birthday party I was invited to.
 
-I remember the day of the party; September Seventeenth. 7/17/15.
+I remember the day of the party; September Seventeenth. 9/17/15.
 
 I remember my parents driving me there. I tend to get carsick, even on short rides, but my anticipation was keeping that from happening. I tried to hide it behind that teen aura of not caring, but I couldn’t.
 
@@ -39,8 +37,6 @@ The bathroom was nothing special. Mostly white tile, with the black wall beneath
 When I washed my hands, I put my hands on the sink. It was to hype myself up. I looked in the mirror, and saw a fire in my eyes. Typical thirteen year old stuff. When I opened the door, however, that all faded.
 
 The bowling alley was completely deserted.
-
-
 
 I cautiously walked around. Was this a prank…? If so, I thought, it wasn’t a funny one. I looked at the lane we were bowling at. No one was there. I checked if any employees were there. None were. I tried going outside, but the doors were locked. I found that weird. Shouldn’t a door to a public building lock from the outside?
 
@@ -68,7 +64,7 @@ Before long, hunger reached me. All food was absent from the place. My friends m
 
 I thought that maybe I’d been in the bathroom longer than I thought, and that the alley closed before I had finished. In that case, I would be waiting a while for my next meal.
 
-An indiscriminate amount of time passed. I internally thought it was 2 hours, but it could’ve been more or less. I was really starting to get desperate. Thirst had come in that tim, the type where it hurts your stomach. I continued to check the same places over and over. There was still nothing. 
+An indeterminate amount of time passed. I internally thought it was 2 hours, but it could’ve been more or less. I was really starting to get desperate. Thirst had come in that tim, the type where it hurts your stomach. I continued to check the same places over and over. There was still nothing. 
 
 I eventually returned to the bathroom to drink. The only drinkable water in there was the sinkwater. I thought that it might be unfiltered, but at this point, I didn’t care. I guzzled it. 
 
@@ -140,8 +136,6 @@ I was done with The Cylinder.
 
 I just wanted to go home… 
 
-
-
 I fell asleep shortly after pulling myself into the grate. Sleep is the closest thing to death, and all that. I dreamed about the bowling alley, and the free food that I had turned down. I hated myself for not knowing what would happen to me. I had not eaten for a full day (at least, that’s what I thought). I didn’t know what the human limit to live without food was, but I felt as though I had surpassed it.
 
 I awoke to rustling in the vent I was in. I decided that I had probably slept enough and I moved on, but with extra caution.
@@ -188,8 +182,6 @@ They sustained themselves off of the pond and these pastries. What stopped them 
 
 At the end of the cavern, there was a cracked statue. What of, I couldn’t tell. Years of damage had left it in complete disrepair. Behind it was another caved-in entrance. I could only assume what had happened to these people.
 
-
-
 I stayed in the village as long as I could. Its food was scarce, but I thought that I should stay there as long as it sustained me. It was short-sighted, but I didn’t know the next time I would find… any of this.
 
 But I eventually had to leave. 
@@ -197,8 +189,6 @@ But I eventually had to leave. 
 The thought of leaving all of this behind and going back to the same pain I had felt earlier filled me with despair. I didn’t want to, but there was no chance of finding my way home by staying here.
 
  My stomach dropped when I realized that I would have to climb The Cylinder again. 
-
-
 
 The time from when I re-entered the cylinder onward is a bit of a messy blur. I don’t really remember much from it. The Cylinder became less refined as it went on; it was less tightly shaved down, and more parts jutted out. It was much easier to find food, with even restaurants jutting out on occasion, but it still wasn’t easy.
 
@@ -209,8 +199,6 @@ But I never found another village.
 The climb to the top of The Cylinder felt like years, but it simultaneously could’ve been a single week. I always thought that the way to stay sane was to keep track of time; going by that logic, I was far off the deep end. 
 
 I never expected The Cylinder to end.
-
-
 
 After an age, I saw the top of The Cylinder. After a certain point, it just… ended. This kicked me into overdrive. I was nearly there. I didn’t know what would be at the top, I simply knew that *something* would be there. Call it a premonition. 
 
@@ -226,13 +214,9 @@ Scaling this pillar felt like it took no time at all. It wasn’t particularly h
 
 At the top stood a landing, made of the same material, but it smelled like the bowling alley vent-like burnt steak or gunpowder. There was a small box held on a pedestal. There was a lid latched down by simple locks, like the type that locked the gate to my back door. I unlatched it, and I saw a small, fleshy, beating mass. *Thump… thump… thump.* I held it to my face. The entire room lit up. It was spherical, made of dark gray steel. I looked around. There were tens of thousands of Cylinders just like the one I had come from. I looked down at the mass in my hand. Its beating became irregular. *Thum-thum..thump.* I opened my mouth, and bit down on it.
 
-
-
 I awoke at the door to the restroom. The same one I had come in through. I opened it, and staggered out. My friends were all having fun, before Jay noticed me. “Uhh, Collin… you good?”
 
 I collapsed onto my knees. I vomited, and passed out.
-
-
 
 I’ve never told anyone about what happened. They would think I’m insane. Hell, *you* probably think I’m insane. This was the best possible way I could’ve retold my experiences in The Cylinder. Every night, I dream of scaling The Cylinder once more. 
 
@@ -245,4 +229,3 @@ I resisted therapy for the longest time. I didn’t know what to say. To be hone
 No one will believe me.
 
 Hopefully you got a chuckle out of reading this.
-

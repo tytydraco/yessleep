@@ -1,0 +1,75 @@
+I take the same bus every morning. The 7:14.
+
+Same stop, same door, same seat. Second row on the right, window side. I like to sit there because I don't have to look at anyone.
+
+I've seen her before. Brown coat, hair in a bun. She always sits one row in front of me, left side. She never looks back.
+
+Yesterday she turned around.
+
+She looked right at me and said it loud, for the whole bus to hear:
+
+"I saw you take a picture of me. Delete it."
+
+My face went red instantly. Everyone looked. The driver looked in the mirror.
+
+My voice started shaking, it does that when I'm stressed. "I- I didn't, I wasn't - I swear -"
+
+She said "Show me then. Show me your gallery if you didn't."
+
+I had to. If I didn't, I looked guilty.
+
+I opened my photos. My hands were sweating so much I couldn't get my code right on the first try.
+
+And there were photos of her.
+
+Six of them. Taken this morning. In my Recents.
+
+Her from behind on the bus. Her from the side. One zoomed on her face while she was looking out the window.
+
+I never took them. I didn't even open my camera today.
+
+I tried to say it but I was just breathing loud. I said "I didn't take these, I..."
+
+She looked at my screen. And her face changed. She wasn't angry anymore. She went white.
+
+She just turned back around and didn't say anything else.
+
+I got off two stops early and deleted everything on the sidewalk.
+
+I thought it was over.
+
+This morning, 7:14. I looked out my apartment window before going down.
+
+She was there. Across the street from my building. Brown coat. Just standing. Looking up at my windows.
+
+I waited 20 minutes inside. When I looked again, she was gone. I took the next bus.
+
+When I came back tonight, she was there again. Same exact spot. Not on her phone. Just standing and staring at my building.
+
+I never told her where I live. I never spoke to her before yesterday.
+
+I went up. Locked my door. I live alone, third floor.
+
+I checked my gallery. I shouldn't have.
+
+There were three new photos. Taken today. While I was at work. I didn't take them.
+
+One is of the street in front of my building, taken from above. From my window angle.
+
+One is of my front door, from inside the hallway. Like someone standing right in front of it.
+
+And the last one...
+
+The last one was taken last night.
+
+It's me, asleep in my bed. Taken from the corner of my bedroom. Up high, like from where the ceiling meets the wall.
+
+I'm on my side, mouth open.
+
+And on the wall next to my bed, there's a shadow. A long shadow of someone standing right next to me, looking down at me. You can see the outline of the brown coat. The bun.
+
+It's her shadow.
+
+But if that's her shadow in the photo...
+
+Who took the photo?
