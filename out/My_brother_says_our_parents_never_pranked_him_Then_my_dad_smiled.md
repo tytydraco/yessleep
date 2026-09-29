@@ -1,0 +1,29 @@
+I was about 9 years old when my family — my parents and my older brother, who is 6 years older than me — flew to the Black Sea for a vacation.
+
+That day the weather was incredible. The sea was crystal clear and transparent — no seaweed, no jellyfish. I should mention that one of my biggest fears is sharks. I don't know where it came from. I've never encountered one. Probably from Jacques-Yves Cousteau's documentaries, where he dived in a protective cage surrounded by sharks. I know that if there are sharks in the Black Sea, they're very small and not dangerous to humans. Nevertheless, the fear of any dangerous creature in its own element is a nightmare for me.
+
+So my brother says, "Grab a mask, let's swim. If we go a bit further from the shore, you can see fish in the water." I trusted my brother — he's the one who taught me to swim, and with him I wasn't scared to go a little deeper. I thought he could save me if something happened.
+
+He swam ahead. I went back to my parents to grab the mask and warn them about what we were going to do. They were fine with it.
+
+I'm swimming. My brother is a bit ahead. I have the mask on, watching what's happening in the water. I swam far enough to hear only my own breathing through the snorkel, not the people on the beach. Now I could focus on what I was seeing.
+
+Honestly, I was starting to get nervous. I could see the fish my brother had described, but I was beginning to be afraid of seeing a fish that was too big. I kept swimming. The bottom was almost invisible now. I saw more and more fish. I thought I should turn back to shore — otherwise, what would I do if I got even more nervous?
+
+And right at that moment, about 10 meters below me, I noticed something strange. I saw short hair sticking out in different directions, a thin head, bulging wide-open eyes, a gaping mouth, splayed fingers. A person. Motionless like a wooden dummy, floating right under me.
+
+A wave of panic hit me. I pulled my head out of the water, but I couldn't see anything because of the mask. I couldn't scream because of the snorkel in my mouth. From the shock, I couldn't figure out which way to swim, or what to do at all — I just froze. I started to sink and then surface again. And at that exact moment, the one floating under me like a corpse surfaced right next to me and grabbed me.
+
+I tore off the mask — and saw my dad. Oh my God, it was him. I just didn't recognize him in the water with that face. He was holding me and laughing like someone had told him the best joke. I started laughing with him. But literally 10 seconds later, I burst into hysterics. He immediately started apologizing, but I couldn't be stopped.
+
+We got to the shore. I calmed down and almost forgot about it. But about two weeks later, my dad apologized again. He said he had never regretted anything more than that prank. He said he couldn't sleep for several nights after it. He said he felt incredibly guilty.
+
+For a long time, I thought that was the end of it. Just a stupid joke that went too far. But it wasn't the end.
+
+Recently, my dad, my brother, and I were talking. I was remembering this story, and also the one about my mom that I wrote about earlier. Then I asked my brother, "So how did our parents prank you?" He said they never pranked him at all. He looked genuinely confused. He didn't understand what I was talking about.
+
+And at that moment, I noticed my dad smiled slightly.
+
+Now I don't think my story is scary. I think the scary part is what made my brother forget how they pranked him.
+
+I love my parents. But I'm not going to check what kind of grandparents they would be.

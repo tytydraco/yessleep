@@ -1,0 +1,98 @@
+This all started around three years ago, a week after my birthday. I was returning home after a late night of drinking with friends. When my driver dropped me off, I saw that the lights were on inside my house. I am not the forgetful type, so it didn’t seem like I was the one who left them on, so I was kind of freaked out.
+
+What freaked me out even more was that I could see shadows moving inside.
+
+I hate to admit this, but I called my buddy Tom to tell him I was too scared to go into my house. I thought someone had broken in.
+
+Tom laughed, “Just go in there and fight him, bro.”
+
+He did not sound concerned, so I sent him a picture of my house, all lit up.
+
+He told me that if no windows were broken and the front door was locked, then there was no way someone was in my house. I tried to open the front door… it was locked. Maybe I was freaking myself out for no reason.
+
+He told me that if I was really that scared, I should call 911. I was hesitant to make that choice. I knew that in my town, they might take hours to get here. And I really had to pee from all the alcohol I drank.
+
+For a minute or two, I just stood there, listening for anyone moving around inside. I kept glancing at the sliver of light between drawn curtains, looking for moving shadows. There were none.
+
+I unlocked my door and went inside cautiously, as if bracing for impact.
+
+It was quiet. In the living room, the lamp was on, and in front of it was a balloon a friend got me for my birthday. It swayed gently in front of the light. That explained the shadows I’d seen. I ignored every other thought and ran to the bathroom.
+
+Finally, relief. As I sat on the toilet contemplating my freak-out, something still wasn’t sitting right with me. My brain was fuzzy; I had been drinking after all, but something was off.
+
+The balloon.
+
+It wasn’t in the living room when I left. It was in the kitchen.
+
+I left the bathroom… the balloon wasn’t in front of the lamp anymore. I went through the house and turned on all the lights. There was a knot in my stomach and my senses on high alert, but I detected nothing.
+
+And I found the balloon right where I remembered it being, in the kitchen. This meant one of two things: either I was tripping balls, or there was someone in my house right now moving stuff around.
+
+I went outside and called the police.
+
+The police department in my town is sketchy. Whenever a major screw-up happens, they always transfer people around to different departments. Some research I did showed that when they ran out of departments to send someone to, the officer would end up doing the same job but in a different city.
+
+Despite their station being a five minute drive from my neighborhood, they arrived a FORTY minutes after I called. They searched my whole house, found nothing, then threatened to throw me in the drunk tank if I called them again.
+
+I know I should’ve been recording them, but as I said, I was pretty drunk and not thinking clearly. I was terrified to sleep in my house that night, thinking the police had missed something obvious, but I was also exhausted and eventually fell asleep.
+
+Nothing much happened for several months.
+
+My birthday balloon was orb-shaped and made of mylar. Unlike latex balloons, which end up on the floor in a few days, these balloons are durable and can float longer.
+
+It had been months and my balloon wasn’t even wrinkling. I sort of grew attached to this balloon. While I’m lucky to be able to rent my own home, I don’t have roommates and get kind of lonely.
+
+Sometimes the balloon won’t be in its usual place. I’ll find it floating in a different room, despite the fact that it’s weighed down with a plastic clip. I was a bit confused about how it was moving, but I do open windows sometimes to let fresh air in. It could’ve been carried by a draft of wind.
+
+Some nights I woke up to the balloon hovering over me in the dark. Sometimes when it would go missing for a while, I’d find it hiding in the bathroom.
+
+At this point, the balloon didn’t bother me anymore. It was a comforting oddity in my life. I kinda liked having it around.
+
+When I invited friends over, they found it creepy how the balloon seemed to follow us to whatever room we moved to.
+
+“It’s like it’s watching us.”
+
+I chalked it up to having to do with air pressure or temperature changes that were somehow tied to us.
+
+While the balloon had started doing strange things, I wasn't bothered.  
+
+
+Then came the day a couple of months ago when I was looking through freelance writing jobs online. I had headphones on with ambient music playing but heard a clinking that didn’t seem to fit in with the rest of the noise. The clinking stopped, then started up again, enough for it to start bothering me. I turned down the volume and took off my headphones.
+
+The clinking was coming from somewhere in the house.
+
+My heart hammered in my chest when I walked toward and pinpointed the noise coming from the kitchen. It sounded like someone was messing with the silverware.
+
+And there was only one way to find out if that was true.
+
+I stepped into the kitchen. There was the balloon. Lying out beneath it were all my knives, removed from the block.
+
+I certainly didn’t leave them there. And nobody else was in the house, except the balloon.
+
+I put the knives away while giving the balloon a dirty look. I didn’t like when it messed with things in my house.
+
+Ever since that day, things get moved to places I don’t recall moving them. I’ve been having memory gaps, and I try convincing myself it’s from writing too much. Too much researching, that I’m getting burned out. Maybe my brain won’t bother wasting power on things like memory.
+
+Though somehow, I feel the balloon is responsible for all this.
+
+Yesterday, I woke to the smell of burning food. In the kitchen, I found the balloon floating next to the stove. The stove was on, and there was a skillet full of ground beef that was getting a little too dark in the pan. I ran over and flicked the knobs off.
+
+I stared at the balloon. I felt this urge to yell at it and tell it how stupid it was for… trying to cook unsupervised.
+
+And what was I thinking? It was a balloon; it clearly hadn’t done this itself. It was only helium, string, and foil. It wasn’t strong enough to move a pan onto the stove.
+
+But then, who did?
+
+The weather’s been cold lately, so my doors and windows were all locked, so it only could’ve been… me. But I didn’t remember trying to cook anything. I’m usually so careful because of the brain fog.
+
+If it wasn’t me, it was the balloon.
+
+I grabbed it by the string and carried it into the basement. I left it at the bottom of the stairs. I closed the door and pushed a table in front of it. I didn’t want any drafts to blow open the door. I didn’t want to see the balloon.
+
+I wanted peace...
+
+In the middle of the night, I was woken up again. I could hear wood breaking into pieces. In the hallway, I found the table shattered like someone had taken an axe to it. Nobody was there, but the basement door was open.
+
+The balloon was where I left it, under the glow of the light bulb.
+
+I wasn't able to fall asleep. I've been stewing in paranoia since the table broke. There is no one in the house except me and the balloon. I don't understand what's going on but I hate what I am becoming. I don't feel like myself anymore and I'm afraid I'm losing my mind.

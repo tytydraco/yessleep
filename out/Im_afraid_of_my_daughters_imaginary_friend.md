@@ -48,7 +48,7 @@ Her eyes met mine, more seriousness in her face than I'd ever seen. She put the 
 
 "Other meat, Mommy."
 
-At this point, I was severely freaked out. I'm a normally rational person; I don't believe in ghosts and never lose sleep over monsters under the bed. When it comes to the supernatural, I'm a skeptic if anything. But it was something about the way she looked at me, something about the gravity of her words, layered with meaning and understanding for our beyond her age. Like she knew something.
+At this point, I was severely freaked out. I'm a normally rational person; I don't believe in ghosts and never lose sleep over monsters under the bed. When it comes to the supernatural, I'm a skeptic if anything. But it was something about the way she looked at me, something about the gravity of her words, layered with meaning and understanding far beyond her age. Like she knew something.
 
 That night I started researching child psychology and imaginary friends. I found a lot of mommy blogs talking about developmental milestones and at what age it is and isn't appropriate to have an imaginary friend. None of them seem to answer my question. When should I be worried?
 
