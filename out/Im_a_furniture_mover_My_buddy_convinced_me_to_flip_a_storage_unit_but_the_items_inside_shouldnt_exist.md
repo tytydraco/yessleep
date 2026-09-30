@@ -1,3 +1,5 @@
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1wtweb8/im_a_furniture_mover_my_buddy_convinced_me_to/)
+
 I need to get this down while it's still fresh. I can already feel my memory going fuzzy like a dream does an hour after you wake up. If I don't write it down now, I'm worried I'll talk myself out of it by morning.
 
 Some background, so this makes sense.
@@ -70,8 +72,6 @@ By the time we backed the truck up to the garage door, the sun was dropping fast
 
 We didn't even try to unload the big pieces that night. Three boxes in, both of our shirts were thoroughly soaked through with sweat. We agreed the rest of the work would take another hour we just didn't have. There was no immediate rush. Plenty of daylight tomorrow after work would let us sort through everything properly.
 
-
-
 I'm writing this from my kitchen table. Henry went home an hour ago. He was still doing resale math on his phone when he drove off, still convinced we lucked into a decent flip.
 
 I didn't tell him, but the moment his truck pulled out of the driveway, a sick kind of curiosity took hold of me. It was a deep, nagging itch that I didn't want to admit to anyone, least of all myself. I couldn't just sit in my living room pretending everything was normal. The quiet of the house was too loud. I needed to know whether the wrongness went beyond what I had seen, or if my mind was just playing tricks on me after a long shift.
@@ -107,8 +107,6 @@ I cried out, dropping the mirror instantly.
 Instead of shattering on the concrete, the heavy glass hit the floor and softly bounced like rubber, rolling under the workbench.
 
 My heart was hammering violently against my teeth. I was so thoroughly spooked that I didn't even touch the third box. I backed away from the workbench, my eyes wide, desperately reaching behind me for the door handle to the kitchen. I slammed the door shut, locked it, and ran straight to bed, pulling the blankets over my head like a terrified kid. I didn’t manage to sleep a wink for the rest of the night.
-
-
 
 Thursday at work was a complete blur. I spent eight hours wrapping office furniture in plastic wrap and loading dollies, but my mind was entirely stuck in my own garage. I kept wondering if I had genuinely experienced some kind of silent stroke the night before. I kept checking my reflection in the side mirrors of the moving truck, holding my breath, waiting for my face to lag behind again. It didn't. By the time we clocked out, I had almost convinced myself that exhaustion and money stress had simply triggered a vivid waking dream. I resolved to tell Henry exactly what I thought I’d seen the second we got to my place, if only to hear him laugh and tell me I was being a lunatic.
 
@@ -167,8 +165,6 @@ I leaned in closer, my skin pricking with goosebumps. I heard it clearly. It was
 "Then why the hell is it sloshing around like that?"
 
 I didn't have an answer. The fluid itself looked far too thick and viscous to be normal water. And despite the tank being entirely vacuum-sealed, a heavy, chemical sweetness was beginning to bleed out into the air, cutting straight through the dusty smell of dry cardboard in the garage. It made my throat feel dry. But we still had items left to unload, so we forced ourselves to turn our backs on the sloshing glass and keep moving.
-
-
 
 After we finished unloading, we spent a while going through the smaller boxes at random. For a few containers in a row, things actually seemed normal. I felt my shoulders drop slightly. I told myself we'd just gotten unlucky with the first few things we happened to grab. The unit was probably just a normal person's boring life, and we had simply stumbled onto the handful of eccentric pieces first out of pure bad luck.
 
@@ -327,11 +323,3 @@ The line went dead with a sharp click before I could utter another word.
 My mind kept looping around that single word she'd used. *Received.* Like the unit hadn't ever really belonged to a human being. It was just an anomaly that had shown up already packed, already wrong, and tucked away behind an orange roll-up door.
 
 I stood up and clicked off the kitchen light, plunging the room into darkness. Through the glass, the garage was dead and silent under the moonlight. I looked up at the small window of the garage door, tracking the line of the high shelf inside. I couldn't actually see the football in the dark, but as I stood there shivering in my boxers, I knew exactly which way it was facing.
-
-  
-
-
-  
-  
-
-

@@ -1,4 +1,4 @@
-Rosie met me at the front door with her favorite duck stuffy in her mouth. The toy had been yellow once. You could see the color a tiny bit in the seams, but she loved it down to a damp gray. She was wagging her tail so hard her back legs kept sliding on the hardwood, duck dangling from her jaws. Something in my chest unclenched and was filled with warmth. 
+Rosie met me at the front door with her favorite duck stuffy in her mouth. The toy had been yellow once. You could see the color a tiny bit in the seams, but she loved it down to a damp gray. She was wagging her tail so hard her back legs kept sliding on the hardwood, duck dangling from her jaws. Something in my chest unclenched and I was filled with warmth. 
 
 “Phew,” I said. “You remember me.”
 
@@ -46,7 +46,7 @@ I glanced toward the laundry room. “Is this because of the construction?” 
 
 That time she chuckled. Rosie leaned against my leg, and I scratched the spot right between her ears. “See?” I said. “Rosie thinks this is weird, too.” 
 
-“She’s just not used to it yet,” the homeowner said. And she was gone. 
+“She’s just not used to it yet,” the homeowner said. And, then, she was gone. 
 
 It was a hundred dollars a night. So I stopped thinking about how odd this all was. 
 
@@ -140,7 +140,7 @@ The windows were a feeding schedule. Something in this house needed water the wa
 
 She hung up.
 
-I stood there with my cracking hands and Rosie leaning against my leg, and I looked at the freezer, and I opened it. The tray was empty, the frost was gone, the whole interior was dry as bone.
+I stood there with my cracking hands and Rosie leaning against my leg, and I looked at the freezer, and I opened it. The tray was empty, the frost was gone, the whole interior of the freezer was dry as bone.
 
 I decided it was time to go.
 
@@ -148,11 +148,11 @@ I packed my bag. Then I went upstairs to use the bathroom one last time.
 
 And I flushed.
 
-I can't even explain how it happened. Two days of following rules and a thing in the drain and something pale moving across my tub at 2:37 AM, and my hand just did what it always does. The toilet flushed. The tank refilled. Water moved somewhere deep in the wall.
+I can't even explain how it happened. Two days of following rules and a thing in the drain and something pale moving across my tub at 2:37 AM, and my hand just did what it always does. I couldn't keep from berating myself. The toilet flushed. The tank refilled. Water moved somewhere deep in the wall.
 
 The kitchen faucet came on downstairs.
 
-Rosie barked. The guest bathroom. The utility sink in the laundry room. Something hit the plastic over that doorway once, then again. I ran downstairs: faucet running full blast, Rosie barking. And then the pipes started knocking. Kitchen wall. Down the line. The laundry room. The wall directly behind me, close enough I felt it in my back teeth.
+Rosie barked. The guest bathroom. The utility sink in the laundry room. Something hit the plastic over that doorway once, then once again. I ran downstairs: faucet running full blast, Rosie barking. And then the pipes started knocking, loud. Kitchen wall. Down the line. The laundry room. The wall directly behind me, close enough I felt it in my back teeth.
 
 Rosie backed towards the front door.
 
@@ -160,23 +160,23 @@ Every faucet stopped.
 
 Then the shower upstairs came on.
 
-A thin line of water appeared beneath the laundry room plastic. It wasn't necessarily spreading. It was moving, crossing the hardwood the way water doesn't cross hardwood, going straight for Rosie's bowl, which was now empty again. The water touched it, and then the bowl moved half an inch.
+A thin line of water appeared beneath the laundry room plastic. It wasn't necessarily spreading. It was moving, crossing the hardwood, going straight for Rosie's bowl, which was now empty again. The water touched it, and then the bowl moved half an inch.
 
-Rosie screamed. I've pet-sat a lot. Still, this was a sound from somewhere older than any dog I'd ever heard, from whatever part of her still knew what lived in dark forests before there were dogs. I opened the front door, and she ran, and I ran after her, and I didn't look back.
+Rosie screamed. I've pet-sat a lot. My resume is the reason why I got this sit in the first place. Still, this was a sound I've never heard before. This was a sound from somewhere older than any dog I'd ever encountered, from whatever part of Rosie that still knew what lived in dark forests before there were dogs. I opened the front door, and she ran, and I ran after her, and I didn't look back.
 
 We're in my car in the driveway.
 
-The upstairs shower ran for twenty more minutes and then stopped. The kitchen light came on. One sprinkler started up beside the driveway, just one, turning slowly: lawn, sidewalk, driveway. Click. A little farther. Click. It stopped when it was pointed at my car.
+The upstairs shower ran for twenty more minutes and then stopped. The kitchen light came on. One sprinkler started up beside the driveway, just one, turning slowly: lawn, sidewalk, driveway. Click. A little farther. Click. It stopped when it was pointed at my car. And it stayed there.
 
 7:18 PM. The window opens at 7:30.
 
-My hands are bad. Cracks forming, small dark beads of blood where the cracks cross. Lotion isn't working. I haven't had anything to drink all day, and I'm only now realizing it.
+My hands are bad. Cracks forming, small dark beads of blood where the cracks cross. I haven't had anything to drink all day, and I'm only now realizing it.
 
-I pulled out my phone and searched all possible logical explanations. Nothing came close to explaining this. Then, I went down a rabbit hole, and I looked up every water spirit and draining creature I could find. The Tiddy Mun, gray thing of Lincolnshire fen water, that had to be appeased at set hours or it took livestock and health and moisture until you fed it back. The Vodnik and the Vodyanoy, Slavic spirits that collect what they're owed in jars at the bottom of rivers, hungry and difficult when the payments stop. Dozens of things in dozens of traditions that live in pipes and wells. None of them mention ice trays. None of them mention wet wipes or a freezer licked clean of frost. 
+I pulled out my phone and searched all possible logical explanations. Nothing came close to explaining this. Then, I went down a rabbit hole, and I looked up every water spirit and draining creature I could find. The Tiddy Mun, a gray thing of Lincolnshire fen water, that had to be appeased at set hours, or it took livestock and health and moisture until you fed it back. The Vodnik and the Vodyanoy, Slavic spirits that collect what they're owed in jars at the bottom of rivers, hungry and difficult when the payments stop. Dozens of things in dozens of traditions that live in pipes and wells. None of them mention ice trays. None of them mention wet wipes or a freezer licked clean of frost. 
 
 Rosie put one paw on the center console.
 
-She looked at me with her good eye, the left one doing its slightly unfocused thing, watching something over my shoulder. She made a sound. Low and sad. She knows exactly where her duck is, and she is asking me, as plainly as she knows how, whether I'm going to go and fetch it.
+She looked at me with her good eye, the left one doing its slightly unfocused thing, watching something over my shoulder. She made a sound. A small and low and sad whine. She knows exactly where her duck is, and she is asking me, as plainly as she knows how, whether I'm going to go and fetch it.
 
 Her favorite duck. The one that used to be yellow. The one she sets down beside her water bowl every single time, parallel to the baseboard. The one she's had since she was two years old, according to the note the homeowner left.
 
@@ -184,13 +184,13 @@ I'm not… brave. I don't watch horror movies, I jump at loud noises, I once dro
 
 7:29 PM. One minute before the window.
 
-At 7:30, I opened the car door. The sprinkler didn't move.
+At 7:30. "Little lady, the things I'll do for you." I opened the car door. The sprinkler didn't move.
 
 The front door was unlocked. I pushed it open. The kitchen light was on. The laundry room plastic was still. The house was quiet. My heart was thumping.
 
 The duck is in the middle of the hallway. Dead center, same distance from every wall.
 
-I crossed the hall. I picked it up. I turned around, and I walked out, and I pulled the door shut. A sigh of relief.
+I crossed the hall. I picked it up. I turned around, and I walked out, and I pulled the door shut, and sighed in relief.
 
 In the car, Rosie sat up. I held the duck out, and she leaned forward and sniffed it, her nose giving it a thorough inspection for much longer than necessary. Then she took it cautiously and held it the way she was holding it when I arrived, in the doorway, legs sliding sideways on the hardwood, but this time, she didn't wag her tail. She just held her favorite toy and looked over at the house.
 
