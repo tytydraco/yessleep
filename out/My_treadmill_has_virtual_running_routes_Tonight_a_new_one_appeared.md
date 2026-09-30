@@ -1,0 +1,99 @@
+A couple of weeks ago, I found an incredible deal on a premium treadmill. It’s the kind with the little TV hooked up to it so you feel less like you’re on a hamster wheel staring at a white wall, and more like you’re on a hamster wheel staring at a screen in *front* of a white wall. It’s pretty nice, especially since I’m on the night shift, and there aren’t any 24 hour gyms within reasonable commuting distance.
+
+Tonight, before getting ready for work, I decided to get in a quick run. I was already getting tired of the “hike through the Italian Alps” and the “walk along the beach in Oahu.” I’d begun to recognize every hill and wave. I even started waving at the cameo pedestrians and sunbathers. I knew exactly when each recording was about to reset. There are only so many times you can go through the same five scenes.
+
+But tonight, there were six scenes to choose from. I figured it must still be synced with the manufacturer and automatically downloaded a software update. The new one was called “Night Run.” There wasn’t a thumbnail image or touristy location name. Just: *3.2 miles*.
+
+Good enough.
+
+I hit “go” and notched up the pace to a steady jog. The recording started on a dark suburban street, pockets of which were brightly illuminated by streetlights. There wasn’t much to look at. Dark porches. Parked cars. The occasional blue glow from a television through half-shut blinds.
+
+After a minute, my eyes caught on a tacky mailbox shaped like a fish. I always thought those were so ridiculous. What kind of person loves fishing enough to make the mailman shove their utility bills down a largemouth bass’s throat? Then I realized why the annoyance was so personal; I pass by one of those mailboxes on my commute. They’re common enough, but once the thought was in my head, my brain started to pick out more features on the screen.
+
+First, generalities. Then, things harder to dismiss.
+
+A yellow house with a white picket fence. A stop sign with a rusty metal support post.
+
+I jammed my thumb on the “up” arrow to let me run faster.
+
+Green trash bins overstuffed with broken down boxes and plastic bottles, awaiting the next morning’s recycling pick-up.
+
+I had to keep running, keep confirming what I was seeing.
+
+Then the road curved. I knew what was going to be around the bend before it appeared.
+
+The basketball hoop on the curb still had the net missing. The backboard had a spiderweb crack through one corner.
+
+I stopped running. The recording paused too.
+
+I looked closer at the monitor itself and saw the distance remaining had dropped from 3.2 miles to 1.5 miles.
+
+Then I saw that the recording actually hadn’t paused at all; the screen wasn't frozen. A breeze pushed through and bowed a few branches in one of the trees, sending several leaves scattering across the road ahead. Moths fluttered erratically around a streetlight.
+
+And the camera itself was moving. Just a slight, rhythmic sway. Up, down. Up, down.
+
+Whatever I was looking through was standing there, catching its breath.
+
+I jumped off the treadmill like it had given me an electric shock.
+
+My eyes were locked on the screen, my heart pumping adrenaline through my blood and impossible thoughts through my mind.
+
+I stepped back onto the belt. The picture had steadied now, and remained in place.
+
+A mile and a half away from my house.
+
+I hit “go,” but didn’t adjust the speed, letting the motor grind at a snail’s pace. It was so slow that I had to keep my feet on the side rails to prevent myself from tripping.
+
+Seconds went by, then, on the monitor, a small push forward. No, not a push…a *step*.
+
+A few more seconds. *Step*.
+
+Seconds. *Step*.
+
+I hit one of the treadmill’s preset speeds, jumping from 0.1 mph to 6.0 with a single button, and I rapidly went back to a swift jog. The view lurched forward to match my pace.
+
+Somewhere outside, a shrill siren roared to life, maybe a few blocks away. That made me wonder, for the first time, if I should call the police. And tell them what? That there’s someone, *something*, in my neighborhood, seeming to be making its way to my home? That it’s only-
+
+Suddenly, blue and red lights bathed the path on the treadmill screen as the emergency vehicle drove by, what looked like one street to the left.
+
+A few moments later, at the next intersection, the trail view cut to the left.
+
+I realized with horror that I was still running.
+
+I used the knuckle of my index finger to hit “STOP” as hard as I could and hopped off the belt.
+
+From the side of the equipment, I craned my neck to see the remaining miles.
+
+*0.5*
+
+I yanked the red safety key from its magnetic holding and unplugged the treadmill, staring at it with a combination of disbelief and near-crippling fear.
+
+There’s nothing to worry about, right? I just have to not use the treadmill again. *Ever* again. Tonight, I’ll go to work, and when I’m done, I’ll load this thing into my truck and haul it to the junkyard just in time for them to open in the morning.
+
+I’ll admit, I’m still shaken up. There’s no way I’m telling anyone at work about this, so I figured I’d post it here before I leave. I don’t know much about “smart” exercise equipment. Is there some feature I’m missing here? Some way it could be pulling in a live feed based on my location, or even picking up sound from around me? Maybe by the time my shift is over, one of you will have an explanation that makes sense.
+
+The treadmill has been unplugged for almost twenty minutes now. The screen is black. Nothing has happened. I think I’m okay.
+
+Wait.
+
+I can hear something outside.
+
+Clicks?
+
+No, taps.
+
+Now pounding.
+
+Someone is *running*.
+
+They’re getting louder.
+
+Faster.
+
+Closer.
+
+
+
+
+
+I have to go.

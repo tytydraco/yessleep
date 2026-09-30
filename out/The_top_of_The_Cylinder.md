@@ -190,7 +190,7 @@ The thought of leaving all of this behind and going back to the same pain I had 
 
  My stomach dropped when I realized that I would have to climb The Cylinder again. 
 
-The time from when I re-entered the cylinder onward is a bit of a messy blur. I don’t really remember much from it. The Cylinder became less refined as it went on; it was less tightly shaved down, and more parts jutted out. It was much easier to find food, with even restaurants jutting out on occasion, but it still wasn’t easy.
+The time from when I re-entered the Cylinder onward is a bit of a messy blur. I don’t really remember much from it. The Cylinder became less refined as it went on; it was less tightly shaved down, and more parts jutted out. It was much easier to find food, with even restaurants jutting out on occasion, but it still wasn’t easy.
 
 Things still slipped. Entire landings would break under my meager weight, leaving me with mere seconds to decide what to grab onto. Rest still wasn’t easy to find. The Cylinder became less predictable.
 

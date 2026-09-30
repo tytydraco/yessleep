@@ -1,0 +1,237 @@
+One night while I was lying in bed  
+I felt my house begin to shake and roar  
+And when I thought it was in my head  
+I watched a chasm split the floor
+
+With a racing heart, I peered into the void  
+And saw two beings of indescribable magnitude   
+One reached out with eyes devoid  
+And the other, with a sneer, simply viewed 
+
+My mind twisted at the sight of the beings  
+And I looked between them frantically  
+In my confusion, I fell into the void   
+And the beings quickly overtook me
+
+When I came to, I was floating in a dense ocean of something   
+I tried to open my eyes, but the something was too thick   
+I felt a hand on my shoulder and recognized it as the gentle being  
+And I was quickly pulled from the something   
+In a motion so abrupt it broke my neck 
+
+The next thing I remember was lying on the floor  
+The room was painfully frigid  
+And all of the lights were out  
+But when I looked closer, I realized that they weren’t out at all   
+And instead, everything in the room was painted pitch black
+
+In the black room, my mind was much greater than before  
+I pondered philosophical conundrums and quantum equations   
+The gentle being came to me eight times to observe  
+Every time, it took a piece of my body with it
+
+Eight things isn’t so many to lose   
+If you ask me.
+
+I was taken out of the black room in a rush one day  
+And pulled by my legs into a room decorated for a party  
+That’s what I thought at first, anyway   
+I wondered if they remembered my birthday   
+When was it again?    
+March eighth   
+Or was it May?   
+Anyway, it was silly to think beings of their consequence would celebrate the day of my birth   
+Still, I called it the birthday room
+
+The birthday room was not meant for any celebration   
+Every hour, an okapi would fall from the ceiling and through the floor  
+Once, I tried to catch one  
+And was instead crushed by the animal   
+But miraculously, this broke the cycle  
+And this okapi did not fall through the floor  
+Even so, more continued to fall as they had been 
+
+Now I realize  
+Those were not streamers 
+
+Dear God
+
+Time was not a factor in that place  
+It is impossible to say for how long I was there   
+Especially when the pain began   
+When they began to change me
+
+I’m struggling to find the words
+
+Being lifted from all sides  
+The flash of lights now and then   
+A sound like an exotic bird   
+Pain all over my body   
+Sharp and inescapable   
+I couldn’t look down to see what had been done   
+By the oh so gentle being   
+But I knew that I was different now
+
+As I was held in the air by forces unseen   
+I wondered when they would return to check on me  
+To keep me company
+
+I remember being approached once by the sneering being  
+I was in the black room  
+If I recall correctly   
+Its visits were rare and dreaded  
+It   
+Took   
+My
+
+Poetry gives me my voice   
+It eases my mind in the darkness  
+And when I’m paralyzed by infinite choice   
+It offers me a saving harness
+
+*My* mind  
+Is all I know
+
+And perception shapes reality  
+Or so I’ve heard  
+If I don’t write it, then it must not have happened
+
+I looked down at the space where my legs used to be   
+With eyes that could hardly make out shapes   
+I didn’t consider that I would never walk again  
+Where was there to walk in this place?  
+Where you are pulled from room to room by beings beyond the mind  
+Walking seemed laughable   
+Walking was a novelty afforded to those who were still human  
+Me, I was something other now   
+Long  
+Fleshy  
+Pathetic 
+
+I watched the okapi sleep in the corner of the birthday room  
+It was allowed to keep its limbs   
+The things that made it what it is  
+But when did it stop being an okapi?  
+When it lost its stripes?   
+Its horns?  
+When it was dismembered?  
+Skinned?  
+When it was cut up and lying on a table?  
+Even then, it’s still the okapi  
+Because that is what it began as  
+I wondered, and even hoped  
+That maybe the same rule applied to me
+
+And then 
+
+Next 
+
+After that 
+
+I want to continue, really, I do  
+But have you ever seen your own legs affixed to another body? 
+
+Neither have I.
+
+When I woke up, I was somewhere, I’m sure of it  
+And they were standing over me  
+My mouth was being held open by something cold  
+I heard a loud pop  
+And felt mind-numbing pain, of course   
+And my teeth were gone after that, I’m sure of it.   
+It was a wonder I had even been able to keep them for that long  
+But how could I think of food in a place like that?  
+As a creature like me?
+
+I wondered for a moment how pets must feel  
+We take them to the vet to make them better   
+And it must be so scary and confusing for them   
+But we know it’s for the best   
+Perhaps I was now the pet  
+And I should trust my keepers to know what was good 
+
+To be better   
+Is to be different   
+To be different   
+Is to be altered   
+To be altered   
+Is to submit to alteration  
+To submit to alteration   
+Is to submit to losing yourself 
+
+And my mind  
+Is all I know 
+
+So does perception shape reality   
+Or does reality shape perception?   
+If I see myself as me, then that is what I am   
+Because I perceive it to be that way   
+Even when I am altered   
+And if I write it, then it must be the truth 
+
+At one point I was acutely aware that I was not alone  
+And that the presences I felt were others like me  
+Others not like me  
+Others who still had what I had lost  
+And others who had lost far more than I  
+Such was the nature of the vet, I supposed   
+There would be others to be seen   
+Yet my chest twisted to think I was not special anymore  
+That I had never been 
+
+It was all for nothing 
+
+I called out to the beings  
+Desperate for an inkling that I was different   
+And to my elation, my call was answered   
+I felt the gentle being touch my chest   
+And my body disintegrated  
+I thought how lovely it was to finally be rid of such a heavy burden   
+The burden of a body   
+But the relief was cut short by the realization of where I was   
+Or perhaps, where I wasn’t   
+For at once I could see everything there was to see  
+I saw the black room  
+And the birthday room   
+And each okapi falling through time and space   
+And the people who had been around me  
+And the parts of me that they had taken   
+And the beings themselves  
+And the world  
+And the universe   
+And I understood   
+Something  
+The factory of the universe   
+Loss for gain   
+Unitary evolution   
+Periodicity   
+Something   
+Something   
+Something
+
+If I write it then it must be true
+
+Then I was back in my bed  
+With a body whole and living  
+And when I thought it was in my head   
+I began to write
+
+How should one perceive themselves whole?   
+And where does self reside?   
+An amalgamation of mind, body, and soul?   
+Or does each hold self inside? 
+
+If the vessel is completely broken down   
+And replaced with something new   
+Even if it looks the same   
+Would it be truthful to say it’s still you?
+
+It’s not right.  
+Not right at all.
+
+Yet here I am.  
+And here I go.  
+One last time.   
+From body borrowed. 
+
+Thank you
