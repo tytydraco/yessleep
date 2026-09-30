@@ -1,16 +1,16 @@
-[PART 4](https://www.reddit.com/r/nosleep/s/PAU0bwa7Ds) [PART 1](https://www.reddit.com/r/nosleep/s/t0W8APy6c8) 
+[PART 4](https://www.reddit.com/r/nosleep/s/PAU0bwa7Ds) [PART 1](https://www.reddit.com/r/nosleep/s/t0W8APy6c8)
 
-“I’ve waited my whole life to meet you, kiddo.”
+“I’ve waiting your whole life to meet you, kiddo.”
 
-Murmur stopped so abruptly that the leash pulled tight against my wrist.
+Murmur stopped so abruptly that the leash pulled against my wrist.
 
 The man stood just beyond the reach of the parking lot lights. I could see he was wearing a black “armor” motorcycle jacket, dark pants, and his hands were in his front pockets.
 
-After everything I’d seen, a person moving normally should have been a relief.
+After everything I’d seen, a person moving should have been a relief.
 
 Instead, I found myself watching his shoulders. Waiting to see whether his head would turn without them.
 
-“Stay there or I will fucking shoot, I swear to god to fucking test me”.
+“Stay there or I will fucking shoot, I swear to god fucking test me”.
 
 He stopped.
 
@@ -36,7 +36,7 @@ He glanced down at it as if he had heard my thought in that moment.
 
 “No. I’m starting to decide whether I need to run or cap you”
 
-Murmur pressed against my shin. He wasn’t barking. Somehow, that was worse. He stared at the man with his ears drawn back and his mouth firmly closed.
+Murmur pressed against my shin. He wasn’t barking. He stared at the man with his ears drawn back and his mouth firmly closed.
 
 “I’d like to walk with you. Explain a few things, if it helps you can point that gun at me the entire time”
 
@@ -60,9 +60,13 @@ Then he turned and walked toward the overlook.
 
 I stayed where I was long enough for him to stop and look back.
 
-I wish I could tell you I made a smart, carefully reasoned decision to follow him. Mostly, I couldn’t bear the thought of watching the only other moving human being I’d found disappear into the dark.
+I wish I could tell you I made a smart, carefully reasoned decision to follow him.
 
-So I followed. Far enough behind that he couldn’t grab me without giving me a head start.
+Mostly, I couldn’t bear the thought of watching the only other moving human being I’d found disappear into the dark.
+
+So I followed.
+
+Far enough behind that he couldn’t grab me without giving me a head start.
 
 He stopped near a stretch of rock overlooking Tucson.
 
@@ -98,7 +102,7 @@ What if shooting him didn’t do anything?
 
 “I’m a program manager,” he said.
 
-That was such a weirdly ordinary sounding answer that I laughed.
+That was such an ordinary sounding answer that I laughed.
 
 “And what the actual fuck does that even mean?”
 
@@ -139,8 +143,6 @@ I didn’t like how patiently he waited. He stood there with a slightly smug smi
 “Ryan,” I said.
 
 He nodded.
-
-My mouth went dry.
 
 “What does Ryan have to do with this?”
 
@@ -218,7 +220,7 @@ The wind kept moving around us.
 
 I gave this horrible little laugh that didn’t feel like it belonged to me.
 
-“You fucking arranged a relationship through Tinder? Wow some real hardcore top secret government hoodrat shit.”
+“You fucking arranged a relationship through Tinder? Wow some real hardcore top secret government shit.”
 
 “We created an opportunity for contact.”
 
@@ -272,9 +274,7 @@ I stood up, keeping Murmur close.
 
 “Can’t or won’t?”
 
-“This can drive you insane or make you something better than human, it almost killed me a few times, I’m trying to help you.”
-
-“I know what you want.”
+“This can drive you insane or make you something better than human, it almost killed me a few times, I’m trying to help you. I know what you want.”
 
 “No, you don’t. Because if you did, you’d stop talking like you’re handling a customer complaint.”
 
@@ -286,13 +286,13 @@ I blinked at him.
 
 The change in subject was so abrupt that for a second I thought I’d misheard.
 
-“Since I was young.”
+“Since I was in college. I got hit in the head playing football.”
 
 “Congratulations, do we get matching friendship bracelets now?”
 
 “I’m trying to explain why they chose certain people.”
 
-I could feel the cold getting through my clothes now. I wanted to go back to the truck. I wanted to keep him talking. Both urges were so strong they made me feel sick.
+I could feel the cold getting through my clothes now. I wanted to go back to the truck. But I also wanted to keep him talking.
 
 “Did you know Keppra used to be used as a nootropic?”
 
@@ -310,7 +310,7 @@ He smiled.
 
 “Have you ever thought of a seizure as a reset?”
 
-“Electroshock,” I said. “ECT. They induce a seizure.”
+“Electroshock,” I said. “They induce a seizure.”
 
 “Under controlled conditions.”
 
@@ -324,7 +324,9 @@ For the first time, he looked away.
 
 I couldn’t tell whether I’d embarrassed him or whether he was deciding how much more to say.
 
-“There have always been accounts,” he said eventually. “People who described visions. Voices. Sudden certainty. Experiences they had no language for except the language available to them.”
+“There have always been accounts,” he said eventually.
+
+“People who described visions. Voices. Sudden certainty. Experiences they had no language for except the language available to them.”
 
 I said nothing.
 
@@ -351,9 +353,9 @@ I didn’t answer.
 
 “The sudden clarity. The feeling that several thoughts were arriving together, but you could understand all of them.”
 
-My stomach tightened.
+My stomach felt sick.
 
-“And afterward,” he continued, “the hunger. Then those periods when thinking seemed unusually easy.”
+“And afterward,” he continued, “the hunger. Then those periods when thinking seemed easier than ever?”
 
 “Stop.” I was fighting back tears now.
 
@@ -391,8 +393,7 @@ Instead, I held it tighter, remembering my sickness when my phone wasn’t well,
 
 “What kind of training?”
 
-“Attention. Altered states. Learning to recognize when your perception is changing, and how to remain oriented when it does. Transcending dimension if you’d believe  
-it.”
+“Attention. Altered states. Learning to recognize when your perception is changing, and how to remain oriented when it does. Transcending dimension if you’d believe it.”
 
 I looked down at Murmur.
 
@@ -404,7 +405,9 @@ He was staring at Cherinko again.
 
 He said it so calmly. Like I’d shown up to a driving lesson and complained about the traffic.
 
-“There’s a process called Hemi-Sync,” he continued. “Audio designed to encourage synchronization between the hemispheres. That will be part of what the doctor does with you.”
+“There’s a process called Hemi-Sync,” he continued.
+
+“Audio designed to encourage synchronization between the hemispheres. That will be part of what the doctor does with you.”
 
 “You’re going to fix this with headphones?”
 
@@ -444,7 +447,7 @@ I stared at him.
 
 “Yes.”
 
-“Because he’s Lighthouse.”
+“Because he’s Lighthouse?”
 
 “Yes.”
 
@@ -480,7 +483,7 @@ I noticed then that he looked tired. Not distracted or mildly worn out. Tired in
 
 He didn’t answer.
 
-I thought of my mother’s story and the missing time. The way she always told it like something strange that had happened to her, with me somewhere inside it.
+I thought of my mother’s story and the missing time. The way she always told it like something strange that had happened to her, with me being the cause.
 
 “What did you do?”
 
@@ -530,7 +533,7 @@ He looked down.
 
 To be honest he was sort of right, I did want to understand but I also felt like any more information and my brain would split in half and I’d loose what remaining grip on reality I had left.
 
-I started backing toward the path.
+I started backing towards the path.
 
 He let me.
 

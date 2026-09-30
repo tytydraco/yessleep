@@ -1,0 +1,109 @@
+Hey everybody, sorry for the delay. I haven't slept for the past week, and spent the last 37 hours in effectively a coma catching up on some much needed rest.
+
+To those who aren't up to date, you can find my previous entries here: \[[1](https://www.reddit.com/r/nosleep/comments/1wi90pv/my_boss_wont_stop_drinking_soda_its_starting_to/)\] \[[2](https://www.reddit.com/r/nosleep/comments/1wj61oe/my_boss_wont_stop_drinking_soda_its_getting_worse/)\] \[[3](https://www.reddit.com/r/nosleep/comments/1wm2e3t/my_boss_wont_stop_drinking_soda_it_got_worse/)\]
+
+A lot has happened this past week, it's hard to really address everything clearly. My mind is still foggy. You'd think after getting so much rest I'd be recovered, but my head keeps pounding as though I have a wicked hangover. Please bear with me.
+
+I guess it's best to start from where I left off. To those who warned me after my last post about the can of soda my boss gave me after my last run, you were right. I was stupid enough to trust the can. I should have known something was up when I saw the witch doctor in the corner. Never fully trust an open container.
+
+I didn't know then what my boss did to the soda, and I wish I never learned. It still doesn't really make sense to me, but he somehow 'superfied' the beverage with whatever mystic shit he put through himself.
+
+When I say I haven't slept for the past week, I mean that quite literally. It took about two hours for it to really kick-in, but after drinking Diet Coke, a bolt of energy ran through me like wildfire, and burned just the same. It was like my brain wanted to jump out of its skull, a painful form of restlessness that I had never experienced before in my life. In hindsight, I should have put two and two together from the get go, but my mind was racing so fast that I couldn't even stop and listen to my own thoughts.
+
+I had to move. I had to work off this stress, this energy, this anxiety. Later that evening, I put on my running shoes, my shorts, and a tee to run a mile at night, thinking the exercise would help wear me down.
+
+After a mile, I still felt active. I was running as fast as I could. My mind wanted to bolt faster with each step, even at the expense of my body. My legs couldn't keep up, so I decided to run further. One mile turned into two, then a 5K, a 10K, a half marathon. I reached a full marathon by daybreak. Still wide awake.
+
+The pain in my skull was subsided by the pain in my shins and arches. Not much of an improvement, but the relief in my skull felt good nonetheless. Monday morning, and it was time to go to work.
+
+I had the energy to walk home, change, and make it into the office. I showered, but the sweat and paranoia from this newfound energy still lingered around me like a cloud of anxiety. I walked past Ruth, Gary, Jamie, and even that dickhead Kieth, pretending everything was fine despite the massive brain fog swelling in my skull. '*What is going on?'* Is all I could think. I was exhausted, but I wasn't tired.
+
+My phone buzzed. It was the boss.
+
+*'Hey there, kiddo. How are you feeling this morning. Didn't sleep well?'*
+
+I winced reading that text. How could he have known?
+
+I turned around to go up the elevator. The door open and as I rammed inside my boss' bloated torso gargled into my chest.
+
+I stepped back, shocked. I don't think I've ever seen the boss step away from his office, let alone stand up.
+
+He was bigger than I would have expected. Much bigger. In fact, the suite jacket he wore seemed to tightly seal the folds of his skin underneath. His dress shirt folded in odd ways, covering what was obviously a distorted stomach. Or, maybe it was some kind of growth? It was hard to say.
+
+While we both stood in the elevator, my boss opened the fresh liter of Diet Coke in his hands and started chugging. Five seconds was all it took for him to down the drink. Five painful seconds to someone whose mind raced faster than anyone else's.
+
+"How you holding up? You don't look to good." he gurgled, belching between each consonant in his speech. That's when I realized that the soda he gave me wasn't normal. The energy inside me burst out in a rage.
+
+"Boss, what the *fuck* did you do to me?? I don't care about your weird energy drink addiction, but that does *not* give you the right to--"
+
+"Woaaahhh settle down now kiddo." He interrupted, "You're a part of history! Do you really take me as some shitheel who'd just drug a beautiful woman such as yourself? Not at all! You, my dear, are a product test."
+
+"There isn't much of a difference." I seethed through my teeth. "I couldn't sleep all night. I ran a marathon, and I'm still not tired, just full of migraines and pain. What did you *do* to me??"
+
+The boss paused, his calm demeanor turned to serious sorrow. "Oh dear, that doesn't bode well at all. The product has to be perfect for our client. Tell me, how much energy do you have right now?"
+
+I was stunned. He didn't even seem to care about me, but for whatever this dumb product was. As much as I hated to admit it, I didn't know what was going on, but my boss did. I played along for now, maybe he'd have a cure.
+
+"I just feel--energetic, I don't know. But it was a slow build up. After the soda you gave me, I could feel my insides shake. I once drank five espresso shots in a row, there was so much caffeine that my hands started to shake and I couldn't sleep all day. This is different, though. It's like the energy in my body keeps building, and building, but my mind stays the same. I'm tired, boss, I'm really fucking tired."
+
+The boss leaned forward, inquisitively. "Interesting. When I tried it, I felt as happy as a clam! You don't happen to have ADHD, do you? Some studies suggest that caffeine and other energy supplements can actually help those with it sleep."
+
+"I mean--technically, but I don't think this is quite the same."
+
+The boss took out his phone, jotting down notes. "For ADHD...get...more...dopamine...supplements. Perfect! This helps out a ton. Now, I know you feel like you could take on the world, but I need you to be on your best behavior. Mr. Abermar is upstairs, and I need you to act like you can do the work of fifty men with the supplement!"
+
+"You don't...you mean you're trying to sell this stuff? Is it even legal?"
+
+"Kid, supplements like these are what keeps the economy moving! Normally we can prepare for stagnation in the workforce - pandemics, inflation rates going through the roof, even oil shortages - but that doesn't change people's spirits, or their *motivation*. Our firm seeks to solve that issue."
+
+"By drugging them? That seems so...so-"
+
+"Unethical? Paul thought the same way. He complained too much and wanted out. He thought you'd be perfect for this gig. You never say no, isn't that right? Just 'going through the motions'? But now you're too familiar with our business. I understand your apprehension, but in our line of work, apprehension is just a short hurdle. Likeminded folks like myself have found solutions to most of the world's more peculiar and pesky problems. This product is just one of many."
+
+My concern growing, I could feel my spirit drop with each word that came out of his mouth. Did I let this happen? What kind of line of work was this?
+
+"What kind of work is this? This feels different from our usual PR and management services."
+
+The boss stood tall, proud even. "That's just it, we're still PR! At least in a legal sense. Our clientele just shifts every now and then. Mr. Aberman is just the first to invest into this venture. He'll be here any second now, let's set up shop upstairs."
+
+\--
+
+I followed the boss back to his office. He arranged for a new chair to fit his desk, the base being three times its normal size. His comically large torso rippled with each step. The sudden drop seemed to tear whatever stitching was lined across his chest. His white buttoned shirt slowly seeped maroon.
+
+"Shit!" The boss yelled. "Hang on, do you mind if I change? That witch doctor sealed all those kidneys well enough, but his patchwork needs improvement."
+
+Despite my initial gasp of hesitation, he removed his shirt. Black stitches lined the sides of his body as though skin from another person was simply sown onto his torso. The bulbous growths on each side swayed back in forth as though they were just floating inside him. The violent swishing noises from his body made me sick. The lining of his added skin oozed not blood, but some clotted ichor that was obviously unnatural.
+
+I peered away and found another strange site. Next to his desk were dozens of glass jars, the kid I saw in his kitchen the day before. Each one sealed with engraved parchments lined with unfamiliar symbols. In the jars were hundreds, if not thousands of distorted, sand-colored orbs, no larger than small pebbles.
+
+"There we go!" The boss turned towards me, grabbing a Bang energy drink from his minifridge.
+
+"Now about your newfound energy. These bad boys," boss tapped one of the pebble-filled jars, "are our latest in eldritch innovation. It took a lot of favors, but I've finally found the right concoction. Not an elixir, like most potions are, but a pill! Easier to distribute, you see."
+
+"Okay," I said softly. "But, what is it?"
+
+"Well, you should know! You've been the one collecting the ingredients. The new kidneys were just the last step in my mass production."
+
+He took another long swig of the drink, gasping. "Guh, you think I like this stuff? I just needed to consume enough for the final product. The caffeine, the tonic, the elixir of Agares, all to make these bad boys."
+
+"You consume them, then, just make them?"
+
+The boss chuckled, "In a sense. Kidney Stones are a bitch to produce but the payoff will be worth it."
+
+I gagged. I wanted to scream, yell, fight, run, but I was too flustered and disgusted to say a word.
+
+"Now, best behavior, Mr. Abermar is on his way-"
+
+The doors burst open with an eerie softness. A man, clad in a rose-tinted plaid suite, waltzed across the carpeted floor. He spoke with a soft voice, but weighed with a heavy undertone. A businessman. Abermar. Where did I hear that name before?
+
+I won't bore you with the specifics of the meeting. It was mostly logistical, anyhow. The boss introduced me to Abermar to showcase that, this time, the product works without any flaws. Mr. Abermar 'sought out supernatural assistance to motivate the workers of his estates down in latin america'. Plantations. He was going to work those poor souls to the bone.
+
+These rich bastards used me just so they could exploit others. The money may be good here, but that doesn't prevent me from feeling like a piece of shit.
+
+I didn't sleep once this week. I didn't need to. Instead, I spent the whole time learning distribution analysis and scheduling movers to get the shipment out of the country with no issues. Not sure how much was legal, but when you can't sleep, nothing feels impossible.
+
+After all was said and done was when the crash hit. And it hit like a freight train running over a toddler. The boss, in his kindness, gave me the day to rest. And after sleeping for 36 hours, I was already late for work.
+
+My boss offered me another soda this morning. I politely declined. I wish there was an HR representative to talk to, but in the meantime, I can add 'mass shipment & distribution' on my resume. The boss even offered to pay for Spanish and Portuguese lessons in case I need to take a trip to one of the farms.
+
+No luck yet on the new job search, sadly. If anyone has any leads (preferably without any warlocks), I'll take any suggestions I can get.
