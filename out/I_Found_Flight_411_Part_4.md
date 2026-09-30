@@ -1,0 +1,47 @@
+Where do I even begin?
+
+The last couple of days have been a total whirlwind. I call up the company, course they don’t believe me so I show up at the company check in desk and give the poor clerk a heart attack. Minutes later I’m down in our airport offices, on a video call with a bunch of higher ups and some federal looking types. The first thing out of everyone’s mouth was pretty obvious.
+
+“You look different.”
+
+No shit. Every photo used in the media, every public facing photograph of me, shows a different man than the one sitting before them. Even the older documents on file with the company show that same man. Thing is, our fingerprints match. Or rather, mine match my own. 
+
+I wish I could say there was more talk about that but the FAA guys were really keen on getting the story from my POV. I told them everything that had happened before the flight, I told them about the unmarked flight corridor, I told them about the Saint Elmo’s fire, and I told them about how the cockpit was engulfed by a brilliant light, then waking up on a beach two weeks later. I couldn’t recall exactly where over the ocean we were when that all happened, but I was able to give them a rough idea.
+
+It was enough.
+
+A day later I got a call from someone at the company. They found the plane, its wreckage anyway.
+
+Search and Rescue craft acquired the black box signal about 600 miles east off the west coast. A few hours later dive teams retrieved the FDR, heavily damaged. 
+
+The black box itself remained intact, estimates from the damage to the craft and overall spread of the wreckage indicated the aircraft impacted the ocean at nearly 630 knots, or nearly Mach 1. But that wasn’t what damaged the data recorder and scrambled the CVR, it was the severe electrical damage it had sustained. I imagine it was likely related to the phenomenon that caused Saint Elmo’s Fire in the first place. 
+
+I did do a bit of research into that phenomenon, by the way. I may be a pilot but this level of physics is a bit beyond me. In essence, the only way Saint Elmo’s Fire could have formed the way it did would have required us to have flown into an environment so overwhelmingly charged with static electricity that it should have resulted in a lightning strike a thousand times over. Even still, such a phenomenon cannot exist in a vacuum. There had to be a cause and the only one that could have even approached the magnitude of what we experienced is, you guessed it, a volcanic ash cloud. I mentioned this during my initial debriefing with the FAA but they practically ignored it. 
+
+Recovery is still ongoing, and I don’t think I’m supposed to know this but one of the FAA guys mentioned it in passing, they haven’t recovered any bodies. It was almost as if there never were passengers aboard the aircraft. 
+
+I figured that was pretty odd, like how the hell does an entire plane end up with no passengers? Then again, I woke up back home after two weeks of god knows what. Maybe the other passengers are out there experiencing similar fates. 
+
+The FAA hasn’t gone public about the discovery yet. The public is speculating that they did find something due to the obvious increase in activity around the crash site, so I’d imagine its only a matter of time before it leaks. That or they give in and just tell everyone. I, however, have been ordered by some unpleasant men in suits to keep my mouth shut until they say otherwise. Not like I really have anyone to go blabbing to who’d believe anything I’d say. 
+
+I guess I am somewhat relieved to have a bit of closure. If you can call it that. I mean the question of how myself and 139 others just vanished is still ever-present. Even more confusing is the whole static charge thing. I mean shit, as it is, this is all way beyond my understanding. 
+
+It really feels like every day I wake up, I’m in someone else’s house, living someone else’s life. I mean I remember life before this. I remember the simplicity, the monotony, the Pho. The little things. 
+
+I also remember the big things. I remember when my ex divorced me for loving the job more than I loved her, but it turns out she just loved my friend more. I remember when they all abandoned me because she’d spun some lie about how I was cheating on her with some flight attendent half my age. I remember when my dad passed away from lung cancer. I remember when my mom died in an accident just a few months ago. 
+
+And I remembered how none of it seemed to really bother me. I’m not young, I’m pushing my late 40s. I kept getting colleagues asking if I was ok, saying I should take some time and sit back from flying. I told them no of course. I wasn’t going to do anything crazy, the AMEs made sure to check that. I truly just didn’t care. Maybe that makes me cold hearted, who cares. Only thing that mattered to me was flying. 
+
+I remember being a kid who took his first trip across the continent to visit grandma and grandpa in palm springs. I remember watching those beautiful silver beasts roar and soar through the skies as if they had always belonged there. I remember that sense of freedom, looking down on the world from above and seeing it all from a perspective no one ever considers. I remember my first discovery flight from my local Civil Air Patrol, the way I could feel the craft as an extension of myself. I remember working my ass off doing car sales to pay for my PPL. 
+
+I remember the whole damn journey from start to now. Yet everything after the crash just feels like I’m living someone else’s life, that im a captive audience just along for the ride. 
+
+I remember finally getting my ATPL, getting signed with my company, and getting my type rating. 
+
+And I remember that email. The weird one. The one that would creep up along the back of my mind during take off rolls down the reef runway. The one from the place that made my favorite Pho. 
+
+The one inviting me to… Gemini…
+
+What the hell was Gemini? Why can’t I remember any of it? Why can I only recall these bits and pieces now?
+
+Why the hell don’t I keep photos of myself in my house? 
