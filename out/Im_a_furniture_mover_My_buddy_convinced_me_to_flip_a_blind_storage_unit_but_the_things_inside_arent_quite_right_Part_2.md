@@ -256,5 +256,4 @@ I almost asked him which ones but decided I didn’t want to know.
 
 Some time later, I dragged a kitchen chair over and wedged it under the garage door handle. It wouldn't have stopped anything I had actually seen. My hands just needed something to do.
 
-It’s past midnight now. I don't want to be alone with these things, and I still have to get through tomorrow. I want the mirror and the ball gone the second that man's truck pulls in Monday. I’m also going to ask Henry if the guy wants the furniture. If he'll take the wardrobe too, it leaves my garage without me having to touch it.
-
+It’s past midnight now. I don't want to be alone with these things, and I still have to get through tomorrow. I want the mirror and the ball gone the second that man's truck pulls in Monday. I’m also going to ask Henry if the guy wants the furniture. If he'll take the wardrobe too, it leaves my garage without me having to [touch it.](https://www.reddit.com/r/AmoebaGold715/)

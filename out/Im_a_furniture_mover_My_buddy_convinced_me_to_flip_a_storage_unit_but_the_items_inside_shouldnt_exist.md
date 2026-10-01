@@ -322,4 +322,4 @@ The line went dead with a sharp click before I could utter another word.
 
 My mind kept looping around that single word she'd used. *Received.* Like the unit hadn't ever really belonged to a human being. It was just an anomaly that had shown up already packed, already wrong, and tucked away behind an orange roll-up door.
 
-I stood up and clicked off the kitchen light, plunging the room into darkness. Through the glass, the garage was dead and silent under the moonlight. I looked up at the small window of the garage door, tracking the line of the high shelf inside. I couldn't actually see the football in the dark, but as I stood there shivering in my boxers, I knew exactly which way it was facing.
+I stood up and clicked off the kitchen light, plunging the room into darkness. Through the glass, the garage was dead and silent under the moonlight. I looked up at the small window of the garage door, tracking the line of the high shelf inside. I couldn't actually see the football in the dark, but as I stood there shivering in my boxers, I knew exactly which way it was[ facing.](https://www.reddit.com/r/AmoebaGold715/)

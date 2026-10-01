@@ -1,0 +1,79 @@
+I'm the guy who calls from the sketchy number. The one trying to convince you to send money for something that doesn't exist. I'm a scammer. I know, I'm a scumbag.
+
+I also have a ten-year-old son, his mom's in rehab, and I just got out of prison. I needed a job.
+
+This morning I took my normal spot at the bank of computers and put on the headset. The computer immediately dialed a number.
+
+“Hello, hello, helloooooo,” the guy on the other end rang out followed by a childlike “hee hee.”
+
+I was surprised, people weren’t usually so excited by a cold call.
+
+“I’m so glad you called,” he said in an overly dramatic voice.
+
+I jumped into my normal routine “Hello, my name is…”
+
+“I have someone here you knoooow,” the guy interrupted.
+
+“Dad!” My son cried out.
+
+My stomach sank. I looked at the number I called, but didn't recognize it.
+
+“Where are you? Are you okay?” I whispered into the phone like I was telling a secret.
+
+“That’s up to you! That’s up to you!” The guy on the phone sang out.
+
+“If you hurt him I swear…”
+
+“Uh, uh, uh,” he interrupted. “What’s the first rule at work? No swearing at customers.”
+
+“I don’t know who you are but…”
+
+“Oh, but I know you,” he hissed. “Now go to the office by the back exit.”
+
+“What office?” I asked.
+
+“Oh, you’ll know,” he laughed. “It’s motivational.” he snickered and hung up.
+
+I stood and looked around, there was a row of offices behind me. I ripped off my headset and ran down the hall. There was one office door with a picture of a guy with a pained look on his face, his hand in a safe. I think it was meant to be one of those cheesy inspirational posters. This picture had one word across the top written in sloppy red crayon, INTEGRITY.
+
+I opened the door. The office was dark and tiny, maybe just a broom closet. There was enough light from the hallway to see a single desk and chair in the middle of the room. On the desk sat a monitor, an old phone, and a tiny space heater. The space heater was glowing red with the same word as the poster, this time backwards. INTEGRITY.
+
+The phone rang.
+
+I jumped a bit, and then picked it up.
+
+“Hello?” my voice quivered as I sat down.
+
+Suddenly two images appeared on the monitor. The first was a live feed of my face, up close. The second a live feed of some jackass dancing around.
+
+The guy rushed up to the camera, his face almost touching the lens. “Do one thing for me and your son goes free.”
+
+“Don’t you hurt him!” I shouted.
+
+“Dad, please! Don’t let him hurt me,” my boy’s voice rang out.
+
+“Don’t, please! I‘ll do it. Just tell me what,” I shouted.
+
+“Space heater on your face, space heater on your face,” the guy said with both hands on his cheeks rocking his head back-and-forth. “Five seconds to make it extra crispy.”
+
+I grabbed the space heater. It was so hot it started to singe my fingers. I held it close to my face, afraid to rest it against my skin. The backwards INTEGRITY smoldering in the dark room.
+
+“Dad!” My boy yelled. “Dad, please!” It sounded oddly the same as his last cry.
+
+“Hurry, hurry, hurry,” the guy teased. “Time is running out,” he said in a radio announcer voice.
+
+“I just need time to think,” I said. I’d heard it many times myself when I was the one making the call.
+
+“Dad!”
+
+It was all happening so fast. I shoved the heater against my face. I immediately screamed. I heard the sizzle of my flesh. The smell was worse, burnt hair and flesh. It made me sick, but I held back the vomit.
+
+“Three, four, five. Keep your son alive!” the guy shouted.
+
+I dropped the heater and looked at the monitor.
+
+The guy was dancing around clapping.
+
+My skin continued to burn. The pain, the sound, the smell too much. I passed out.
+
+I woke up five minutes ago in the small office. My cheek still on fire. The live feeds had changed. The first was my son, in his classroom, safe at school. The other was a photo, taken just now. It was a close up of my face. Tears fill my eyes. One word burned across my cheek, INTEGRITY. 
