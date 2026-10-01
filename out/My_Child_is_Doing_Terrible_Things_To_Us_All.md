@@ -1,0 +1,329 @@
+My husband hated our child even before it was born. 
+
+He'd wanted it more than I had, at the start of things. He'd clung to my waist with tears in his eyes, and had convinced me against all my doubts and indecision to keep it.
+
+I could have gone without. I was thirty-three. I liked my life. They tell you it's all over after you're twenty-nine, that there's nothing after that but looking back, wishing you’d done something else.
+
+For me it wasn't like that. I was happy.
+
+I liked my house. I liked being married. I liked farm shops and coffee runs and trying to grow vegetables in the little plot at the back of the house that would never be good enough to do anything with. I wanted to live a small life with very little responsibility.
+
+Now there was a child, and Andrew wanted it—I loved him, and so I supposed that I must want it, too. 
+
+I began to picture my life as a mother, trying to think how I could fit this other, unexpected person into my world. I began to care for it, this unborn being, yet the more the foetus grew the less my husband wanted anything to do with it, or any future where it would share our lives.
+
+Andrew could barely stand to look at or touch me throughout the pregnancy, but whenever I asked him about it he could never articulate why.
+
+Cold feet, everyone around me kept saying, but it wasn't that. Any other child, Andrew told me, and he would have been happy. It was this one he didn't want to keep. This one that shouldn't be born.
+
+It broke my heart. By then I loved my child completely, and though I saw that my husband was disappointed with himself and somewhat afraid of his own feelings I found that I resented him. Andrew was one half of our daughter, and it was as if they shared nothing at all.
+
+He only remained at the house because he loved me, and I let him stay. Better that than to be left to raise my baby alone, I told myself. My parents were dead, and they'd never had any money. My small life, which I'd prized, would soon be whittled down to nothing. Andrew worked, and earned enough to get us by.
+
+We waited for the child to be born in an awkward stasis, neither of us knowing how to be together. Loving each other too much for either of us to leave.
+
+It wasn't an easy pregnancy, which made tensions considerably worse. Though there was neither pain nor sickness there were other problems: cravings and strange, obsessive thoughts. Common, apparently, but still concerning enough for me to be seen by someone.
+
+To my dismay the obstetrician I'd been visiting and had grown to trust had developed a sudden onset of partial paralysis, the same hand that had touched my belly retracting into a sort of claw mid examination. 
+
+The doctor apologised profusely as I heaved myself down from the table, refusing to let her assist me.
+
+“You’re the one that needs help,” I’d said calmly, although I didn’t feel it.
+
+I’d gone alone to the appointment, Andrew refusing to come, and now there was a commotion in that cramped room, the assistants I’d called in from the hallway clustered around the obstetrician to comfort her as I bent, puffing and sweating, to pick my bag up from where I’d left it.
+
+The poor woman never regained the use of her hand, it seemed, for I was referred to someone else afterwards; I later found that Dr Colman had resigned. I couldn't stop thinking about the way the limb had closed up like a rat trap against her, the way she'd snatched her hand from me, working the rubber glove down over the rigid fingers so clumsily that it snapped, all the torn shreds quickly discarded.
+
+Disgust—that had been the look in Dr Colman’s eyes. That, and a strange yet certain blame. In that moment she’d seemed to think that I had hurt her, or that the child inside me had. Then the thought was gone, and she'd only been sorry and frightened for herself. I'd held her poor hand and comforted her even as my heart went cold with dread.
+
+I didn't tell Andrew what had happened. By then I knew that he'd agree with Dr Colman’s suspicions, though he'd have no way of backing the claim.
+
+Besides, I felt he’d already had more than enough to say about my eating habits, which had taken on an inexplicable change. Pica, the doctor had told me, cravings for unusual items, which are frequently dangerous to consume.
+
+Pregnant women can sometimes develop this, the baby demanding everything of the mother until her body fights to restock her supplies. I was in a deficit, the doctor had told me. It would pass.
+
+She had expected it to be dirt or ice that I was eating, perhaps chalk at a push, the usual cravings. By the time I had my first appointment with the new obstetrician I knew that my tastes were unusual even for a pregnant woman. I should have stopped myself before it had a chance to develop any further, to be considered an illness. Something real. 
+
+Andrew had walked in on me unwrapping my own hair from a brush in the night, satisfied by the crunch of the filaments through my teeth. I'd even pick it from my own scalp, sometimes, or from Andrew's as he slept, finding his had an oily quality that I preferred over my own. 
+
+Then I’d discovered the tin of baby teeth that my mother had saved from when I was little, and I had eaten them all, crunching the enamel down to dust. Afterwards I'd burst into tears, and Andrew had made me go to see my new doctor, whose concerns only made me feel defensive, shaken by the critique.
+
+I wasn't allowed to eat the things I wanted anymore. It could cause an obstruction; I could damage my own teeth, contract an infection of some kind. I could harm the baby.
+
+Rationally I knew that all this was possible, even likely, but I was of the stubborn opinion that it wouldn't hurt me, that it was even good for the child. I ate all the hair I could in private until there were always strands of it wrapped around my molars, tickling my tongue with their tips. I'd pull them out and eat them later, though never in front of Andrew, of course. I wanted him to think that I'd given it up.
+
+In time I took to purchasing bundles of human hair online, batches of teeth that might have been stolen from the grave for all I cared. I never thought about where it all came from. I just wanted to eat.
+
+I'd tried to quit, but the cravings would scratch and wheedle their way around every thought until they were unbearable. When I had a tooth or a curl of hair in my mouth all of that went away. I only ever felt full after I'd swallowed them, but it wouldn't last long, only a few hours or more.
+
+The teeth started to wear my own down, running a pain through my jaw. The hair would sometimes get stuck in my throat, and I often thought that if I wasn’t pregnant I’d be hideously bloated anyway from where it must have all gathered inside me.
+
+My sister-in-law, Annabelle, found me in the kitchen one night, picking one of her long auburn hairs from the floor. She’d come to stay with us after some pleading from Andrew, who seemed to think that she could pull me out of the craze that had come over me.
+
+We’d known each other as children, Annabelle and I, having both attended the same school. I hadn’t met Andrew till much later. He’d lived with their father, an agreement made amidst a nasty divorce, and so it was Annabelle I went around with, she who had introduced us later, and only been a little annoyed when we had fallen in love.
+
+Like any sister, Annabelle sighed heavily when she found me, fat and panting, trying to hoist myself up from the dirty floor. Then she saw what I’d been trying to do, and she tottered in astonishment, her heeled boots almost slipping on the tiling.
+
+“Diane,” she said. “Oh my god. You’re just like your mum.”
+
+“What do you mean?” I said, squinting at her.
+
+My mother had died when I was nineteen of organ failure. Sometimes it seemed as though Annabelle remembered more about her than I did. There were a lot of memories that I couldn’t keep hold of anymore. Loss did that to you, the pain of it. It took names, faces, entire months of life away, as though you could only go on if you could forget.
+
+My father hadn’t been a nice man, and so when he’d passed of alcohol poisoning it hadn’t been the same. But I had loved my mother. Sometimes when I thought of her I wouldn’t know that I was crying till I went blind.
+
+“Your mother,” said Annabelle. “Orla. She used to eat hair. I think she only stopped after you were born. I remember hearing them mention it once, your mum and mine. They were talking about cravings they’d had. My mother used to eat bars of soap, or she’d wanted to, anyway. She couldn’t keep them in the house. So Orla said she hadn’t craved anything until Jenny reminded her about the hair. Your mum used to have such a long plait, and she’d suck the end of it, or pull bits out and bite them into pieces.”
+
+I gripped hold of Annabelle’s arm as I lowered myself into a kitchen chair, the wood squealing under my weight.
+
+“Mum never said anything about it to me,” I said. 
+
+Annabelle sniffed.
+
+“Well. It’s not really something you’d go around telling everyone. Anyway, Orla said it wasn’t a craving. She told Jenny that some old woman recommended eating hair to her as some sort of folk cure for infertility. That you could eat it even after you were pregnant if you wanted a healthy child.”
+
+“That’s mad.”
+
+“Well, that’s what your mum said. She might have made it up. She was probably embarrassed about it, you know.”
+
+My hand went to the top of my belly, thinking of the child in it. Wondering if it already had hair.
+
+“Mum was a horrible liar,” I said. “I remember that, at least. She wouldn’t have made anything up. Who was this old woman?”
+
+“God knows,” said Annabelle. “A friend of the family. Or a neighbour or something. Crazy anyway, clearly. What kind of person suggests that kind of thing?”
+
+I laughed a bit.
+
+“I’m here, aren’t I? Maybe it worked.”
+
+“Just imagine. It’s probably where you get it from, this thing with the hair.”
+
+I didn’t say anything about the teeth, though I couldn’t help wanting to know if my mother had eaten those in secret, too.
+
+“You need to stop it, anyway,” said Annabelle, suddenly serious. “Don’t you know how you could end up?”
+
+She showed me a picture on her phone of a great wad of hair like a piece of hairy stone. It made me feel hungry to look at it.
+
+“You want that thing inside you?” asked Annabelle in disgust. “It’s as big as another baby. There won’t be any room.”
+
+I started to have strange thoughts about my child, then, not hateful like Andrew’s, but very odd, even so. I imagined the baby would be born made of hair, or with strands wrapped tightly around it, growing into ribs of flesh. None of these ideas repulsed me, for I knew that I would love it all the same.
+
+It was the lack of fear that frightened me, in the end. I was afraid that I’d let something awful happen to my child and not understand what I’d done till it was too late to take it back.
+
+In a panic I threw out all the teeth and the hair I’d bought and restrained myself from looking for more of it. The cravings muttered to me, but I forced myself through, thinking of my baby. Loving it more than I loved myself.
+
+I knew that Andrew was dreading the birth, but he still went with me to the hospital when the time came. His leg bounced restlessly as he sat by my bed, the constant movement driving me mad. I felt like every doubt and hatred he had for our child was in that tetchy motion.
+
+Even when I was deep in labour, shoving and moaning, I kept wanting to grab hold of Andrew’s knee to hold it down flat. When my little girl was out of me and in my arms he wouldn’t look at her, only winced and kissed me, glad that I’d gotten through all that miserable pain. That I was still alright.
+
+“Drew, for Christ’s sake,” I said. “She’s so perfect. Please just hold her even for a second.”
+
+No new-born is truly perfect, of course; the child was raw and shrivelled with filmy eyes, the sticky head bearing a sole wisp of red-black hair. Still I’d expected Andrew to see her as I did, for his dislike to change.
+
+If anything it was worse. 
+
+“You’re her dad,” I said pitifully, and Andrew jerked, appalled.
+
+“Do you think there was someone else?” I asked him. “Is that what it is? Because there wasn’t, okay?”
+
+“I know that!” Andrew snapped, then, with a guilty look, he repeated himself softly. “I know that. But there’s something wrong with it.”
+
+“What if there is?” I asked, defiant.
+
+“I don’t mean an illness. I mean... I don’t know.”
+
+I looked at my baby, my Liana, as I’d named her, and I felt for the first time the same disquiet my husband had for so long. 
+
+I remembered the poor obstetrician, her hand in a coiled hook, having touched my pregnant belly even through a glove. I wondered if you were to cut that hand and open it up you’d find teeth embedded in the muscle, hair calcified around the bone.
+
+Once we left the hospital I raised Liana almost entirely by myself. Andrew refused to touch or feed her, even to handle any of her bedding or clothes. He cast himself into housework to make up for it, or else toiled away at endless overtime at the office so that I couldn’t say he did nothing at all.
+
+Liana was a quiet child that rarely cried or made any sound at all, but I was exhausted nevertheless by the lack of help. The lack of love.
+
+Annabelle, who had gone back to her own house at my insistence, soon returned again, this time bringing her little dog with her, a stubborn sign of her resolution to stay for as long as she felt was necessary. The help greatly relieved me.
+
+It wasn’t only the lessened workload I was grateful for, either; since I’d given birth I’d begun to notice small things that were wrong with the child, so slight that they may well have been imagined.
+
+She didn’t behave much like an ordinary new-born. Though her eyes were still that same viscous blue she looked about her with a silent intelligence, one that had opinions about things, and not very pleasant ones.
+
+Even as she grew she wouldn’t laugh or respond to any kind of affection. A year and a half went by, and still she wouldn’t play with toys or respond to us when we spoke to her.
+
+All the child would do was lie or sit very still, watching us all as we went about the house. The only time she would react to anything was if anyone touched her hair, which had grown long, almost down her back; she would grasp a hand or finger with a vicious grip, the little white nails pricking the skin.
+
+“She’s certainly healthy,” Annabelle said once, uncomfortably prying the small fist away.
+
+Annabelle’s dog, Olive, had started to show a great interest in Liana, sniffing her cradle passionately, attempting to lick her balled hands or expressionless little face. Though the child never screamed or cried when the spaniel came near it was obvious that she didn’t like her, and I made an effort to keep Olive far away despite the harmlessness of her affections.
+
+The few occasions I had witnessed Andrew interact with the child was to hoist her away from the dog, having seen her touch it with splayed fingertips. The second time he did it Andrew dropped our daughter roughly on the bed and immediately went to wash at the bathroom sink, scrubbing until the skin was scored bloody from a nail brush.
+
+“What was that about?” I asked, going to the child.
+
+“I don’t want her near that dog,” said Andrew harshly.
+
+“What’s wrong? She won’t bite.”
+
+“I know. It’s not Olive I’m worried about.”
+
+He darted the child a look of hate, which she steadily returned.
+
+Liana had two full rows of teeth in her gums, their tips like dolls house cutlery, small but curiously sharp. I’d never seen her bite anyone with them, however, nor did I think that this was what Andrew had meant.
+
+“You don’t know anything,” he told me. “You don’t bother with Olive. I’m the one that cleans up after her when Bella’s out. I’m the one that saw it.”
+
+My hand went to rub tiredly at one eye.
+
+“Saw what, Drew?”
+
+“Olive was throwing up hair in the back garden the other night. Christ, I thought she’d never stop. It just kept coming out of her. At first I thought it was what was left over from all that stuff you were buying online. Oh, you thought you hid it, I know. But you didn’t. Anyway, it wasn’t that hair. It was too long. It’s not possible.”
+
+From his tone I could tell he wasn’t telling a lie. Still, I couldn’t believe him. 
+
+“What are you saying?” I asked. “That the baby did it somehow?”
+
+“Yes,” said Andrew grimly. “And that’s not all. I woke up from a nap the other day to it touching my face.”
+
+“Drew,” I cried. “She’s a human being. Our little girl.”
+
+Andrew laughed, and I noticed how thin his face, his voice had gotten. He was wasting away into nothing before my eyes.
+
+“No. She’s not mine. You’re the only one she cares about. Look what’s she’s done to me.”
+
+Andrew pried open his mouth at the side and gestured for me to look. Twin rows of new teeth were growing in behind the old ones, the gums raw, seeping with blood, and on the roof of his mouth had grown many red hairs, wavering in the current of his breath.
+
+Fear pulled a string in my belly.
+
+“Oh,” I said. “Oh, Andrew. How long have you been like that?”
+
+“Weeks,” he said dully. “You just haven’t noticed before.”
+
+“No. That can’t be right.”
+
+Andrew pointed at the child, which sat coolly watching us, still as a stone.
+
+“It’s malicious. It’s doing it on purpose.”
+
+“That’s stupid,” I said. “Even if she was making these things happen—”
+
+“It is.”
+
+“—If she is, why would you think she means to? She’s just a child. She doesn’t know what she’s doing.”
+
+Andrew ushered the dog out of the room, aware that she’d started to jump up on the bed.
+
+“You’ll see,” he told me. “Things are just going to keep happening to us all, and then you’ll have to face it.”
+
+I picked Liana up and held her to me, kissing her dry round cheek.
+
+“This is getting out of control, Andrew,” I said. “You need help.”
+
+Still, I was starting to question things, developing suspicions of my own.
+
+I often thought about the old woman that had instructed my mother to eat hair. Maybe Orla had angered her, somehow, and had unwittingly been given instructions to bring about a curse. Or maybe the woman really did want to help, but the spell had gone wrong, or she was old and had gotten mixed up. Had used the wrong magic, a horrible kind. 
+
+If that was the case, why hadn’t I become what Liana was? Why had I only been like my mother, longing to eat things I shouldn’t?
+
+Perhaps whatever the old woman had done to Orla was passed down to the child of her child, poisoning each womb with this spell of hair. Then it occurred to me that I might have altered Liana myself, bringing teeth unwittingly into the mix, tainting the magic of it.
+
+It was nonsense, surely, but it was all that I could think of. 
+
+I couldn’t resist prodding Annabelle about it.
+
+“Did you ask your mum what happened to that old lady?”
+
+“Oh, yeah! I forgot to tell you,” said Annabelle, dancing Liana on her lap.
+
+She tried her best with the child, though she was never rewarded with the smiles and laughter she was hoping for. Liana was, at all times, like a child carved from wood, stiffly unamused. She tolerated Annabelle’s unconditional affections, but she didn’t enjoy them. 
+
+I was the only person that Liana had shown even the remotest attachment to since she was born. She’d started walking very early, and would follow me everywhere on reedy legs. Even as Annabelle lavished her with attention I sensed my daughter wishing for me. Though she never smiled there was a kindship between us, an easiness of being together she had with no one else.
+
+“So I found out what happened,” said Annabelle. “The old woman died. Mind you, she must have been coming up to eighty by then. Dementia, the poor soul. Orla was good to her. Used to cook and clean for her without expecting anything back. She kept looking after her even when she started getting nasty. Well, it’s not as if she could help it. She wouldn’t have known what she was saying, bless her. Damned Orla one minute and loved her the next. Like being a child all over again.”
+
+That was all it took. I believed everything, then. I looked at my daughter, who had clearly been listening, sucking on a loop of her red-black hair. Those eyes, always blank, had something in them that I couldn’t describe. 
+
+A sort of hate without passion behind it, as instinctive an emotion as love. If I'd known what it was then I would have whisked my daughter out of Annabelle's arms and raised the child by myself, all alone. But I felt I couldn't go on as I had before, bearing every parental responsibility until my back hurt like it would break. So my sister-in-law pushed the child in a pram, sang to her, jostled her on her hip, and unbeknownst to any of us, all the while, those little clinging hands changed something within.
+
+In under a month Annabelle was beginning to notice an acute abdominal pain, so severe that she was no longer able to help around the house much. She soon moved back home with her mother to be tended to. Then there was bleeding that frightened her, tests that turned into a surgery, scheduled just a handful of weeks after her initial diagnosis.
+
+Annabelle wouldn't tell any of us what was wrong until she was in the hospital ward, ready for visitors. Only Jenny knew what had happened; Andrew and I had passed her, hands full of tissue, in the corridor, offering us a weepy smile as we pushed through the double doors.
+
+"Let me have Liana," Jenny said. "Bella's not keen on having her in there with her. She'll tell you why. Oh, Lord, at least she's alright, but..."
+
+"It was an ovarian tumour," Annabelle told us, once we'd all exchanged delicate hugs, and Andrew and I had sat down in the uncomfortable seats by her bedside. "It was huge. I begged the surgeon to take pictures of it. Lost one of my ovaries, though. Mum's distraught. I told her the other one's fine, but she won't have it. Might as well be dying for the hysterics she’s been having."
+
+"A tumour?" I echoed. "Bella! You should have told us sooner. I can't believe we didn't know."
+
+"I can show you, if you like,” said Annabelle. “Drew, you might want to go outside for this. I know you're squeamish."
+
+He looked only too glad to go, his face bearing a sickly yellowish cast.
+
+Annabelle offered me her phone, the screen open to a picture of a fatty mass displayed on a paper sheet. It was vaguely kidney shaped, having been cut open to reveal sprigs of wet black hair, the viscous blobs of rudimentary eyes. The studs of white teeth, pressed in deep.
+
+“It’s a teratoma,” said Annabelle factually. “They wouldn’t let me keep it. Spoilsports. I could have kept it in a jar and put it out for Hallowe’en.”
+
+I glanced at Annabelle, and she nodded at me, grasping instantly the thought that was in my head. 
+
+"So you believe it now," I said. “All this about Liana.”
+
+It wasn't a question; I knew. Andrew had told his sister everything some weeks before, and though Annabelle had resisted him I’d felt her pulling away from me, piece by piece.
+
+"I can't come back home, now," she said gently. "I want kids of my own, one day. I can't risk my health. Not now mum's getting on. I want to be around to look after her. Are you going to be alright on your own?"
+
+I peered down into the foul black coffee Andrew and I had gotten from a battered machine further down the ward. The look of it alone made me ill.
+
+"Honestly, though," said Annabelle. "What are you going to do about the baby?"  
+
+"Look after her," I said limply. "It's what I'm supposed to do, isn’t it?"
+
+Andrew became even more withdrawn, which I could hardly blame him for. But then there were other, new behaviours; pacing the bedroom at night, vanishing at odd hours—friends had seen him parked up at the roadside or in remote streets, his head in his hands.
+
+I wanted him to see a doctor, but I could see by now that it would do nothing to help him. As long as the child was in the house with us he would suffer.
+
+I didn’t know what to do. Though I was convinced by now that Liana was hurting the people around us I still loved my daughter. I didn’t want to give her away—couldn’t, anyway, having an idea now of what she was capable of.
+
+Sometimes when Andrew was at work I’d sit opposite the child as she ate mechanically with a plastic spoon or stared, flat eyed, at the television. Watching her. Trying to reach her.
+
+“Why?” I’d ask. “Why are you doing this to us? What have we done?”
+
+Her weird foggy eyes would drift across me, impassive, and she’d go back to doing whatever it was that I’d given her to do.
+
+I knew why she was cruel, or thought I did. She wasn’t human, and had never been; she had been changing everyone around her even before she was born.
+
+I, who had been made from the hair spell, was alone immune. Perhaps the child felt something like love for me, if she could feel at all. You could never tell with her. Her face was like a glass mask, cold and inflexible. You could only see as far inside it as she’d let you.
+
+I was afraid of what she’d be when she grew older. What a child that was without morals or boundaries would do in response to the merest irritation, not even an insult. 
+
+I started to sleep badly, too. 
+
+In the mornings I’d lie in bed for hours, knowing the child would be waiting indifferently for me to tend to her.
+
+Then, one day, when I went into Liana's room to get her up I found her crib empty. I wasn’t immediately alarmed; she’d started climbing out of it by then and going around the house on aimless patrols sometimes before anyone else was awake. Quickly I realised that she was not at home, however, having gone through every room, calling her name.
+
+Immediately I tried to call Andrew, but he wouldn’t answer the phone no matter how many times I attempted to get through, no matter the amount or urgency of the messages I sent to him.
+
+He had left early to go to the office; I vaguely remembered him getting out of bed and shuffling around the room, tucking the blankets in around me. Loving, the way he was before the child.
+
+I went back to look in the crib and noticed that Liana’s blanket was missing. A small thing, but I saw, then, what had happened. That my husband had gotten up early, wrapped the child up in a tight swaddle so that he wouldn’t have to touch her, and had taken her away somewhere. 
+
+Shock hit me with such force that I could only lean against the wall, cooling my face against the plaster. Then I went for my phone again and called the police.
+
+I don’t know what I told them—that my husband was ill, that he couldn’t be trusted with our daughter, that he might hurt her or himself, or give her away to a stranger. Perhaps I said all of it. The entire conversation was out of my head as soon as it was over.
+
+I sat in the kitchen drinking coffee in numberless cups. My head pounded. My eyes swam.
+
+Whatever my daughter was, she had come from me. I had made her. We were the same. I had always been quiet, as she was. Happy with simple things, away from people and the world. In some ways I understood her, this strange monster. She was from a land of elf kings and drakes, not this one at all.
+
+Then again, she would have been hated wherever she was.
+
+The police came to my door around midday, a male and female officer. Both looked too young to be delivering the news that my husband was dead, having jumped from the roof of his office building, seemingly with our child in his arms. Yet though witnesses had seen her with him as he’d stepped into the elevator, and security footage would later be recovered proving the point, she would only ever be classed as a missing person, in a legal sense, at least.
+
+Though Andrew’s body was found, shattered by the fall, no infant had been discovered with him, which the officers had shamefully admitted with the assurance that they would keep up the search. 
+
+I knew that they wouldn’t find her; I had already begun to grieve. There was relief there, as well, a secret I’d keep to myself. Who could I tell? Who would understand?
+
+Annabelle was the only person I thought I could speak to, but she would close up against me after Andrew’s funeral, repelled by what we both understood had happened, and glad to move on from it all.
+
+There had been only one thing found alongside Andrew’s corpse—not my daughter, as I had been firmly assured, but a wet tangle of reddish dark hair with white teeth embedded in it. The quivering grey balls of eyes. 
+
+The weird mass had reportedly moved when witnesses had approached, but by the time the authorities arrived at the scene it was no longer there. 
+
+Perhaps it had crawled away somewhere to die, or crows and magpies had picked at it, taking the eyes for their children to eat, the teeth as treasure, hair for their nests. But I felt in my womb that my child was gone, just as though she’d never been born to begin with.
