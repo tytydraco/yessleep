@@ -409,4 +409,4 @@ Thunder rolled over the sky, landing with a thud onto the ground. Lighting bounc
 
 Slightly turning, making sure to be out of view, I swallow and sigh. Can’t be seen as nervous. Turning back around I felt like a captain of a ship in rough water. Strong and stern. Willing and honoring an unspoken pledge — to go down with the ship. 
 
-Cont.
+Cont. [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1wun4mq/i_figured_out_the_meaning_of_life_the_universe/)
