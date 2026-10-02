@@ -1,0 +1,944 @@
+ 
+
+ 
+
+Cold…
+
+Blood freezing on the ice…
+
+The pressure behind my eyes forces me to my knees.
+
+Madness enters slowly. Perhaps madness is always slow at first, so that we mistake it for thought.
+
+There is blood on my hands.
+
+I gaze at the merciless gray sky and let out a muffled scream of utter despair.
+
+Then I look back.
+
+There, in the distance, I see it.
+
+It wasn’t supposed to be like this.
+
+**The Week Prior**
+
+“Gary, can you pass me the kettle, please?”
+
+“Sure, buddy.”
+
+Gary, a man with a thin face and deep-set black eyes, plucked the iron teakettle from the blue table and passed it over. I carefully poured water into my mug. My hands were still shaking from the cold.
+
+Izo sat against the wall, looking at me with his usual small smile.
+
+“Was it colder than usual?”
+
+“Yeah. Damn right it was. The wind felt like it was trying to rip my skin off, even with all the layers and the cream.”
+
+Izo laughed. He was a strange fellow, always finding humor in unlikely places. Yet he was also the most reliable of us during expeditions. He never made mistakes. He was methodical to the core.
+
+I sometimes wondered what would happen if he found himself in a situation he could neither control nor repair. Perhaps I wondered because I needed to believe such a situation did not exist.
+
+“Valery and Norm must both be feeling that cold biting their asses,” Gary said.
+
+He passed the kettle to Izo, who poured hot water into his teapot.
+
+Izo took a sip. “This is good.”
+
+“What? Them getting their asses frozen?”
+
+“The tea. Good green tea. I’m glad it wasn’t ruined during the trip.”
+
+Gary looked toward the computer screens in the corner. A red dot glowed at the top of each one.
+
+“They still haven’t fixed the problem at the communications center.”
+
+“And what if they don’t?” I asked.
+
+Izo laughed again. “It’s funny being trapped on the ice with no communication, right?”
+
+“We’ll be fine,” Gary said. “Worst case, we take the snowmobiles back to the boat.”
+
+This time Izo laughed.
+
+Gary shook a finger at him. “That is far from the worst case. The storm might continue for days. The boat could separate from the ice, and we could lose it. No communication, no way out—hell, even that isn’t the worst thing I can imagine.”
+
+Izo fell silent, though the smile remained on his face.
+
+“Couldn’t we go to the north station?” I asked. “There are probably people there.”
+
+“Sure. Only a hundred miles away. What could go wrong?”
+
+“Don’t be such a pessimist. We found incredible things here. We’re going to bring them back.”
+
+The door opened.
+
+Norm entered first, a tall blond man with bright blue eyes, a full beard and a large mustache. He looked like a Viking. Valery came in behind him, removing his doubled hats and hood to reveal his round bald head.
+
+Gary stood.
+
+“No results? Nothing?”
+
+Norm shook his head, went to the cabinet and poured himself a large shot of gin. Valery followed his example.
+
+“Oh, far from nothing,” Valery said. He drew a deep breath and sat down. “It’s best if all of you go and see. It’s bad. Very bad.”
+
+I moved toward him. Valery was easier to talk to.
+
+“What did you see?”
+
+“The maintenance man from the far north station. Robert. He wasn’t there. Maybe his body is somewhere nearby, but…”
+
+His voice faded. Fear seized my heart before I knew what I feared.
+
+“Explain,” Izo said.
+
+“There was blood,” Valery continued. “A great deal of it. It looked as though someone had dragged a body through the doorway. But outside there was nothing except snow. There were claw marks on the walls. Broken tables, broken computers, severed cables. The transmission dish was in pieces.”
+
+“Could it have been a polar bear?”
+
+Norm slammed his palm against the table.
+
+“No damned polar bear. We saw something moving in the storm. There’s some kind of cave near those large ice hills. We drove back here, but we think it followed us.”
+
+I sat down slowly.
+
+“What was it?”
+
+“Who knows? All I know is that when the storm calms, we take our weapons and investigate that cave.”
+
+“Not everyone,” Izo said. “Two stay here. Three go.”
+
+“I agree,” said Valery.
+
+“And nobody drinks too much,” Gary added, looking at Norm. “We need clear minds.”
+
+“I need sleep,” Norm answered. “Alcohol is the only way I get any.”
+
+He disappeared into the hallway and slammed his door.
+
+Valery poured himself tea.
+
+“Norm seems badly shaken,” I said.
+
+“We both are. It’s the not knowing. When you don’t understand what you are facing, you realize how little control you ever had.”
+
+“It’ll be fine,” Gary said, though he sounded as if he were trying to convince himself.
+
+He moved to the little window and stared into the storm.
+
+“You won’t see much,” Izo told him.
+
+“That’s fine. I need to be alone.”
+
+The rest of us went into the kitchen. Izo prepared another pot of tea while Valery and I opened some meat bars. I took one bite and looked at mine with disappointment.
+
+“Don’t be picky,” Valery said. “We’re fortunate to have food. We don’t know what the future will look like.”
+
+“I’m grateful. It still tastes horrible.”
+
+Izo and Valery laughed.
+
+Izo lifted a green ceramic cup decorated with wavy lines.
+
+“This belonged to my grandfather, and then my father.”
+
+“And someday your son?”
+
+“If I get back to him.”
+
+He smiled grimly and poured our tea. Steam curled from the cups like something alive but harmless. I breathed in its aroma and wrapped my hands around the warmth.
+
+“Valery, would you stay with Norm while Gary comes with Izo and me?”
+
+“No. Norm would never accept that. You know how macho he is.”
+
+“Then you stay with Gary.”
+
+Izo’s eyes widened.
+
+“Why are you so eager to get me killed?”
+
+Then he laughed.
+
+“Everyone wants you nearby because you’re reliable.”
+
+“Even the fastest horse becomes the slowest one day.”
+
+“Not you. You’re coming, yes?”
+
+He assumed an air of mock dignity.
+
+“Of course. I live to be challenged.”
+
+We drank in silence. It was the kind of silence in which each person was permitted to remain alone without leaving the company of the others.
+
+Norm eventually appeared in the hallway.
+
+“Tomorrow morning. Who’s coming?”
+
+“I am,” I said. “And Izo. Valery and Gary stay.”
+
+Gary appeared behind Norm.
+
+“Although I had no part in that decision, I’m glad.”
+
+Norm stared at us, then returned to his room.
+
+Later, as I prepared for bed, Izo asked, “Do you think it was a polar bear after all?”
+
+“Maybe Robert lost his mind and caused the destruction himself. Then perhaps a bear got him outside.”
+
+Valery lowered his cup.
+
+“I don’t know how a person could imitate those claw marks. But human beings are capable of unbelievable things—good and bad.”
+
+“I suppose we’ll find out tomorrow.”
+
+I took my mug to the sink and went to my room.
+
+The old heater beneath the window kept the room from freezing, but not from being cold. I dropped my coat on the worn brown chair and looked into the narrow, cracked mirror on my desk.
+
+Worry stared back at me.
+
+Was I transparent? Could the others see everything inside me? Sometimes the face is a traitor, revealing the thing we struggle to hide even from ourselves.
+
+I lay beneath my heavy black blanket and switched off the pathetic bulb we called a lamp. Dim daylight leaked around the edges of the shade.
+
+As I drifted toward sleep, the shadow of a large, clawed hand seemed to pass across the window.
+
+I sat up and seized my gun.
+
+Nothing was there.
+
+I lay down again but turned my back to the window. This did not help. When you believe something is watching you, turning away only gives it privacy.
+
+Eventually I slept.
+
+I dreamed of a river of blood. Ice surrounded it, and I could not pull myself onto the shore. My hands slipped. The waves covered my face. I tried to call for help, but blood entered my mouth.
+
+Was this the end?
+
+Had my life always been moving toward this red water?
+
+I awoke clutching my throat. It was four in the morning.
+
+“What is happening to my mind?”
+
+I buried my face in the pillow and begged for dreamless sleep.
+
+Two hours later Norm pounded on my door.
+
+“Six o’clock! Get up, Princess. The weather is clear.”
+
+“Give me a few minutes.”
+
+“Go drink coffee with the other addicts.”
+
+I found this amusing coming from a man who needed gin to sleep, but I said nothing.
+
+The smell of coffee drew me into the kitchen. Izo was waiting with my mug.
+
+“I made it strong. I want you alert.”
+
+I drank.
+
+“Very strong. How much is left?”
+
+“Two or three weeks’ worth. Hopefully we’ll solve this before then.”
+
+“We’ll be fine.”
+
+“That’s the spirit. Coffee has restored your courage.”
+
+Valery came in for water and a slab of salo.
+
+“Will you ever try that?” I asked Izo.
+
+“No, thank you.”
+
+“It’s good.”
+
+“Only if I’m starving.”
+
+Norm marched into the room.
+
+“Finish. I’ll prepare the snowmobiles. Izo rides with me. You take the smaller one.”
+
+He slammed the door behind him.
+
+As I rubbed protective cream onto my face, Gary emerged from his room looking exhausted.
+
+“Bad sleep?”
+
+“No sleep. I thought I saw something outside my window.”
+
+Cold traveled down my spine.
+
+“Yes. The mind plays tricks.”
+
+Izo studied me.
+
+“You all right?”
+
+“Fine.”
+
+But the word *fine* sometimes means only that we are still capable of pronouncing it.
+
+We went outside.
+
+The cold entered through every layer. I breathed, and vapor appeared before my face—the visible evidence that I was alive.
+
+The sky was dark gray, and fast-moving clouds warned that the calm would not last.
+
+We started across the ice.
+
+In the far distance, I saw a colony of penguins moving frantically in a circle. At the center lay one large bird, jerking violently upon the ground.
+
+I slowed, disturbed by the sight, but Norm was moving farther ahead. I accelerated.
+
+Soon the ice hills appeared.
+
+Norm stopped between two of them and pointed toward a circular opening where the hills met.
+
+“There.”
+
+The cave was almost the height of a man.
+
+We fastened lamps to our heads, checked our weapons and approached it. Frost clung to Norm’s beard. His exposed cheeks were dark red.
+
+At the entrance, a slippery slope forced us to jump. Izo nearly fell. Then we entered.
+
+The floor was ice, yet certain sections had a roughness that gave us traction. Had something treated it? Had many feet passed through here?
+
+The air seemed older inside the cave. I knew this was impossible, yet I felt it. As though the cold itself remembered.
+
+Norm raised one hand.
+
+“It opens into a large chamber,” he whispered. “Dead end.”
+
+Then he added, “Something is here.”
+
+I tried to quiet my breathing so I could hear better. Instead my heart became louder.
+
+Heavy breath came from the darkness.
+
+Norm raised his gun.
+
+“It’s moving. It’s not human. Not a bear either.”
+
+We stood with our backs together, sweeping our lamps across the chamber.
+
+Something moved to our left.
+
+We turned.
+
+It stood against the wall with its back to us.
+
+Tall.
+
+Thin.
+
+Black.
+
+Four long, narrow arms.
+
+Needle-like fingers.
+
+Its head turned slowly.
+
+The creature had enormous black eyes without expression. No nose. Its strangely shaped mouth opened.
+
+It breathed.
+
+A red mist traveled toward us through the beams of our lamps.
+
+I seized Izo and pulled him aside.
+
+“Move!”
+
+“Run, Norm!”
+
+Izo and I bolted into the tunnel, falling and sliding against the ice. Gunshots thundered behind us.
+
+“Don’t look back!”
+
+Someone followed close behind. I prayed it was Norm.
+
+We burst from the tunnel. He emerged after us, and all three of us ran toward the snowmobiles.
+
+Norm struggled to speak.
+
+“It took the bullets. I think it smiled while I shot it.”
+
+“The red mist touched you. Are you hurt?”
+
+“No. Let’s get the hell out of here.”
+
+We sped toward the station.
+
+My driving was erratic. The creature’s face remained inside my mind. Sometimes terror is not the fear of what stands before us, but the realization that it now lives within us as an image.
+
+I forced myself to focus.
+
+The penguin lay motionless in a pool of blood. The others were gone.
+
+Had the breath touched it? Had the creature forced it to destroy itself?
+
+What had happened to Robert?
+
+What was that thing? An alien? A deformed animal? Something ancient that had slept beneath the ice?
+
+The worms we had extracted during our drilling were deformed too.
+
+What if we had released it?
+
+No. We would have seen it.
+
+Wouldn’t we?
+
+Snow thickened against my goggles. By the time we reached the station, Norm and Izo were already dismounting.
+
+We rushed inside.
+
+“Barricade the doors!” Norm shouted.
+
+Gary and Valery stared at us.
+
+“Sit down,” I told them. “Izo, please make tea. I’ll explain.”
+
+While Norm moved furniture, I described the cave, the creature and its breath.
+
+Valery listened quietly. Gary began trembling. His face seemed to collapse inward.
+
+“Did the mist touch any of you?”
+
+“Not Izo or me. I’m not sure about Norm.”
+
+I told them about the penguin.
+
+“What do you think it is?” I asked.
+
+“An alien?” Gary whispered.
+
+“Perhaps something frozen long ago,” Valery said.
+
+“Is that possible?” asked Izo.
+
+“Before today, we didn’t believe such a creature was possible.”
+
+Gary’s hands fidgeted.
+
+“We have to leave for the main station immediately.”
+
+“A storm is coming,” I said. “We barricade ourselves inside and leave as soon as it passes.”
+
+“What if the creature waits for us?”
+
+“We cannot think about everything at once.”
+
+“But everything is thinking about us,” Gary said.
+
+No one answered.
+
+Norm emerged from his room sometime later, swaying. He opened the cabinet, seized the gin bottle and smashed it against the counter.
+
+A shard of glass lodged in his palm.
+
+He studied it with curiosity, as though the hand belonged to another person. Then he pulled the glass out. Blood streamed down his wrist.
+
+He clenched his fist and returned to his room.
+
+We looked at one another.
+
+Men had gone mad in stations like ours before. Isolation could loosen something in the mind. But the thought of the mist remained between us.
+
+The breath.
+
+“Well?” Gary demanded. “It touched him. What do we do?”
+
+“I don’t know. It may be a breakdown.”
+
+Izo laughed.
+
+We all stared at him.
+
+“I’m sorry,” he said. “Isn’t it better to laugh than cry?”
+
+He went to bed carrying his tea.
+
+I returned to my room and sat facing the window.
+
+Alone, I allowed myself to feel the terror. In company, fear had to share the room with other people. Alone, it possessed everything.
+
+I lay back and watched the ceiling.
+
+A shadow crossed the wall.
+
+I sat up.
+
+Nothing was at the window.
+
+Was it better to cover the glass or keep it clear? Was seeing danger a form of safety, or only a more intimate way of suffering?
+
+Eventually I slept.
+
+I dreamed I knelt on the edge of an ice mountain. Below me, my reflection waited in still water. Behind it rose a monumental tower covered in writing I could not understand.
+
+Footsteps approached.
+
+Then came the breath.
+
+Red mist entered my lungs, and I fell into the water.
+
+I awoke with pain in my ribs. During our escape from the cave, I had struck the ice. Each deep breath felt like a blade entering my side.
+
+Outside, the storm was weakening.
+
+Then Norm screamed.
+
+I rushed into the hallway. The others were already gathered near his barricaded door.
+
+Something smashed inside his room.
+
+“Open it!”
+
+“We can’t,” Izo said.
+
+Suddenly everything became quiet.
+
+The door flew open.
+
+Norm emerged with torn clothing and bloody gashes covering his body. His eyes were bloodshot. His fingernails had become long and black. He screamed meaningless words and tore at his chest, neck and stomach.
+
+He ran for the main entrance.
+
+Valery followed.
+
+Norm threw aside the barricade and opened the door. Wind and snow burst inside.
+
+He fell and crawled away, clawing at himself.
+
+Valery reached for his coat, but I seized his shoulder.
+
+Beyond Norm stood the thin black figure.
+
+Norm became motionless. Blood stained the snow.
+
+The creature approached, lifted him by one arm and dragged him into the storm.
+
+We watched until both disappeared.
+
+Izo slammed the door.
+
+Valery collapsed into a chair. Gary sat grinding his teeth, horror trapped inside his eyes.
+
+Izo leaned forward.
+
+“We must gather ourselves. When the storm ends, we leave. At the main station we have to tell the story calmly. If we’re hysterical, they’ll think we went mad.”
+
+Valery closed his eyes and breathed.
+
+“You’re right.” He turned to Gary. “You should rest.”
+
+“No! I can’t be alone. It’ll breathe on me. I’ll tear myself apart!”
+
+I gave Gary the strongest safe dose of sleeping pills and remained beside him until he fell asleep.
+
+Back in the main room, Izo had prepared black tea.
+
+“The penguin must have killed itself too,” I said. “Anything that breathes the mist…”
+
+“That is how the creature hunts,” Izo said. “It infects its prey, then returns for the body.”
+
+“So we run.”
+
+“Yes. If it breathes on us, nothing else matters.”
+
+We packed supplies: crackers, thermal clothing, knives, guns, dried meat, water and research documents.
+
+I approached Izo.
+
+“The ancient worms. Do we take them?”
+
+“It’s a major discovery. I’ll secure the tubes.”
+
+Even then, surrounded by death, we were scientists. Or perhaps science had become our superstition—the thing we carried because we needed to believe knowledge could still save us.
+
+Hours passed.
+
+Gary eventually woke, groggy and disoriented. We tried playing cards, but he suddenly jumped up and pointed at the window.
+
+“I saw it! It’s there!”
+
+He ran for the back door.
+
+“Don’t touch it!” Izo shouted.
+
+Too late.
+
+Gary pulled it open.
+
+Red mist surrounded him.
+
+He fell backward into the station, paralyzed with fear, while Valery slammed the door.
+
+We carried Gary to his bed.
+
+“How do we save him?” Valery asked.
+
+“We restrain him,” Izo said. “Perhaps the infection passes.”
+
+“And if it doesn’t?”
+
+No one answered.
+
+We secured Gary’s arms and legs, protecting his skin with cloth. Then we pulled a heavy sweater over his bound torso.
+
+“It’s humiliating,” I said.
+
+“Better than abandoning him,” Valery replied.
+
+A blow struck the window.
+
+The creature stood outside, covered in snow.
+
+Its head jerked back and its mouth opened. A terrible screech passed through the walls. Red mist spread around the station and vanished into the snowfall.
+
+Gary screamed.
+
+We found him twisting upon the bed like a wounded snake.
+
+“The creature already controls him!” Valery cried.
+
+We held Gary down until he lost consciousness.
+
+Valery slid to the floor.
+
+“Do we understand what is happening? Norm is dead. Gary is like this. And what about us?”
+
+I placed my hand on his shoulder.
+
+“We must remain strong.”
+
+But my words felt small. Human words are always small beside death. Still, we speak them because silence feels too much like surrender.
+
+We took turns watching Gary.
+
+In my room, I saw the shadow of a thin hand upon the window. Long fingers scratched the glass.
+
+The creature knew Gary belonged to it.
+
+I pressed myself against the opposite wall and watched. I did not look away. I wanted to allow the fear inside me, to know its full shape before it could paralyze me.
+
+The creature’s head appeared.
+
+It tried to peer through the glass.
+
+My heart filled my throat.
+
+Then it vanished.
+
+When I returned to Gary’s room, Izo sat drinking tea.
+
+“I can sense it nearby,” he said. “It wants him.”
+
+“I’ve never been this frightened.”
+
+“Not even when your car broke down in the mountains?”
+
+“This is worse.”
+
+Izo stared into his cup.
+
+“I fear dying on its terms. Death itself doesn’t frighten me as much as the manner of it. Honor. Dignity. If the breath touches me, I want your blessing to die as myself.”
+
+“Don’t think that way. We’ll reach the station. The military will come and destroy it.”
+
+“I hope so.”
+
+Gary’s eyes suddenly opened. He began biting the air, slamming his teeth together.
+
+Valery brought a syringe, but Gary thrashed so violently that the needle missed the vein. We used our weight to restrain him.
+
+Outside, the creature screeched.
+
+Later, it rattled the door handle.
+
+A low blowing sound followed, like a kettle seen in a nightmare. Red mist seeped through the cracks but did not travel far enough to reach us.
+
+“What now?” Valery whispered.
+
+The answer came hours later.
+
+The storm stopped.
+
+Izo checked Gary and called us into the room.
+
+Gary lay on his side, his eyes open and glassy. Blood had collected around his mouth.
+
+I checked his pulse.
+
+“He’s dead.”
+
+“We put the body outside,” Izo said. “When the creature takes him, we leave.”
+
+“How can we do that?” Valery asked. “We couldn’t save him, and now we feed him to it?”
+
+“If we don’t, we die too.”
+
+Valery lowered his head.
+
+We dragged Gary through the hallway and pushed his body onto the snow. Shame entered me, but shame was a luxury belonging to those who expected to live long enough to be judged.
+
+For twenty minutes, nothing happened.
+
+Then a thin arm emerged from beneath the snow.
+
+A second followed.
+
+The creature rose slowly, then moved with impossible speed, leaping beside Gary’s body.
+
+“It deceives us,” I whispered.
+
+“Or conserves energy,” Izo said.
+
+“Perhaps it has no reason we can understand.”
+
+It dragged Gary away by the legs.
+
+We gathered our packs and ran to the snowmobiles.
+
+Valery’s engine made a harsh metallic sound, but it moved.
+
+“It’ll be fine!” he shouted.
+
+I drove with Izo behind me. Valery followed.
+
+The creature appeared near the ice hills, galloping toward us with its long arms jerking beside its body.
+
+“Tell Valery to go faster!”
+
+Izo waved frantically.
+
+“He can’t hear me!”
+
+I accelerated.
+
+Low hills rose ahead. Valery’s engine screamed behind us.
+
+The first jump nearly killed us.
+
+Something enormous stood beyond the ridge.
+
+At first my mind named it *polar bear*, because the mind prefers a familiar terror. But the animal was wrong.
+
+Its body was too long and its rear legs bent at unnatural angles. Patches of yellowed skin interrupted its white fur, and beneath the exposed flesh ran dark branching veins. One shoulder had grown higher than the other, swollen into a hard mass. A second, smaller forelimb hung uselessly from its chest, ending in three curled claws.
+
+Its jaw was divided by a vertical split extending almost to one eye. When it opened its mouth, I saw two uneven rows of teeth and a black tongue that twitched independently, like a blind animal searching the air.
+
+I swerved and barely avoided it.
+
+For one instant the bear looked at me. One eye was milk-white. The other was painfully human in its alertness.
+
+How had it come here?
+
+Had the same infection changed it? Had someone experimented upon it and abandoned it on the ice? Had it crawled from beneath the glacier with the worms and the creature?
+
+There was no time to wonder.
+
+“Valery!”
+
+His snowmobile cleared the ridge, stalled and struck the mutated bear.
+
+Valery flew across the ice. The animal rolled, then rose with frightening speed. Another malformed white shape stood far away on the ridge—perhaps a second bear, perhaps only snow distorted by terror.
+
+Valery began crawling.
+
+I turned toward him.
+
+Izo seized my arm.
+
+The creature had reached the hilltop.
+
+The bear struck Valery, throwing him sideways.
+
+“We have to help!”
+
+“You know we can’t!”
+
+The black creature moved behind them and released its breath.
+
+Red mist engulfed Valery and the mutated bear.
+
+The bear screamed. The sound was almost human. It clawed at the swollen growth on its shoulder before fleeing across the ice on its crooked legs.
+
+The creature took Valery.
+
+He was still alive when it dragged him away.
+
+He called for us.
+
+I remained frozen until Izo shook me.
+
+We continued.
+
+My thoughts shattered into fragments. I could not form a complete image in my mind. Valery’s voice kept returning, but never the whole voice—only the beginning of my name.
+
+“Stop,” Izo said. “I’ll drive.”
+
+We switched places.
+
+“I’m sorry,” he told me. “We can still survive.”
+
+Could survival be called survival when every person you carried inside you was dead?
+
+The main station appeared through the snow.
+
+“We made it!” Izo cried.
+
+No snowmobiles stood outside.
+
+The entrance was partly open.
+
+Inside, the rooms were empty. Personal possessions remained, as though everyone had simply stepped outside at the same moment.
+
+In the laboratory, dried blood covered the floor. Drag marks led through the hallway to the open rear door.
+
+I called for Izo.
+
+He came downstairs, saw the blood and asked, “Are the radios working?”
+
+We entered the communications room. The machines had power, but Izo could not establish contact.
+
+A schedule caught my attention.
+
+“This is tomorrow’s date, isn’t it?”
+
+“Yes.”
+
+“A ship is arriving. Eighty miles from here.”
+
+Hope returned, not as happiness but as permission to continue.
+
+We found fuel, filled the snowmobile and barricaded the station.
+
+“Should we wait until tomorrow?” I asked.
+
+“We cannot survive outside through a full day of bad weather.”
+
+“It may come here.”
+
+“We have no choice.”
+
+So we waited.
+
+The hours became nearly unbearable. Images of Norm, Gary and Valery repeated inside me. Memory had already begun its cruelty, turning their entire lives into the moments of their deaths.
+
+Exhaustion finally pulled me into sleep.
+
+When I woke, Izo stood over me.
+
+“It’s time.”
+
+I washed my face, put on my layers and glasses, and lifted my pack.
+
+Izo removed the barricade.
+
+The instant he opened the door, red mist and screeching met him.
+
+He fell, rose and ran toward me.
+
+I dropped my pack and opened the opposite exit. The creature followed him through the station.
+
+We escaped and raced around the building.
+
+My glasses were gone, so Izo took the driver’s position. We sped away as the creature rounded the corner.
+
+Everything we had packed remained behind.
+
+For an hour, Izo drove in silence.
+
+Had the mist touched him?
+
+I did not ask because I already knew that silence was sometimes an answer.
+
+At the top of a large hill, he stopped. He removed his glasses and handed them to me.
+
+“Ready for a break?”
+
+He smiled and turned his face partly away.
+
+“A break forever,” he said. “The breath touched me. I felt it enter.”
+
+He drew his gun.
+
+“Remember what I told you about dying on my own terms?”
+
+“Izo…”
+
+“Go down these hills. Beyond them is a field. From there, it’s a straight route to the arriving ship.”
+
+I could not speak.
+
+“Please go. Give me my dignity. Leave before I’m no longer myself. I want to die as Izo.”
+
+There it was: the secret terror inside every human being—not simply that we will die, but that before death we may cease to be the person who knows our name.
+
+I nodded.
+
+Then I drove downhill.
+
+Several minutes later, a single gunshot crossed the ice.
+
+Tears filled my eyes and fogged the glasses. My arms became weak.
+
+The snow thickened as I reached the open field.
+
+A sharp pain entered my chest. I lost control, and the snowmobile slid sideways.
+
+Then came the crash.
+
+When I opened my eyes, my left cheek was pressed against the ice. Frostbite stung my skin. Frozen blood lay before me, probably from my nose, though I could no longer feel it.
+
+There was blood on my hands.
+
+I forced myself upright, but an immense pressure behind my eyes dropped me to my knees.
+
+My mind began to break apart.
+
+They were all dead.
+
+All dead.
+
+I looked back.
+
+Far away, the tall black creature crossed the white field.
+
+Perhaps it was following me.
+
+Perhaps it had always been following me.
+
+Perhaps from the moment we entered this place, every step we took had been toward it.
+
+I turned forward again.
+
+Something stood in the distance.
+
+A ship.
+
+Was it real? Or was hope the final hallucination of a dying mind?
+
+I gathered the last of my strength and stood. Every part of me resisted, as though my body had already chosen the ice.
+
+But I began to limp toward the ship.
+
+Behind me came the creature.
+
+Ahead of me waited either life or the image of life.
+
+And between them was my breath, entering and leaving me, each one possibly the last.
+
+Would I make it?
+
+ 
+

@@ -1,0 +1,373 @@
+My daughter's bedroom monitor picked up a man singing. She’s in my bed now, sleeping next to me and her three-year-old brother. I’m surprised she fell asleep that fast. She was pretty shook up. So was I.
+
+It happened about ten minutes ago. I don’t know what woke me up, my son kicking me in his sleep or the sound of the monitor. The mic is pretty sensitive, but I usually sleep through the white noise since my daughter is five now.
+
+I know she's too old for it. But ever since she was born, I’ve been terrified of something bad happening when I’m not looking. I need the monitor. To make sure she’s safe.
+
+Tonight though, it picked up a man's voice.
+
+It sounded a little muffled. Like he was singing through the wall or her closet door. I'd say he was right outside her window, but all the bedrooms are on the second floor. The windows are flush with the walls. No roof, trellis, or tree to climb.
+
+He was singing softly. At first I didn't know what it was. Then I heard it: *Twinkle, Twinkle, Little Star.*
+
+I used to sing that song to her when she was a baby. Skidamarink and ABCs were staples too. *Twinkle, Twinkle, Little Star* was the closing number.
+
+When I realized what was happening, I leapt out of bed and sprinted down the hall. I barreled inside. The singing stopped the second I opened the door.
+
+I quickly scanned the room. The closet was shut and the blinds were still drawn. I checked everywhere. Yes, even under the bed.
+
+There was no man.
+
+My daughter wasn’t crying. She was just sitting up in bed, clutching her stuffy, staring at the window. Like someone had been there, looking back in. There’s no way though. It’s twenty feet down to the ground.
+
+I guess he could’ve had a ladder. Even then, I would’ve heard it. Or seen it.
+
+I put my arm around her and asked if she saw anyone. She shook her head no. She thinks she heard the same man singing outside last night. Much farther away. Like in the yard somewhere. Same *Twinkle, Twinkle, Little Star.*
+
+I didn’t know what to make of that. All I know is my stomach dropped.
+
+Before we headed back to my room, I checked the window. It was locked tight. The screen was intact. I looked out into the backyard. There’s nothing out there but a heavy patch of woods that backs up to our property line. Just black trees and shadows.
+
+I’d like to think I’m a pretty rational guy. Maybe skeptical is a better word. It's just that I don’t believe in ghosts, or God, or the Devil. Aliens, sure. But nothing supernatural.
+
+Maybe it’s the monitor itself. Wires got crossed. I looked it up. Apparently it’s a thing. Our monitor could be on the same frequency as someone else’s in the neighborhood.
+
+The only thing is, as far as I know, there are no other young families nearby.
+
+***
+
+Things have gotten worse.
+
+I ordered a new monitor. It arrived the next day.
+
+Even with the new monitor set up in her room, my daughter wasn't ready to sleep by herself. And to be honest, I wasn't ready for that either.
+
+When the three of us got into my bed, I showed them the live feed of my daughter’s room and promised it wasn’t gonna happen again. They nodded, but they were still terrified. I needed a distraction. I forced a smile and suggested we play a game of I Spy.
+
+After what felt like a hundred rounds of I Spy, the kids were yawning and rubbing their eyes. It was time to say goodnight. Mission accomplished, I thought.
+
+I was dozing off when my daughter rolled toward me.
+
+“He knows,” she whispered.
+
+“Love you too,” I said half-asleep.
+
+“He knows I'm here.”
+
+My eyes snapped open. No longer in a fog.
+
+“What did you just say?”
+
+I looked at my daughter. She was fast asleep.
+
+I stared at her, waiting for her to speak, but nothing came.
+
+I reached over to the nightstand and grabbed the monitor.
+
+My daughter’s bedroom was quiet. Empty. I panned the camera to the window. Then the closet. Then the door.
+
+Nothing.
+
+I felt relieved. Like a part of me still hadn’t believed it was a technical glitch.
+
+​I laid the monitor on my chest, then fell back asleep.
+
+​Around 2am, I bolted upright.
+
+The man was in the house, singing again.
+
+I checked the monitor. The sound wasn’t coming from her room.
+
+​He was downstairs.
+
+I looked at my son sleeping soundly. Then I looked at my daughter wide awake. Terrified.
+
+I told her everything was okay, but she knew I was full of it.
+
+​I slipped out of bed and dialed 911. I whispered our address and that there was an intruder in the house. I handed the phone to my daughter and told her to stay with her brother and lock the door.
+
+I edged into the dark hallway. I heard the quiet click of the door locking 
+behind me.
+
+As ​I crept downstairs, the floorboards creaked beneath my feet. With every step, the singing got louder.
+
+*Twinkle, twinkle, little star.*
+
+*How I wonder what you are.*
+
+*Up above the world so high,*
+
+*Like a diamond in the sky.*
+
+He was singing a version I had never heard before…
+
+*Then the traveler in the dark,*
+
+*Thanks you for your tiny spark,*
+
+I reached the bottom landing, pressing my back against the wall. The singing was right around the corner, in the living room.
+
+*He could not see which way to go,*
+
+*If you did not twinkle so.*
+
+​I peeked out to see a massive, hunched silhouette facing the window that looks out into the backyard. His head was swollen, sitting too low between his broad shoulders. He was rocking his arms back and forth, as if cradling a baby.
+
+*In the dark blue sky you keep,*
+
+*And often through my curtains peep,*
+
+The man stopped rocking.
+
+*For you never shut your eye,*
+
+*Till the sun is in the sky.*
+
+He slowly turned toward me. Head down.
+
+*As your bright and tiny spark,*
+
+*Lights the traveler in the dark.*
+
+He uncradled his arms, letting them drop to his sides. There was no baby.
+
+*Though I know not what you are,*
+
+*Twinkle, twinkle, little star.*
+
+He slowly looked up at me, his face shrouded in darkness.
+
+Then he lunged.
+
+I screamed in terror, scrambling backward like a coward. My hand slapped blindly against the wall for the light switch.
+
+CLICK.
+
+The man was gone.
+
+My kids yelled out for me. I told them to keep the door locked.
+
+​I thought I was losing my mind.
+
+Then I felt a cold draft.
+
+​I turned around and looked at the back door. It was cracked open. The deadbolt was turned vertical.
+
+I hustled over and locked the door.
+
+Soon, a couple cops showed up. One of them knew my sister. His kid goes to her for voice lessons. Without any evidence of a break-in, there was nothing they could do.
+
+Before they left, they asked if I was alright. Like mentally.
+
+I bit my tongue. If the judge ever got wind of this, they'd take my kids from me. I told them to have a good night and they headed out.
+
+I spent the rest of the night seated at the foot of my bed, drifting in and out of consciousness, gripping my daughter’s T-ball bat.
+
+When the sun finally came up, I tried to force some normalcy. I made breakfast, packed the kids’ lunches, then rushed them out the door pretending like nothing ever happened.
+
+I pulled out of the driveway in a fog. When I looked in the rearview, I slammed on the brakes. My sister was standing in the driveway, hands on her hips. That damn cop ratted me out.
+
+My sister said we needed to talk.
+
+I told her not now. I had to drop the kids off at school and daycare then I was heading to work.
+
+“Great. We'll talk on the way to work.” She opened the passenger door and climbed inside.
+
+She distracted the kids with silly singing games the whole way to their drop-offs, putting smiles on their faces like the great vocal coach she is.
+
+Then it was just us. Not saying a word. The tension was suffocating.
+
+We hadn't spoken in two years because my marriage was imploding at the same time my niece went missing. I was so exhausted fighting for custody of my own kids that I didn't have the energy for anything else. My absence fueled my sister's resentment toward me. Rightfully so.
+
+“Heard about last night,” she said.
+
+“Yeah, I'm going crazy.”
+
+“Welcome to the club.”
+
+I told her everything. The monitor. The massive, hunched man in the living room. The lullaby.
+
+All the color drained from her face. ​She didn't say a word. 
+
+At the next red light, she hopped out and rushed off in the opposite direction.
+
+I asked where she was going.
+
+“Home!” she shouted.
+
+I got out of my car. “Wait! It’s the same guy, isn’t it?”
+
+She turned around with this look of dread in her eyes. “Call me if he comes back. And whatever you do, don't fall asleep.”
+
+I found myself in another daze.
+
+Horns blared, snapping me out of it. The light was green.
+
+I yelled at my sister to get back in the car. ​I drove her home and made her tell me everything she knew. Then I got the kids.
+
+I spent the rest of the day inspecting every door and window. By 7pm, I had the kids tucked into my bed. I triple-checked every window upstairs. Then I went downstairs and barricaded every door. Everything was secure.
+
+I paced the house in the dark, gripping my daughter’s T-ball bat. I couldn't stop thinking about what my sister told me on the drive over to her house. Everything I missed while I was drowning in the divorce.
+
+​Before my niece disappeared, she had mentioned a man singing to her in the middle of the night. A year later, another child vanished. The parents reported hearing an eerie lullaby that same night. Not *Twinkle, Twinkle, Little Star*. Something far more sinister.
+
+There was no evidence. No suspects. The Chief basically gave up, telling my sister and the other parents it was a real possibility that their kids were runaways.
+
+My sister wasn't gonna let that slide. She built her own case file over the last two years. Written across the folder in thick black marker are three words: The Lullaby Man
+
+Around 3am, I sat down in the kitchen to rest my feet. I must’ve nodded off.
+
+When I startled awake, I went to check on the kids. My daughter was snuggled under the covers. But my son was gone.
+
+I found him in his sister's room, staring at her bed.
+
+“Hey bud. You good?”
+
+I reached for his shoulder and gently turned him. His eyes were wide open, staring straight through me.
+
+“She's gone,” he said.
+
+I told him his sister was in my bed. But he was in a deep trance. Sleepwalking, I thought.
+
+I tucked him back into bed, next to his sister.
+
+Then the monitor crackled.
+
+The man was humming a tune I didn't recognize.
+
+My adrenaline spiked. I grabbed the monitor and followed the sound down the hall to my daughter's bedroom.
+
+Before entering, I panned the camera around the room.
+
+Her bedroom was empty.
+
+I lingered in the doorway. I saw my own silhouette on the monitor. It sounded like he was in the room with me.
+
+I checked everywhere.
+
+Nothing. 
+
+It felt like I was being watched.
+
+I glanced back at the monitor. His deformed silhouette was standing in the doorway. SLAM! The door shut.
+
+I tried to open the door, but it was like he was holding it shut from the outside. I screamed out to my kids, ramming my shoulder into the door. 
+
+I raised my daughter’s T-ball bat, about to take the doorknob off. That’s when the doorknob turned and the door swung open.
+
+It was my kids. They were safe.
+
+That was an hour ago. The kids are downstairs with me, sleeping on the couch. My sister is upstairs, searching for evidence. So far, The Lullaby Creep hasn't left a shred of evidence behind. It’s infuriating.
+
+All I keep thinking about is my ex-wife. When she dropped them off the other day she looked me dead in the eye and told me she was filing for full custody. 
+
+I don't wanna lose my kids.
+
+***
+
+My whole body is shaking. I’m pacing in the driveway. I don’t know what to do.
+
+My son's in shock. Paramedics are looking him over right now.
+
+Patrol is setting up a perimeter. My sister is tearing into every cop she lays eyes on.
+
+I swore I wouldn't fall asleep tonight. I swore. I placed my hand on top of her arm so she’d feel safe. My son was snuggled up on the other side of me.
+
+My sister demanded that she stay over and protect everyone with the handgun
+she bought after my niece went missing. I could see the desperation in her eyes. She thought it might be her last chance to get some closure.
+
+I don't know what time it was when my eyes snapped awake. All I know is that I
+inhaled sharply, gasping for air.
+
+He was sitting on the edge of the bed.
+
+I finally had a good look at him. His gangly hand was resting on my leg. He was
+big. Breathing heavy. Wearing wet pajamas that were plastered so tightly against his hulking, twisted frame that it looked like a second skin. His head was swollen and misshapen. His beard was long and greasy. His skin was blistered, covered in a purple marbled rash.
+
+I tried to lunge at him, but I couldn't move. Couldn’t speak. My brain was
+screaming, but my body was completely numb.
+
+I just laid there, terrified. I moved my eyes to glance at my son. I thought he
+was dead. Then I saw his chest rise and fall. He was asleep.
+
+It felt like I was stuck in cement. There was nothing I could do.
+
+The Lullaby Creep stood up and started singing in my voice. Yes, my fucking
+voice. In that same eerie tune from last night.
+
+*Wake up, wake up*
+
+*This is your daddy*
+
+*Come with me*
+
+*And you will see*
+
+*I love you*
+
+*And you love me*
+
+That's when my daughter's arm shifted under my hand. She sat up in the dark, sliding out from under my paralyzed hand. Her eyes were glossed over like she was in a deep trance.
+
+He moved slowly, walking over to the open doorway. He didn't reach for her.
+Didn't use force.
+
+His voice switched back to his own, singing that same creepy fucking lullaby:
+
+*Wake up, wake up*
+
+*This is your daddy*
+
+*Come with me*
+
+*And you will see*
+
+*I love you*
+
+*And you love me*
+
+She walked right over to him and reached out her hand. His long fingers slithered around hers. He flashed a tight smile as she looked over her shoulder, staring through me and her sleeping brother like we weren’t even there.
+
+Then they walked out. Together.
+
+My whole body felt like it was crying.
+
+I don’t know how long it took, maybe a minute or so, but the paralysis wore off
+enough where I was able to reach for my phone on the nightstand and call 911.
+
+I rolled off the mattress, hitting the floor hard. My legs were numb. I dragged
+myself into the hallway by my elbows, pulled myself up using the banister, and
+screamed my daughter's and sister's names.
+
+When I made it downstairs, I felt the cold night air hitting my face. My sister was on the floor, slowly regaining motor control. Her gun was still in her grasp, but she hadn't fired a shot. 
+
+I went to help her up. She told me to go find my daughter.
+
+The back door was wide open, swaying in the breeze.
+
+I rushed outside, screaming my daughter's name.
+
+I didn’t know where else to go, so I sprinted into the woods. I got lost and
+spun around. It was just me and the darkness. It was all a blur.
+
+Then a flashlight washed over me. It was my sister. Her eyes drowned in guilt.
+Neither of us had the words. My chest tightened. Tears streamed down my face.
+
+The cops dragged us out of the woods. They told us to stay separated in the
+driveway or we’d be arrested for obstructing an active investigation.
+
+Then the static started.
+
+All around the perimeter, the officers stopped to check their radios.
+
+The Chief grabbed the radio that was clipped to his belt and raised it in the air.
+A voice was trying to break through the static.
+
+The entire driveway went dead silent.
+
+Then a boy's small, terrified voice choked through the Chief's radio: “Daddy?"
+
+A little girl sobbed: “Mommy, mommy…”
+
+A chorus of small voices cried out, screaming for help, calling for
+their parents.

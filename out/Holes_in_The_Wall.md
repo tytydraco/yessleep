@@ -1,0 +1,493 @@
+I’ve been homeschooled throughout elementary school, and for half of my high school years. My dad broke his femur in a trucking accident, so money has been short. My mother got a job recently, so this was technically my first day of school.
+
+I only have a couple of friends online, and a cat at home, so I was actually excited. Hopefully kids online were exaggerating about homework, teachers, and bullies.
+
+I chugged a Pepsi on the way there and ran into the building. My class should be in room 10. My seat was at table 6, which only had one other person, who was looking down and rhythmically tapping on her thighs. I quietly sat down next to her and she turned her head toward me, one eye hiding behind crimson bangs matching her hoodie.
+
+“Hey,” she said with a monotone, yet slightly positive voice.
+
+“Hi,” I replied nervously.
+
+“It isn’t that bad,” she chuckled. “I’ll give you a tour around this place during lunch, if you’re not hungry.”
+
+“I had a pretty big breakfast, I might be able to skip lunch, and if I can't, I'll bring a bag of chips or a sandwich from the cafeteria.”
+
+The bell rang and the class went quiet. The teacher was surprisingly sweet for someone who woke up at like seven in the morning. The work wasn't hard, and I doodled the last ten minutes of class, and so did she. I glanced at her paper and many circular holes were meticulously drawn over and over again. Looks like someone’s bored.
+
+My next class was art, and she wasn't there. This class was interesting, and the techniques I learned were actually pretty useful.
+
+My third class was PE, and she was there, sitting at the top of the bleachers, holding a sketchbook.  
+I climbed to the top and sat next to her, and saw more holes drawn in varying sizes in her sketchbook.
+
+She jumped when she noticed me.
+
+Hey, didn't see you, sorry,” she said, startled.
+
+“What's with your obsession with dots?” I asked, trying not to sound disrespectful.
+
+“They're… relaxing to doodle,” she replied. “Draw a circle, fill it in, repeat.”
+
+“Hmm.”
+
+“Anyway, what's your name?”
+
+“Remmy.”
+
+“Mine’s Scarlett.”
+
+“What other pictures do you have in that sketchpad?”
+
+She flipped through the pages, and most of them had normal drawings. Landscapes, flowers, cats, and other things you'd expect in a girls sketchpad. every three to four pages were covered in dots and eyes.
+
+“Those are creepy,” I said looking at one of the “dots-n-eyes” drawings.
+
+“Thanks,” she said, grinning. “May I look at your drawings?”
+
+“I left my sketchbook at home, but I have some doodles in my notebook,” I told her, before showing her doodles of gears, motors, and robots.
+
+“Those are cool.”
+
+“Thanks”
+
+“Just one more class, then lunch. That's when the tour begins, remember?”
+
+ “Yeah, you told me less than two hours ago.”
+
+“Oh yeah, dementia must be kicking in early,” she chuckled.
+
+“What class do you have after this?”
+
+“Art.”
+
+“That was my last class.”
+
+“We'll still be able to talk afterwards.”
+
+“I know, it just sucks.”
+
+“Come on, you've just met me.”
+
+We got up and did some walking, before the bell rang. We actually grew pretty close.
+
+After the next class, I met up with her.
+
+“Ready to map out this place?” She asked.
+
+“I'ma’ grab a sandwich from the cafeteria first,” I replied.
+
+I got back to her with the sandwich and followed her.
+
+She took me to room 26.
+
+“Here's the music room,” she said before unlocking the door with bobby pins. I've never seen someone do that in person before.
+
+The room was gorgeous, racks of guitars and trumpets with a few drum sets and pianos, around multiple desks. I walked around it for a bit, passing a jar of guitar picks as I took a few bites from my sandwich. She walked me out and skipped down the hall.
+
+“You need to see the Spanish room,” she said.
+
+She guided me to room 18.
+
+It was full of life. Photographs of Mexico, Peru, Argentina, and Puerto Rico were on the walls, as well as a mural of a street with people dancing. The teacher’s desk had a colorful skull. I looked at the back of it, and it said “En cariñosa memoria de Hibisco Ursa.”
+
+“Also, this school has a basement,” Scarlett said. “It's mainly for storage, but it’s also used for tornado and intruder drills.”
+
+“Is it like a warehouse?” I asked.
+
+“That's basically what it is,” she replied..
+
+She guided me to a nameless door, and picked its lock.
+
+She turned on the light, and walked down the stairs.
+
+I followed her down, and got stuck in the seemingly endless aisles of various textbooks, sportswear, baskets, etc. I walked around for a bit, and saw some bookshelves with pencils and pencil cases. What wasn't this place prepared for?
+
+I learned it wasn't prepared for Scarlett, who took five pencils from the shelf and handed them to me.
+
+“Just in case you lose yours,” she said.
+
+I thanked her and looked around some more, and saw a cluster of black spots. I stepped back, thinking it was mold and walked away. She looked and saw it as well.
+
+“Damn, we need to get out of here,” Scarlett said. “The teachers can deal with it.”
+
+“Shouldn't we tell them?” I asked.
+
+“We'd both get in trouble, and I don't have the prettiest track record,” she replied.
+
+It was my first day, I didn't want to make the wrong first impressions, so I followed her out. What if the mold grew out of control?
+
+I finished my sandwich on the way out.
+
+I checked my phone. I still had ten minutes of lunch. I wasn't super hungry, luckily. That wall mold shrunk my appetite.
+
+“What class do you have after this?” She asked.
+
+“US History,” I replied. “I have algebra after that.”
+
+She grinned.
+
+“I also have algebra that time,” She said, smiling.
+
+Before lunch ended, we exchanged Discords.
+
+That night, we texted about potential meet-up times during the weekend, and she explained how to twist and maneuver pins to unlock doors, not like I'd utilize those skills for any non-malicious activities.
+
+I checked my Google classroom and saw that school is out for a few days, due to a mold problem.
+
+I quickly texted her.
+
+She responded with, “told ya’ they would find out, but I was excited to meet up tomorrow.”
+
+“We could call tomorrow and help each other with work on Google Classroom,” I replied.
+
+“We could do that. What games do you have?”
+
+“TF2, Cuphead, and Terraria.”
+
+“Peak lineup. Down for some tf2?.”
+
+“Hell yeah. I main Demoman”
+
+“Soldier’s my fav.”
+
+We exchanged Steam names, and played a few matches together.
+
+She got off for dinner and I grabbed my book I've been reading for a few days now, before going back to playing TF2. I texted Scarlett, asking if she wanted to get on, but she didn't reply. I went to bed about an hour later.
+
+I woke up to a text the next morning by her that read, “Sorry, I was sleeping. Wanna get the work done and hop on Steam?”
+
+I responded with, “Sure” and we got it done within an hour.
+
+We hopped on TF2.
+
+While the enemy team was making preparations (we were on payload) she shot at the wall with her shotgun and just stared at the bullet holes.
+
+“What are you doing?” I asked.
+
+“Just seeing the spread,” she replied.
+
+I didn't question any further.
+
+A couple days later, school reopened, apparently getting rid of the mold problem.
+
+Once I walked into the building, Scarlett squeezed me.
+
+“Finally!” She exclaimed, smiling.
+
+I grinned along with her.
+
+For this lunch, we actually sat down and ate, instead of breaking into rooms.
+
+“Your first normal lunch,” she chuckled.
+
+I grinned. “You killed it in TF2.”
+
+“Thanks.”
+
+“Gonna get on tonight?”
+
+“Hell yeah. Wanna break in the basement again?”
+
+“I… guess we could see if they actually got rid of that mold.”
+
+“How much you wanna bet they didn't actually do anything?”
+
+“There's no way they wouldn't try to keep children safe.”
+
+“You're giving this place too much credit. You could get shoved into a wall and they wouldn't give a shit.”
+
+“Damn, I heard schools have violence problems. That's…  probably why.”
+
+“When should we go in?”
+
+“Tomorrow lunch sounds like a decent time.”
+
+Nothing really happened the rest of the day. Though we, mainly she broke into the basement. I walked around that small shelf.
+
+“Wow they actually did nothing,” I said. “It actually looks worse.”
+
+The spots were just barely bigger. A new tiny speck was there too.
+
+A dead stag beetle was under it, and its shell had holes in it, with one big one on its back. The shell had a pale hue around them.
+
+“Damn,” she said. “I didn't think they actually wouldn't do anything about it. Stay here, I'll be right back.”
+
+She genuinely looked terrified.
+
+I just waited. Then the beetle started moving again.
+
+Its mandibles started twitching along with its legs, and it began shaking.
+
+An eye was looking at me through the large hole.
+
+I stomped on it and heard a quiet shriek from underneath my shoe.
+
+I lifted my foot.
+
+The bug was shaking, and black fluid was leaking from it.
+
+“I'm back! I'm back!” Scarlett exclaimed, holding a lighter. “Move, please.”
+
+She held the flame toward the former beetle and it began shriveling like a dehydrated grape, before finally dying. She then held it to the wall, which also began shriveling. She was shaking during this.
+
+“Can you help me move this?” She asked, gesturing to the shelf.
+
+“Sure, we should have time,” I replied.
+
+I pushed one end, and she pulled the other.
+
+I see another spot. It was a hole. A hole with teeth in it.
+
+“There's more.”
+
+She quickly ran over and burned the maw, as it began gurgling.
+
+Once it stopped making noise, and was more wrinkled than a rotten raisin, the door opened.
+
+“Shit,” Scarlett mumbled before sneaking around another shelf. I followed her.
+
+We stood behind the empty shelf, frozen like petrified stumps.
+
+Once they left, we got out through the door on the other side of the room. The Sun was the first thing we met.
+
+We sprinted around the building and made it to the cafeteria without being spotted.
+
+“Damn,” Scarlett said.
+
+I was just as speechless.
+
+That night, we spoke about what happened over a game of MvM, one of the gamemodes in TF2.
+
+“Hey, I… I knew what that was,” Scarlett said. “That's… I'm not sure what it is, but I experienced its effects first hand.”
+
+“Experienced it?” I asked, surprised.
+
+“Yes. That's how I know it's vulnerable to high temperatures. It's also why I've been covering one of my eyes. Could we meet up sometime this week? Like at my house?”
+
+“I'll ask my parents, I'll be right back.”
+
+They said yes.
+
+“I'll be there tomorrow,” I said, happily.
+
+“Yes!” She exclaimed. “My dad is also ok with you coming over.”
+
+Tomorrow hit, and I was on the way there. We drove through an orchard, and she was waiting for me on her porch, and ran to me when my parents dropped me off.
+
+She hugged me and smiled as my parents left.
+
+Her dad walked out.
+
+He looked pretty young for the father of a teen. He was skinny and had black mustache with long hair. He wore a blue long sleeve shirt with khaki shorts, and hideous cyan crocs. The polar opposite of Scarlett.
+
+“Heyyyy kiddo!” He said, gesturing a fist bump.
+
+“Hey, I've been waiting to come here. Your daughter’s pretty cool,” I replied, fist bumping him.
+
+“She sure is a neat little thing-”
+
+Scarlett grabbed my arm, and dragged me to the other side of his orchard.
+
+“Be gentle with our new guest,” he hollered as we got farther from him.
+
+We could barely see the house through the trees.
+
+“Hey,” she said, sitting against a tree.
+
+I sat next to her. “What is it?”
+
+“Do you remember when I said I experienced that 'mold’ yesterday?”
+
+‘Yeah, I've been thinking about it all morning.”
+
+She exhaled before lifting her bangs.
+
+A cluster of holes surrounded her circular, empty eye socket. I somehow didn't see her brain, and the hole looked deeper than the length of her head. The area around it also looked shriveled.
+
+“I did some urban exploring with my dad one vacation to the Midwest. We found this abandoned motel covered in graffiti. We actually found a shiny ring in one of the rooms, and this one room… a cluster of holes was on the wall.
+
+He raised the lantern to it, and the wall shriveled.
+
+We both got close, and I put my eye to it, wondering if I could see the other side. It felt like pressing against a giant sponge. It felt like soap was squirted into my eye. It immediately felt like someone was scratching my face, and my dad jumped back from the wall, after that same fluid squirted his arm, and it looked like a piece of the wall was on his bicep.
+
+He looked at me and panicked. He broke his lantern and held the flame to his arm. He bit his shirt’s collar as he groaned, and I could see it shriveling, and fluid oozing out.
+
+He ran to me and lifted my bangs, and held the flame to my eye.
+
+It burned, and I could feel it shrivel as well.”
+
+“How did it not… kill you?” I asked. “It drilled through your head.”
+
+“It probably drills first, so the ‘mold’ can get deeper. I don't know how it just bends physics. My dad hasn't had any bone or muscle problems since then.
+
+It has done something to my mind though. I keep thinking about it, and drawing it. Like it's calling to me.”
+
+“It was horrible,” her dad chimed in. “It got me pretty good,” he forced a smile.
+
+“Damn,” I said, shocked
+
+He held up some chip bags. “I came out here to give you two some snacks. I wanted to show ya the aftermath, but you should keep your appetite for now. I'll show you later.”
+
+“Dad,” Scarlett said. “That… stuff is also at the school. I thought it was just mold, and hoped it was.”
+
+“I’ll go with you Monday,” he said. “All I need is a couple of bobby pins.”
+
+“I saw a beetle get infected by it,” I said. “Scarlett killed it with a lighter.”
+
+“What exactly happened to it when it got infected?”
+
+“It was just a pale corpse with holes, when it began twitching, and an eye appeared on its back. I stomped on it, and it was still twitching, then it stopped when Scarlett burned it.”
+
+“Good ol’ teamwork,” he said before eating a chip. “Do you guys want to watch tv? I'll just read.”
+
+“Sure,” I said, getting up.
+
+Scarlett followed her dad and Me to the house. We watched The Owl House, before she brought me to her room.
+
+The walls were painted a deep purple, and a Green Day poster was on the wall. Her PC had some Pokémon stickers and some empty energy drinks next to her keyboard. There was also an air freshener plugged in.
+
+It felt simultaneously cozy and loud.
+
+She sat on the bed and patted the spot next to her.
+
+I sat down and looked at her.
+
+“Are you… disgusted by my face?” she asked.
+
+“Why would I be?” I replied.
+
+“Oh I don't know, maybe the fact that my eye looks like a wasp nest?”
+
+“I absolutely would've gagged if I thought that.”  
+   
+She grinned. “I wouldn't have been mad if you were disgusted, I'm still grossed out by it. Wanna see my dad's marks?”
+
+“S-sure.”
+
+She sprinted out, and immediately came back with her dad.
+
+“Hey, kiddo, check this out,” he said, rolling up his sleeve.
+
+His bicep was covered in holes. Tiny holes. It looked like clay that was repeatedly poked with a toothpick.  
+   
+“That's… better than I was expecting,” I said.
+
+“He grinned. “You've got a strong stomach.”
+
+"Thanks?”
+
+“I will go to the school. I will destroy that disease with you guys. I may have just met you, but I will protect you, for that is my job. Same goes for my little rascal.”
+
+I nodded, unsure as to what to say.
+
+“But before that day comes, we can plan out what to do in case it gets you or us again. Nobody's going to believe that a magic mold attacked us. Scarlett is the only person who knows about my injury, and vice versa,” he added, his joyous tone nowhere in sight.
+
+My parents came back, met her and her dad, and I gave the two my goodbyes.
+
+I was up late that night thinking about those holes, and wherever the hell they came from. The school talked about a mold problem. Was there actually a mold problem at all?
+
+Once Monday rolled around, I snuck a matchbox in my backpack. We got back together at the front. Scarlett had a lighter and her dad had a blowtorch.
+
+“Where is it?” He asked.
+
+“It's i-”
+
+“It's in the storage room,” Scarlett cut me off.
+
+“Got it. You know how to get in?”
+
+“Yup”
+
+She pulled out some bobby pins.
+
+“You're a soon-to-be burglar, and I'll be a getaway driver,” he said, grinning.
+
+We went to the back and went in.
+
+“It's to the right, behind that shelf,” I said, pointing.
+
+He nodded.
+
+He and I moved it to the side, revealing the rest of the holes.
+
+There was also an outline.
+
+It looked like a person’s silhouette, a smooshed silhouette. Like someone forcefully shoved into a suitcase, along with asymmetrical arms. Those holes scattered its body. 
+
+Every few dozen holes had eyes darting across the room. They all locked on to us. It began wiggling. Like it was trying to get out.
+
+Scarlett’s dad tried pushing the shelf back, when the body fell out, like a rotten pumpkin.
+
+Black ooze leaked from the hundreds of holes of varying sizes across its body.
+
+It shot up, and its “face” had a giant hole housing a single large eye. Its chest had a slit on it, lined with canines.
+
+One of its arms was four long tendrils sprouting from a stump, and one of its shins was just a clump of thick tendrils, ending in a foot. Its other leg had three tendrils sprouting from its ankle, instead of an actual foot. It was shaking.
+
+Its mouth opened and more teeth were wiggling in its mouth like a group of maggots.
+
+“Get back you too,” her dad yelled as he pointed the blowtorch at the abomination.
+
+It immediately shrieked and grabbed his arm and threw him. He dropped the blowtorch as he fell and broke his wrist.
+
+It looked at us and shrieked. 
+
+I immediately struck a handful of matches and tossed them at it as Scarlett raised the lighter, her arm shaking.
+
+Some of the matches actually hit, and dark, wrinkly patches formed where they made contact.
+
+Her dad got up, and whacked its head with the blowtorch, and kicked it to the ground. He then lit the thing ablaze, until it grabbed and squeezed his arm, causing him to stomp on its head before running.
+
+I chucked another bunch of matches at the thing as Scarlett ran over to her dad.
+
+His wrists had holes like his bicep, and Scarlett was burning them. I threw another handful at this thing.
+
+It was shaking and shrieking on the floor, as its body continued shriveling. It was slapping itself, desperate to get the flames off.
+
+It stood up, holding onto the shelf to support its blazing body. Scarlett grabbed a rubber band from one of the shelves, wrapped it around the lighter’s trigger, and threw the makeshift torch like a dart toward the screaming fire.
+
+It went into its mouth, and it stopped screeching, and it sounded like it was choking.
+
+It collapsed under the fire and began sizzling.
+
+“You ok sir?” I asked her dad.
+
+“Kinda, my wrists are messed up, but the hole covered one is still usable, ironically. Thank you for helping,” he replied as he was breathing heavily.
+
+As we walked out, we were met with flamethrowers
+
+“It’s going to be hard to explain, but something horrible is in there,” a soldier in a black fireproof suit said.
+
+“Oh we… already killed it, hopefully it's dead,” Scarlett's dad said, still shaken.
+
+The soldiers stepped back. “We will check, get out here.”
+
+They went down to see it, and one looked back at us.
+
+“Damn you guys actually did it,” they said. “And did a great job. How did you three find out it was flammable?”
+
+Scarlett and her dad told them about the urban exploration incident and showed them the marks.
+
+“Shit, did you call?” one of them asked.
+
+“No, we didn't think anyone would believe us.”
+
+“I understand. This…. Whatever it is, grows like mold. And can infect organisms that are large enough to not have their bodies severely damaged by the holes. It's a miracle you guys made it out. A substitute teacher here called 911, which was transferred to us. Apparently, your principal was letting it flourish, because the holes do make good garbage disposals. The teacher got poked by a tendril and felt a sharp pain in their finger. The principal should've just put a trash can down here. That teacher is ok, and had a fingertip amputated.”
+
+“So that's what happened to Mr. Black,” Scarlett uttered.
+
+“He will be back tomorrow, kid.”
+
+“Phew, I was worried about him. He's the only reason I haven't dropped out,” she chuckled.
+
+“Anyway, you three have done an exceptional job, we're just incinerating the rest on the wall, and I'll hand over some cash for your wrist, no need to pay me back.”
+
+“Oh, thank you sir,” Scarlett's dad said, his sweet tone coming back.
+
+“No problem, view it as an apology for getting here late. The growth is most common in the Midwest, so it's in the center of that area. Getting from Iowa to Washington State is a long trip.”
+
+The agent pulled a 5000$ check from their wallet and handed it to her dad.
+
+He thanked him, and the squad left, carrying the charred creature with them.
+
+School was cancelled and everyone, including us, left. They dropped me off at my house, and me and Scarlett played TF2 the rest of the day.
+
