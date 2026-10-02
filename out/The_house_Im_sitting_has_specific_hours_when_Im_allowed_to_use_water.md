@@ -102,7 +102,7 @@ I stood there looking at my hands. The skin around my knuckles had gone pale and
 
 At 2:37, the shower turned on.
 
-I lay in bed for ten full seconds while Rosie stood beside the bed and said nothing. No bark. Just standing there in the dark, watching the door.
+I laid in bed for ten full seconds while Rosie stood beside the bed and said nothing. No bark. Just standing there in the dark, watching the door.
 
 I got up. She didn't follow.
 

@@ -810,4 +810,8 @@ BANG. BANG. BANG.
 
 Someone was inside Payton House.
 
-And we’d been promised three million dollars not to open the door.
+And we’d been promised three million dollars not to open the door. 
+
+PART 2:
+
+[https://www.reddit.com/r/nosleep/comments/1wvs54s/ive\_moved\_over\_four\_hundred\_houses\_only\_one/](https://www.reddit.com/r/nosleep/comments/1wvs54s/ive_moved_over_four_hundred_houses_only_one/)
