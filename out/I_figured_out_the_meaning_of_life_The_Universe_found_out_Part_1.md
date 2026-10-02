@@ -77,7 +77,7 @@ My hand was cold and almost numb against the wall from supporting my weight for 
 
 I don’t wear anything fancy during my shows. A black band shirt. Black jeans. Hair in the same man-bun my Dad disapproves of. 
 
-Turns out, you can buy your fathers approval though. He doesn’t bring it up anymore. 
+Turns out, you can buy your father's approval though. He doesn’t bring it up anymore. 
 
 More lightning. This time lighting up a kingdom in the sky. Clouds bubbled and rolled over each other, erupting far into the atmosphere.
 
@@ -85,7 +85,7 @@ The empire of clouds made the towering skyline feel much more like a human play-
 
 So much for the age-of-man, I thought. This storm was going to be rough.
 
-The night was settling further into a silky purple colored blanket, seemingly comforting the skyline as it approached. A foggy mist blotched the dimming night sky, and as if on queue, the street lights came on block by block. Followed quickly by the inside lights of the late night scene.
+The night was settling further into a silky purple colored blanket, seemingly comforting the skyline as it approached. A foggy mist blotched the dimming night sky, and as if on cue, the street lights came on block by block. Followed quickly by the inside lights of the late night scene.
 
 Pushing my weight into the wall I leaned further into the windowsill, allowing myself to get a better look at the sky above the arena. A full moon. Bright stars, decorating its luminescent glow, shone in the clear sky above the arena yet to be downed out by the oncoming clouds. 
 
@@ -93,7 +93,7 @@ I sighed, remembering more than I should. You know how it goes, right? 
 
 Time for the show. 
 
-“The lord giveth, the lord taketh away.” I said whipping around, loud enough for anyone close to hear. 
+“The lord giveth, the lord taketh away.” I said, whipping around, loud enough for anyone close to hear. 
 
 “Mom used to say that.” A voice answered from my side. Alan, my brother and manager.
 
@@ -121,7 +121,7 @@ Lightning struck the ground somewhere closer, and a rumble engulfed the arena. E
 
 My head hung low hiding a smile, while my body made itself heavier. I said, 
 
-“I’m not bringing your wife anywhere. She works for us. There’s a good chance she’s about to walk through that door, right now.” I point behind me without looking back. Still on my knees, head down, face now covered with fake sorrow.  
+“I’m not bringing your wife anywhere. She works for us. There’s a good chance she’s about to walk through that door, right now.” I pointed behind me without looking back. Still on my knees, head down, face now covered with fake sorrow.  
 
 A door flew open and a voice pierced through the white noise of diligent backstage technicians, and the costume and make-up staff. Veronica, our stage manager. 
 
@@ -141,7 +141,7 @@ He needed a job and I needed to, deep down, give back to the community. Any comm
 
 We snatched him up like children saving a rabbit. And, hired him after listening to his unique style and unparalleled stories for 40 minutes. Arriving late to our set. But with a cheerfully surprised new staff member. The crowd didn’t mind us being late at all, it was great.  
 
-Alan likes to say we’re the biggest band since the Beatles. I don’t even like the Beatles. And ‘band’ is just the colloquially accepted term. I am a ‘creative ass’ singer and song writer, with a beatmaker. As online commenters like to mention. I’ll own that. 
+Alan likes to say we’re the biggest band since the Beatles. I don’t even like the Beatles. And ‘band’ is just the colloquially accepted term. I am a ‘creative ass’ singer and songwriter, with a beatmaker. As online commenters like to mention. I’ll own that. 
 
 We used to hire different musicians for almost every show. College students, mostly. Almost as good as the professionals. Of course, I vet them. Veronica finds them. We make it work. It’s getting harder and harder to make it work for cheap now we are so big. Alan has been floating the idea of a permanent band staff. 
 
@@ -165,11 +165,11 @@ Odd.
 
 He never uses his phone. He wore a black band hoodie with baggy white sweatpants. Headphones leading from one ear down to his phone. His mouth was moving and his head was angled down. He was talking to somebody. 
 
-I turned around to face the door where the voice was resonating from. Standing up, I look over to Veronica. It’s always easy to track where her voice was coming from, even with everyone warming up and getting ready around us.
+I turned around to face the door where the voice was resonating from. Standing up, I looked over to Veronica. It’s always easy to track where her voice was coming from, even with everyone warming up and getting ready around us.
 
 Dang. I really needed to stretch. I made a mental note to do that before going on stage.
 
-I reach out and grab a nearby bottle of water, cracking it open and taking a quick couple sips, before setting it back down on the foldable table. 
+I reached out and grab a nearby bottle of water, cracking it open and taking a quick couple sips, before setting it back down on the foldable table. 
 
 Alan backed up, turned around, and threw on his real smile for the first time all evening. 
 
@@ -183,7 +183,7 @@ I turned and gave a quick smile at my brother. He was a lucky guy. I don’t thi
 
 I’m not allowed to make the joke about being born ready anymore. Not after passing out from heat exhaustion during a festival in Orlando. I took a few quick steps towards her, Alan followed.
 
-“Hey, grab me a quick slice of pizza from the other room? I just need a bite. And a coke? Please. How are you by the way? I haven’t seen you in almost – ” pantomiming an exaggerated look down to an imaginary watch. 
+“Hey, grab me a quick slice of pizza from the other room? I just need a bite. And a coke? Please. How are you by the way? I haven’t seen you in almost – ” pantomiming an exaggerated glance down to an imaginary watch. 
 
 “Forty minutes. We almost called the police.” I rushed to her side. Going for her hand and flashing puppy eyes. 
 
@@ -195,7 +195,7 @@ She’s great at her job, too. 
 
 Lightning rattled the building again. Fred stopped looking down and threw a glance to the windows before quickly returning to his conversation. Must be important, I thought. 
 
-A handful of the dancers stopped chatting and getting ready to turn and look towards the windows. Alan broke the silence, face in his phone again.
+A handful of the dancers stopped chatting and getting ready to turn and looked towards the windows. Alan broke the silence, face in his phone again.
 
 “Hey look here. The world’s biggest Coke-a-Cola fan ended up 2026’s largest company sponsor. Great job Ace.” Patting me on the back, looking over with his usual grin that followed noteworthy yet funny milestones. He gestured towards his phone, urging me to look. 
 
@@ -231,9 +231,9 @@ For a second, the flash lit up the room, and I saw something to my right. My att
    
 Something began to manifest out of the corner of my eye that wasn’t there before, so I turned to the right fully. I saw something again, obscured by darkness. 
 
-Another flash of lighting baked the sky with light, and I saw it. 
+Another flash of lightning baked the sky with light, and I saw it. 
 
-For a moment, I froze in terror. All the blood rushed to my head and legs, immediately in fight-or-fight. In the corner of the dressing room behind the table of stacked merch boxes. Partially covered by a rack of clothes, concealed behind various fabrics, she stood still as a stone. 
+For a moment, I froze in terror. All the blood rushed to my head and legs, immediately in fight-or-flight. In the corner of the dressing room behind the table of stacked merch boxes. Partially covered by a rack of clothes, concealed behind various fabrics, she stood still as a stone. 
 
 It was an ethereal older woman. A specter, drenched in hollow moonlight. An older white gown resting on her body. Without moving my head too quickly, I turn a little slightly more in her direction. 
 
@@ -273,7 +273,7 @@ If I grabbed the card, if I went for the rules, then I’d be playing the game w
 
 The universe can starve. I’m not engaging with it. I’m not engaging with anything supernatural tonight. Please. Just one night, go hungry. Release your grips from the tender meat of man. Get your claws out of me. Just one night. Tonight means so much to us. 
 
-It felt as if a blood stained mouth laughed at me from behind the veil. Though I couldn’t hear it, I could feel the warmth of its breath against my skin in the form of fear and anxiety. Crawling all over me. Fouling me, from my feet up to the nape of my neck. The woman in white adjusted her gaze and cocked her head, never releasing her grip on my eyes. 
+It felt as if a blood-stained mouth laughed at me from behind the veil. Though I couldn’t hear it, I could feel the warmth of its breath against my skin in the form of fear and anxiety. Crawling all over me. Fouling me, from my feet up to the nape of my neck. The woman in white adjusted her gaze and cocked her head, never releasing her grip on my eyes. 
 
 The Old Hag was back. Using the moonlight as a guide, I stared straight into her being. Angry. I found her dark center by force of will. Her expression faltered. Mildly curious, but resistant, willing to stare me down. Like a certified gilded representative of darkness. 
 
@@ -301,13 +301,13 @@ Veronica and Alan were talking about something in a whisper, sitting side by sid
 
 Not this again. I can’t think about her now. We’re at fucking Madison Square Garden. 
 
-The garden. The beginning to so many symbolically and a right of passage for any mega star artist. Just another fucking show for me, right? Just another show, I told myself. 
+The garden. The beginning to so many symbolically and a rite of passage for any mega star artist. Just another fucking show for me, right? Just another show, I told myself. 
 
 I don’t believe in gods or devils, nor burning bushes or blasphemy. I believe in the rules. 
 
 The rules clearly outline that if it were absolutely necessary for life to continue? The bush COULD have burned. It probably did light on fire. But dammit if there is a god? They have no friend in me. I briefly believed in god once. It felt like drowning. 
 
-The architecture of thousands of years of faith still boils in my DNA and I often am stricken with pain when trying to accept my own understanding of totality. That of a godless-uncaring universe. That there is just us, a hungry universe, and trillions of ways to feed it. Trillions of possibilities. Billions of different meal options. 
+The architecture of thousands of years of faith still boils in my DNA and I often am stricken with pain when trying to accept my own understanding of totality. That of a godless, uncaring universe. That there is just us, a hungry universe, and trillions of ways to feed it. Trillions of possibilities. Billions of different meal options. 
 
 At least we have a relationship with the universe. It takes two to tango, after all. 
 
@@ -345,7 +345,7 @@ Atoms Nettled forever – after all. 
 
 Realizing deep thought had taken over, I finally shook it off. I threw on a smile to fool my brother and walked over to them. They were both standing there, looking at me, waiting for a response. Their attention now back from the storm and their previous conversation.   
 
-“Bro, you know about my migraines. You know how I was as a kid. You know what meal I have specifically requested after waking up from a potentially coma. Of course I am happ – ” he cut me off. I almost forgot we just landed a killer sponsor. 
+“Bro, you know about my migraines. You know how I was as a kid. You know what meal I have specifically requested after waking up from a potential coma. Of course I am happ – ” he cut me off. I almost forgot we just landed a killer sponsor. 
 
 His eyes moved away from his phone as he looked at me and smiled, “cheese burger and a coke. I remember.” He laughed some more and turned to remind Veronica about my request for a snack. She smiled, congratulated me again, and she walked away for a slice of pizza. 
 
@@ -409,4 +409,4 @@ Thunder rolled over the sky, landing with a thud onto the ground. Lighting bounc
 
 Slightly turning, making sure to be out of view, I swallow and sigh. Can’t be seen as nervous. Turning back around I felt like a captain of a ship in rough water. Strong and stern. Willing and honoring an unspoken pledge — to go down with the ship. 
 
-Cont. [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1wun4mq/i_figured_out_the_meaning_of_life_the_universe/)
+Cont.
