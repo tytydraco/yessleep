@@ -1,0 +1,655 @@
+The wifi keeps disappearing, so I’m putting this in my notes. If it comes back long enough I’m gonna try to post the whole thing at once.
+
+I’m in a small guest room somewhere in the middle of my great aunt’s house. This is the only room I’ve found where I know I’m 28 years old.
+
+I look like myself in the mirror over the dresser. My face is right. I remember my name. I remember coming here with Owen this morning. At least I think it was this morning.
+
+I don’t know where the entrance to the house is anymore. I don’t even know what floor I’m on. There are three doors in this room. I’m afraid to open any of them because I don’t know how old I’ll be on the other side. I don’t know if there’s any route through this house that ends with me walking out the age I’m supposed to be.
+
+Owen is still somewhere in the house. I heard him scream after he ran through one of the doors. Then I heard pounding. Like someone throwing their entire body against the wall. I ran the other way. I shouldn’t have left him. I couldn’t stop myself. I’m sorry.
+
+The last room I entered almost killed me. The moment I crossed into this one my body was right again. I could stand. I could breathe. I’ve since moved the dresser in front of the door I came through. Nothing’s tried to open it yet. But I’ve heard something on the other side.
+
+There’s no phone signal or I would’ve called the cops already. The wifi appears for a few seconds at a time then vanishes. I keep thinking I hear Owen calling me from somewhere. Once it sounded like he was above me. A few minutes later it came from this floor.
+
+I have to find him. I’m just too terrified of what’s on the other side of these doors. I’m gonna write down everything that happened while I can still separate my own memories from the others.
+
+Nell and Arthur. That’s where it started.  
+  
+———  
+  
+Nell is my grandma’s older sister. Her real name’s Eleanor, but I never heard anyone call her that. Not until the funeral.
+
+She and Uncle Arthur were found nine weeks ago in the back garden. They were lying twenty feet apart in their pajamas. The police decided Nell must have wandered outside and Arthur went looking for her. It was freezing and foggy. They never found each other.
+
+I kept thinking about that as Owen and I carried the cleaning supplies up the front steps.
+
+This house is old. Aunt Nell always reminded us it was one of the oldest homes in our part of the south. She was really proud of that.
+
+It’s a beautiful house, but you can tell from the outside how many renovations it’s been through. Owen said it looked like every family who lived here had tried to build far enough away from the family before them. It wasn’t that funny, but it made me laugh. Owen was good at that.
+
+I met Owen in 4th grade but didn’t officially start dating him until junior year. His style has barely changed in all those years. Baggy black t-shirts and ripped jeans. He looks like the kind of person who might steal your car, but he’s more likely the one to help you jump it.
+
+Aunt Nell liked him immediately. We visited her and Uncle Arthur together at least once a month, more often after my grandmother died. By then, most of the family had stopped visiting because being around Nell made them uncomfortable. She confused people’s names. She spoke about dead relatives like they’d just left the room. Sometimes she’d ask visitors how old they were and refused to accept their answer.
+
+Uncle Arthur wouldn’t let anyone take her to a doctor. He said doctors would just tell her she had dementia because they didn’t understand what was actually happening to her. When my mother suggested assisted living, he told her never to come back.
+
+But I swear Nell was different when I visited. Sometimes, she even seemed to understand things about me before I did. When I asked how she knew, she said I told her more than I realized. I thought she meant that she could read me. Now, I’m not so sure.
+
+Despite all those visits, neither Owen nor I had ever been deeper inside the house than the foyer. Nell said the rest of it was too cluttered and she’d be embarrassed to let us see it.
+
+She served us the same biscuits every time. They tasted a little like black licorice, with a flower pressed into the top. Every time I visited, there were always exactly four of those biscuits waiting when we arrived. We both hated them, but we ate them to make Nell happy.
+
+That biscuit tin was the first thing I noticed when I entered the house this morning. Everything in the room was exactly the way it always was. The long mirror, the green wallpaper, and the narrow table where Nell arranged the biscuits.
+
+Owen set down the contractor bags. He grabbed the tin and immediately dumped the contents in one of the bags. “On the bright side, we don’t have to eat these anymore.”
+
+The will had left the house to both of us, which surprised everyone. Owen and I aren’t even engaged, and Uncle Arthur had never seemed particularly close to either of us. But the house was paid for. Even if it required major repairs, living there might be our one shot at home ownership. But first, we had to empty it.
+
+Everyone warned us about Nell’s hoarding. If something entered the house, it stayed. Owen made sure we came prepared: gloves, flashlights, garbage bags, masks.
+
+We turned our attention to the large double doors at the end of the foyer. We’d seen them hundreds of times, but we’d never seen them open. It took both of us to move the boxes Arthur had stacked in front of them. The key from the estate attorney turned the lock.
+
+Owen opened the door. The smell of dust and damp wood hit us. There was something faintly sour underneath. The air felt colder than in the foyer.
+
+Beyond the door was a central hall larger than I had imagined the house could contain. A carved staircase curved toward the second floor. A stained glass skylight covered the ceiling three stories above us. 
+
+Then we got a look at the rest of the room. Boxes were piled above my head. Bundles of newspapers lined the walls. A few narrow paths had been left between leaning stacks of furniture and clothes. Owen stared into it.
+
+“We should’ve brought breadcrumbs.”
+
+He smiled at me, put on his gloves and took his first step across the threshold. I hesitated. I remember that clearly. I thought about how Nell had never allowed me to cross that line. Owen held out his hand.  
+  
+“You coming, Grace?”
+
+I took it and followed him in. Somewhere on the floor above us, a board creaked. Owen looked up. Another creak. Owen squeezed my hand.
+
+“Probably a raccoon or something,” he said.
+
+I nodded. My eyes caught a row of framed pictures. The faces were all turned toward the wall. I didn’t think to turn any of them around.
+
+After a few seconds in the room, I noticed that I suddenly felt tired. Not sick. Nothing dramatic. My body just felt heavier. It was like we’d arrived at the house after working all day instead of first thing in the morning. I blamed the emotion of it all.
+
+Owen found a bank of switches beside the doors and flipped them all at once. They were much brighter than I expected. Harsh yellow bulbs blazed in the chandelier above us, exposing cracks in the plaster and layers of dust. Owen sneezed four times.
+
+“Jesus Christ.” When he turned toward me, I noticed the bags beneath his eyes. They were dark enough that I wondered how I’d missed them that morning.
+
+“You look terrible,” I said.
+
+“Good morning to you too.”
+
+“I told you not to move on to the second bottle last night.”
+
+He looked offended. “You did some respectable work yourself.”
+
+“I had two glasses.”
+
+“Right. Just two enormous, constantly refilled glasses.”
+
+He smiled, but those lights made the lines around his mouth look deeper.
+
+“You’re not exactly glowing either,” he added.
+
+I reached up and touched the skin beneath my own eyes. It felt puffy. Owen had a point.
+
+Then something shifted in my head. It wasn’t deja vu. I didn’t vaguely feel like I’d been there before. I was certain of it. And not just once. Many times.
+
+“Where do we even start?” Owen asked.
+
+“I don’t know. I feel like we should get a better look at the rest of the house first. I’d like to know just how much work this place needs.”
+
+“Okay. I vote we start upstairs.”
+
+“Why?”
+
+“Because I’ve spent half my life wondering what was up there.”
+
+He offered me his hand and a raised eyebrow. I could never say no to that.
+
+As we started up the staircase, the feeling that I had been there before became stronger. Halfway up, I stopped. Owen looked back. “What’s wrong?”
+
+“I don’t know.”
+
+My heart was beating too fast, but I had no reason for it.
+
+Then Owen shifted his weight to face me, and the step beneath him made a long, low groan. Somehow, I had known it would.
+
+“You okay?” he asked.
+
+I told him I was. But my legs ached. Owen was breathing a little harder too. He leaned against the banister at the top and rubbed one hand over his face. I shook it off and joined him on the second floor.
+
+The upper hallway curved with the shape of the house. It was narrow and crowded with more of Aunt Nell’s things. Every door was closed. There must have been ten of them, although the corridor continued around a bend, so I couldn’t see where it ended.
+
+Owen tried the first knob, but it was locked. The second door had swollen in its frame and wouldn’t budge. He continued around the bend until we reached a door painted pale blue. Nothing blocked this one.
+
+Owen looked back at me. He turned the knob, and the door creaked open.
+
+“Gotta start somewhere.”  
+  
+———
+
+The room beyond the blue door was even brighter than the central hall. I had to shield my eyes. Two tall windows filled it with sunlight. The walls were painted yellow. There was a child’s bed, a school desk and an open closet. Toys and books covered most of the floor, mixed in with Nell’s boxes and piles of clothes. Nell and Arthur had never had children, so I wasn’t sure what to make of it.
+
+Owen went directly to the closet. I moved toward the desk on the other side of the room.
+
+Whatever hangover I’d felt downstairs was gone. I wasn’t tired. My legs felt lighter. I should’ve asked myself why, but my thoughts kept jumping from one object to another before I could concentrate on any of them.
+
+There were colored pencils scattered across the desk. Without thinking, I started placing them back inside their box in the order I thought they belonged.
+
+Behind me, I heard Owen push aside some hangers.
+
+“Still full of clothes,” he said. It sounded like something was caught in his throat. I figured it was the dust.
+
+I found a wooden horse beside the pencil box. One of its legs was missing. For some reason, I felt guilt looking at it. Like I was the one who broke it.
+
+I shook that thought away and reminded myself I’d never been in this room before. When I turned away from the desk, a little girl was standing right in front of me. 
+
+She was seven or eight, pale hair cut at her chin. She wore a polka dot dress. I jumped back at the sight of her.
+
+I hadn’t heard the door open. She was just standing there. Watching me.
+
+“Bird?” she said.
+
+I couldn’t answer. What the hell was she doing here? Her expression changed.
+
+“Bird, what’s wrong?”
+
+“Owen.”
+
+The girl took a step toward me.
+
+“Owen, get out here.”
+
+“What?”
+
+“Now!”
+
+I heard him push his way out of the closet. My eyes were still on the girl.
+
+“Whoa,” he said. He sounded as freaked out as I was. “What are you doing here, little girl?”
+
+The girl laughed like he’d said something stupid.
+
+Owen glanced toward me.
+
+“Grace, who is—”
+
+He stopped.
+
+“…what the fuck?”
+
+I finally looked directly at him. Owen wasn’t standing beside the closet. A 12 year old boy was. He had dark hair hanging across his forehead and a black shirt. He was staring at me with his mouth open.
+
+*Boys aren’t supposed to come upstairs.* That was my first thought. It made perfect sense for maybe half a second. Then something inside me recoiled. I’d never been here before.
+
+The little girl moved closer to me.
+
+“Stop!”
+
+“Bird, come on,” she said.
+
+“Stay away from me.”
+
+“You said we were gonna play!”
+
+My eyes darted toward another door beside the bed.
+
+I ran for it.
+
+The boy shouted my name behind me. “Grace!” But I didn’t stop.
+
+———
+
+I ran through the door and slammed into a chair hard enough to knock myself to the floor. I struggled to catch my breath. The room looked like some kind of study. Books covered the walls, and the floor was buried beneath papers and overturned furniture.
+
+I heard the door open again. I couldn’t even look back. I pushed myself to my feet. Then something grabbed me. A man’s arms. I didn’t have enough breath to scream. Then I heard the voice.
+
+“Grace. It’s okay. I’ve got you.”
+
+I turned back to see Owen. My Owen. He reached for my face but I knocked his hand away.
+
+“Where were you?”
+
+“What?”
+
+“Where were you, Owen?!”
+
+“I was in that room with you.”
+
+“No you weren’t! There was a girl. A little girl. And then there was this boy. He came from the closet.”
+
+Owen stared at me. He was breathing almost as heavily as I was. He didn’t speak.
+
+“Why weren’t you there?!”
+
+“I was!”
+
+He caught my wrists when I tried to push him away. Not hard. Just enough to keep me still.
+
+“Grace, look at me.”
+
+I tried to pull away.
+
+“Look at me.”
+
+I did. He was trying to help. 
+
+“You were in the closet,” I said. “Then that boy came out.”
+
+Owen’s face changed. I continued.
+
+“He was 11 or 12 or something. He had dark hair and—”
+
+“That was me, Grace…” He swallowed. “You were a kid, too.”
+
+My stomach turned. “That’s not true.”
+
+“I walked out of the closet and you were standing there with that girl. Both of you were children. I remember you at that age, Grace. It was you.”
+
+I backed away from him. I remembered that boy staring at me. I remembered thinking he shouldn’t have been upstairs. But now that I really thought about it, that was exactly how Owen had looked when we first met. It was him.
+
+I put both hands against my chest. My heart was beating too fast.
+
+Owen stepped toward me slowly. He held up his hands. “Breathe.”
+
+“Don’t tell me to breathe.”
+
+“I’m not telling you to calm down. I just don’t want you to pass out.”
+
+He was right. I forced myself to take a breath.
+
+“What the fuck is happening, Owen?”
+
+He looked around the study and forced himself to think.
+
+“Maybe there’s something in the house,” he said. “Gas. Mold. Some kind of chemical.”
+
+“That doesn’t make you 12 years old.”
+
+“Maybe… it can make you think you are.”
+
+His voice broke. He was scared. And that frightened me more than anything that had just happened. He looked back at the door.
+
+“I think we should check on that girl.”
+
+“No!”
+
+“What if she’s lost?”
+
+“We don’t even know if she’s real!”
+
+“But what if she is?!“
+
+“I said no!”
+
+Of course Owen wanted to help. That was who he was. But I wasn’t going back in there. I touched his arm. He pulled me closer. And that’s when I saw it.
+
+At first I thought the small circular shapes were part of the wallpaper. Then I realized they weren’t printed. Some had been drawn in ink. Others in pencil or charcoal.
+
+“Owen.”
+
+They were all slightly different, but each had the same shape at its center: a circle surrounded by thin branching lines. A flower. The same symbol stamped into Nell’s biscuits.
+
+Owen followed my stare. The symbols continued around both doorframes. I even saw some carved into the floor beneath the loose papers. Owen reached toward one. “Is that…”
+
+“Yeah.”
+
+Before either of us could speak, four loud knocks struck the door.
+
+“Bird?” It was the little girl’s voice again.
+
+Owen looked toward the sound.
+
+“Don’t touch that door!”
+
+I shouted so loudly my throat hurt. Then I saw another doorway on the far side of the study.
+
+“Grace, wait!”
+
+I ran through it before Owen could stop me.
+
+———
+
+I stopped just beyond the doorway of the next room. White curtains hung over a single window. As usual, there were boxes everywhere. But the center of the room was kept clear around an old wooden crib.
+
+Owen came through behind me and pulled the door shut.
+
+“Grace, please. Just stop for a second.”
+
+I turned toward him. He’d changed again. He was still Owen, but he looked close to forty. Gray had appeared at his temples. The lines on his face were deeper than they’d been in the main hall. Even his voice sounded older.
+
+The way he stared at me told me I had changed too. He didn’t say a word. He stepped closer. He touched my hair and stared at the gray strands caught between his fingers. 
+
+“Okay,” he said. “Listen to me. We’re going home.”
+
+For once, I didn’t argue. I only asked how.
+
+“We go back the way we came. We don’t open any doors we haven’t been through already. If the girl is still there, we’ll ignore her. We can call the police from outside.”
+
+He was forcing himself to speak slowly because one of us needed to.
+
+I just nodded. Then I looked at the crib. There was no sound. Nothing moved inside it. But something took over. That’s the only way I can describe it. 
+
+The sadness came first. Then I felt the worst grief I’d ever felt. I knew that crib, and I knew something was missing.
+
+“Where is he?”
+
+Owen had already started toward the door. He stopped.
+
+“What?”
+
+I moved closer to the crib.
+
+“Where is he?”
+
+“Where is who?”
+
+I looked inside. It was empty. The mattress held a faint indentation in the center. Something inside me broke.
+
+“Our son!”
+
+Owen stared at me.
+
+“What are you talking about?”
+
+“Where is our son?”
+
+“Grace, we don’t have a son.”
+
+That got through to me. I knew we didn’t have a son. We’d never decided whether we even wanted children. But I also remembered holding a little boy against my chest while he slept. I remembered the weight of his head on my shoulder.
+
+I tried to turn away from the crib, but I couldn’t. “He can’t be gone,” I said.
+
+Owen moved toward me. I grabbed the crib and shook it.
+
+“Thomas!” I screamed.
+
+“Grace, stop.”
+
+“He can’t be gone!” 
+
+“No one is gone. There is no Thomas!”
+
+I hit him when he tried to touch me. I didn’t decide to do it. One moment he was reaching for me, and the next my hand had struck his face. I’d never done that before.
+
+He flinched, then grabbed me around the waist.
+
+“We’re leaving. Now!”
+
+“No. Put me down.”
+
+He dragged me toward the door we’d entered through and grabbed the knob. It wouldn’t turn. He tried again.
+
+“Fuck.”
+
+There was another door beside the crib. He yanked it open and changed direction.
+
+“Thomas!”
+
+“Stop it, Grace!”
+
+I fought him. I caught the doorframe with both hands. Leaving that room meant accepting that he was gone. What the hell was I saying to myself?
+
+Owen tore my hands away from the frame and pulled me across the threshold.  
+  
+———
+
+The second I entered the next room, the grief was still there, but it was a dull ache now.
+
+Owen set me down and I realized we were in a bedroom. From the looks of it, the master bedroom. Tall curtains nearly blacked out the room. A carved wooden headboard reached halfway to the ceiling.
+
+The symbol had been carved into the headboard.
+
+A chill moved through me.
+
+My mind was changing again. Someone named Thomas still existed in my memory. But I knew again that Owen and I had never had a child.
+
+It didn’t matter how any of this was happening. We had to get out.
+
+I turned toward Owen. His body stood still. He was facing the door we just came through.
+
+“I don’t know what came over me, Owen.”
+
+He didn’t respond.
+
+“We’ll find another way around that room, but we’re leaving now.”
+
+He still didn’t move.
+
+“Owen?”
+
+When he turned toward me, he had aged again.
+
+He was in his fifties now. His hair that remained was completely gray. I’d never seen him with a beard before. The skin beneath his eyes had darkened. Tears filled them.
+
+“How could you do this to me?”
+
+“I’m sorry. I didn’t mean it.”
+
+“After everything we’ve been through.”
+
+His voice wasn’t just older. It was deeper, like it was filled with a lifetime of regrets.
+
+“I should never have hit you. But that wasn’t me, Owen.”
+
+He blinked several times. For a moment, his expression changed. His eyes focused on me.
+
+“Grace?”
+
+“Yes.”
+
+“I don’t know…”
+
+His gaze moved past me toward the bed and his confusion disappeared.
+
+“I don’t understand how you could do this to me!” He said it louder this time. Angrier.
+
+“Owen, listen. Whatever’s going on in your head, it isn’t real.”
+
+“Don’t do that again.”
+
+“Please listen to me!”
+
+“For once in your fucking life, just stop lying!”
+
+“What am I lying about?”
+
+“I saw you!”
+
+Those words triggered something inside me. A memory struck me. A hotel room and cigarette smoke in the afternoon light. I saw a strange man fastening the buttons of his shirt while I sat on the edge of the bed. But I couldn’t see his face.
+
+The memory collapsed, leaving behind a sick feeling in my stomach.
+
+Owen saw it on my face.
+
+“Do you love him?”
+
+“I don’t know who you’re talking about.”
+
+“Do you fucking love him?”
+
+Suddenly, Owen grabbed a vase from the bedside table and threw it across the room. It struck the wall beside me and exploded. The pieces scattered across the floor. In all our arguments, I’d never seen Owen do anything like this.
+
+“Owen, stop!”
+
+“I was there for you after we lost him. I agreed not to try again. I gave you everything!”
+
+“None of this is real!”
+
+“I stayed with you. I protected you when everyone else said I should leave.” He was crying openly now. His hands shook at his sides. “And this is how you repay me?!”
+
+“I didn’t do anything.”
+
+“Shut up!”
+
+Owen lunged toward me. The next second, his hands were around my throat.
+
+I was powerless in his grip. The words barely came out of me.
+
+“Owen, please. Stop.”
+
+“Stop fucking lying to me, Bird!”
+
+Even as I gasped for air, the little girl’s voice came back to me. *Bird, what’s wrong?*
+
+As soon as he said it, something changed in Owen. He saw the fear in my eyes. His expression broke. He released me and stumbled back.
+
+“Oh my God, Grace. I’m sorry.”
+
+I knew it was Owen again. At least for that moment. But I was still scared of him. He reached out for me, but I jumped back. Then his eyes moved past me again.
+
+“Is it who I think it is?”
+
+I stammered.
+
+“I… I don’t know who you’re talking about.”
+
+A harsh laugh escaped him and a wounded smile appeared on his face.
+
+“God, I knew it.” The smile vanished. “I’m gonna kill him. I’m gonna fucking kill him!”
+
+He charged right past me toward another exit. I tried to stop him.
+
+“Owen, stop!”
+
+He wouldn’t listen. He stormed into the next room and slammed the door behind him. I rushed to the door and grabbed the knob. It wouldn’t turn.
+
+For one second, there was silence.
+
+Then Owen screamed. At least I think it was Owen.
+
+I’d never heard a human being make a sound like that. It wasn’t anger. It was raw terror. The scream stopped as suddenly as it began.
+
+Something struck the floor.
+
+Then came the pounding.
+
+Each impact was louder than the last. It was moving toward the bedroom door. Moving toward me. 
+
+“Owen? What’s happening?!”
+
+There was no answer. Another impact shook the door in its frame.
+
+Fear took over completely. I didn’t think about whether Owen was injured. I didn’t think about what might be following him or whether he was the thing coming toward me.
+
+I just saw another door on the opposite side of the bedroom.
+
+And I ran.
+
+———
+
+I ran through the next door without looking where it led. The room beyond was dark and narrow. I crossed it and opened another door.
+
+The pounding followed me. I kept opening doors.
+
+Every room changed my body. I could feel it happening even when I couldn’t see it.
+
+Glass cabinets caught pieces of my reflection as I passed. I kept my eyes away from all of them. I didn’t care how old I was. I only cared that I could still run.
+
+The emotions changed too.
+
+For five or six steps, I was happier than I had ever been. Then I crossed another threshold and wanted to hurt someone. In the next room, the grief hit me again so hard that I nearly stopped. Then came terror. Then guilt.
+
+Images and sounds flooded my mind:
+
+Snow falling outside a hospital window.
+
+The symbol drawn in salt around an empty crib.
+
+A book spread open beneath candlelight. 
+
+Pages covered with drawings of bodies inside circles. Handwritten notes in the margin.
+
+A dinner plate shattering against a wall.
+
+Something heavy wrapped in a bedsheet being dragged down the back steps. 
+
+Mud beneath my fingernails and the sound of a shovel cutting into wet ground.
+
+A man’s voice: “No one can ever know.”
+
+I kept running.
+
+The whole time, the pounding moved through the house behind me. Sometimes it sounded several rooms away. Then I would cross another threshold and hear it directly behind the door I had just closed. It was getting closer.
+
+I reached a staircase. I remember taking the steps as fast as I could. I remember gripping the rail. But I can’t remember whether I went up or down. 
+
+By the time I reached the next floor, the pounding sounded farther away. But I didn’t stop.
+
+The hallway curved twice before ending at another door. I threw it open and ran inside.
+
+I made it five steps before my legs collapsed.
+
+My knees struck the floor. I tried to push myself up, but my arms shook beneath me and gave out. I couldn’t breathe properly. My heart thumped against my chest. Every part of me felt heavy.
+
+Finally, I saw my hand against the floor.
+
+The skin was thin and loose. Dark veins crossed the back of it.
+
+A tall oval mirror stood across the room. I forced myself to look up.
+
+I was staring back at myself in my eighties.
+
+My hair was white. I knew I was close to death.
+
+I screamed.
+
+The pounding started again behind me.
+
+The door I had entered through was too far away. Another door stood beside the mirror, only a few feet from me.
+
+I had no idea what was on the other side. I could become even older. I could become too young to reach another doorknob. Whatever that room did to me could kill me before I had the chance to leave it.
+
+I dragged myself across the floor, reached the nearest knob and tried to turn it. My hands were shaking too badly.
+
+“Please,” I whispered.
+
+Another impact shook the room.
+
+The knob finally turned.
+
+I pulled the door open and crawled through.
+
+———  
+  
+The room I crawled into is the guest room I’m sitting in now.
+
+As soon as I crossed the threshold, my hands looked right again. The pain in my joints disappeared. I could breathe without feeling as though something was crushing me.
+
+I think I’m 28.
+
+I look 28. My phone recognizes my face.
+
+I have no idea where I am in this house.
+
+I locked the door I’d entered through and pushed the dresser in front of it. The pounding continued for a while after I came in. Then it moved away.
+
+I haven’t heard it for almost an hour now.
+
+I know Owen is still somewhere in this house. I’m scared about who he’ll be if I see him again. What if he still wants to hurt me?  
+  
+It doesn’t matter. I need to find him. Every time I picture him lost in there, I feel like I’m gonna be sick. But I can’t open another door.
+
+There are two besides the one I came through.
+
+I don’t want to think about the things I remembered while I was running.
+
+There’s a photograph on the desk beside me.
+
+I didn’t pay attention to it when I first came in. It shows Nell and my grandma sitting together a few years ago. It looks like it was taken at a family reunion. They’re smiling and each of them is holding a framed photograph of herself as a child.
+
+My grandmother’s photograph shows her at seven or eight years old. Pale hair cut at her chin. She’s wearing a polka dot dress. She’s the little girl from the bedroom. The one who asked me to play.
+
+The childhood photos have names written beneath them. 
+
+Under my grandma’s it says “Rosie”. 
+
+Under Nell’s… it says “Bird”.
+
+The wifi has one bar again. I’m going to try to post this before it disappears.
+
+If anyone sees it, please call the police in Bellweather. Tell them two people are trapped inside the old house on the northern edge of town. They’ll know the one. Tell them not to use any of the doors. Tell them to break through a window or tear through the walls if they have to. Please tell them Owen and I are still in here.
+
+Someone has started calling my name from somewhere outside this room. It sounds like an old man. A second ago, he was shouting “Grace”.  
+  
+Now he’s calling me Bird.

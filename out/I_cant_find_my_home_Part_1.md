@@ -1,0 +1,39 @@
+Death is the one thing humanity can't avoid. But how do we know we're not already dead? How do we know that what we're doing right now, this thing we call living, isn't just the last memory of a dying brain? Because according to science, right before death the brain stretches time out and pulls up all the good memories. So what if that stretched-out window of time is... right now? What if everything we're doing is just a memory, and the real me is lying in a coma somewhere, close to death?
+
+My name is Rin. And yes, that's not my real name. I can't tell you my real one, because you'd dox me. I was in the tenth grade at the time, and my school is pretty well known. Every year it runs a competition to send students abroad as exchange students, and that year one of the destinations was California. I wanted to chase opportunities, so I entered, and I went. I stayed about a year and a half.
+
+But during that time, I missed home so much. Thailand. America doesn't have pad kra pao (Thai basil stir-fry). No khai jiao (Thai omelet). And most importantly, no Mama instant noodles. Oh my god, my all-time favorite food. Anyway, I'm getting off track.
+
+I was finally on my way home. My flight got delayed two hours because of the weather, but it finally showed up. I walked down the jet bridge and found my seat. Business class. Just kidding. Economy. Obviously. I was a student. I was broke.
+
+The cabin looked old, even older than the plane that brought me over here. The seat fabric was worn shiny at the edges, and the tray table had a sticky patch that someone had clearly tried to wipe once and given up on. My seat-back screen took about ten minutes to boot up, and when it did, there was a thin dead line of pixels running straight through the middle of the Pacific. The air smelled like old carpet and recycled breath. The reading light above me flickered a couple of times, like it couldn't make up its mind. The woman next to me, maybe in her thirties, gray hoodie, neck pillow, was out cold before we even took off.
+
+Dinner was either chicken or pasta. I picked chicken. It tasted like wet cardboard in sauce, and the whole time I was thinking, I would kill for a cup of Mama right now.
+
+The flight went on like that until the middle of the night. The cabin lights dimmed. Everyone pulled their window shades down, and the only things left were the blue glow of a few screens and the steady hum of the engines. I got up to go to the bathroom, planning to sleep right after, because it was really late by then.
+
+Right after I stood up, I felt like I was about to die. I'm not exaggerating. It was this sinking feeling in my chest, like when you're on a bus going at high speed and it hits a bump, and for a split second your body leaves the seat while your stomach stays behind. That feeling. I stood in the tiny bathroom under the buzzing fluorescent light, washed my hands, and told myself I'd imagined it. It's not like planes these days aren't safe, right? They have safety standards now.
+
+I went back to my seat, put on my eye mask, and reclined as far as the seat would let me, which was about two inches. I was just about to fall asleep when the captain's voice crackled over the speakers.
+
+"Attention, passengers. We are currently experiencing turbulence, which may cause the aircraft to sway..."
+
+He didn't even finish the sentence. The plane started shaking like it was possessed. And I don't mean a little bump. It was violent. I never thought a plane could shake that hard. The overhead bins rattled and popped open. Someone's bag slid out and thumped into the aisle. A cup flew past my head. The seatbelt chime kept going ding-ding-ding-ding, like it was panicking too. Somewhere behind me a baby started screaming, and then a lot of other people did, and the lights flickered on and off.
+
+And then the thing I feared most finally happened. The oxygen masks dropped from the ceiling and swung in front of my face. A flight attendant's voice, shaky, ordered all of us to put them on. And of course, chaos. I ripped off my eye mask, pushed up the window shade, and looked out. The wing was flexing like it was made of rubber, the red light on the wingtip blinked in the black, and then the whole sky tilted. The plane was going down.
+
+Holy shit. I'm going to die like this? Why does it always have to be me? I really don't get it. And I haven't even had my Mama yet. But if I'm going to die, then fine. I accepted my fate. I squeezed my eyes shut and made one last prayer: if there really is a next life, please let Thailand finally become a democracy.
+
+About a minute passed. Then everything went quiet. Not "the shaking stopped" quiet. Quiet like someone had hit mute on the whole world. About five minutes passed, and nothing happened.
+
+I opened my eyes. There was no mask on my face. I looked up, and the ceiling panels were all closed, with nothing hanging down. The seatbelt sign was off. The engines were humming, steady, like nothing had ever happened.
+
+The window shade was down. I'd pushed it up. I was sure I'd pushed it up.
+
+I looked at my screen. The line of dead pixels across the Pacific was gone. I wiped my hand across the tray table, and it was clean. No sticky patch. Not even a little.
+
+I looked around, and everyone was asleep. Even the person next to me. Except it wasn't the woman. It was a man, maybe in his fifties, hood pulled up, snoring with his mouth open. I stared at him for a long time. I could have sworn the person next to me was a woman. But I'd been half asleep when I sat down, so I must have misremembered.
+
+Did I just dream that? But what kind of dream feels like that? I'm not sure.
+
+I got up and went to the bathroom again. While I was peeing, I looked down. Wait. Wasn't my underwear blue? It's red. I remember putting on the blue ones. Not red. Or did I remember wrong? I guess I've just gone completely dumb. I should probably go lie down. I'll tell you more once I get back to my country. See you.

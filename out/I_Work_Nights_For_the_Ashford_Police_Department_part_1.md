@@ -1,0 +1,187 @@
+Hello everyone.
+
+I have been working graveyard shift for the Ashford Police Department for about six years now. Things get weird on the night shift and I figured I would write things down and keep a running log for you all to look over. Some things are easy to explain away but there have been a lot of experiences I just can’t write off.
+
+My first call for the night started off with a disturbance at the hospital. Bellweather isn’t really a place that you’re surprised when you get a call to, especially when you’re working nights. I was sitting in my cruiser in the parking lot of a motel when dispatch came over the radio.
+
+“Dispatch for Unit 12.”
+
+“This is Unit 12. Go ahead.”
+
+“Unit 12, respond to the Bellweather Hospital. Staff is reporting patient acting violently.”
+
+“Copy. En route.”
+
+I sighed and put my cruiser in drive. At this time of night, there’s more than likely some drunk idiot trying to fight a nurse or some elderly man refusing his medication. The staff there is usually pretty good about handling things themselves, though, so I spent the drive trying to prepare for whatever I was walking into. It only took a few minutes for me to make it over to the hospital. After I arrived, I parked my cruiser and walked into the reception area.
+
+The woman at the front desk explained that a man on the 4th floor had become violent out of nowhere and that he had been throwing things and threatening the hospital staff. I rushed over to the elevator and pushed the button for the floor. A nurse greeted me as the door opened and I saw two security guards attempting to wrestle the man in the hallway.
+
+The man was yelling incoherently. He had a bedpan in one hand and shoved a staff member to the ground. I started to make out what he was saying, but his rambling didn’t make sense. He kept yelling about “them” and how they were coming for him. Whatever episode he was having, he clearly thought the staff was attacking him. I tried to calm the man down, but he continued to be aggressive. Every time one of us tried to get closer, he grew angrier and tried to hit us. I was able to get the situation under control long enough to corral the man as a nurse gave him Diazepam and the fighting stopped.
+
+We got the man back into his bed and I spent the next 15 to 20 minutes taking statements from the staff. By the time I had finished collecting statements, the man had fallen asleep. I gave the nurse my card and told them if he started again to give me a call. I said goodbye and walked back to the elevator. I stepped inside, pressed the button for the lobby and waited. The elevator started down and a few seconds later, stopped. When the doors opened, I realized I was not in the lobby.
+
+The doors opened into a hallway I hadn’t seen before. The display panel showed B but I hadn’t pressed the button for the basement.
+
+The hallway was dimly lit and it looked older than the rest of the hospital. The lights flickered occasionally. One wall was lined with rows of empty gurneys that looked like they hadn’t been used in years. I stuck my head out and looked down at the end of the hallway. There was a man standing at the end of it. It looked like he had a sheet draped over him.
+
+“Hello?” I said.
+
+He didn’t respond or move.
+
+“Sir?”
+
+Still nothing.
+
+I reached for the button to hold the door open, but before I could press it, they started to close. The man remained motionless as the doors came together. I pressed the button for the lobby again. I felt the elevator move again and then stop. When the doors opened, I was in the same hallway as before. Same flickering lights, same gurneys, same man. This time though, he was halfway to the elevator.
+
+“Sir, do you need assistance?”
+
+Nothing.
+
+“Sir, what is your name?”
+
+Silence.
+
+The doors closed once again. The elevator moved and then settled. It opened once more into that same hallway but this time, he was right outside the elevator doors.
+
+The figure towered in the hallway, almost seven feet tall.
+
+“Sir, what are you doing down here?”
+
+Nothing.
+
+“Sir, what is your name?”
+
+Silence.
+
+“Sir, I need you to identify yourself.”
+
+I could feel my hand drifting towards my holster. I didn’t know what this man was doing, but every instinct I had was telling me not to step out of this elevator. The doors started to close again. He remained exactly where he was. Just before the doors closed completely, I heard something from beneath the sheet.
+
+“You came back.”
+
+The doors closed.
+
+When they opened again, I was in the lobby. I walked over to the front desk and spoke to the receptionist.
+
+“Hey, what's in the basement under this part of the hospital?”
+
+She looked up at me.
+
+“Mostly storage. Maintenance has some rooms down there too. Why?”
+
+“How do I get down there?”
+
+“There's a service elevator on the other side of the building.”
+
+I looked back toward the elevators I had just stepped out of.
+
+“What about those?”
+
+“What about them?”
+
+“They don't go to the basement?”
+
+“No. Those only go between the lobby and the patient floors.”
+
+“You're sure?”
+
+She gave me a strange look.
+
+“Yeah. I'm sure.”
+
+A voice came over my radio before I could continue. Dispatch needed me to go and help another unit with a drunk driver. I told them I was on my way and headed back out to my cruiser.
+
+ 
+
+I spent the next hour or so helping with the drunk driver and trying not to think about what had happened at Bellweather. By the time we finished, I had almost convinced myself there was a reasonable explanation for it. I was heading back toward the center of town when I saw a car abandoned on the side of the road.
+
+The car sat on a narrow shoulder of a two-lane road. I didn’t see any flashers on, and no one was around. I parked behind the car and read the plate to dispatch. While they were running a check for me, I got out and approached the car with my flashlight in hand. The car appeared to be locked, and I didn’t see any keys in the ignition. It didn’t look like the car had been hit or anything like that.
+
+I figured that someone had either run out of gas or was having engine trouble. I couldn’t just leave the car there, though. It was dangerous to leave without the emergency flashers being on. Dispatch then came over the radio and told me the car belonged to a resident here in town, but they couldn’t get ahold of them.
+
+When I got back into my car, I asked for a tow truck to come and get the vehicle. We would have to check with the person in the morning and let them know where the car was being held. It was going to take an hour for a tow truck to get here, so I just had to sit and wait.
+
+After about thirty minutes, the headlights of the car came on. I had been looking down at the computer when it happened, so I thought maybe the owner had come back. I stepped out and approached the vehicle again. There still wasn’t anyone in the driver’s seat and the doors were still locked.
+
+I shined my lights around the area, but I didn’t see anyone there. As I turned to walk back to my car, the lights went off again. I sat in my cruiser until the tow truck showed up, never taking my eyes off the car. Eventually, the truck showed up and hauled the car away.
+
+ 
+
+After the car, I didn’t have a call for about an hour. It had almost been relaxing when dispatch came over the radio to send me to the elementary school. A fire alarm had gone off, and we had to go with the fire department to check it out.
+
+The fire department went in and cleared the building while another officer and I sat in the parking lot, watching. Twenty minutes had gone by when the lieutenant came over to us. I could see faces moving through the windows of the second story of the school.
+
+“All clear guys. Just a false alarm. We’re just locking up now.”
+
+“What about your guys on the second floor?” I said, pointing up to the windows.
+
+“What do you mean? Everyone is here. All the guys are out.”
+
+When I looked back to the windows, I didn’t see anyone anymore.
+
+“Never mind. Must have been reflections,” I said.
+
+Everyone finished loading up their gear and then they left. At this point, it was almost three in the morning. When I started to leave, my lights caught movement at the end of the building. I stopped and looked, but didn’t see anything. I got back out of the cruiser and walked back towards the end of the building. When I got closer, I could see a small boy standing by one of the doors.
+
+“Hey! Are you okay? What are you doing out here?” I called out.
+
+The boy turned quickly and darted back through the door. I jogged over and pulled, but the door was locked. I pulled on the door a few times but there was no use. It wasn’t budging. I shined my light through the window but couldn’t see anything. I know the fire department cleared that building and locked the doors when they left. What the hell was going on? I had to have been seeing things.
+
+ 
+
+My last call of the shift came around 5 A.M.
+
+A wounded man was reported walking down the side of a road. Dispatch didn't have much information other than that. The caller said the man looked like he was bleeding pretty badly and seemed confused. I was only a few minutes away, so I rushed over.
+
+It was still dark when I found him. He was walking along the shoulder with one hand pressed against his stomach. His clothes were ripped and covered in blood. The man appeared to be in his forties. He was tall and had short dark hair and a beard.
+
+I pulled up behind him and turned on my lights.
+
+“Sir, stop for me.”
+
+The man stopped.
+
+I got out and started toward him.
+
+“Are you hurt?”
+
+He turned around.
+
+“Jesus Christ.”
+
+There was blood running down the side of his face and soaking through the front of his shirt. He looked like someone had beaten the hell out of him.
+
+“What happened to you?”
+
+He stared at me for a few seconds.
+
+“I don't know.”
+
+In the light, I could see marks across the man’s face and chest. They looked like claw marks. I tried to get the man to sit down as I called for EMS to arrive. He just kept mumbling while we waited. It was hard to make out what he was saying, but he was asking for someone. I just tried to continue to comfort the man and keep him awake.
+
+“Do you know where you are?” I asked.
+
+He looked around for a moment.
+
+“Ashford.”
+
+“That's right.”
+
+“No,” he said, shaking his head, “it wouldn't let us leave.”
+
+I saw the lights of the ambulance come into view. I turned and walked into the street to flag them down. As they parked, I started to explain what was going on to the EMT.
+
+“He’s got some pretty serious wounds. Possible head injury too. He’s confused and—”
+
+I turned around.
+
+The man was gone.
+
+“Where is he?”
+
+“I don’t know. He was right there.”
+
+I gestured over to where the man had been sitting. When I moved my light to it, there was nothing more than a pool of blood. We searched for him for what felt like forever but never found him.
+
+I don’t know what happened tonight, but I know what I saw. It isn’t the first strange night I have had in Ashford.
