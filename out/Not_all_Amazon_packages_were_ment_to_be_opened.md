@@ -1,0 +1,25 @@
+Last week, I had such a strange experience.
+
+I was waiting for my Amazon package to come in at 3:00 on a Wednesday it never came. That day I was watching a movie at 6:00 when I realized I had forgotten to take out the trash, so I went to do it.
+
+When I came back, there was a package at my front door, and immediately my reaction was, "Youpiee!!” Until I realized it wasn't Amazon; it had no name. It was just a brown square box, there was a note that said: " Sorry we were late to deliver your package; hope all is well!”
+
+I found that relieving but also strange, so as one does, I took the package straight inside and put it on the kitchen table, but I didn't open it; I just stood there staring at my package like I shouldn't be staring at it.
+
+I decided to wait until the next morning, when my boyfriend comes home, to open it, so I continued my movie until I just couldn't stop looking at it; that's when I decided to open it.
+
+I quickly tore the tape apart and opened the flaps. I looked inside for my package, and there was nothing. It was weird; it looked like a black hole covering the whole box. I stuck my hand in there, and all I felt was air. I put the box upside down, sideways, and threw it; nothing came out.
+
+I went to check my phone and looked back at the box, but this time there was something. It was almost like a half head coming out of the box, but it wasn't moving it just stayed there. I got so scared I started to back up to my door, I quickly looked back at the box, and then there was a full head sticking out of the box, but it wasn't really a human head it had black hair, a weird eye and a long neck with a scruffy face.
+
+That's when i realized that every time I looked away it would move. What would happen if it got into its full form? What would happen then? So for like 10 mins i just stood there like a stone, staring at the head inside the box until i saw the knife i used to cut up the bread i had made earlier on the kitchen table,right next to the box.
+
+So i had slowly crept up to the box and its almost like he was watching my every move like when i would go left, he would look left; same thing for every direction i walked up to the knife all i had to do was grab it while not taking my eyes off the box i slowly grabbed the knife, backed up to the door, and again just stood there watching him.
+
+I decided to throw the knife at his head but he caught it..I thought to myself ”no no you have to wake up, Jessica. This is all a dream” but no it was very real..then he did something unimaginable he started to pull his arm back like he was about to throw it at me.
+
+I started begging “Please, please don't do this to me!!” he just responded with a smirk as i braced for impact from the knife about to be thrown at me.
+
+I heard loud footsteps coming near my door i moved and boom the door was slammed wide open and there was this guy that ive never seen before in all black running staight at the box and he pushed the head back down, put the flaps on and asked for tape. I threw him the closest one i could find, he caught it and struggled to keep the head down. He finally managed to close the box and started to catch his breath finally he spoke “your lucky i got here as fast as i could or else you would be dead by now poor lady”
+
+The next thing i knew I was waking up on my couch on Thursday morning.

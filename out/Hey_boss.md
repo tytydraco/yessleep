@@ -1,0 +1,263 @@
+Back when I was 16, I had a scary experience. I was going to bed, and my room got so dark that I couldn’t see a thing. Not the usual kind of dark, but the kind where you can’t even sense the position of your hands. I had to blink a couple of times to make sure my eyes were even open. It was terrifying; I thought there was something outside blocking out the sky. It wasn’t. Turns out, it was the first symptom of my deteriorating vision.
+
+My vision got worse for several years. They tried a bunch of treatments to see if they could slow the progression, but I was informed that there would come a point where I would go completely blind. It was a certainty; the only variable was time. I had a biological clock that would snatch my sight away.
+
+That made me want to work with something visual, and I got really into 3D-modelling. CAD programming, to be specific. I tried to get used to working with accessibility features, keeping my eyes closed or even blindfolded. I didn’t want to be stuck without a job or skill when my vision completely disappeared. I kept having these nightmares about being lost in that absolute darkness, unprepared and alone. And yeah, I couldn’t stop that darkness, but I could come prepared.
+
+ 
+
+After years of practice, I ended up getting a junior position for a company working with CAD models. It didn’t take long until I got my first assignment. I was making molds used for vacuum presses. They used them to put together storage boxes for snowmobiles. It doesn’t sound like a big deal, but that one model has been used to make hundreds of boxes. Hell, if you know a guy with a snowmobile, you’ve probably seen one.
+
+I’ve done plenty of jobs since. I worked exclusively with accessibility software, allowing me to use hearing and touch to better align the models. And I want to be clear; I’m not a second-hand choice. I’m a professional. I’m not a cheaper option, and I don’t produce damaged goods. I challenge you to find someone who has better hands-on experience with their models than I do.
+
+But, one morning, the darkness was there. There’d been a sudden inflammation that worsened my condition, causing irreversible damage. There were no more treatments left to try, no more suggestions. I was stuck in the dark, but at least I was prepared. Still scared the shit out of me, and I barely kept it together as I realized I hadn’t practiced dialing 911 with my eyes closed.
+
+ 
+
+I had a lot of visitors in the hospital. Friends and family, of course. They meant well, but my mother had this amazing ability to voice all my anxieties out loud. ‘You won’t get to see your bride when you get married,” she sobbed. Bawling her eyes out as if she was the one hurting. Love her to death, but come on.
+
+Before I left the hospital, there was one last visitor. I didn’t know him, but he seemed eager to meet me. I thought it was someone from the insurance company, but he introduced himself as a representative of a company. A big one. Think international.
+
+“You’re in a unique position,” he explained. “You have years of experience working with spatial models, and you weren’t *born* blind. You can handle visual elements and representative modeling tools.”
+
+“I’m well aware.”
+
+“More importantly, it offers us a possibility.”
+
+“What kind of possibility?”
+
+“I’m glad you asked.”
+
+ 
+
+Turns out, they’d been working on something. They called it an interpretive vision module, or IVM. I got to touch one of the prototypes; it’s basically a headband with two cameras mounted on the side. I could imagine it looking a bit goofy, but he explained how you could easily hide it under a baseball cap.
+
+“We use a small electromagnetic implant, right by the side of your temple, to receive visual signals. The device interprets the environment and renders it in a gradual model.”
+
+“What exactly do you mean when you say render?”
+
+“It would allow you to *interpret* your environment, seeing a digital representation of the world.”
+
+“So, it would allow me to see?”
+
+“Think of it like this; the machine would see things *for* you and tell you what it sees in a way that you can understand. The data it would provide us is invaluable, and you would be given the opportunity to-”
+
+“To see.”
+
+“Yes, to see.”
+
+It sounded a little too good to be true, but the more I looked into it, the more it appealed to me. The reason they’d reached out to me was because of my experience with 3D modeling. Apparently, being able to think spatially helps interpret the signals from the implant. I was in a unique position to be the first person to see without the use of my eyes.
+
+And in a worst-case scenario, the implant was reversible. It was less commitment than a tattoo. I’d be an idiot not to try it, right?
+
+ 
+
+I got the implant under local anesthesia a couple days later. There was a calibration process where I had to sit and fiddle with a Rubik’s cube, but when they turned the thing on it was like magic. Disorienting, blinding magic.
+
+The entire world was rendered as these low-polygon basic shapes. Squares, spheres, cones, cylinders… all of them with simple pastel colors in a world without shadows or light sources. At first I couldn’t understand what I was looking at, but after a couple of seconds the entire scene rendered again. Shapes sharpened. The walls got a texture rather than color. I could see elevations in the floor. I could see my hands. They were a bit blocky, but I could *see* them. I could count my fingers.
+
+I wept. It felt like stepping out of the darkness. I’d resigned myself to never seeing anything ever again, and now I could. It was a miracle.
+
+It took a couple of weeks to properly tune the IVM. Sometimes, it would have trouble interpreting things in low-light environments, but it got better over time. If I saw something I’d seen before, it remembered how to represent it from previous encounters. There could be a bit of lag if I moved fast, so I wouldn’t be driving anytime soon but that was to be expected.
+
+I remember coming back to work. I opened the doors myself. It took the IVM some time to capture and render the human faces of my coworkers, but it improved fast. There was this eerie quality to the faces though, where they would move mechanically and switch between captured states like “smile” or “frown”. I had a good laugh at how it interpreted my boss’ face as frowning, despite him trying to smile.
+
+ 
+
+I used the IVM for about three months with little to no issue. It took some time to get used to constant visual stimuli without being able to blink it away, but there was an option to add artificial blinking. I skipped that. There were a couple of minor calculation errors, but the device quickly became part of my daily routine. Most of the quirks got resolved automatically through a forced re-rendering, and if push came to shove, I could just plug it in and run a manual diagnostic. The software was simpler than the CAD stuff, it was basically plug-and-play. For example, I modeled a little bug model and imported it. I was tired of seeing ants as little blobs; I wanted to differentiate them from breadcrumbs. It worked like a charm.
+
+There were a couple of other quirks, too. For example, it assigned base colors to people whenever it had trouble rendering them. Irene, who worked at the front desk, had this bright pastel yellow. My boss Emil was a wine red. I’d see them as these square blocks with a sphere head for a second before the rendering kicked in, giving them a more detailed model. It was still like living in a video game at times, but you kinda trick yourself to seeing past it.
+
+Irene was great. While I was probably okay to drive, I wasn’t legally allowed. We’d carpool to and from work every day, chatting all the way. I’ll be the first to admit, I had a bit of a crush on her. It’s weird to catch feelings for someone that looks like a video game character, but you have to remind yourself that it’s a real person.
+
+ 
+
+One day, as I finished work, I went out to the parking lot to wait for Irene. She had a couple of calls left to make, so I waited by her car. As I got there, I noticed my boss Emil standing by her passenger side, looking at something. My IVM had trouble rendering him, showing him as a collection of red cubes and a sphere head. I waved at him, giving him my best practiced smile.
+
+“Hey, boss,” I said. “You good?”
+
+There was no response. The model moved a little but refused to render. I tapped the button on the headband, forcing the IVM to re-render. There was a flash as the world went dark, then everything came back into focus. The parking lot turned from a flat gray to a texture, using the light from the sun to cast shadows on the cracks. The cars came back into focus. Everything looked as it should; except for my boss.
+
+I took a step forward, looking at him again. His model looked bigger. The tone of red was slightly different. Less wine, more chili red.
+
+“Hey, boss,” I repeated. “Maybe you didn’t hear me the first time, I-“
+
+My phone rang. I picked it up and answered, holding up a finger asking him to give me a second. It was Irene, calling from inside.
+
+“Sorry,” she said, “I’ll be out in a minute, Emil found a bunch of unfiled reports that I gotta put in. You okay for another five, ten minutes or so?”
+
+“Wait, Emil found them?”
+
+“Yeah, why?”
+
+The model was still standing there. Red squares and a sphere. It hadn’t moved, and it hadn’t said anything; it might as well have been a glitch. As I opened my mouth to ask Irene one more question, the model moved. It slid across the road, frictionless, disappearing behind a long-haul service station.
+
+ 
+
+Coming home that day, everything was normal. I said hello to my next-door neighbor, Job. Funny guy; newly divorced with six kids, neither of which ever came to visit. He was a quirky fellow, complaining about how there’d been ‘Bible thumpers’ going door-to-door.
+
+“Don’t trust ‘em,” he mumbled. “Keep your door locked. Miss Mannon thinks they’re stealing her cats.”
+
+“If ever there were cats that deserved to be stolen, it’d be hers.”
+
+“Harsh, but fair.”
+
+I was a bit distracted thinking about that strange rendering error by the car. I wondered what it’d been. It could have been a stranger, but I didn’t hear any footsteps, and it disappeared a little too fast. Also, why wouldn’t it show them even after I forced a re-render?
+
+I plugged the IVM into my home computer and ran a diagnostic. I went back in the timeline, checking all registered objects. The moment before it registered my call with Irene, there was an object list. I filtered the list based on the lowest certainty, and the result cleared.
+
+Whatever it was, it was registered as ‘Humanoid Figure’. No prior model, no recognition pattern. Six failed interpretation attempts; no database matches. It’s like the device had been screaming at the software to tell it what it was looking at, and all the thousands of interpretive models had given it a shrug back. Humanoid figure was the closest approximation, but only at about 22% certainty.
+
+Something was standing less than 10 feet from me and could only be interpreted as 22% human.
+
+ 
+
+I was a bit skittish about it for the next few days. I would look out the window before going into the parking lot, giving the IVM some extra time to check for, and render, unknown objects. I’d get this sort of “pop-in” effect whenever I saw something for the first time. It’d go from a vague basic shape to a detailed model in about a second. I would keep an extra eye on Emil, but there really was nothing to see. His base model had been similar to whatever was in the parking lot, but there were some distinct differences. I’d just been inattentive; he had nothing to do with it.
+
+At times, I’d wait a little longer for Irene to finish her work so I wouldn’t have to go out there alone. If someone was with me, and that thing returned, I’d be able to get a proper description. Inadvertently, we ended up talking quite a lot at the front desk, accidentally keeping her from doing her job a little longer.
+
+There were times when I saw models that didn’t load in properly, but most of it was due to perfectly normal circumstances. Low-light environments, bad connections, buffering errors, that kind of stuff. I wasn’t able to find that particular entity again, and I couldn’t replicate whatever problem I ran into in the parking lot. No matter the excuse, I couldn’t find a simple answer to whatever I’d faced.
+
+One evening, as I was cooking, there was a knock on the door. I was hands-deep into a bowl of tomatoes, so I had to take a second to wash my hands. As I hurried to the door and checked the peephole, I couldn’t see anyone outside. That got me a bit nervous. Peepholes didn’t work well with the IVM, the lighting was too bad, so I decided to check through a window.
+
+Moving into my bedroom and opening the blinds, I peeked out the side. If I stood at just the right angle, I could catch a side glance of whoever was by the door. Doing so, I hoped to see a neighbor, but part of me was convinced I’d see a poorly rendered red base model. I held my breath, leaned a little, and let the IVM render the scene for me.
+
+There was no one there.
+
+I opened the front door a little. I started thinking I’d been pranked, but that’d be a first. I didn’t see any flaming bags of dog poo outside my door, but there was a rectangle on my welcome mat. Looking a little closer, the IVM rendered the cover.
+
+It was a Bible, and it had a bloody handprint on it. There was also a piece of fabric. Something tough, like a backpack strap. No backpack though. No person, either.
+
+“Hello?” I called out. “You dropped something.”
+
+No answer. Nothing.
+
+ 
+
+Later that night, as I went to bed, I couldn’t sleep. I’d taken off the IVM for the night, and I kept feeling hyper-aware of my body. It’s like, when my sight went offline, I couldn’t stop thinking about what other things I was experiencing. Everything felt uncomfortable, and I kept getting out of bed. First time I got up, I used the bathroom. The second time, I got a glass of water. I could navigate my own apartment without the IVM for a bit, even if I’d gotten used to it.
+
+As I stood in the kitchen, leaning against the counter, I heard something. It was this muffled noise coming from outside the kitchen window. I still had my IVM by the bed, so I couldn’t even guess what it might be. I just had to listen a little closer. I moved up to the window, feeling for it with my hand. I touched the curtains and leaned in.
+
+At first, I thought it was a gust of wind. Then I noticed it had a rhythm. Not like a breath, but… similar. And it was *close*. Right there, on the other side of the glass.
+
+I stepped back, holding my breath. As I did, someone outside spoke to me. A muffled, droning voice that stuck to its consonants like dripping molasses.
+
+*“Hey, boss.”*
+
+I ran to get my IVM, almost tripping on the living room carpet. I snapped it on, powered it up, and threw myself back toward the windows. By the time I was back in the kitchen with my vision online and my finger on the emergency call button, there was nothing to see. But I did pick up on a strange hand-shaped imprint left on the outside of the glass.
+
+ 
+
+I talked to my neighbors the next day. I asked if anyone had seen anything, or if there’d been any strange people knocking on their door. They had no idea what I was talking about. A couple of them had been visited by a, to quote, “Bible guy”, but that was it. Job was convinced it was miss Mannon’s cats desperately looking for someone to take them in. I wasn’t so sure. I hadn’t seen them for some time.
+
+While I was anxiously worrying about whatever was happening around my apartment building, Halloween was rapidly approaching. We were having a company party, and I was having some trouble coming up with a costume. I ended up going for a cheap Aragorn costume. I completely forgot that it was Irene’s favorite character, from her favorite movie series. Happy accident, I suppose.
+
+It was a pretty standard company party. Bring-your-own-booze kind of deal, and no hard stuff. It was a weird experience. The IVM was going crazy trying to figure out how to interpret the various costumes and what they were supposed to be. The idea of a costume party wasn’t really programmed into it. Sometimes it would just cast the base model and an error, other times it would actually render people as the thing they were portraying. For example, this one guy who worked customer service was dressed as Peter Pan, and the IVM just rendered him as the *actual* Peter Pan.
+
+Irene was so enamored by my costume that we ended up talking about movies all night long. She was a *fountain* of trivia, and it was a genuine delight to listen to. We talked until the party ended, and when she dropped me off at my place, we decided to talk a little longer.
+
+But, uh, yeah. We didn’t do much talking.
+
+ 
+
+It must’ve been somewhere around 2:30am. My IVM was on the nightstand. I was in bed with Irene cuddled up against me, letting an open window cool us. We’d been quiet for a while, waiting for someone to say something. Irene broke the silence.
+
+“Why’d you get that thing?” she asked. “The headband, I mean.”
+
+The question snapped me back to reality for a moment. The answer felt obvious, but in another way, it wasn’t. I’d prepared for blindness for years. I knew how to handle it. So why did I resist it?
+
+“It’s a big change,” I admitted. “Sometimes the change is scarier than the thing itself.”
+
+“So you don’t mind losing your vision?”
+
+“I mean, it’s inconvenient. But, you know, I feel pretty damn good.”
+
+I smiled at her. I couldn’t see her smiling back, but I knew she did. I could hear it.
+
+ 
+
+I put on the headband and got up to get Irene a glass of water. I wandered into the kitchen, letting the cool breeze from the open window dry me off. I had a glass of water and filled a second one for her. I checked the freezer for some ice cubes, but the IVM was having trouble rendering the contents of the freezer. It was a little too dark.
+
+I could hear Irene tip-toeing into the kitchen behind me. I opened the fridge to get a little light and turned around to hug her.
+
+*It wasn’t Irene.*
+
+The IVM rendered the kitchen. The blue and white checkerboard walls, the off-white ceiling, the simple stone floor. I could count the knives in the knife block and trace the shape of the ceiling lamp. But standing there, just a couple of feet away, *wasn’t* Irene. It was a simple collection of squares, vaguely resembling a person, with a sphere head. It was a bright red chili pepper color.
+
+It was much larger than an ordinary person. At least a head taller than me, but it seemed to change. With its every awkward breath, it seemed to grow and shrink. It took a step closer. I stepped back, almost tripping over my own feet as I fumbled around for a knife. It spoke to me, its voice low and monotone.
+
+*“Hey, boss.”*
+
+I could hear Irene call out from the other room. She was asking something. I slipped my hand around a knife handle and readied myself to strike. The thing leaned in closer, but the IVM kept bugging out. The model would snap back and forth, as if the position was hard to estimate. I couldn’t take a swing at it, and I couldn’t even raise my hand to remove the headband. I was frozen, leaning against the counter.
+
+Something reached past me and gently closed the refrigerator; removing the last light in the kitchen and glitching the rendering even further.
+
+*“Hey, boss.”*
+
+ 
+
+I circled to the left, slowly. In the dark, the thing seemed to teleport. The IVM couldn’t make sense of it. Its position was uncertain, and the size was hard to estimate reliably. It didn’t attack. It just stood there, and as I circled it, it circled me back. I couldn’t even hear its footsteps; they were too soft.
+
+*“Hey… boss?”*
+
+“Hey there,” I whispered back. “How’d… you get in?”
+
+*“Hey, boss.”*
+
+“Yeah,” I nodded, backing away. “Hey to you too… boss.”
+
+I made it all the way around the kitchen, ending up with my back to the hallway. Taking another step away, I grasped the kitchen door and slammed it shut. There was no lock, but it could buy me some time. The moment the door closed, the thing made this awful shrieking cry. It was so loud that it seemed to mess with the IVM, rendering the vibration in real time as a sort of visual spaghetti shimmering across my field of vision.
+
+I wanted to run for the front door, but I couldn’t leave Irene. I could hear her getting out of bed. I decided the bedroom window was the better bet. I ran back and saw Irene on her feet with a blanket wrapped around herself. I threw away my knife and pulled up the window. I grabbed Irene and ushered her forward, but before she could get her first leg out, the kitchen door broke off the hinges. I pulled her back.
+
+We fell to the floor and crawled under the bed. I was having trouble breathing, so she put her hand over my mouth. I wouldn’t say it calmed me down, but forcing me to feel the air rush through my nose emphasized the odor of the thing. I could smell it from afar. It’s hard to describe it; something akin to grass growing in wet old sugar.
+
+It entered the bedroom, huffing. It walked around a little, then leaned in – and closed the bedroom window. That seemed to calm it down. It didn’t seem interested in pursuing us.
+
+There was no way it didn’t know we were under there. It dragged its feet back and forth, occasionally bending down to sniff the bedroom carpet. Every now and then, I’d hear a mumbling variation of ‘hey boss’, almost like a verbal tic.
+
+ 
+
+I have no idea how long we were under there. I couldn’t reach my phone and call for help, and the IVM was running out of batteries. I hadn’t gotten the time to charge it. Irene curled up next to me and we tried to stay as still as possible.
+
+Then, we heard something. It wasn’t the thing pacing my bedroom, it was something else. Something *outside*.
+
+Something scratched on the front door. All the way from the top to the bottom. Over, and over, and over. There was a groaning noise, and the thing standing in the living room didn’t seem to like it. I could see the polygon model expand and shrink, like an animal rearing up to make itself look big. It made this barking noise in response to whatever threat it perceived.
+
+*“Hey! Boss! Hey! Boss!”*
+
+It took a couple steps forward and slammed something into the door. It didn’t seem to want to break it; it was more of an effort to make noise. Like it was scaring something away. As the battery to the IVM ran out, I leaned my head against Irene and whispered.
+
+“I’m going dark. I can’t see.”
+
+“I can’t either,” she whispered back. “It’s okay. It’s okay.”
+
+The lights died. We were both left in the dark, listening to one thing and another, holding a conversation of their own. One barking my own words, and something responding with tooth and claw.
+
+ 
+
+We stayed under the bed all night. At some point, Irene poked me on the shoulder to check if I was awake, whispering that the sun was rising. It was over. The thing was gone. I could hear birds singing; it’d left the front door wide open, and we hadn’t heard it leave. Then again, I never heard it enter to begin with.
+
+We got up and got dressed. I put the IVM in the charger as Irene took my hand, leading me outside. I could hear the other neighbors out and about. Job was on the phone, having an *elevated* discussion with someone on the other end. Irene squeezed my hand and leaned in.
+
+“There are claw marks on the wall,” she whispered. “A *lot* of claw marks.”
+
+“What’s it look like?”
+
+“Looks like something tried to get in.”
+
+The building manager came by shortly after, followed by the police. It didn’t take long for someone to notice the marks going up the side of the building, having seemingly climbed on the wooden panels. Not long after that, someone got up on the roof. There were bones up there. Cat bones, and a broken femur that looked suspiciously human. Something had gathered twigs, grass, and blue sunflowers from a nearby field and made that roof into a nesting ground. It must’ve been there for months.
+
+ 
+
+This was all some time ago. I still use the IVM, but I got some bad news a couple months back. Turns out the neural pathways in my brain necessary to send visual signals are deteriorating when I’m not using my physical eyes, meaning there will come a point where the IVM can no longer function. It’s an early prototype, so I’m not surprised. There are some glitches already, and it doesn’t work at all in low-level environments anymore. I usually walk around with a flashlight to help it render. This puts me right back in the place where all this started; waiting for the darkness to come.
+
+Things are different though. Irene and I moved into a place of our own in January last year. I still work in CAD programming, while she got into veterinary school. She still drives me to and from work every morning. I still dress as Aragorn every Halloween; I just update the costume. She pretends to be annoyed by it.
+
+But every day I wake up wondering if the darkness is there to stay. So far, I can turn on a little light, and there’s something to see. It won’t always be like that, and there’ll come a day when nothing happens, but I’ll take it as it comes. I don’t fear it as much as I used to. Meanwhile, I’ll enjoy the digital morning interpreted through my degrading pathways, watching a simulated sun rising over static pine tree models.
+
+Every now and then, there’s a spot of red rendered in the distance. Rough squares stacked as a vague humanoid, peeking out from behind a tree. I don’t know what it is, but I always raise a hand to it. I like to believe it raises one back. Then I say, just loud enough for it to hear;
+
+“Hey, boss.”
+
+And sometimes, it says it back.
