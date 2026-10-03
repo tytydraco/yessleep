@@ -1,0 +1,167 @@
+I met my best friend Jacob in sixth grade when we were both twelve.
+
+I was at a new school and didn't know anyone. As an awkward, nerdy, acne-ridden kid, it was no surprise that I spent months on my own. My mom, worried about the early death of my social life, made me go to my school's middle school dance. As expected, I sat there alone most of the night, sipping Kool-Aid and eating out of what had to be the world's smallest bag of chips.
+
+That's when I met him.
+
+He sat next to me awkwardly and spoke in a muffled voice, as if he were talking to himself. He pointed to my T-shirt with a faded image of Sans on it, and said he liked Undertale too.
+
+Not long after, we became inseparable.
+
+We would do everything together, spending every waking moment doing whatever our childish minds could muster. My mom was so glad I had a friend; she let Jacob come over pretty much every weekend. It helped that she got along well with Jacob's mom; they'd often catch up for hours after Jacob got dropped off. I think mom was happy to have a new friend too. His mother was all alone after his dad died. I always felt bad for her. Not knowing what to say, I never brought it up, and he didn't either.  
+
+One day after school, we found ourselves watching scary urban exploration videos on my dad's old computer. We nearly fell out of our seats when we noticed that one of the places in the video was nearby. An abandoned elementary school.
+
+I know how infamous it is now, but back then, all we learned from that video was that it shut down after some kids went missing while the school was still open.
+
+That's when we naively decided to seek it out and explore it ourselves. We thought that we could find something that nobody else had. It was a pipe dream that seemed plausible to our underdeveloped twelve-year-old minds.
+
+We began to set up our master plan after we saw that video. That's when we decided to explore that school no matter what.
+
+One day after school, we told our parents we'd get food. We lived in a small town, so Main Street was just a short walk away.
+
+After some online research, we found out the abandoned elementary school was just past the woods behind the school.
+
+Jacob's mom was going to pick us up from the Pizza Hut in town at seven, and our school day ended at three. That gave us about four hours to get in, see what we could find, and get out. Instead of our school books, pencils, and notebooks, we packed our backpacks with flashlights, extra batteries, snacks, and bottles of water. Most of which would remain unused.
+
+Our school was so small that we could sneak away without any fuss. We didn't have much staff, and most of them were busy dealing with the horde of middle schoolers rushing to their buses and cars, so two quiet nerds like us could easily stay under the radar.
+
+We made our way out through the car rider line and traced along the edge of the building out back toward the woods.
+
+The sun sat on top of the tree line, like an ominous timer reminding us to complete our mission before it disappeared beyond the horizon.
+
+We made our way through the woods, getting slightly cut up and itchy due to the underbrush. Jacob and I kept making random howling noises to try and creep each other out, but we just ended up laughing at one another. Jacob remarked that we didn't see a single animal, not even a squirrel. When I asked why, he said they probably ran away when they smelled me.
+
+We found a few weird things in those woods.
+
+The first was a campsite, which we left alone because our fear of messing with adults outweighed all else.
+
+The second was a rickety old deer stand. After daring Jacob to climb to the top multiple times, he caved and very, very cautiously climbed up the handmade ladder. He made it to the top, and his fear changed to wonder. His voice filled with awe, he remarked that he could see the school from up there. Before he got down, he picked up a pair of binoculars off the floor of the deer stand. He pointed them towards the school and laughed, saying he could see everyone going to the buses, and even into some of the classrooms. I told him to hurry up, and he took the binoculars and again, very cautiously, climbed his way back down. He pocketed "his" new binoculars despite my hesitation, parading them around like a prospector who'd just found gold. Deciding I couldn't change his mind, we continued on our way.
+
+It didn't take long for us to reach the elementary school. Even in the daylight, we didn't notice it until we came face to face with its brick exterior. Overgrowth climbed its decaying walls, barely holding on to life. We made our way up to a window and peeked in. Books and desks were scattered randomly throughout the classroom. A shelf was lying on its face, covered in mold and sitting in a pool of water that probably hadn't seen the light of day in decades. Failing to open the window, we made our way down the side of the building.
+
+Eventually, we found a door.
+
+A cinderblock was propping it open, and we quietly rejoiced at how lucky we were. We slipped inside and found ourselves in what looked like the teacher's office. We giggled to ourselves- even though the school had been abandoned, we felt as if we were breaking the rules just by being in that room. We agreed to look around the room and found that it was, for the most part, still intact. We found little besides a few “boring old documents”, which had been scribbled all over. Jacob found a mug that said "World's Best Teacher" and pretended to sip out of it. He laughed, remarking how stupid it was to forget a mug like that, especially one that was so clean. Sharing a laugh, we decided to explore elsewhere.
+
+Jacob and I made our way down the empty halls, unease crawling under my skin as we roamed the silent corridors. The inside of the building was a stark contrast to the outside. It looked relatively untouched by the oppressive forest that rested just beyond the school's walls.
+
+Suddenly, a loud crash came from one of the classrooms behind us.
+
+We screamed and turned around, seeing a door open and slowly hit the wall next to it. I turned to Jacob, and then together, we slowly inched toward the classroom. I noticed he was brandishing a book he'd picked up, ready to throw it at anything that jumped out at us.
+
+As we rounded the corner and looked into the room, he let out the loudest roar his lungs could muster and reared back the book.
+
+He stopped.
+
+Nothing was there.
+
+I rounded the corner behind him and peeked into the room. The teacher's desk sat in the corner, the desks in various formations, and toys and various utensils scattered across the floor. A large metal filing cabinet lay in the corner. We made our way over. As we did, we saw a small hole in the wall behind it. We pushed past our fear and jogged over, hoping to find some sort of hidden treasure. When we got close and peered in, we were disappointed. It was just a bunch of children's clothes.
+
+We brushed it off and made our way out of the room, exploring a few old classrooms and supply closets as we went down the long corridor.
+
+At the end of the hall, we came to a set of steel doors that led into the gym.
+
+We used our combined strength to push against them, the doors slowly creaking open. I remember thinking how easy it was.
+
+Walking in, we looked around the gym in complete awe.
+
+Even though it was an elementary school, the gym was much bigger than ours. Though long abandoned, we could tell how nice and well-kept it once was. He dared me to race around the gym, and I happily agreed, ready to wipe the floor with him.
+
+After getting barely over halfway, I stopped, completely out of breath. Jacob stopped soon after. Unsurprisingly, neither of us were that athletic. We both hazed each other for our lackluster performances before continuing our expedition.
+
+Once we reached the back of the gym, we found what used to be the coach's office.
+
+The blinds were down so that we couldn't see inside. We tried the handle and were surprised to find it unlocked.
+
+As we went into the office, we were shocked. It looked untouched.
+
+A mug sat on the desk next to some magazines, stacked somewhat neatly. On closer inspection, the mug held some water. Jacob, exploring the other side of the office, called me over, a childish giddiness coating his voice.
+
+I made my way over, and I saw what he found so funny.
+
+It was a sleeping bag, open and slightly ruffled. I still remember what he said.
+
+"What kind of teacher sleeps in his own office?"
+
+A faint sound soon broke our conversation.
+
+It was out of place and made our hair stand on end.
+
+Footsteps. And they were approaching us.
+
+Just barely noticeable, as if someone was trying, and failing, to sneak up on us.
+
+We looked at each other, fear painted on both of our faces. Our minds raced as we tried to think of what to do.
+
+Jacob took my arm and dragged me to the supply closet at the end of the room. He shut the door carefully, trying not to make a sound.
+
+The door closed, and we were submerged in inky darkness.
+
+I tore off my backpack and nervously searched around for my flashlight with shaking hands.
+
+I pulled it out and fumbled with the light, trying desperately to turn it on. Nervous, I stepped back and heard a loud crack from the ground beneath my feet.
+
+Then, silence. Loud, deafening silence.
+
+I turned on the flashlight and dragged it to the source of the noise.
+
+There was a femur beneath my foot, cracked and broken.
+
+My gaze dragged up and looked into the vacant eyes of a small, rotted corpse.
+
+A child, not much younger than I was. Frayed skin hung from bones stained a dark reddish-brown. Clothes caked in dark, thick blood. The head was caved in— torn skin clung to the sick, mangled bone.
+
+The light began to shake in my hands; the body, though unmoving, looked as if it wanted to scream for help.
+
+A loud, broken yell billowed out of me. I almost didn't know I was screaming until Jacob started shaking me violently, trying to stop me as tears ran down his face. He was yelling at me, but at that moment, the sound was muffled as if he were behind a wall.
+
+He grabbed my arm and bolted for the doorway, cutting off my screams.
+
+That's when I heard the sound again. Footsteps pounding towards the room.
+
+Without hesitation, Jacob pushed the door open with all the force his small frame could muster.
+
+As soon as he did, I saw him. An impossibly large man stumbled back, trying to reach for us. We pushed past him, but he shouted something. Not a word, but an inhuman groan that was more reminiscent of a monster than anything human.
+
+I didn't look back— sprinting alongside Jacob as fast as our legs could go. Beads of sweat ran down my face, melding with tears and snot.
+
+Something was wrong. I didn't see Jacob beside me.
+
+I turned to see Jacob on the floor just a few yards behind me. He was curled up, holding his foot and shaking with fear. At the top of my lungs, I screamed at him to get up when I realized there was blood pooling around his foot. He had stepped on a rusty nail that had burrowed deep into his foot, stretching the cloth over the top of his shoe. He groaned and cried from the intense pain, trying to stop the bleeding with his hands.
+
+I tried to run to him, but fear instantly anchored me to that spot on the floor. The man lunged towards Jacob, and it didn't take long to reach him. His large hand wrapped around Jacob's arm, ripping him off the floor as his body jerked backward. He screamed, kicking and flailing with all his might, but the man was like a wall of stone, cold and immovable.
+
+His expression warped into a mix of terror and anguish, something that should've been alien to a child his age.
+
+Then I saw it. Its face. Something I would never forget.
+
+Whatever it was, something deep inside me told me it wasn't human. Not a shred of humanity lived behind his eyes.
+
+There was no way I could face that thing.
+
+I turned my back to Jacob, ran back through the hall, and out through the teacher's lounge. Met with cold, isolating darkness, I mindlessly bounded through the dense woods. My flashlight bobbed and shook violently as I sprinted back towards my school.
+
+As I ran through the woods, I tripped several times— painting my body with bruises. Each time I got back up, I thought I'd turn around and see it standing there.
+
+But I never did.
+
+I ran out of the woods toward the school and, luckily, ran into the school's bus driver, who immediately called the police. He consoled me as best he could until they arrived.
+
+When they asked for my story, I lied. Maybe if I didn’t, things would be different.
+
+I told them we got turned around while playing in the woods. That I lost track of Jacob as I tried to find my way back. Too terrified to even think of that place, of that thing.
+
+I never saw Jacob again.
+
+His mother never recovered. She took her life a year after he went missing. After losing her husband just a few years earlier, the loss of her child was the straw that broke the camel's back. I wish I had told her the truth.
+
+I'm only confessing this so many years later because they found his body. I don't know how, but when I turned on my TV this morning, there he was. Plastered over police footage on the news channel.
+
+His body was mangled, bloodied, and defiled beyond recognition. His head was almost completely caved in, beaten into a dark messy void of blood and bone, something dark and viscous seeping out of the old wound.
+
+I realized something then that would haunt me until the day I die. 
+
+I cried, and cried, and cried some more– until I had no more tears to shed.
+
+He was sixteen when they found him.
