@@ -12,13 +12,13 @@ He pitched it to me as a clean 50/50 split. We’d pool our cash, set a strict m
 
 So after work that Wednesday, we drove forty minutes in our company’s moving truck out to a self-storage place off the highway. It was one of those long rows of orange roll-up doors. We stood in a loose crowd of maybe a dozen people on a sultry hot afternoon while a bored auctioneer walked us down the row. He went door by door, unlocked them, and gave everybody ninety seconds to shine a flashlight in and guess.
 
-Most of the units were pure garbage. They contained nothing but boxes of useless junk nobody wanted and furniture wrapped in dirty blankets. The only exciting moment of the whole afternoon was a six-hundred-dollar bidding war over a unit where someone thought they saw a motorcycle under a tarp. Otherwise, it was all mediocre trash. That’s exactly the kind of unit Henry and I ended up buying.
+Most of the units were worthless. They contained nothing but boxes of junk nobody wanted and furniture wrapped in dirty blankets. The only exciting moment of the whole afternoon was a six-hundred-dollar bidding war over a unit where someone thought they saw a motorcycle under a tarp. Otherwise, it was all mediocre trash. But as the saying goes, 'One man's trash is another man's treasure.' So that’s exactly the kind of unit Henry and I ended up buying.
 
 At Unit number 114, the door stuck a little going up, and the auctioneer had to put his shoulder into it. Inside, the flashlight beam shone on stacked cardboard boxes gone soft and grey with dampness. A heavy shape sat under a moving blanket, probably a dresser. No visible valuables sat out in the open. The crowd's attention was already sliding off it before the flashlight had finished its sweep.
 
 Henry elbowed me. "Junk lottery ticket," he whispered. "Nobody wants it, which means nobody's bidding against us."
 
-We won Unit 114 for three hundred and fifty dollars. The auctioneer actually laughed when he took the cash we pooled, like he felt a little bad for us. Once the crowd moved down the row toward the next door, we got the good flashlight out of the truck. We shined the beam inside to look at what we'd bought.
+We won Unit 114 for three hundred and fifty dollars. The auctioneer actually laughed a little when he took the cash we pooled, like he felt a little bad for us. Once the crowd moved down the row toward the next door, we got the good flashlight out of the truck. We shined the beam inside to look at what we'd bought.
 
 Even though we got the unit fairly cheap, I was skeptical. I already had serious doubts we’d turn a profit on a junk unit. Henry just insisted you never know what you'll find, claiming that half the excitement was the hunt. He even told me there might be an undiscovered Monet in there if you looked hard enough. I was about to tell him there was no way in hell something that valuable would be thrown in a dump like this, but as soon as I stepped over the threshold, the words died in my throat.
 
@@ -28,7 +28,7 @@ I stepped into that storage unit, and every instinct I've built over a decade to
 
 It wasn't a foul smell. And it wasn’t just the temperature, though the air did feel a few degrees colder than it had any right to be. Outside, the afternoon heat was sitting in the high eighties. Inside, the air felt flat and dead. 
 
-You know how it feels when you pick up a heavy box labeled BOOKS, but it turns out to be full of light pillows? Your arms jolt. Your muscles are pre-loaded for a massive weight that simply isn't there. I felt that exact, jarring sensation the entire time I stood in that room. I hadn't even touched a single item yet.
+You know how it feels when you pick up a heavy box labeled BOOKS, but it turns out to be full of light pillows? Your arms jolt. Your muscles are pre-loaded for a massive weight that simply isn't there. I felt that exact, jarring sensation the moment I stood in that room. I hadn't even touched a single item yet.
 
 A handful of unlabeled cardboard boxes sat in an uneven cluster near the door. The larger pieces of furniture were pushed tight against the back wall and draped in heavy moving blankets.
 
@@ -48,13 +48,13 @@ I didn't say anything to Henry. I quickly put it back down on the damp cardboard
 
 The blanket hid a massive dresser. It looked like solid oak with a good weight and real wood grain. Except the longer I stared at the wood, the more my stomach started to turn.
 
-I've been moving dressers my entire adult life, and nothing about this one matched a single job I'd ever done. Seven drawers, stacked in an irregular, jagged pattern, like a child’s drawing brought to life. The shapes were technically correct, but they were arranged with absolutely no understanding of how furniture fits together.
+Now I'm no stranger to moving dressers, but nothing about this one matched a single job I'd ever done. Seven drawers stacked in an irregular, jagged pattern, as if a child’s drawing had come to life. The shapes were technically correct, but they were arranged with absolutely no understanding of how furniture fits together.
 
 I grabbed hold of one of the brass pulls to test the weight.
 
 Nothing shifted. The handle didn’t give or rattle against the wood. I got down on my knees and ran my fingertips along the seam where the top drawer should have met the frame. There wasn’t a gap. It was one single, continuous piece of carved wood from the very top of the dresser to the floor. The drawer fronts and the seams were just a detailed illusion etched into a solid block.
 
-Up close, the wood grain flowed smoothly around the faux drawer faces instead of traveling under them. It looked like the oak had grown around the shapes instead of being cut into panels. One dark knot sat dead center of a drawer front. I leaned in, my breath catching in my throat, and realized the knot wasn’t circular. It had five uneven sides. It was a perfect pentagon.
+Up close, the wood grain flowed smoothly around the faux drawer faces instead of traveling under them. It looked like the oak had grown around the shapes instead of being cut into panels. One dark knot sat dead center of a drawer front. I leaned in, my breath catching in my throat, and realized the knot wasn’t circular. It had five uneven sides, a perfect pentagon.
 
 "Henry," I said, my voice sounding a little too quiet in the small space. "This thing doesn't open."
 
@@ -62,9 +62,9 @@ He walked over and stared at the dresser for several seconds. He shrugged, but h
 
 "So it's decorative," he muttered. He checked resale comps online, but his voice lacked its usual booming confidence. "Somebody's fake dresser. Still worth something to a stager."
 
-We both knew three hundred and fifty dollars was a lot of money when you're this broke. Neither of us could afford to walk away from the investment, so we forced ourselves to start lifting.
+We both knew three hundred and fifty dollars was a lot of money when you're struggling to make ends meet. Neither of us could afford to walk away from the investment, so we forced ourselves to start lifting.
 
-We loaded the boxes first. Then we tackled the solid dresser, a towering dark wardrobe, and a sealed glass tank filled with a thick amber fluid. None of the items carried a single manufacturer mark. All three pieces of furniture weighed far more than their physical size suggested. By the time the unit was empty, the truck bed looked crowded. It felt like we'd cleaned out an entire house instead of a tiny ten-by-ten storage space.
+We loaded the boxes first. Then we tackled the solid dresser, a towering dark wardrobe, and a sealed glass tank. None of the items carried a single manufacturer mark. All three pieces of furniture weighed far more than their physical size suggested. By the time the unit was empty, the truck bed looked crowded. It felt like we'd cleaned out an entire house instead of a tiny ten-by-ten storage space.
 
 We decided to drop the haul off at my place. The rental house is a small, quiet two-bedroom about twenty minutes outside of town. It has a one-car garage that I've never actually used for a vehicle. It's just a dark place to store my loose tools, some unopened boxes, and an old wooden workbench.
 
@@ -72,23 +72,23 @@ By the time we backed the truck up to the garage door, the sun was dropping fast
 
 We didn't even try to unload the big pieces that night. Three boxes in, both of our shirts were thoroughly soaked through with sweat. We agreed the rest of the work would take another hour we just didn't have. There was no immediate rush. Plenty of daylight tomorrow after work would let us sort through everything properly.
 
-I'm writing this from my kitchen table. Henry went home an hour ago. He was still doing resale math on his phone when he drove off, still convinced we lucked into a decent flip.
+I'm writing this from my kitchen table. Henry left a while ago, still doing resale math on his phone when he drove off, still convinced we lucked into a decent flip.
 
-I didn't tell him, but the moment his truck pulled out of the driveway, a sick kind of curiosity took hold of me. It was a deep, nagging itch that I didn't want to admit to anyone, least of all myself. I couldn't just sit in my living room pretending everything was normal. The quiet of the house was too loud. I needed to know whether the wrongness went beyond what I had seen, or if my mind was just playing tricks on me after a long shift.
+I didn't tell him, but the moment his truck pulled out of the driveway, a sick kind of curiosity took hold of me. It was a deep, nagging itch that I didn't want to admit to anyone, least of all myself. I couldn't just sit in my living room pretending everything was normal. The quiet of the house was too loud. I needed to know whether the wrongness went beyond what I had seen or if my mind was just playing tricks on me after a long shift.
 
 So I made coffee and went out to the garage a little after eleven.
 
-The first box near the workbench was filled with old paper goods. Right on top lay a lone paperback book, its cover showing the exact kind of soft fade you get from sitting in a sunny window for a decade. I want to say the title was something like *The Long Way Round*, but I genuinely can't swear to that. The second I opened it to check the print date, my brain completely locked up. I couldn't hold onto anything I read for longer than it took my eyes to track across the page.
+The first box near the workbench was filled with old paper goods. Right on top lay a lone paperback, its cover showing the exact kind of soft fade you get from leaving it in a sunny window for a decade. I want to say the title was something like *The Long Way Round*, but I genuinely can't swear to that. The second I opened it to check the print date, my brain completely locked up. I couldn't hold onto anything I read for longer than it took my eyes to track across the page.
 
-Here's the closest I can get to explaining it. The letters were perfectly fine on their own. You could look at any single character and recognize it. But the moment you tried to read an actual sentence from start to finish, the meaning just evaporated. It was like reading a language that kept almost being English, only to change its mind a word before you could grasp the sense of it. I read the same paragraph four times until my chest tightened, unable to understand what a single line was saying.
+Here's the closest I can get to explaining it. The letters were perfectly fine on their own. You could look at any single character and recognize it. But the moment you tried to read a sentence from start to finish, the meaning evaporated. It was like reading a language that kept almost being English, only to change its mind a word before you could grasp its meaning. I read the same paragraph four times until my chest tightened, unable to understand what a single line was saying.
 
 Shaking my head, I tossed the book back into the box. Sudden dizziness overtook me. I reached deeper into the box to see if the whole thing was a joke, but my fingers collided with something loose at the very bottom. It was a football. I pulled it out into the harsh garage light, and a cold chill shot straight up my arm. The ball was shockingly light, feeling as though there was absolutely nothing inside it, not even a pocket of air.
 
-Stranger still was its geometry. Held straight on, it looked like a normal, regulation-sized sphere. But the moment I turned it in my hand to check the grip, the object went completely flat. It didn't look deflated. It simply stopped behaving like a three-dimensional object from that one specific angle. I tipped it a few degrees further, and it instantly became round again.
+Stranger still was its geometry. Held straight on, it looked like a normal, regulation-sized sphere. But the moment I turned it in my hand to check the grip, the object went completely flat. It didn't look deflated. It simply stopped looking three-dimensional from that one specific angle. I tipped it a few degrees further, and it instantly became round again.
 
 Nervous now, I spun it around to look for the little rubber inflation valve, but the surface was seamless. That’s when I noticed the panels were all hexagons. Every single one of them, all the way around. I only noticed this detail because I used to play rec league in high school. A real football requires pentagons and hexagons together to curve.
 
-I ran my thumb over the surface, and a cold sweat broke out across my lower back. The material wasn’t leather. It felt uncomfortably close to skin, with a faint, wrinkled texture you could only feel if you dragged a fingernail slowly across a panel. Horrified, I didn’t want to put it back in the box with the rest of the junk. I placed it on a high shelf by itself, out of the way, where I could see it clearly from the kitchen window if I wanted to check on it. Even as I type this, I realize that is a deeply unhinged thing to want to do with a sports ball.
+I ran my thumb over the surface, and chills ran up my arms. The material wasn’t leather. It felt uncomfortably close to skin, warm and with a faint, wrinkled texture. Horrified, I didn’t want to put it back in the box with the rest of the junk. I placed it on a high shelf by itself, out of the way, where I could see it clearly if I wanted to check on it. Even as I type this, I realize that is a deeply unhinged thing to want to do with a sports ball.
 
 Wanting to prove to myself that I was just losing my mind from exhaustion, I dragged the second box over to the workbench. I sliced the tape, hoping for normal household goods, and pulled out a heavy oval hand mirror. I held it up in front of my face out of pure habit. For one full second, the familiar sight settled my nerves. I saw my own tired reflection, a few days of stubble, and the harsh fluorescent tube overhead.
 
@@ -102,23 +102,23 @@ I swallowed hard, my breathing turning shallow. I turned my head just a fraction
 
 The reflection didn't turn with me. It kept facing forward a half-beat too long, staring directly at the empty space where my face had just been. When it finally did move, it whipped around to match a head-turn I hadn't even finished making yet, anticipating my movement before I got there. For one horrific split second, I was staring directly at a full, clear view of the back of my own head.
 
-I cried out, dropping the mirror instantly.
+I cried out in shock and dropped the mirror instantly.
 
 Instead of shattering on the concrete, the heavy glass hit the floor and softly bounced like rubber, rolling under the workbench.
 
-My heart was hammering violently against my teeth. I was so thoroughly spooked that I didn't even touch the third box. I backed away from the workbench, my eyes wide, desperately reaching behind me for the door handle to the kitchen. I slammed the door shut, locked it, and ran straight to bed, pulling the blankets over my head like a terrified kid. I didn’t manage to sleep a wink for the rest of the night.
+My heart was hammering violently against my chest. I was so thoroughly spooked that I didn't even touch the third box. I backed away from the workbench, my eyes wide, desperately reaching behind me for the door handle to the kitchen. I slammed the door shut, locked it, and ran straight to bed, pulling the blankets over my head like a terrified kid. I didn’t manage to sleep a wink for the rest of the night.
 
 Thursday at work was a complete blur. I spent eight hours wrapping office furniture in plastic wrap and loading dollies, but my mind was entirely stuck in my own garage. I kept wondering if I had genuinely experienced some kind of silent stroke the night before. I kept checking my reflection in the side mirrors of the moving truck, holding my breath, waiting for my face to lag behind again. It didn't. By the time we clocked out, I had almost convinced myself that exhaustion and money stress had simply triggered a vivid waking dream. I resolved to tell Henry exactly what I thought I’d seen the second we got to my place, if only to hear him laugh and tell me I was being a lunatic.
 
 We drove back to my house in the company truck. The moment Henry parked in the driveway, I opened my mouth to speak, but he was already opening his door.
 
-Before I could get a single syllable out about the mirror, Henry walked straight past me into the garage. He marched right up to the workbench, scooped up the hexagon football, and turned around with a grin.
+Before I could get a single syllable out about the mirror, Henry walked straight past me into the garage. He marched right up to the shelf, scooped up the hexagon football, and turned around with a grin.
 
 "Oh, sweet, free ball," he said, tossing it lightly into the air.
 
 Or tried to.
 
-He misjudged the drop, and the ball slipped right through his fingers from about waist height, tumbling down toward the floorboards.
+He misjudged the drop, and the ball slipped right through his fingers from about waist height, tumbling down toward the ground.
 
 It hit the concrete with one flat, heavy thud. There was absolutely no bounce. It sounded like somebody had dropped a solid stone twice its physical size. The ball didn't even roll. It stayed exactly where it had landed, dead still in the open space between us.
 
@@ -130,13 +130,13 @@ Henry stared down at it. The easy smile vanished from his face.
 
 Henry swallowed hard and looked at the ball for a long moment. "Huh."
 
-That was all the credit he gave it. He set it carefully back on the workbench, wiped his palms firmly against his work pants, and nodded toward the open truck bed outside. He was moving a little faster now, his movements a bit too deliberate.
+That was all the credit he gave it. He set it carefully back on the shelf, wiped his palms firmly against his work pants, and nodded toward the open truck bed outside. He was moving a little faster now, his movements a bit too deliberate.
 
 "We’d better get a move on," he muttered. "Still got half that unit sitting in the truck."
 
 He headed back out to the driveway. Standing alone in the quiet garage staring at that skin-textured ball felt infinitely worse than following him, so I hurried out right behind him.
 
-We set to work removing the remaining smaller boxes, a task that took the better part of an hour. We arranged them in untidy stacks around the perimeter of the garage, making sure to leave a wide circle of empty space in the center. There were still three major things sitting in the truck bed that neither of us could have wrestled out alone—the fake dresser, the wardrobe, and that sealed glass tank. Each was heavy or awkward enough that we had to move them one at a time.
+We set to work removing the remaining smaller boxes, a task that took the better part of an hour. We arranged them in untidy stacks around the perimeter of the garage, making sure to leave a wide circle of empty space in the center. Three major things still sat in the truck bed that neither of us could have wrestled out alone—the fake dresser, the wardrobe, and that sealed glass tank. Each was heavy or awkward enough that we had to move them one at a time.
 
 After we dragged the faux dresser across the concrete, we moved on to the wardrobe. Honestly, pulling the grey dust sheet off the wood was the first real breath either of us took that entire afternoon. It actually looked like a normal piece of furniture. It was a tall, dark-stained cabinet, showing a few ordinary scuffs at the base from years of storage.
 
@@ -150,7 +150,7 @@ It sounded thin and tinny, like the exact vibration you'd get from tapping an em
 
 Henry paused. He knocked again, much harder this time, his face tightening. Same tinny echo. He didn't say a word. Neither did I, though I could tell he was disappointed by the quality of the wardrobe. We hoisted it up, walked it into the garage, and immediately moved on to the next item. 
 
-The glass tank took every bit of our remaining strength to lift out of the truck bed. Once it was sitting flat on the garage floor, Henry crouched down on his knees. He rapped a knuckle against the thick pane as if he were trying to get a pet fish's attention. For a second, he seemed to forget what we had noticed back at the storage unit. There was no visible fish inside. No filter, no pump, and no seam anywhere on the glass. The object was a single, solid, molded block of heavy glass, with the lid fused shut.
+The glass tank took every bit of our remaining strength to lift out of the truck bed. Once it was sitting flat on the garage floor, Henry crouched down on his knees. He rapped a knuckle against the thick pane as if he were trying to get a pet fish's attention. For a second, he seemed to forget what we had noticed back at the storage unit. There was no visible fish inside. No seam appeared anywhere on the glass. The object was a single, solid, molded block of heavy glass, with the lid fused shut.
 
 The interior was full of a thick, dark amber fluid.
 
@@ -160,27 +160,27 @@ I leaned in closer, my skin pricking with goosebumps. I heard it clearly. It was
 
 "There must be something in there," Henry whispered, his head still pressed against the pane.
 
-"There's nothing in there," I insisted, my teeth clicking together. "We looked with the good flashlight, Henry."
+"There's nothing in there," I insisted. "We looked with the good flashlight, Henry."
 
 "Then why the hell is it sloshing around like that?"
 
-I didn't have an answer. The fluid itself looked far too thick and viscous to be normal water. And despite the tank being entirely vacuum-sealed, a heavy, chemical sweetness was beginning to bleed out into the air, cutting straight through the dusty smell of dry cardboard in the garage. It made my throat feel dry. But we still had items left to unload, so we forced ourselves to turn our backs on the sloshing glass and keep moving.
+I didn't have an answer. The fluid itself looked far too thick and viscous to be normal water. And though the tank was entirely sealed, a heavy, chemical sweetness was beginning to bleed into the air, cutting straight through the dusty smell of cardboard in the garage. It made my throat feel dry. But we still had items left to unload, so we forced ourselves to turn our backs on the sloshing glass and keep moving.
 
-After we finished unloading, we spent a while going through the smaller boxes at random. For a few containers in a row, things actually seemed normal. I felt my shoulders drop slightly. I told myself we'd just gotten unlucky with the first few things we happened to grab. The unit was probably just a normal person's boring life, and we had simply stumbled onto the handful of eccentric pieces first out of pure bad luck.
+After we finished unloading, we spent a while going through the smaller boxes at random. For a few containers in a row, things actually seemed normal. I felt my shoulders drop slightly. I told myself we'd just gotten unlucky with the first few things we grabbed. The unit was probably just a normal person's boring life, and we had simply stumbled onto the handful of eccentric pieces first out of bad luck.
 
-Then we'd hit the next box. Instantly, something inside it would be abnormal in that same, impossible way, and the goosebumps would rush right back up my arms as they'd never left.
+Then we'd hit the next box. Instantly, something inside it would be abnormal in that same, impossible way, and the goosebumps would rush right back up my arms as if they'd never left.
 
 None of it carried any real value. That was the part that kept eating at me more than the strange items themselves. There were no electronics. No high-end appliances, no modern hardware tools, no actual antiques, and no genuine collectibles. Everything was just a warped, broken variation of a common household item.
 
 "Shit," I muttered, wiping a thick line of cold sweat from my forehead. "I think this is a dud haul."
 
-"Hey, come on, stay positive," Henry said, but his nervous smile was getting worn down.
+"Hey, come on, stay positive," Henry said, but his nervous smile was wearing thin.
 
 The crushing exhaustion and the raw stress of the last six months finally caught up to me all at once. I snapped.
 
-"The goal was to make money, Henry," I said, my voice coming out much sharper and louder than I intended. "Not to have fun. I have four thousand dollars riding on a custody lawyer. This isn't a game for me."
+"The goal was to make money, Henry," I said, my voice coming out much sharper and louder than I intended. "Not to have fun. This isn't a game for me."
 
-A sudden, ugly flash of anger hit my chest. I stared at him. He was the one who had dragged me into this nightmare to scratch his own betting itch. I closed my eyes, took a slow breath, and forced my fists to unclench.
+A sudden, ugly wave of anger hit my chest. I stared at him. He was the one who had dragged me into this nightmare to scratch his own betting itch. I closed my eyes, took a slow breath, and forced my fists to unclench.
 
 I turned away and grabbed one of the last sealed boxes. Someone had written *CHRISTMAS* on the side in thick permanent marker, underlined twice. Henry stepped up beside me, sliced the tape with his pocketknife, and folded the flaps back. He was clearly expecting tangled string lights, a busted plastic wreath, or a Santa mug wrapped in old newspaper. I was too.
 
@@ -192,7 +192,7 @@ Beneath the tooth star lay a length of bent wire twisted into a cone. It was a b
 
 "At least something in here looks somewhat normal," Henry murmured. He was echoing my exact thoughts.
 
-Near the bottom of the cardboard, wrapped in paper, sat an old rotary telephone. Henry spotted the matte-black plastic and hauled it onto the bench.
+Near the bottom of the cardboard, wrapped in paper, sat an old rotary telephone. Henry spotted it and hauled it onto the bench.
 
 "Now we're talking," he said, trying to force his usual enthusiasm back into his tone. "Retro stuff sells. People pay real money for these vintage pieces on Etsy."
 
@@ -202,21 +202,21 @@ No cord ran from the base. Only a shallow, molded groove where a cord should hav
 
 "Look at this," Henry whispered, turning the heavy base over.
 
-Stamped directly into the material, in clean, official-looking lettering, were the words Wexford *& Sons Telephonic Works.* A serial number sat right underneath the text, consisting of three identical groups of characters repeated in a row, like the stamping machine had gotten stuck in a loop.
+Stamped directly into the material, in clean, official-looking lettering, were the words Wexford *& Sons Telephonic Works.* A serial number sat right underneath the text, consisting of three identical groups of characters repeated in a row.
 
 A quick Google search showed that the manufacturing company didn’t even exist.
 
-"It... it must be a prop house reject," Henry stammered. He was still trying to smile, but his eyes were darting nervously around the room. "Or somebody's idea of a joke."
+"It... it must be a prop house reject," Henry stammered. He still tried to smile, but his eyes darted nervously around the room. "Or somebody's idea of a joke."
 
 He hooked his index finger into one of the dial holes to spin it. The wheel flatly refused to turn clockwise, and at first we assumed that the dial was jammed. Then Henry tried pulling it counterclockwise on reflex, and the dial rotated with absolutely no resistance. When he let go, the wheel sat dead still for a second. Then it twitched, reversed itself half an inch, paused again, and suddenly snapped back to zero so fast I actually flinched from the crack.
 
 "Okay, that's really fucking weird," Henry said. He immediately let go of the plastic and took a full step back from the workbench.
 
-The printed numbers around the holes didn't help either. A few of the digits were doubled. A couple of the holes had no markings printed next to them. One of the sevens was perfectly mirrored and backward, sitting on the face like a typo nobody had proofread.
+The printed numbers around the holes didn't help either. A few of the digits were doubled. A couple of the holes had no markings printed next to them. One of the sevens was perfectly mirrored and backward, sitting on the face like a typo.
 
 Then, the cordless, batteryless phone began to ring.
 
-It was a clean, evenly spaced electronic trill. It didn't have the mechanical, metallic clatter a real bell-and-hammer rotary phone makes. It sounded like an imitation of a ring, smoothed out and entirely too perfect.
+It was a clean electronic trill. It didn't have the mechanical clatter a real bell-and-hammer rotary phone makes.
 
 "Don't," I warned, reaching out to grab Henry's arm.
 
@@ -238,23 +238,23 @@ Henry tried to laugh, his chest heaving. "To whom am I speaking?"
 
 Something answered that was not an echo.
 
-The voice was identical to his own, unmistakably Henry's tone without a single blur of radio static to hide behind. But the inflection was entirely flat and dead, devoid of the natural rhythm his voice always carries.
-
 "You know who."
 
-Henry swore loudly, dropping the handset so fast it clattered violently against the wood. It bounced off the workbench, but it didn't hit the floor. It hung there, swinging gently in mid-air on a cord that wasn't there, suspended by nothing.
+The voice was unmistakably Henry's tone. But the inflection was entirely flat, devoid of the natural rhythm his voice always carries.
+
+Henry swore loudly, dropping the handset so fast it clattered violently against the wood. It bounced off the workbench, but it didn't hit the floor. It hung there, swinging gently in mid-air, suspended by nothing.
 
 Neither of us breathed for a solid five seconds. The handset just bobbed in the empty space above the concrete.
 
 "That's a recording," Henry barked, his voice cracking into a high pitch as he backed away until his spine hit the garage door. He was laughing in that frantic, too-fast way that meant he was on the verge of screaming. "Somebody rigged that, Ian! It's a novelty prop, like those talking dolls. There's a digital chip in there somewhere doing pre-set replies!"
 
-"Prop phones don't copy your voice in real time, Henry," I said, as I stared at the floating handset.
+"Prop phones don't copy your voice in real time, Henry," I said, staring at the floating handset.
 
 "Then it's a high-concept art installation!" he shot back, his chest heaving as he yelled to drown out the quiet. "Like those weird underground exhibits in New York! Some pretentious art student spent three years sculpting this shit just to make a statement about consumer culture! The phone has a hidden microphone and a delayed digital playback loop! It's a parlor trick, Ian! It's just a fucking parlor trick!"
 
 I wanted to believe him. God knows I wanted to believe him, because the alternative meant we had a garage full of things that didn't belong in our world.
 
-Desperate to prove that we were just dealing with broken electronics, I grabbed the last testable item from the box—a standard smoke alarm. It was made of off-white plastic, designed in a classic ceiling-mount style with a little test button on the front. I balled up a piece of scrap newspaper, threw it into a metal utility bucket, and struck a match. I held the rising smoke directly under the plastic sensor, expecting the usual, annoying electronic beep that drives you crazy when you burn toast.
+Desperate to prove that we were just dealing with broken electronics, I grabbed the last testable item from the box—a standard smoke alarm. It was made of off-white plastic, designed in a classic ceiling-mount style with a little test button on the front. I balled up a piece of scrap newspaper, threw it into a metal utility bucket, and struck a match. I held the rising smoke directly under the plastic sensor, expecting the usual, annoying electronic beep.
 
 What came out of that device instead wasn't a beep.
 
@@ -264,7 +264,7 @@ The screech cut off instantly. We stood in the sudden silence, our ears ringing 
 
 *Thump.*
 
-A soft, heavy sound, emanating from inside the massive wardrobe right behind us.
+A soft sound, emanating from inside the massive wardrobe right behind us.
 
 Henry froze. I did too. After the things we had witnessed, we were fully braced for the absolute worst. My mind instantly conjured an image of some pale, emaciated creature coiled up in the dark, waiting to spring forward and chew us alive.
 
@@ -290,23 +290,23 @@ It was almost funny. We stood there holding automotive tools, our hearts hammeri
 
 We didn't look through any more boxes. We pulled the heavy rolling garage door down, snapped the deadbolt, and called it a day.
 
-Henry left an hour ago, seemingly fully convinced that we're just jumpy. He still wants to believe we've just stumbled onto a collection of weird art projects and movie props. He’s already talking about looking for vintage buyers tomorrow after work, convinced this is just a bad gamble we can squeeze our money back out of.
+Henry left an hour ago. He still wants to believe we've just stumbled onto a collection of weird art projects and movie props. He’s already talking about looking for vintage buyers tomorrow after work, convinced this is just a bad gamble we can squeeze our money back out of.
 
 But I can't shake it. We still haven't properly understood the nature of these objects. None of this stuff seems outright dangerous, but it is wrong down to the atomic level. 
 
-That night, after Henry went home, I tried to call the storage facility to ask about the previous tenant. I told myself it was for provenance. If we could find out who had actually owned Unit 114, maybe we could piece together a history that made the vintage items easier to sell. That's what I told myself, anyway. In reality, I just wanted to know what kind of person packs a room full of impossible things into a ten-by-ten space, only to let it get repossessed after four months of unpaid rent. That specific number had been bothering me since the auction, and I hadn't managed to shake it.
+That night, after Henry went home, I tried to call the storage facility to ask about the previous tenant. I told myself it was for provenance. If we could find out who had actually owned Unit 114, maybe we could piece together a history that made the vintage items easier to sell. That's what I told myself, anyway. In reality, I just wanted to know what kind of person owns a room full of impossible things, only to let it get repossessed after four months of unpaid rent. That specific number had been bothering me since the auction, and I hadn't managed to shake it.
 
 A woman answered the phone. She sounded incredibly tired, like someone who fielded this exact call every single week from unhappy auction winners.
 
-"Sir, once a unit is forfeited, we don't retain tenant information past a certain point," she said, her voice flat. "That's just a liability issue."
+"Sir, once a unit is forfeited, we don't retain tenant information past a certain point," she said, her voice flat.
 
 "I'm not trying to get a refund," I explained, leaning against the kitchen counter. "I just want to know who the items belonged to."
 
-"I understand, but I genuinely don't have that for you. Unit 114's paperwork shows a transfer-in from another facility a while back, and that's all we have on our end. We don't get told why units get consolidated. We just take receipt."
+"I understand, but I don't have that information available. Unit 114's paperwork shows a transfer-in from another facility a while back, and that's all we have on our end. We don't get told why units get consolidated."
 
 That stopped me cold. "Transferred in? From where?"
 
-A sudden pause followed on her end. The silence went on a beat too long for someone who was just skimming a computer screen.
+A sudden pause followed on her end. The silence went on a beat too long for someone skimming a computer screen.
 
 "It doesn't say," she murmured. "It just shows as received. No origin facility is listed, and no tenant name appears on the incoming paperwork. Honestly, that's not supposed to happen. Every transfer must have a strict chain of custody attached. I've been working here six years, and I've never actually seen a file come through entirely blank like that. I just assumed it was an old clerical error from before my time."
 
@@ -316,10 +316,10 @@ I leaned against the kitchen counter, my fingers digging into the edge of the wo
 
 "Sir," she cut me off, her voice instantly hardening from tired to defensive. "I don't know what kind of game you're playing, but I really don't have time for prank calls at midnight."
 
-"I'm not pranking you," I insisted, a sudden spike of desperation hitting my chest. "I am standing in my kitchen right now telling you that the things in Unit 114 defy—"
+"I'm not pranking you," I insisted, a sudden spike of desperation hitting my chest. "I am telling you that the things in Unit 114 defy—"
 
 The line went dead with a sharp click before I could utter another word.
 
 My mind kept looping around that single word she'd used. *Received.* Like the unit hadn't ever really belonged to a human being. It was just an anomaly that had shown up already packed, already wrong, and tucked away behind an orange roll-up door.
 
-I stood up and clicked off the kitchen light, plunging the room into darkness. Through the glass, the garage was dead and silent under the moonlight. I looked up at the small window of the garage door, tracking the line of the high shelf inside. I couldn't actually see the football in the dark, but as I stood there shivering in my boxers, I knew exactly which way it was[ facing.](https://www.reddit.com/r/AmoebaGold715/)
+I stood up and clicked off the kitchen light, plunging the room into darkness. Before bed that night, I felt compelled to check the garage one more time. I told myself I was only making sure nothing had changed while I wasn't looking. After the day we'd had, that didn't feel nearly as stupid as it probably sounds. I looked through the crack in the garage side door, glanced briefly at the furniture and boxes, then tracked the line of the high shelf inside. I couldn't actually see the football in the dark, but as I stood there shivering in my boxers, I knew exactly which way it was[ facing.](https://www.reddit.com/r/AmoebaGold715/)

@@ -1,0 +1,49 @@
+This is a throwaway account for obvious reasons. I’m not really sure how to explain what I’ve been seeing.
+
+I am under a mountain of NDAs and the specifics about my job might lead people to find out who I am (there aren’t *that* many employees at Ring), but I can’t keep what I’ve seen a secret anymore. I work in cloud storage and data compression. It’s a pretty mundane job for the most part. I spend 8-10 hours a day in front of a computer, running through thousands of lines of code. The 30 day storage that you get on your Ring devices when you pay for the premium plan? I’m the one who helps keep that running.
+
+Believe it or not, AI has yet to make a dent in my specific field. I don’t allow anyone on my team to use AI agents or automate our work in any way. The video I saw was not AI generated, even though I wish it was. That would make it at least explainable.
+
+From a data standpoint, nothing I saw had been faked.
+
+Last week, a series of alerts hit our system for a neighborhood in Patterson, Pennsylvania. I was immediately thrown when I opened up the case. I’ll leave out any specific addresses, but if you have any family in the area, I suggest you check in on them. 
+
+Every Ring camera and doorbell within a 20 mile radius of the neighborhood had their footage corrupted. 
+
+My gut told me this was a cyber attack. We’ve been hit with plenty of those in the past. My team is pretty well equipped to deal with things like that, and it’s actually surprisingly easy to identify foreign code that’s embedded into the files. However, we’d certainly never been hit with something of this size.
+
+As the team lead, I took the first stab at it. I opened up the account that logged corrupted footage first. Code filled my screen, and I began to scour for any outliers. Anything that might indicate why the footage wasn’t saved. Everything looked perfectly normal. I pulled up our comparison code that runs on every camera, and it was nearly identical. That’s when I noticed the time code.
+
+This account had tried to log a 2.5 hour long video alert. A typical motion detection alert runs anywhere from 20 to 45 seconds with the option to expand it if you keep the video open longer. 2.5 hours was unheard of. That obviously explained the corruption.
+
+This is where my curiosity got the better of me. Now, I would never invade someone’s privacy, however, I needed to see that this was indeed a 2.5 hour long video and not some faulty reporting. The camera would need a firmware update, and we’d need to scour through it’s programming until we find out what caused this error to make sure it doesn’t happen again. Enough videos like this and we crash the server.
+
+The video opened on my second monitor, filling my screen with an image of a front yard in the middle of the night. The time code: 2:05 AM. The video was indeed 2.5 hours long.
+
+In the image of the yard, there was nothing. Just a couple of trees, a minivan in the driveway, and the soft glow from street lamps. It was a calm, empty suburban street. It was hard to see anything in the dark. I scrolled the timeline along and confirmed it ran all night until 4:35 AM.
+
+I checked through the code and sure enough found the bug. Every two seconds, the ring camera does an automated scan of the video footage and if the ‘presence detected’ goes off, the video keeps recording. You know that notification you get “There’s motion at your front door” - that’s what I’m talking about. This video footage despite being empty, had been detecting someone every two seconds. 
+
+I cleared the automated detection code on the video file and ran the video again. This normally clears any errors out and once the code realizes there’s nothing in the video, the file vanishes from the cloud.
+
+The code came back the same. Every two seconds, a person was detected, spanning from 2:05 AM and ending at 4:35 AM. 
+
+I re-opened a video. Had someone really been standing there for two and a half hours? It was still too dark to see anything. The front yard looked completely normal and empty. It was creepy looking at a yard in the middle of the night, for sure. The trees looked…
+
+That’s when I noticed it. There was a shape in front of the tree. It was slightly darker with no ridges. It looked like a man but it was impossible to see him.
+
+I took a screenshot of the video and opened it in photoshop. I played with the contrast and brightness until it became clear. There was a man standing perfectly still in front of the tree. One of his arms was outstretched to match the branch and the other was at his side. I couldn’t see his features or anything, but he was definitely there.
+
+The camera had seen this man for the entire 2.5 hours. 
+
+I immediately opened up the live camera view again. It was the middle of the night, but the tree looked different. Whoever that man was, he wasn’t there anymore.
+
+So it wasn’t an error. The camera was consistently detecting a man in the yard up until 4:35 AM and then it just… stopped. Then all activity at the house stopped.
+
+Something wasn’t right. The other thing that terrified me and still confuses me is the hundreds of other corrupted files from town. 
+
+I needed to know one thing before I began scraping through their data. One thing that I desperately wanted to be wrong about.
+
+I pulled up the master spreadsheet that logged every error report and the time codes for each video. I scrolled through the hundreds of addresses and camera logs. Every single one had a last uploaded video notice at 4:35 AM. 
+
+The remainder of their history was blank. I don't know what to do or who to even talk to about this. I think I'm going to start going through the rest of the videos to see if I can find out what happened.
