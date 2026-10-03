@@ -1,0 +1,17 @@
+I don’t know how I got there. One moment I was just... standing in the middle of a room. It wasn’t a dream. In dreams, you have this feeling that you can wake up. Here, that feeling was completely absent. It felt like I had simply opened my eyes and was there.
+
+The room was... familiar. Floral wallpaper with red flowers, an old rug hanging on the wall, a chandelier with three glass shades. I could have sworn I’d seen it before. Maybe at my grandmother’s house in the countryside? Or in that old apartment we rented when I was a kid. But when I tried to remember exactly where this place was, my mind went blank. It was as if someone had deleted the file from my memory, leaving only the picture behind.
+
+There was an old TV on the desk. It was turned off, but I could feel it watching me. I walked closer. There was a book on the table. I don’t remember its title. I only remember that when I looked away toward the window, the book was suddenly in a different place. I didn’t see it move. It just... shifted. I told myself I was imagining things. But then the chair by the desk slowly turned a few degrees, even though there was no draft in the room.
+
+I stepped out into the hallway. It was dark, with only one lamp burning. A man walked past me. He was wearing casual home clothes, heading toward the kitchen. I called out to him. He didn’t turn around. I touched his shoulder... and my hand went right through him. He was like a hologram. I looked at his face. He didn’t have one. Just smooth skin. He kept walking, filled the kettle, and sat down at the table, staring at the empty wall. I realized that in this place, I was the ghost. Or maybe he was.
+
+I went back to the room. And that’s when I saw it. In the corner, by the wardrobe, stood a shadow. But it wasn’t just a shadow. It was a stretched, elongated figure. It was black as tar. And it had eyes. Many eyes. They were scattered chaotically: on its chest, on its shoulder, on its stomach. They were all looking at me. It had no face, but I could feel that it was smiling.
+
+I panicked. I tried to hit it. My fist passed through empty space, but the figure became bigger. It grew denser. I felt a coldness locking up my legs. I remembered all my fears. All my mistakes. This place was feeding on me.
+
+I closed my eyes. I told myself: “This isn’t real. It’s just a room. Just wallpaper. Just a shadow.” I stopped thinking about it. I started counting the flowers on the wallpaper. One. Two. Three. I could hear something whispering behind my back, but I didn’t turn around.
+
+After a minute, it went quiet. I opened my eyes. The figure was gone. Only the room remained. Empty, with the same wallpaper and the old TV.
+
+I still don’t know what that was. I don’t know how people get there. But sometimes, when I fall asleep, I see that wallpaper again. And I know that if I start to feel afraid again — it will come back. It always comes back. It waits for you to forget that it’s just a memory.

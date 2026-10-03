@@ -1,3 +1,5 @@
+\[Pt.1\]
+
 So,  let’s state something first, I was born in Thailand, spent 19 years here and have no plans to move. My father was American and my mother was Thai. Dad was an engineer for an oil pump in the sea so he was rarely home. And my mom was a nurse. Both met at the hospital after dad’s motorcycle crashed. After having me they named me, Auto (It’s a common nickname here, trust.) So writing in this, I will try to translate it to the best of my ability. 
 
 Us Thai, we have a deep connection with spirituality. However, I was pretty against those ideas of myth but my mother…she knew for fact. Working as a nurse she saw countless deaths, heard countless tales and witnessed some. She had sense, she claimed and she claimed that my sisters have them, too. 
