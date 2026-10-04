@@ -1,0 +1,41 @@
+I worked the midnight rotation at the Monongahela River pumping station outside Clairton. It was an old municipal brick facility from the nineteen-forties, handling cooling runoff for the steel mills downriver. My job was dead simple: monitor hydraulic pressure on the analog board in the main office, log grease-pot levels on the turbine bearings once an hour, and keep river junk out of the intake trash rakes.
+
+The plant ran on a skeleton crew overnight. Past eleven, it was just me and an operator named Miller, who had worked that concrete floor for thirty-two years. Miller mostly stayed down in the boiler room where the heat pooled, while I walked the rounds across the intake basins.
+
+At one-fifteen in the morning, the needle on the number three line dropped forty pounds of pressure without the primary drive motor slowing down. That shouldn't have happened. If a line drops that much pressure while the pump runs at steady RPM, it means the intake gate drifted shut, or somebody turned the manual bypass valve forty feet up in the overhead gallery.
+
+The upper gallery was just an unheated concrete catwalk with two rooms at the far end: a live breaker closet, and an old secondary control room the district padlocked back in the eighties after a guy drowned during a flood surcharge. Company rules said that room stayed locked. The high-volume intake lines ran right underneath the floorboards.
+
+I grabbed the supervisor key from the wall box, unlocked the iron gate at the base of the spiral stairs, and headed up. The air was freezing. The catwalk shook through my work boots from the turbines below. Up on the landing, the hanging fluorescent tube was out. The only light came from the amber yard lamps cutting through the wire-mesh windows.
+
+I checked the brass wheel valve on line three. It was cranked tight against the lower stop and secured with a steel cable and padlock. The valve hadn't budged. The dried grease on the threads wasn't even smudged.
+
+Then I heard a boot heel scrape against the concrete behind me.
+
+I spun around and hit the switch on my flashlight. The beam reached all forty feet of the empty walkway. The chain on the old control room door was pulled tight, the brass Master lock hanging locked. There were no prints in the dust along the threshold plate. The pipe railing was cold and dry. I wrote the pressure numbers down on my clipboard, figured it was just an instrument error in the basement plumbing, relocked the iron stairs gate, and went back to the office.
+
+At two-thirty, I sat at the metal desk to finish the shift log. The desktop landline clicked once, and the dial tone cut completely dead. I checked my cell. Zero bars, just searching for service. The VHF company radio sitting on the charging cradle put out a flat carrier hum with no county dispatch chatter coming through.
+
+Miller came in holding his steel thermos. He didn't waste words, just asked if I'd been up on the catwalk ten minutes ago. I told him I'd been sitting at the desk since two. He set his coffee down, tapped the pressed-tin ceiling with his pencil, and said somebody was walking the number three deck right above us.
+
+We both stood quiet and listened. Heavy, deliberate steps crossed the concrete directly overhead, moving in a straight line from the stairs to the locked door of the old room. They were slow, measured, and sounded like heavy work boots.  
+I grabbed a twelve-inch adjustable wrench off the bench. Miller picked up his Maglite and an iron pinch bar from the wall rack. We walked out onto the concrete pump floor. The electric drive turbines were spinning at eighteen hundred RPM, making a constant mechanical roar that shook the metal siding.
+
+I unlocked the lower gate again, and we went up the spiral steps together. When my head cleared the floor grating, I stopped.
+
+The heavy chain on the old control room door was gone. The door stood open about four inches into the dark. The chain and lock weren't on the deck. The steel eyelets on the jamb showed no pry marks.  
+Miller came up behind me on the landing and put his flashlight beam through the door gap. The light hit an old drafting table and a row of dead knife switches on the far brick wall. Right in the middle of the room, on the timber access hatch over the river sluice, the dust had been swept clean.
+
+A sound came out of the dark. It wasn't the machinery, and it wasn't the pipes. It was Miller's dry, hacking cough, repeated with the exact same flat tone he'd made down in the office five minutes earlier.
+
+Miller froze. He kept the flashlight beam pinned on the bare floorboards inside.  
+Then another sound came from the corner behind the open electrical panel. It was my own voice, speaking the exact sentence I'd said earlier about a gauge calibration error in the basement. The words were flat, dead, and played through the open space like an audio track from a bad speaker.
+
+Miller reached past me, slammed the heavy iron door shut into the latch, and shoved his pinch bar deep through the handle frame, wedging it hard against the concrete casing. He looked at me, turned his back to the door, and headed down the stairs without saying a word.
+
+I followed him down, pulled the lower iron gate shut, and turned the key until the deadbolt hit home. We didn't go back to the office. We went out the ground-floor exit, checked the perimeter chain-link, and stood together by the gravel lot fence near the yard transformers where the river wind blew through. We stood out there under the halogen yard lights until five-thirty, watching the catwalk windows forty feet up.
+
+Twice between three and four in the morning, the yellow yard lamps caught a solid, unmoving silhouette behind the wire-mesh glass of the catwalk window. The shape didn't shift its weight, didn't touch the glass, and didn't look away. It stood dead center in the frame, facing straight down into the gravel lot where we were standing.
+
+The day shift showed up at six in a company pickup. As their headlights hit the gate, the ringer inside the office gave one short hit, showing the phone line had come back. We walked inside with the relief crew. Over on the main gauge board, the needle on line three sat right at normal operating pressure without anyone having touched a single valve.  
+When the relief super unlocked the lower gate and walked the catwalk with us, Miller’s iron pinch bar was still wedged tight across the door handle. Nothing on the outside had been touched. But once they pried the bar loose and swung the door open, the original brass padlock and heavy steel chain were sitting dead center on that empty drafting table, locked together through their own links, with no key in the hole.

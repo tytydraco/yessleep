@@ -1,0 +1,39 @@
+\[possession\] This is going to be long, and I'm not sure how to even start, so I'll just tell it the way my sister told it to me.
+
+There's a bathroom in their school that's always locked. Nobody uses it. Nobody's used it in years, as far as anyone knows. And like every school has at least one, theirs has a story attached to it — that something negative lives in there. A presence. The kind of thing you laugh about in daylight and don't think about when you're walking past that corridor alone at 4 PM with the lights half-off.
+
+Her friend's name is Fa'iza.
+
+One day Fa'iza walked up to that locked door, let her hair down, and just stood there. And then she started saying it, low and flat, over and over — \*andar. andar.\* Come in. Come in.
+
+Everyone assumed she was doing a bit. Pranks are basically a currency in that school. People filmed it, people laughed, someone probably told her to stop being weird. It ended there, or it was supposed to.
+
+It didn't.
+
+After that day, something about Fa'iza was just... off. Not dramatic. Not movie-possessed. Worse than that — quieter. My sister said she'd catch Fa'iza staring at her across the classroom, and not the normal kind of staring. Not blinking. Not looking \*at\* her so much as looking \*through\* her, like she was reading something written behind my sister's face. She'd do it to the whole group. You'd turn around and she'd already be watching, and she wouldn't look away when you caught her. She'd just keep going until you did.
+
+And here's the part that gets me. My sister's friends were already scared of her \*before\* any of this. Before the door, before the staring. They couldn't explain it. They'd just say, in that half-joking way people say things they actually mean — \*she's possessed, bro\* — and then change the subject fast, like saying it out loud would make it real. So when she started pulling faces at them, deliberately, trying to scare them, they didn't know what to believe anymore. Was this the thing they were scared of, or was it just Fa'iza being Fa'iza? Is it worse if it's a prank? Or is it worse if it isn't? They never figured it out. They just started sitting further away.
+
+One of the girls started seeing her in her dreams. Not doing anything. Just there, in the dream, watching, the same way she watched in class. She'd wake up and not want to go to school. Nobody told the teachers, because what do you even say.
+
+That's as far as the "possession" part goes. It never escalated past stares and silence and a feeling. Honestly, I think the \*feeling\* was the whole thing.
+
+And then Sofia happened.
+
+Sofia brought a necklace to school. Teacher saw it, told her it wasn't allowed, so she put it in her bag. Fine. After lunch, during the next period, the teacher asked them to take out their books, and Sofia reached into her bag and the necklace was gone. She told the teacher. The teacher told her to sit down and study, and said \*she'd\* check the bags herself.
+
+She went through them one by one.
+
+She found the necklace in Fa'iza's bag.
+
+And she found something else in there too. A pink vibrator.
+
+The teacher pulled it out in front of the entire class and asked her what it was. And then she humiliated her. Out loud, in front of everyone, no mercy, no quiet word, no stepping outside. Just the whole thing, right there, with thirty kids watching.
+
+Fa'iza's parents were called in.
+
+And after that — the class turned on her. Completely. The whispering, the names, the way people moved their bags when she walked past. The girl they'd already decided was \*possessed\* was now also \*that\*. It fed itself. She started coming to school less. Then she stopped coming at all.
+
+I don't know where Fa'iza is now. My sister doesn't either. Nobody from that school really talks about her anymore, which is its own kind of answer.
+
+The thing I keep coming back to isn't the door, or the necklace, or even the stares. It's that everyone spent months afraid of a girl standing in front of a locked bathroom saying \*come in, come in\* — and the only thing that ever actually came in was the rest of them.
