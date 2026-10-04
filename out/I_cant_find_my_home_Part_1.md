@@ -1,3 +1,5 @@
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1wxfv2s/i_cant_find_my_home_part_2/)  
+  
 Death is the one thing humanity can't avoid. But how do we know we're not already dead? How do we know that what we're doing right now, this thing we call living, isn't just the last memory of a dying brain? Because according to science, right before death the brain stretches time out and pulls up all the good memories. So what if that stretched-out window of time is... right now? What if everything we're doing is just a memory, and the real me is lying in a coma somewhere, close to death?
 
 My name is Rin. And yes, that's not my real name. I can't tell you my real one, because you'd dox me. I was in the tenth grade at the time, and my school is pretty well known. Every year it runs a competition to send students abroad as exchange students, and that year one of the destinations was California. I wanted to chase opportunities, so I entered, and I went. I stayed about a year and a half.
