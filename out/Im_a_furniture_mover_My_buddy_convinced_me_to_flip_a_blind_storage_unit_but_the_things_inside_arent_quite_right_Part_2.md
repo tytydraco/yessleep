@@ -1,5 +1,7 @@
 [\[Part 1\] ](https://www.reddit.com/r/nosleep/comments/1ws441g/im_a_furniture_mover_my_buddy_convinced_me_to/)
 
+[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1wx3gjg/im_a_furniture_mover_my_buddy_convinced_me_to/)
+
 First off, thanks to everyone who replied to my last post. I honestly wasn't expecting that many people to take it seriously, and I read through pretty much everything: every theory, every warning to throw the stuff out, call somebody, all of it. A few of you asked me to update if anything else happened, and at the time I wasn't sure anything would be worth updating. Henry and I had agreed we were done poking at the stranger items, and I was still trying to convince myself most of what we'd seen could be explained.
 
 That was Thursday night. It's now Saturday night, and I can't do that anymore. Friday, we tried to sell the stuff. Saturday, something happened to my son that I still can’t explain. I'm updating because this is the point where the weirdness stopped feeling harmless.
@@ -70,7 +72,7 @@ Henry leaned back against the headrest and stared through the windshield for a f
 
 “I mean it. Somebody wants this stuff. I know it. We’re just talking to the wrong people. Worst case, we're doing a driveway sale; unload it two bucks at a time to whoever and hope they don't look too close."
 
-He said it like a consolation prize, which, I guess, to us, it was. Three hundred and fifty dollars split two ways is a hundred and seventy-five each, and neither of us can currently afford that loss outright, so a garage sale was looking more and more like our fallback. Privately, I knew it probably wouldn’t even give us a chance to break even, let alone turn a profit. I didn't voice any of my thoughts aloud. The last thing I needed was to make Henry feel worse about a plan we'd both agreed to.
+He said it like a consolation prize, which, I guess, it was for us. Three hundred and fifty dollars split two ways is a hundred and seventy-five each, and neither of us can currently afford that loss outright, so a garage sale was looking more and more like our fallback. Privately, I knew it probably wouldn’t even let us break even, let alone turn a profit. I didn't say any of it aloud. The last thing I needed was to make Henry feel worse about a plan we'd both agreed to.
 
 "Tomorrow, then," Henry said. "The forum guy's coming Saturday afternoon. I'll swing by."
 
@@ -96,19 +98,19 @@ That was when I noticed the wardrobe door was open.
 
 Not much. Maybe an inch or two.
 
-I stopped when I noticed it because I was fairly sure I'd shut it earlier. After the noise we'd heard from inside it, I wasn't exactly thrilled to see the door open again. The garage gets drafts whenever the wind hits that side of the house, though, and the thing was old enough that I doubted it sat perfectly level. I pushed the door closed until it clicked and moved on.
+I stopped when I noticed it because I was fairly sure I'd shut it earlier. After the noise we'd heard inside, I wasn't exactly thrilled to see the door open again. The garage gets drafts whenever the wind hits that side of the house, though, and the thing was old enough that I doubted it sat perfectly level. I pushed the door closed until it clicked and moved on.
 
 On my way back to the chair, I noticed the football sitting near the side wall. I could've sworn it was still sitting on the shelf by the window after we got home. I stood there for a second trying to remember whether I'd moved it myself. I decided I must have. 
 
-As the hours ticked by, it was clear the cataloging was the mistake. I told myself I just needed to know what I was moving. But every box I opened held something else, and every item I wrote down was one more thing I couldn't explain. I had a page of notes, then two. Somewhere in there I stopped checking the clock. I don't remember falling asleep. The last thing I remember is the pen moving down the page. The next thing, the window over the workbench was going grey. A glance at my watch told me there were less than two hours until Toby got here. I had meant to move our haul out of the house. That was the plan the second I realized Alicia was calling about having Toby over for the weekend. Rent a unit, or stack whatever fits into the truck bed and park it at Henry's, anything to get it out from under the same roof as my kid. I'd even written it on the back of an envelope: *Friday night. After cataloging. Two hours, tops.*
+As the hours ticked by, it was clear the cataloging was the mistake. I told myself I just needed to know what I was moving. But every box I opened held something else, and every item I wrote down was one more thing I couldn't explain. I had a page of notes, then two. Somewhere in there I stopped checking the clock. I don't remember falling asleep. The last thing I remember is the pen moving down the page. The next thing, the window over the workbench was going grey. A glance at my watch told me Toby would be here in less than two hours. I had meant to move our haul out of the house. That was the plan the second I realized Alicia was calling about having Toby over for the weekend. Rent a unit, or stack whatever fits into the truck bed and park it at Henry's, anything to get it out from under the same roof as my kid. I'd even written it on the back of an envelope: *Friday night. After cataloging. Two hours, tops.*
 
 I stood there doing the math. The wardrobe and the tank had taken two of us and a dolly each. Alone, I'd be dragging one down the driveway when her car turned onto the street, and I had nowhere to put it anyway. So I did what I could finish in the time I had. 
 
-I threw on the first clean shirt I found, shoved the lawn chair back into the corner, and did a full sweep of the garage, making sure everything was put away and out of sight. Then I locked the garage's side door, the one that connects it to the house, and went out front to wait on the porch. Alicia pulled in looking exhausted, Toby half-asleep in the back seat. Before she even got his overnight bag out, she started going through the rules. Keep him inside unless I'm with him. Keep anything sharp, electrical, or remotely dangerous out of his reach. Tools especially. She repeated that line twice.
+I threw on the first clean shirt I found, shoved the lawn chair back into the corner, and did a full sweep of the garage, making sure everything was put away and out of sight. Then I locked the garage's side door, the one that connects it to the house, and went out front to wait on the porch. Alicia pulled in, exhausted, with Toby half-asleep in the back seat. Before she even got his overnight bag out, she started going through the rules. Keep him inside unless I'm with him. Keep anything sharp, electrical, or remotely dangerous out of his reach. Tools especially. She repeated that line twice.
 
-She said she'd be back Monday morning, told me Toby'd had a rough sleep the last two nights and might be a little clingy, and knelt down to Toby's height to tell him to have fun with Dad. I watched my son hug her leg, then let go and run at me instead. I picked him up and promised myself that nothing in that garage—and nothing I did—was going to give Alicia another reason to regret leaving him with me. 
+She said she'd be back Monday morning, told me Toby'd had a rough sleep the last two nights and might be a little clingy, and knelt down to Toby's height to tell him to have fun with Dad. I watched my son hug her leg, then let go and run at me instead. I picked him up and promised myself nothing in that garage—and nothing I did—would give Alicia another reason to regret leaving him with me. 
 
-We had a good few hours. We watched cartoons while eating grilled cheese sandwiches; between bites of his sandwich, Toby told me about a kid in his class who eats paste and clearly considers it the funniest fact currently known to modern science. I felt, for maybe the first time in six months, like a normal dad. While this was happening, some part of me was already calculating how much time I'd have to go back through everything once Toby was asleep. 
+We had a good few hours. We watched cartoons while eating grilled cheese sandwiches; between bites of his sandwich, Toby told me about a kid in his class who eats paste and clearly considers it the funniest fact currently known to modern science. For maybe the first time in six months, I felt like a normal dad. While this was happening, some part of me was already calculating how much time I'd have to go back through everything once Toby was asleep. 
 
 I looked at my kid's face and thought about the mirror's hand coming up on the wrong side and just—closed that door in my head, the same way I'd locked the actual one that morning. Not today. Today's just us.
 
@@ -124,17 +126,17 @@ I told myself it was the house. Old houses do weird things with sound.
 
 "Ready or not!"
 
-I checked his usual spots first, all the obvious kid-logic hiding places, and got nothing. The laugh kept puncturing the silence every thirty seconds or so, always in that same distant register. It took me embarrassingly long to track it room to room with my heart picking up speed, refusing to acknowledge what my gut already knew: it was coming from behind the door I'd locked that morning.
+I checked his usual spots first, all the obvious kid-logic hiding places, and got nothing. The laugh kept puncturing the silence every thirty seconds or so, always in that same distant register. It took me embarrassingly long to track it room to room, my heart picking up speed and refusing to acknowledge what my gut already knew: it was coming from behind the door I'd locked that morning.
 
 The garage.
 
-I stood in front of that door for what felt like a very long time. I remember thinking, *I locked this. I told him it was off limits.* None of that mattered against the fact that I could hear him in there, laughing on the other side. My trembling fingers fumbled with the key, dropping it twice before I finally got the bolt to turn. I pushed the door open, and my first thought was every damn thing I'd left in there. The mirror. The football. Half a dozen boxes I hadn’t finished going through. I pictured Toby touching one of them or opening something, and my stomach dropped.
+I stood in front of that door for what felt like forever. I remember thinking, *I locked this. I told him it was off limits.* None of that mattered against the fact that I could hear him in there, laughing on the other side. My trembling fingers fumbled with the key, dropping it twice before I finally got the bolt to turn. I pushed the door open, and my first thought was every damn thing I'd left in there. The mirror. The football. Half a dozen boxes I hadn’t finished going through. I pictured Toby touching one of them or opening something, and my stomach dropped.
 
 “In here, Dad!”
 
-His voice came from the wardrobe. The wardrobe door was slightly open again. I was close enough now that I could hear him shifting his weight, the small creak of a kid trying and failing to keep still.
+His voice came from the wardrobe. The wardrobe door was slightly open again. I was close enough now to hear him shifting his weight, the small creak of a kid trying and failing to keep still.
 
-It’s hard to describe what walking those ten feet to the wardrobe felt like. It was like missing a step in the dark, that sudden, sickening lurch where your stomach hits your throat—except the drop didn't end. I remembered the thump from inside the wardrobe. Henry and I had opened it afterward, but there hadn’t been anything in there. At the time, I’d been relieved. Standing there with Toby’s voice coming from inside it, I suddenly wished I’d taken that noise a lot more seriously. What if whatever or whoever had made that sound was now in there with him?
+It’s hard to describe what walking those ten feet to the wardrobe felt like. It was like missing a step in the dark, that sudden, sickening lurch where your stomach hits your throat—except the drop didn't end. I remembered the thump from inside the wardrobe. Henry and I opened it afterward, but there was nothing in there. At the time, I’d been relieved. Standing there with Toby’s voice coming from inside it, I suddenly wished I’d taken that noise a lot more seriously. What if whatever or whoever had made that sound was now in there with him?
 
 I reached out and pulled the door wide.
 
@@ -160,15 +162,15 @@ I grabbed the handle. It would not budge.
 
 My son's voice came from the other side, asking, more confused than before, why Dad wasn't answering.
 
-I don't remember when I started screaming his name. I do remember hitting that door with both hands, hard enough that I split my knuckle, and I remember Toby's voice on the other side saying, "Dad, I'm right here. Why can't you hear me? I'm right here.” Something about the way he said it rattled me worse than the jammed door. He sounded farther away. I know how absurd that sounds. There was nowhere for him to go. The wardrobe was barely two feet deep, its back sitting almost flush against the garage wall. I could've walked outside and slapped my hand against the exterior siding in three steps.
+I don't remember when I started screaming his name. I do remember hitting that door with both hands, hard enough that I split my knuckle, and I remember Toby's voice on the other side saying, "Dad, I'm right here. Why can't you hear me? I'm right here.” Something about the way he said it rattled me worse than the jammed door. He sounded farther away. I know how absurd that sounds. He had nowhere to go. The wardrobe was barely two feet deep, its back sitting almost flush against the garage wall. I could've walked outside and slapped my hand against the exterior siding in three steps.
 
-I screamed back that I could hear him, I could hear him, just please, please open the door. I don't know how long that lasted. Long enough that my voice had gone ragged. Long enough that I'd started trying to find something to pry the door with, glancing wildly around the garage. I let go of the handle and spun toward the workbench. I needed something with weight behind it, something I could wedge into the seam and force the damn thing open. The pry bar should've been hanging from the second hook above the bench. I kept it there because I used it often enough that burying it in a toolbox made no sense.
+I screamed back that I could hear him, I could hear him, just please, please open the door. I don't know how long that lasted. Long enough for my voice to go ragged. Long enough that I'd started trying to find something to pry the door with, glancing wildly around the garage. I let go of the handle and spun toward the workbench. I needed something with weight behind it, something I could wedge into the seam and force the damn thing open. The pry bar should've been hanging from the second hook above the bench. I kept it there because I used it often enough that burying it in a toolbox made no sense.
 
 The hook was empty.
 
-For half a second I just stared at it, stupidly, like the bar might materialize if I looked hard enough. Then I remembered the missing tools. "No. No, no, no. Not now. Not fucking now!"
+For half a second, I stared at it stupidly, like the bar might materialize if I looked hard enough. Then I remembered the missing tools. "No. No, no, no. Not now. Not fucking now!"
 
-Toby's voice came through the wardrobe again, which I could just barely hear.
+Toby's voice came through the wardrobe again, barely audible.
 
 "Dad?"
 
@@ -180,7 +182,7 @@ Before I could pull, the handle twitched beneath my palm.
 
 Then the door opened on its own.
 
-No warning or sound of a latch giving. One second it was sealed shut; the next, it was swinging open on its own weight.
+No warning, no sound of a latch giving way. One second it was sealed shut; the next, it was swinging open on its own weight.
 
 Toby was sitting cross-legged inside it, blinking up at the sudden light like he'd been in there the whole time, looking completely fine and unbothered. "You found me," he said. "That took forever."
 
@@ -188,11 +190,11 @@ I dropped the hammer, hauled him out of the wardrobe before he could move, and c
 
 "Dad, you're squishing me."
 
-I made myself let go so I could look at him. I ran my hands over his arms, shoulders, and the back of his head, looking for blood, swelling, or anything. He kept squirming and asking what I was doing. There wasn’t a mark on him. 
+I made myself let go so I could look at him. I ran my hands over his arms, shoulders, and the back of his head, looking for blood, swelling, or anything. He kept squirming and asking what I was doing. He had no marks. 
 
 “How did you get in here?”
 
-Toby looked up at me like I was asking him a trick question.
+Toby looked up at me like I'd asked him a trick question.
 
 “The door was open.”
 
@@ -200,7 +202,7 @@ I stared at him. “The garage door?”
 
 He nodded. “I thought you left it open. Sorry. You said I wasn’t supposed to touch your stuff.”
 
-“Hey, no. You’re alright.” I ruffled his hair, forcing a smile. “Don’t worry about it.”
+“Hey, no. You’re alright.” I ruffled his hair and forced a smile. “Don’t worry about it.”
 
 Unease prickled across my arms and crawled up the back of my neck. I had thrown that deadbolt myself that morning. I still had the key in my pocket. I’d had to manually unlock it just to get in. That realization left a cold taste in my mouth: I didn’t know what bothered me more—that he’d somehow slipped through a locked door, or that from his perspective, nothing strange had happened at all.
 
@@ -220,7 +222,7 @@ I don't know how long actually passed on his side of the wardrobe. I knew it had
 
 I didn't let him be more than a few feet away from me after that. Toby complained when I followed him back into the living room, complained again when I sat down beside him on the couch, and eventually stopped caring once the cartoons were back on.
 
-I made him another grilled cheese sandwich because he said he was hungry. Between the rough sleep Alicia had warned me about and everything we'd done that morning, he was asleep against the couch cushions not long afterward. After that, the rest of the day passed as a blur. Sometime that afternoon, Henry called. I let it ring twice and answered in the hallway with the kitchen door closed behind me.
+I made him another grilled cheese sandwich because he said he was hungry. Between the rough sleep Alicia had warned me about and everything we'd done that morning, he was asleep against the couch cushions not long afterward. After that, the rest of the day blurred by. Sometime that afternoon, Henry called. I let it ring twice and answered in the hallway with the kitchen door closed behind me.
 
 "Forum guy’s confirmed," he said, sounding thrilled. "Monday, two o'clock. He wants photos first, though. Can you send me some of the mirror?"
 

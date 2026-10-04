@@ -1,5 +1,7 @@
 [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1wtweb8/im_a_furniture_mover_my_buddy_convinced_me_to/)
 
+[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1wx3gjg/im_a_furniture_mover_my_buddy_convinced_me_to/)
+
 I need to get this down while it's still fresh. I can already feel my memory going fuzzy like a dream does an hour after you wake up. If I don't write it down now, I'm worried I'll talk myself out of it by morning.
 
 Some background, so this makes sense.
