@@ -1,0 +1,1565 @@
+&#x200B;
+
+The drywall remembers the weight of his fist.
+
+It remembers every fist.
+
+There are places in this house where the plaster has been repaired so many times that the walls have become little archaeological sites of violence.
+
+Layers beneath layers.
+
+White over yellow.
+
+Yellow over nicotine brown.
+
+Paint over cracks.
+
+Paint over blood.
+
+Paint over the places where somebody tried to leave.
+
+The house keeps everything.
+
+It keeps the smell of gin in the curtains.
+
+It keeps cigarette smoke inside the insulation.
+
+It keeps the medicinal sweetness of pills dissolved beneath tongues.
+
+It keeps fingerprints.
+
+It keeps scratches.
+
+It keeps secrets.
+
+And on the worst nights, when the pipes knock inside the walls and the wind pushes its cold fingers beneath the doors, it makes noises that sound almost like breathing.
+
+Nobody talks about that.
+
+Families have rules.
+
+Some are written down.
+
+Most aren't.
+
+The most important rule in this house had never been spoken.
+
+There were four of us.
+
+Father.
+
+Mother.
+
+My brother.
+
+Me.
+
+Four chairs at the table.
+
+Four bedrooms.
+
+Four toothbrushes.
+
+Four names on the school records.
+
+Four people in the family photograph.
+
+Four.
+
+Never five.
+
+Never.
+
+The meat on the dinner plates had been cold for three days.
+
+Nobody had thrown it away.
+
+Nobody threw anything away anymore.
+
+The light above the table buzzed.
+
+Bzzzz.
+
+Bzzzz.
+
+Father sat at the head of the table.
+
+Mother sat beside him.
+
+I sat across from them.
+
+And Noah was underneath us.
+
+He had been there since yesterday.
+
+I could see the tops of his knees beneath the tablecloth.
+
+Sometimes I could see his fingers.
+
+Sometimes they moved.
+
+Mostly they didn't.
+
+He didn't like looking at faces.
+
+He said faces made things real.
+
+Father's work shirt hadn't changed in a week.
+
+His sleeves were rolled to his elbows.
+
+His hands smelled like grease and gin.
+
+The glass in front of him was already half empty.
+
+Click.
+
+Click.
+
+Click.
+
+His jaw.
+
+Mother scratched at the tablecloth.
+
+Scratch.
+
+Scratch.
+
+Scratch.
+
+She had been doing it for so long that the fabric beneath her fingernails had begun to unravel.
+
+I watched the loose thread curl around her finger.
+
+Nobody spoke.
+
+I was working.
+
+That was what I called it.
+
+I took the blunt silver butter knife from beside my plate and pressed it against my jaw.
+
+Not hard enough to cut.
+
+Just enough to feel something.
+
+I counted backward.
+
+Ten.
+
+Nine.
+
+Eight.
+
+Under the table, Noah whispered something.
+
+I couldn't hear him.
+
+Seven.
+
+Six.
+
+Five.
+
+Father's jaw stopped clicking.
+
+I lowered the knife.
+
+Four.
+
+Three.
+
+Two.
+
+One.
+
+The glass broke in Father's hand.
+
+He didn't flinch.
+
+Blood ran between his fingers.
+
+Mother stopped scratching.
+
+Father looked at her.
+
+Then he looked at me.
+
+Then underneath the table.
+
+"Get him out."
+
+Nobody moved.
+
+"Elena."
+
+I stared at the blood dripping onto the table.
+
+Drop.
+
+Drop.
+
+Drop.
+
+Noah's fingers curled around my ankle.
+
+I felt them.
+
+Cold.
+
+Then Father grabbed Mother by the hair.
+
+She screamed.
+
+Once.
+
+Only once.
+
+The front door knocked.
+
+Three times.
+
+Knock.
+
+Knock.
+
+Knock.
+
+Everyone stopped.
+
+Father let go of Mother.
+
+His face had gone white.
+
+Another knock.
+
+Three times.
+
+Knock.
+
+Knock.
+
+Knock.
+
+"Don't," Mother whispered.
+
+Father stood.
+
+"Stay here."
+
+He walked toward the hallway.
+
+I don't know why, but I followed him.
+
+Maybe because I had already heard the voice.
+
+Maybe because some part of me knew it.
+
+Father opened the door.
+
+An old woman stood on the porch.
+
+She wore a black coat.
+
+A black hat.
+
+She held a black umbrella even though there was no rain.
+
+She looked directly at Father.
+
+"Daniel."
+
+Father stopped breathing.
+
+I felt something move inside my chest.
+
+Not fear.
+
+Recognition.
+
+The name felt like something I had forgotten on purpose.
+
+Father slammed the door.
+
+He locked it.
+
+Then he locked the deadbolt.
+
+Then he pushed the chair beneath the handle.
+
+"Who is Daniel?" I asked.
+
+Father looked at me.
+
+For one second, he looked afraid.
+
+Then he slapped me.
+
+"Don't say that name."
+
+That night, I heard scratching upstairs.
+
+At the end of the upstairs hallway.
+
+The sound seemed farther away than it should have been.
+
+Scratch.
+
+Scratch.
+
+Scratch.
+
+I followed it.
+
+At the end of the hallway was the door nobody used.
+
+It had three deadbolts.
+
+I had never seen Father open it.
+
+Nobody had.
+
+There were letters scratched into the wood.
+
+D.
+
+A.
+
+N.
+
+I.
+
+I touched them.
+
+The wood was warm.
+
+Behind the door, something scratched back.
+
+Scratch.
+
+Scratch.
+
+Scratch.
+
+I stepped away.
+
+Noah was standing behind me.
+
+I hadn't heard him come upstairs.
+
+"What is this?"
+
+He stared at the letters.
+
+"I wrote it."
+
+"You?"
+
+He nodded.
+
+"When?"
+
+"I don't know."
+
+"Why?"
+
+He looked at the letters.
+
+"I was asleep."
+
+The scratching stopped.
+
+A voice came from behind the door.
+
+A child's voice.
+
+Soft.
+
+Confused.
+
+"Are you my family?"
+
+Noah started crying.
+
+I grabbed his hand.
+
+The voice spoke again.
+
+"I remember all of you."
+
+Then the lights went out.
+
+Father disappeared.
+
+For three minutes.
+
+Maybe four.
+
+Long enough for Mother to start screaming.
+
+Long enough for Noah to crawl beneath the kitchen table again.
+
+Long enough for me to realize that the front door was open.
+
+Then the lights came back.
+
+Father was sitting at the head of the table.
+
+His hands were folded.
+
+His eyes were open.
+
+His mouth was slightly open.
+
+He was dead.
+
+I knew it immediately.
+
+I don't know how.
+
+Maybe families know these things.
+
+Maybe the house told me.
+
+Behind his chair, carved deep into the drywall, were six words.
+
+YOU SHOULD HAVE LEFT ME THERE.
+
+Mother stared at them.
+
+She whispered something.
+
+"What?"
+
+She shook her head.
+
+"Nothing."
+
+The police came.
+
+They asked questions.
+
+I answered them.
+
+Mother answered some.
+
+Noah answered none.
+
+They examined Father's body.
+
+They said it looked like natural causes.
+
+A heart attack.
+
+Nothing suspicious.
+
+Nothing that explained the words in the wall.
+
+When I looked again, they were gone.
+
+The drywall was smooth.
+
+White.
+
+Perfect.
+
+Like nothing had ever been written there.
+
+The house had cleaned itself.
+
+Noah disappeared the next morning.
+
+His bed was empty.
+
+His shoes were still beside it.
+
+His window was locked.
+
+The basement door was open.
+
+I found his handprint on the bottom stair.
+
+Small.
+
+Dirty.
+
+Fresh.
+
+I went downstairs.
+
+Mother grabbed my arm.
+
+"Don't."
+
+"I have to find him."
+
+"No."
+
+"He's my brother."
+
+She looked at me.
+
+Her eyes were clearer than I had ever seen them.
+
+For the first time in years, Mother looked sober.
+
+She whispered:
+
+"Noah isn't the one you need to find."
+
+Then she looked toward the ceiling.
+
+"You're remembering."
+
+I didn't understand.
+
+"What am I remembering?"
+
+Mother started crying.
+
+"The fire."
+
+The room upstairs opened by itself that night.
+
+The three deadbolts slid back one after another.
+
+Click.
+
+Click.
+
+Click.
+
+I stood in the doorway.
+
+The room smelled like smoke.
+
+Not old smoke.
+
+Fresh smoke.
+
+The walls were covered in drawings.
+
+Hundreds of them.
+
+Father.
+
+Mother.
+
+Noah.
+
+Me.
+
+Over and over.
+
+Different ages.
+
+Different rooms.
+
+Different versions of the same family.
+
+But every drawing had something else in it.
+
+A figure behind us.
+
+Tall.
+
+Black.
+
+Featureless.
+
+Sometimes it stood in the hallway.
+
+Sometimes in the corner.
+
+Sometimes behind one of the beds.
+
+Sometimes behind the dining room table.
+
+Always watching.
+
+Always there.
+
+One sentence had been written across the wall in a child's handwriting.
+
+THE FAMILY HAS FOUR MEMBERS.
+
+Underneath it, someone had written:
+
+FOUR.
+
+FOUR.
+
+FOUR.
+
+FOUR.
+
+The newest drawing was different.
+
+The fifth figure was no longer black.
+
+It was red.
+
+Dark red.
+
+Almost the color of dried blood.
+
+And underneath it were five words.
+
+I AM SORRY I FORGOT YOU.
+
+I stared at the handwriting.
+
+I knew it.
+
+It was mine.
+
+Except I didn't remember writing it.
+
+My finger touched the last word.
+
+Black ink stained my skin.
+
+Something whispered behind me.
+
+"Daniel is just the name your father buried."
+
+I turned.
+
+Nobody was there.
+
+The voice came again.
+
+"I am the fifth."
+
+The old woman was waiting outside.
+
+Black umbrella.
+
+Black coat.
+
+Same face.
+
+She didn't look surprised to see me.
+
+"You remember now?"
+
+"No."
+
+"Not yet."
+
+She reached into her coat.
+
+She handed me a photograph.
+
+It was old.
+
+Silver and gray.
+
+A family stood outside a house that looked exactly like ours.
+
+A father.
+
+A mother.
+
+A little girl.
+
+A little boy.
+
+Four people.
+
+I stared at the little girl.
+
+I didn't recognize her.
+
+Then I looked at the boy beside her.
+
+Something inside me broke.
+
+He had dark hair.
+
+His hand was wrapped around the little girl's.
+
+I looked at my own hand.
+
+For a second, they looked exactly the same.
+
+"Who is he?"
+
+The old woman looked at me.
+
+"You know."
+
+"No."
+
+"You've known him your entire life."
+
+I looked at the photograph again.
+
+"Daniel?"
+
+She nodded.
+
+I looked at the girl.
+
+The old woman watched me.
+
+"Who is she?"
+
+The woman didn't answer.
+
+I looked harder.
+
+The dress.
+
+The crooked smile.
+
+The small scar above the eyebrow.
+
+I touched the photograph.
+
+My finger began to shake.
+
+"That's me."
+
+The old woman nodded.
+
+"You were eight."
+
+I stared at Daniel.
+
+"Then why don't I remember him?"
+
+"Because you asked not to."
+
+The photograph trembled in my hand.
+
+"What happened to him?"
+
+The old woman looked toward the house.
+
+"Your family gave him to it."
+
+"What is it?"
+
+She looked at the windows.
+
+"The thing beneath the family."
+
+Mother told me the rest.
+
+She sat at the kitchen table.
+
+No pills.
+
+No powder.
+
+No shaking hands.
+
+Just Mother.
+
+For the first time in years, I could see how old she really was.
+
+"Thirty-one years ago," she said, "when you were eight, there was a fire in our old house."
+
+I stared at her.
+
+"Daniel was six."
+
+My stomach turned.
+
+"You remember him?"
+
+"I remember everything."
+
+"Why don't I?"
+
+"Because you asked it to take it."
+
+"What?"
+
+She swallowed.
+
+"Your father had found something beneath the house."
+
+"The cellar?"
+
+She nodded.
+
+"There was an old ledger down there. Names. Dates. Families."
+
+"What did it say?"
+
+"Four."
+
+I stared at her.
+
+"Every family had four."
+
+"And the fifth?"
+
+Mother looked toward the ceiling.
+
+"The fifth was never written down."
+
+I remembered the drawings.
+
+Mother continued.
+
+"Your father was sick. He thought the house could cure him."
+
+"He sacrificed Daniel."
+
+She closed her eyes.
+
+"Yes."
+
+The word barely existed when she said it.
+
+"Your father took him into the cellar."
+
+"I followed."
+
+Mother looked at me.
+
+"You tried to stop him."
+
+I saw something.
+
+A flash.
+
+A small hand.
+
+A wooden staircase.
+
+Smoke.
+
+I grabbed the edge of the table.
+
+"You were eight," Mother whispered.
+
+"Daniel was six."
+
+Another flash.
+
+A door.
+
+Fire.
+
+Daniel screaming.
+
+Father shouting.
+
+Me pulling on Daniel's arm.
+
+"Come on."
+
+"Come on."
+
+"Please."
+
+Mother was crying now.
+
+"The fire started in the cellar."
+
+I could smell it.
+
+I could smell the smoke.
+
+I could feel heat against my face.
+
+"I couldn't get him out."
+
+Mother nodded.
+
+"You wouldn't let go."
+
+I closed my eyes.
+
+And remembered.
+
+Daniel's hand.
+
+Small.
+
+Burning.
+
+Mine.
+
+"Something spoke to me."
+
+Mother didn't answer.
+
+"The house."
+
+She nodded.
+
+"What did it say?"
+
+I remembered.
+
+Not words.
+
+A feeling.
+
+A promise.
+
+A bargain.
+
+I remembered screaming.
+
+Take it.
+
+Take anything.
+
+Just let him go.
+
+"Your father blamed you," Mother said.
+
+I opened my eyes.
+
+"He told the police you had been playing with matches."
+
+My hands began to shake.
+
+"And I forgot."
+
+"You didn't forget."
+
+"What?"
+
+"You gave it away."
+
+The room seemed to tilt.
+
+"You asked the house to take your memories."
+
+Mother looked toward the ceiling.
+
+"And it did."
+
+I stared at her.
+
+"The house burned down."
+
+Mother nodded.
+
+"But that didn't matter."
+
+She looked at me.
+
+"The pattern wasn't in the walls."
+
+Her voice dropped to almost a whisper.
+
+"The walls were only where it lived."
+
+That night the house changed.
+
+The hallway stretched.
+
+The walls breathed.
+
+Doors opened into rooms that weren't there before.
+
+Every doorway led back to the dining room.
+
+Every hallway returned to the same table.
+
+Four chairs.
+
+Father's chair.
+
+Mother's chair.
+
+Mine.
+
+Noah's.
+
+And then I saw it.
+
+A fifth chair.
+
+At the end of the table.
+
+Black wood.
+
+Burn marks along the legs.
+
+Waiting.
+
+Noah was sitting beneath the table.
+
+I dropped to my knees.
+
+I grabbed his shoulders.
+
+"Where were you?"
+
+He looked at me.
+
+"I don't know."
+
+"How did you get back?"
+
+His eyes moved toward the floor.
+
+"I never came back."
+
+"What?"
+
+"The house put me here."
+
+I looked at the kitchen.
+
+Then back at him.
+
+"You disappeared."
+
+"I know."
+
+"I looked everywhere."
+
+"I know."
+
+His voice was quiet.
+
+"I was downstairs."
+
+"The basement?"
+
+He nodded.
+
+"What did you see?"
+
+He looked at the fifth chair.
+
+"I remembered him."
+
+"Daniel?"
+
+Noah nodded.
+
+"I've never met him."
+
+"I know."
+
+"But I remember being there."
+
+His fingers tightened around mine.
+
+"The house puts memories where they don't belong."
+
+I looked at the fifth chair.
+
+"What happens if I sit?"
+
+Noah started crying.
+
+"You become what is underneath the floorboards."
+
+"What does that mean?"
+
+"It means you stop being you."
+
+The house creaked.
+
+The fifth chair moved.
+
+A few inches.
+
+Toward me.
+
+I understood then.
+
+The chair wasn't an escape.
+
+It was an invitation.
+
+And I had spent my entire life being invited.
+
+I remembered the fire.
+
+All of it.
+
+Daniel's face.
+
+His hand in mine.
+
+Father standing behind him.
+
+The cellar.
+
+The ledger.
+
+The bargain.
+
+And the moment I asked the house to take my memories.
+
+But there was something else.
+
+Something Mother hadn't told me.
+
+The fifth wasn't Daniel.
+
+Daniel had only been the first person our family had given to it.
+
+The thing itself was older.
+
+Much older.
+
+It had existed before us.
+
+Before this house.
+
+Maybe before the house before this one.
+
+It moved through families.
+
+It waited beneath them.
+
+It didn't need a body.
+
+It needed a role.
+
+Every family that carried it had the same shape.
+
+A father.
+
+A mother.
+
+Children.
+
+Four people.
+
+And something that wasn't counted.
+
+Something beneath the floor.
+
+Something behind the walls.
+
+Something that watched.
+
+The house wasn't the walls.
+
+The house was the pattern.
+
+Father hurting.
+
+Mother numbing.
+
+Children shrinking.
+
+Someone disappearing.
+
+Someone being forgotten.
+
+Then the pattern began again.
+
+And again.
+
+And again.
+
+Daniel had been the first person our family gave to it.
+
+The first name the house kept.
+
+The first memory we tried to bury.
+
+And when I begged the house to take my memories instead of his, I hadn't broken the pattern.
+
+I had tied myself to it.
+
+I looked at the fifth chair.
+
+I understood what it wanted.
+
+It didn't want Daniel.
+
+It wanted me.
+
+I stepped toward it.
+
+Noah screamed.
+
+"Elena!"
+
+I sat down.
+
+Everything stopped.
+
+The buzzing light.
+
+The pipes.
+
+The scratching.
+
+The breathing.
+
+Everything.
+
+For one perfect second, the house was silent.
+
+Then the walls screamed.
+
+The table split down the middle.
+
+The chairs flew backward.
+
+The windows shattered.
+
+Every room in the house opened at once.
+
+I saw the cellar.
+
+I saw the fire.
+
+I saw Daniel.
+
+I saw myself at eight years old.
+
+I saw Father.
+
+I saw Mother.
+
+I saw Noah.
+
+I saw hundreds of other families standing where we stood.
+
+All four.
+
+Always four.
+
+And behind every family was the fifth.
+
+Waiting.
+
+Watching.
+
+Remembering.
+
+The house shook.
+
+I heard Daniel scream my name.
+
+Then Noah grabbed my hand.
+
+We ran.
+
+We made it outside.
+
+Mother came with us.
+
+The house burned behind us.
+
+Flames climbed through the windows.
+
+The old woman stood across the street beneath her black umbrella.
+
+She watched.
+
+She didn't smile.
+
+She didn't cry.
+
+She only nodded.
+
+Like she'd seen this before.
+
+Maybe she had.
+
+The fire burned until morning.
+
+The police came.
+
+The firefighters came.
+
+They searched the ruins.
+
+They found no cellar.
+
+No ledger.
+
+No fifth chair.
+
+No photographs.
+
+No drawings.
+
+Nothing.
+
+They found three survivors.
+
+Mother.
+
+Noah.
+
+Me.
+
+Father was already dead.
+
+Four members of the family had lived in that house.
+
+That's what the records said.
+
+That's what the neighbors remembered.
+
+Four.
+
+Never five.
+
+I thought we'd won.
+
+For a while, I believed it.
+
+I believed the house was gone.
+
+I believed Daniel was finally free.
+
+I believed I was finally myself.
+
+I was wrong.
+
+I woke up at a dining room table.
+
+The light was buzzing.
+
+Bzzzz.
+
+Bzzzz.
+
+There was a glass in front of me.
+
+Gin.
+
+My hands were older.
+
+Scarred.
+
+A work shirt covered my arms.
+
+I looked down.
+
+My fingers were shaking.
+
+Click.
+
+Click.
+
+Click.
+
+My jaw.
+
+I stood so quickly that the chair fell behind me.
+
+I ran to the bathroom mirror.
+
+A man's face stared back.
+
+Older.
+
+Harder.
+
+Broken.
+
+I touched the glass.
+
+The reflection touched it too.
+
+I knew that face.
+
+I had spent my entire life looking at it.
+
+Edward.
+
+My father.
+
+Except now it was mine.
+
+I wasn't Edward.
+
+I was the Father.
+
+The house hadn't resurrected him.
+
+It had given me his place.
+
+The fifth chair had never been the way out.
+
+It was the trapdoor.
+
+The moment I sat down, the cycle simply reset.
+
+The names changed.
+
+The faces changed.
+
+The roles stayed.
+
+The house had filled the empty roles again.
+
+I didn't know when it had happened.
+
+I didn't know their names.
+
+I only knew their places.
+
+A woman beside me.
+
+A girl across from me.
+
+A boy beneath the table.
+
+Four.
+
+The family had been rebuilt around the empty roles.
+
+And I was sitting at the head.
+
+I hadn't escaped the house.
+
+I had become part of it.
+
+Or perhaps I had always been.
+
+Then someone knocked on the front door.
+
+Three times.
+
+Softly.
+
+Knock.
+
+Knock.
+
+Knock.
+
+I stood from the head of the table.
+
+I wiped the blood from my palm onto my work shirt.
+
+I stared into the dark hallway.
+
+Something inside me remembered small hands.
+
+A cellar.
+
+Fire.
+
+A little boy screaming.
+
+Myself screaming for him.
+
+Daniel.
+
+I waited.
+
+The knock came again.
+
+Three times.
+
+Softly.
+
+Knock.
+
+Knock.
+
+Knock.
+
+I looked back at the table.
+
+There were four people sitting there.
+
+The woman beside me.
+
+The girl across from me.
+
+The boy underneath the table.
+
+And me.
+
+Four.
+
+Never five.
+
+Never.
+
+The woman looked at me.
+
+She was scratching the tablecloth.
+
+Scratch.
+
+Scratch.
+
+Scratch.
+
+The girl was holding a silver butter knife against her jaw.
+
+The boy beneath the table had his fingers wrapped around the table leg.
+
+I stared at them.
+
+I knew what came next.
+
+The glass in front of me was already half empty.
+
+My jaw clicked.
+
+Click.
+
+Click.
+
+Click.
+
+Then a woman's voice came through the door.
+
+"Please."
+
+I closed my eyes.
+
+The house breathed around me.
+
+The walls remembered.
+
+The pipes knocked.
+
+And the voice outside said the name my family had spent thirty-one years trying to bury.
+
+"Daniel."
+
+I opened my eyes.
+
+And smiled.
+
+Because now I understood.
+
+The house didn't keep families.
+
+It kept roles.
+
+It kept memories.
+
+It kept pain.
+
+And whenever someone remembered the fifth, the house found someone else to carry it.
+
+The drywall remembers the weight of his fist.
+
+It remembers every fist.
+
+It remembers mine now.
+
+The house keeps everything.
+
+The house keeps secrets.
+
+The house keeps memories.
+
+And the house keeps the tally.
+
+Four.
+
+Never five.
+
+Never.
