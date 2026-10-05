@@ -1,0 +1,345 @@
+(CW: child abuse)
+
+[Previously](https://www.reddit.com/r/nosleep/comments/1wxq1wk/theres_a_house_so_haunted_in_my_town_no_one_can/), I was given a single rule about entering the house:
+
+Five minutes.
+
+That’s how long I can stay before I am officially dead.
+
+Never be alone more than five minutes in the house, our team’s leader, the paranormal researcher Dr. Goddard, warned us. Always stick together as a group, and watch one another for signs of paranormal influence.
+
+I am Dawain, a journalist, and it is my duty to report the truth objectively, without the taint of superstition or mystical or magical beliefs. The *truth* is that a family in the town of Hopkins went missing, and the authorities found no trace of them, despite the car still in the driveway and the shoes still on the mat and the keys inside. The house, now called the “Hopkins House,” has sat empty for years…
+
+No one has been able to explain their disappearance…
+
+… until now.
+
+Our cameraman, while trying to get signal on his phone, wandered around to the side of the house and noticed a glint in the bushes, low to the ground. A basement window.
+
+A *hidden* basement.
+
+Six years ago authorities assumed, because of the lack of forced entry or signs of disturbance, that the family left on their own—and after a cursory search, the local sheriffs left the house. They never found the basement. Meaning if our suspicions are correct, we may soon solve the mystery of the Hopkins House and find the bodies—father, stepmother, and two young teens—who have been missing all this time. But with no entrance, the only option is for someone to climb through the window…
+
+… into the house alone.
+
+Our specialized team has deferred this task to me. The exorcist, Father Corwin, is nearly eighty and frail. The acclaimed medium, Madam Savino, is too plump for the narrow opening. And as for the paranormal investigator, Coyote—he’s as wiry, wily, and cowardly as his namesake.
+
+Now, the three of them stand watching—the spiritual “experts” who are supposedly here to pacify the evil in this house, plus the frightened cameraman.
+
+“Wish me luck,” I say.
+
+“Remember, five minutes,” warns Father Corwin.
+
+“You got this,” says Madam Savino.
+
+“Don’t die,” growls Coyote.
+
+I drop down into the darkness below.
+
+\*\*\*
+
+The first thing I notice is the smell: the air tastes dank. Stale. Is it my imagination, or do I catch a whiff of rot?
+
+Above me, anxious faces huddle at the window. I turn on my phone light, illuminating cupboards and shelves, a toolbox, shovels, crowbar, cardboard boxes, and a door in the corner, ajar. “It’s a storeroom,” I say, “looks pretty ordinary. Gonna go further in…”
+
+I open the door to the next room.
+
+It’s one thing to be standing in the bright sunshine, looking in through that square of basement window and telling myself, *It’s only a basement*.
+
+… Another thing entirely to stand in the maw of yawning darkness. And while I know, rationally, that there is nothing in this long-abandoned basement that can harm me… I am suddenly keenly aware of how long it would take me to climb back up through the window if I were trying to run—
+
+*Stop it*, I tell my childish imagination. *There’s nothing to run from*.
+
+My fingers grope along the wall and find a switch, flip it.
+
+An overhead bulb bathes me in a warm glow—and I’m nauseated by the momentary dread that I’ll see four bodies deep into decomposition, but to my relief the basement appears normal. Wooden stairs in the corner of the now well-lit basement travel up to a hatch door—probably under the main room or hallway. Along the opposite wall lies a small cot and a nightstand, a mosaic lamp, a dresser and a heavy bookcase.
+
+My nose wrinkles at a musty odor as I approach the cot. Tucked under the pillow is a diary. *PROPERTY OF JUDY,* it says on the inside cover, and in smaller scribble: *if you read this without permission you will be hexed!!!* Flipping the pages reveals scrawls of *DIE, BITCH!!!* in jagged lettering. On another page, a polaroid taped to the paper shows a middle-aged woman, her eyes scratched out and arcane symbols sketched around her.
+
+I’m guessing this is the “troubling behavior” Father Corwin mentioned. The teens’ stepmother, Bernadette, came to him with complaints that they were trying to summon demons against her. He was not especially concerned at the time—after all, what teen girl *hasn’t* tried to hex her stepmother or chemistry teacher or classmate dating the boy she likes?
+
+But while I don’t believe any of the “spells” in this diary actually worked, its contents might contain clues to whatever actually happened on the fateful day the family went missing.
+
+I tuck the diary under my arm and start for the stairs, but my steps slow at the sudden and overwhelming sensation of being *watched.* All the hairs on the back of my neck stand on end.
+
+“H-hello?” I whisper.
+
+*BBBBZzt—*
+
+—the overhead bulb flickers.
+
+In the failing light, I see something *impossible.* Impossible because it has been six years since the family disappeared, and there’s no way a human being could survive down here all that time. But scurrying out from under the cot is a girl—filthy, mouth open in a silent scream, her disheveled wet hair hanging around her shoulders and a tattered dress dripping around her bare legs—
+
+Darkness falls like a curtain.
+
+I fumble my phone’s flashlight to try and catch her in its beam and—she’s there—there on the far wall! Crawling like an insect behind the bookcase as a hand grabs my shoulder—
+
+Yelping, I whirl.
+
+“Hey, hey!” barks Coyote, phone blinding me in one hand—and a crowbar clenched in the other. “You OK?”
+
+“I—I saw someone!”
+
+“It’s been five minutes and you weren’t answering my calls. Now let’s get the fuck out.” He grabs my arm and spins me toward the stairs, and we both make a mad dash. He bangs the crowbar against the ceiling. “HEY!!” he hollers.
+
+“HEY! HEY!!” I bang my palms on the hatch door.
+
+“Here!” Madam Savino’s muffled holler rings down. “They’re here!”
+
+Footsteps clomp over our heads. A moment later the door lifts upward, and Coyote and I tumble out into the light.
+
+\*\*\*
+
+We stand clustered around the hatch door. Father Corwin, Madam Savino, Coyote, the cameraman and I. It was hidden underneath the shag rug in the main room. Easily discoverable if one were to lift up the rug. But nobody had been searching because, other than the missing family, nobody knew about the basement.
+
+Now that I’m up in the house proper, I catch my breath. Everyone is barking at me, demanding to know why I wasn’t answering their shouts. I show them the diary and babble, “I-I think Judy might be alive—” Then I catch myself. Remind myself that my role in documenting is to record only objective truth. And my brief sighting in the dark could easily have been the combination of adrenaline and imagination. Nevertheless, I relate what I saw. Madam Savino and Father Corwin suggest that I may have glimpsed Judy’s ghost.
+
+I shake my head. “She looked solid. Real.”
+
+“You were in a trance.” Coyote’s dark eyes study me. “You also said she was dripping wet… so if she *was* real, she’d’ve left footprints…” He casts a reluctant glance back toward the darkness. “Should we wait for Goddard, or…?”
+
+“He’s still out of range…” The cameraman shows us his calls going straight to voicemail.
+
+“Then it’s up to us to find this girl—and her family,” declares Madam Savino, clapping her hands.
+
+Back into the basement we go.
+
+\*\*\*
+
+This time the overhead bulb remains bright when I flick the basement light on, its harsh glow sharpening the shadows. The atmosphere should be lighter now that I have company, but the low ceiling is so claustrophobic, the darkness so closely encroaching it’s like we’re being entombed.
+
+“… no wet footprints, just lots of dust.” The cameraman pans to collect footage.
+
+“Let’s see what we can find,” says Madam Savino as we fan out.
+
+A large Persian rug covers the cement floor, with the area near the stairs used for storage—a tricycle, old children’s toys, bags and boxes, cobwebbed appliances. Across the room is the sleeping area with the cot, nightstand, dresser, and bookcase. On the far wall is the open door to the storeroom. There’s not much more here than family junk. Coyote rummages through one of the cardboard boxes, pulling out action figures, faded blue jeans, Air Jordans, a Barbie with scissors stabbed into it. “Kid stuff…” he grunts, pushing the box away and then opening another, finding a cracked frame with a photo of a teen boy. “Hey…” He hones in on the photo. “Did the family have a secret son?”
+
+“The family had no sons,” Father Corwin says.
+
+“You sure? I mean, you didn’t exactly know about this secret basement. Maybe they had a secret son too—"
+
+“That’s not their son. It’s Janie.” The priest picks up the Barbie doll from the box. “The teens were rebellious. The younger, Janie, was a tomboy. The older, Judith, was boy crazy and wouldn’t disclose the name of the boy she was seeing when she became… with child. There was a lot of friction between the girls and their stepmother. But…” He twists the Barbie so we can all see the lock of human hair taped to its head, and *BERNADETTE* scrawled on its plastic torso like a kind of voodoo Barbie. The priest plucks the scissors from its chest. “… *This* is why she came to me for help.”
+
+The cameraman zooms in on the Barbie. “So this is what caused the family’s disappearance?”
+
+“You’re kidding, right?” scoffs Madam Savino.
+
+“This is just teen girls being silly,” Father Corwin agrees. “This childish voodoo…” He tosses the Barbie back into the box. “… would not suffice to beckon such a terrible evil as haunts this house.”
+
+Madam Savino inhales, spreading her arms out as if feeling for currents in the air. She closes her eyes and suddenly crosses the room, stopping at the edge of the Persian rug. Motions the cameraman and me to move, and then grabs the edge. Yanks it.
+
+On the cement beneath, a large circle scrawled in sharpie and marked with a pentagram and eye covers nearly all of the floor.
+
+Father Corwin hisses a sharp intake of breath. Madam Savino shrieks at the cameraman, “DON’T TOUCH IT!” as he rushes closer to get footage. Coyote toes the outer edge of the circle.
+
+In the center is a wide crimson stain.
+
+\*\*\*
+
+While Father Corwin utters blessings and prayers, Madam Savino kneels with her palm to the floor to read the psychic echoes left by whatever ceremony was conducted here.
+
+The bloody circle is clearly connected to the catastrophe that befell the missing family, at least according to our expert team. But even if they’re correct (and I’m not yet wholly convinced), so many questions remain—who conducted the bloody ceremony? Whose blood stains the floor? And *where is the family?*
+
+“Oh… OOOOH... OohhooOOhhh.” Madam Savino snatches her hand back from the sharpie markings. “… it’s like touching an open flame!” The curious cameraman touches a finger to the circle and nothing happens to him, and he casts an inquisitive look at Madam Savino, who ignores him and goes on: “Whatever occurred here was unimaginably evil…” She looks my way. “You find any clues?”
+
+I am skimming Judy’s diary. Unfortunately, there isn’t much here connecting to the family’s disappearance. Her bubbly scrawl tells the story of a girl who hated her rural, small town life and wished to run away from Hopkins. But she felt she could not leave, writing: *If I go, Dad and Burn-a-bitch will make Jakey’s life a living hell even more than it already is*. Her handwriting gets progressively more raw, the pages filled with apparent attempts to hex both her parents, until a line that reads, *I will NEVER forgive her for*—
+
+The pages after that are torn out.
+
+“This house has too many secrets…” Coyote growls after I share the contents of the diary. “And…” He glowers at Father Corwin. “*You* aren’t spilling them.”
+
+“The family’s disappearance is as much a mystery to me as to you,” Father Corwin says.
+
+“But you know their drama.”
+
+“Their drama isn’t relevant.”
+
+“Someone tore out these pages to keep whatever’s in them secret. Secret pages, secret basement, secret *son.*” He snatches up the photo of the boyish teen who Father Corwin calls Janie, but who Judy refers to in her diary as Jakey. Coyote connects the dots for us as he says: “Maybe it’s just ‘drama’ that Bernadette couldn’t stomach the thought of a trans kid, and *that’s* why there’s all this boy stuff boxed up down here—which you obviously knew about since you recognized the photo. But *THAT—”* He points at the bloody stain in the circle. “—isn’t drama. An entire missing family isn’t drama. And there’s one very important secret you haven’t spilled…”
+
+“And that is?” Father Corwin asks stiffly.
+
+Coyote points to the cot in the corner. He reaches below the mattress and tugs out something I missed when I first found the diary. Something that glints in the wan illumination of the overhead bulb—a chain. He asks: “Tell me why the parents restrained their pregnant teen daughter down here.”
+
+\*\*\*
+
+Coyote and Madam Savino are both shouting at Father Corwin. He raises his hands as if to bat away their fury, insisting they’re jumping to conclusions—
+
+“You’re lying!” Madam Savino shrills. “I can see the chain right there, and her diary was under the pillow, so who else would they have kept down here? And if it *was* anyone else, that would STILL be a crime!”
+
+“If you’ll just let me explain—” The cameraman zooms in on the chain, and Father Corwin bursts: “They did NOT imprison her down here! I already told you, when Bernadette came to see me, I referred the children to *counseling*—"
+
+“It was the psycho mom who needed counseling—” interjects Madam Savino, while Coyote snarls, ”You sent the kids back to their abusers—"
+
+He speaks over them:
+
+“The family called me the night of their disappearance.”
+
+Both fall silent.
+
+“… they told me Judith was possessed. That she had… attacked… everyone. That she was feral. Rabid. They wanted me to come immediately but I could not. I was out of the country, on another assignment. They did not want to call police. They knew the police could not pacify what afflicted her. They told me they would restrain her until I was able to come. That chain was not for Judith but for the… *thing…* that possessed her. I came the very next day, but there was no one home. Just the gardener, who’d come by to mow and told me the backdoor was usually unlocked, and it was, so I let myself in. I called and called. I walked through the entire house. It looked much as we have seen it today. There was no answer. I thought they had left.”
+
+\*\*\*
+
+The cameraman zooms in on Father Corwin’s sagging countenance. Under the harsh glare of the overhead bulb, the crags of his withered face have deepened, his eyes almost entirely shrouded in blackness. My fingers have been flying across my tablet while the priest spoke, and now, I ask him: “Why didn’t you tell us?”
+
+“The family shared their troubles with me in confidence. It was not mine to tell…”
+
+“Does Goddard know?” asks Madam Savino.
+
+“Oh yes. I disclosed everything to him.”
+
+“That asshole,” mutters Coyote.
+
+I have to agree. It seems Goddard withheld all sorts of information from us.
+
+“I had hoped that by joining this expedition… I might at least know the fate of the family, even if I couldn’t save them. I might…” Father Corwin sighs, shakes his head, reaches into his pocket and pulls out an envelope. “This is the letter their stepmother, Bernadette, wrote to me a week before her phone call…”
+
+*Dear Father, I humbly request once again that you help me with the children. Only yesterday, I was in the kitchen and heard a chorus of voices speaking in tongues. When I turned around, they ran away giggling, and I saw they had drawn a pentagram behind me on the floor. I had to scrub it out of the linoleum…*
+
+*… Janie posted to social media that, ‘if being my true self means being a devil, maybe that’s what I am.’ I have confiscated her phone, which of course has led to more meltdowns…*
+
+*… Judith says that she is carrying the devil’s child. She is always pushing my buttons. She has told me repeatedly that she hopes I die. That she prays for it everyday…*
+
+… the letter is long and meandering, and ends by begging Father Corwin’s help with her “wild children.”
+
+As he folds the letter up and puts it away, he tells us, “I thought their pranks were harmless, and that family counseling might soften Bernadette. But clearly I have failed them. And even now, I still don’t know where the family has gone. Or how. How did they disappear so completely?”
+
+And suddenly my blood runs cold. Because I *know*. Maybe because I was the one who saw the girl, in those moments after the lights flickered out. Saw her crawling along the wall behind the bookcase…
+
+I’ve been catching a whiff of it on and off, I realize. A bad, old, rotten smell. And I venture to the bookcase and… it’s leaning forward a little, almost like it might topple were it not for the anchor screwed into the wall. And in the gap behind it is a darkness wide enough, almost…
+
+“Dawain?” says Madam Savino as I lean over the bookshelf, peering into the darkness behind it—
+
+And I step back quickly. Take my phone out and turn on the flashlight and look again.
+
+Behind the bookcase, wedged in face-down, is 13-year-old Jakey.
+
+\*\*\*
+
+A bare foot, shrunken and mummified, is the only part of the teenager illuminated by the beams of our flashlights. The rest of Jakey is lost in the blackness between the bookcase and the wall. I can perceive blue jeans, remnants of a t-shirt clinging to skin that has shriveled after six years crammed in the gap.
+
+“Jesus!” cries the cameraman, zooming in with the camera and then stumbling back. “Fuck. Shit. We have to call this in.”
+
+“Oh my God, oh my God!” Madam Savino screeches.
+
+“Looks like the kid was trying to hide...” Coyote leans over the bookcase so far he’s at risk of falling in next to the corpse—apparently he’s less craven when his parental instincts kick in. His muffled voice calls: “… it’s hard to see from this angle, but I don’t see any marks. My guess is Jakey got spooked by whatever went down in that bloody circle, only to get stuck…” He pulls himself up from peering behind the bookcase. “Poor kid probably suffocated.”
+
+“Oh God… how horrible!” Madam Savino’s hand is at her mouth. “But where are the rest of the family? Are they all down here somewhere?”
+
+“Forget all that!” bursts the cameraman. “A dead body means we call the cops! This is a criminal matter now.” He turns to me, “*You* know the drill, you’re a journalist, right? At this point anything we touch is evidence tampering. We don’t know the kid died by accident. That’s for the cops to decide. I’m calling it in!” He hurries upstairs, shouting back, “I’m going down the lane to wait for Goddard! I suggest you all do the same and *LEAVE*. Don’t contaminate any evidence!”
+
+“But we haven’t pacified the spirit!” objects Madam Savino.
+
+Nobody responds as distantly, the front door slams. Coyote looks glum. Father Corwin stares mournfully at the bloody circle, the chain, the bookcase. He sighs, crosses himself, and declares, “I must pray for them…”
+
+\*\*\*
+
+The cops have not yet arrived.
+
+Father Corwin is still praying, and Coyote has scoured every inch of the basement. Madam Savino makes no more pretenses about searching for psychic echoes and instead is flipping through the diary.
+
+“Seems the kids were very attached,” she tells me quietly. “Judy and Jakey have all these messages of support for each other. They were each other’s rocks. At least until…” She sighs and puts it down.
+
+Father Corwin pauses in his prayers. “I am still not sure where the rest of the family was laid to rest…”
+
+“We know where Judy is. I dunno about *resting*,” growls Coyote.
+
+“Where?”
+
+“In the septic tank! Didn’t you hear Dawain’s description of her? He saw her dripping wet. There’s no rivers near here, nothing else to explain the water. Her parents called you saying she was possessed, she attacked them. Their bodies are the only ones not in this house. They probably killed her over whatever secret was torn outta those pages, and dumped her in the septic tank, and then left town.”
+
+“You do not know that.”
+
+“No, but I can pretty damned well infer it.” Coyote’s tone is conversational, chill as usual. He isn’t an angry guy by nature. But now, I can see his knuckles popping from his grip on the edge of the bookcase. “We know the parents abused them. *Jakey’s*—” he emphasizes the name. “—bedroom was bare. All the personality stripped from it, all the kid’s action figures and clothes bagged up downstairs after the stepmom came into their lives. That cot, that little nightstand, that wasn’t something they set up in one day because their pregnant daughter was possessed. It’s been down here awhile—you can see from the clothes in the dresser that it was being used. Not a jump to infer the stepmom made one or both kids sleep down here. She was psychologically abusing them—”
+
+“You don’t know that,” says Father Corwin.
+
+“But *you* do. Did either or both kids tell you their parents made them sleep in the basement?”
+
+Father Corwin does not answer.
+
+“Bet you didn’t tell Goddard that part, did you? And you know what? I’m not even convinced that girl really summoned a demon. That presence you call malevolent, that you say is so *angry,* that is rageful and spiteful and furious? The evil spirit you’re so keen to pacify? Could just be the lonely, shattered ghost of the pregnant daughter they murdered and dumped in the septic tank before they fled, having gotten away with it—”
+
+*THUD.*
+
+The sound comes from *upstairs*.
+
+Our heads snap up.
+
+“Uh…” Coyote’s eyes flash wide.
+
+“What was that?” squeals Madam Savino.
+
+Coyote grips the crowbar. “OK,” he says, “let’s keep our eyes peeled and be ready in case—Dawain!” he hisses.
+
+I am already heading upstairs and calling out, “Hello?”
+
+“Dawain! Dammit… why does nobody here have a sense of self-preservation? Can’t you *stop* him?” Coyote pleads with Father Corwin and Madam Savino.
+
+“Hello? Guo, is that you?” I call our cameraman’s name as I hurry through the hall and upstairs and stop, because ahead—something moves. A dark, dripping figure. The girl in the wet dress—she darts into the upstairs study.
+
+I follow her in.
+
+My pulse skyrockets as something skitters behind one of the wardrobe and shelving units. Coyote catches up to me, swearing “Gonna chain *you* to the cot downstairs,” then he stops and asks what I’m staring at. “You didn’t see?” I say, surprised. “The drowned girl, she just went behind the wardrobe there.”
+
+“Uh, no. I did *not* see.” He’s looking alarmed.
+
+So only *I* can see her. For the sake of journalistic objectivity, I will not definitively label my sighting as that of a “ghost.” But in full disclosure, this second glimpse of the drowned girl is the moment that, somewhere deep inside, I realize that I am no longer questioning whether the house is haunted… instead, I am wondering what it wishes to show me. I reach for one of the doors to yank it open and see what’s inside—only for it to not open. The handle is decorative. Coyote is remarking on how it smells musty in here, kinda like in the basement. He sees me tug the decorative handle and says, “Hold up, what’s behind that thing?”
+
+Then he comes over and reaches further up, for another handle, and pulls.
+
+It’s a murphy bed.
+
+The study has a hidden murphy bed, which can be pulled down for guests but otherwise blends into the surrounding drawers and cabinetry. It even has shelving with items on it that fold down to the ground. You’d never know it was a bed.
+
+As we tug it down, Coyote jumps back with a yell, and I hold my breath, both of us staring. “Put it back, put it back!” barks Coyote, and we push it back up. I almost giggle. It seems such a ridiculous response. As if putting it back so we didn’t see it, restoring the wall of cabinetry, would somehow undo what we’ve found. Both of us giggle hysterically. Ok. We’re losing it.
+
+Mummified in the murphy bed is the body of the stepmother, Bernadette.
+
+\*\*\*
+
+So much for Coyote’s theory that the parents made it out of the house alive. Back in the basement, Madam Savino declares that we need to make like the cameraman and exit, isn’t fifty percent enough of the mystery solved now that we’ve unearthed two of the four bodies? Father Corwin, however, lingers at the edge of the bloody circle.
+
+“Do you know, Dawain…” His voice falters, and I have to lean in as he rasps, “I really didn’t know about the abuse. Janie said they were sometimes made to sleep in the basement as punishment—” (“*Jakey*,” corrects Coyote.) “—But I… I’d been to the house, and I’d seen no basement. I assumed the children were making it up. And because they’d made that up, I assumed so much else they said was also…” He shakes his head.
+
+Is he looking to me for forgiveness? Grace? But I am not the one who can give that. I tell him all I can do is witness.
+
+“Yes… such is your role.” Father Corwin’s jaw sets, and his watery eyes glint with resolve as he adds, “Just as mine has been set to me by my Lord. And if this tragedy is indeed in part due to… to my own failures, it is my duty as His instrument to correct that failing. The house must be purified, and these souls saved.”
+
+“Your prayers ain’t gonna purify shit!” Coyote snaps. “We need to figure out what this spirit *wants* in order to put it to rest. The kids got their wish—the stepmother is *dead*—so why is Judy still haunting the house?”
+
+Madam Savino spreads her hands. “Girl’s not talking to me. But I can feel her rage from the foundation to the roof...”
+
+“Yeah, so she’s still mad ‘bout *somethin’.* Probably whatever’s in those missing pages. And if she won’t talk to *you*…” Coyote rakes his fingers through his hair. “I can’t believe I’m saying this instead of ‘let’s get the fuck out of this house,’ but… this angry ghost showed Dawain here where to find the bodies of her brother and stepmother. She clearly *wants* to communicate. So *if* we are going to try to do what we originally came here to do, and not just tuck our tails and run… there’s really only one person who can find out the reason for this haunting….”
+
+Coyote looks at me, and so does everyone else… and I’m almost certain I feel another pair of eyes watching me. The same ones I felt when I was alone down here.
+
+Coyote says, “We need to give Judy a chance to speak with Dawain. We need to give him the spirit box and leave him alone for five minutes.”
+
+\*\*\*
+
+I am alone in the study. I try not to look at the wardrobe. Try not to think about Bernadette’s body lying encrusted in the murphy bed just a few steps away from me.
+
+Coyote hollers up from below: “I’m here if you need! And hey, if you die up there, at least you’ll be really famous when your article comes out!”
+
+“How’s it gonna come out if I’m not alive to finish it?” I call.
+
+“Ever hear of ghostwriting?”
+
+I think I hear Madam Savino warn him: “I will fucking throw you down those stairs…”
+
+The fact I can hear their bickering is a reassurance. Their plan is to leave me up here alone in the study for six minutes—just past the five minute mark. That gives Judy sixty seconds to communicate with me, hopefully without killing me. Am I scared? Absolutely. But I’m also *curious.* This article, this story, is already shaping up to be the most extraordinary I’ll ever write. But to write it properly, I *must* understand everything. And that means hearing from Judy herself.
+
+A small part of me suspects my role as a journalist is *why* Judy chose me. Because she knows that I am the one who will share the true story of the Hopkins House.
+
+“I’m ready to listen,” I say aloud to the room. And then I flick on the spirit box.
+
+It begins scanning radio frequencies, catching mostly static, lots of bits of nothing. My cell phone shows a timer counting down from five minutes. So far it’s only at two minutes… three minutes… four…
+
+At five minutes, there’s a *clink*—the sound of metal straining—and my heart slams my ribcage as the murphy bed falls open with a deafening *CRASH*, the mummified body staring at me, sockets gaping and teeth exposed by shrunken lips. My pulse shoots to the stratosphere as the spirit box loudly crackles, and a girl’s voice says: “My baby, my baby is the devi—”
+
+And then my eyes roll up in my head as the world goes blank...
+
+*(Note: Apologies, my account is too long for a single post, so I will share the horrifying conclusion of the events at the Hopkins House in a followup. It is... hard to write. I keep wondering if I could have done something differently... forgive me. I will update* [*soon)…*](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+
+| [Part 1](https://www.reddit.com/r/nosleep/comments/1wxq1wk/theres_a_house_so_haunted_in_my_town_no_one_can/) |

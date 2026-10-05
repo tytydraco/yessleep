@@ -305,3 +305,5 @@ My phone battery is full, its flashlight beaming strongly. And yes, I admit, Iâ€
 I will follow up with another post when I am able. Going in now.
 
 Wish me[ luck.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+
+| [Part 2](https://www.reddit.com/r/nosleep/comments/1wyl6zg/theres_a_house_so_haunted_in_my_town_no_one_can/) |

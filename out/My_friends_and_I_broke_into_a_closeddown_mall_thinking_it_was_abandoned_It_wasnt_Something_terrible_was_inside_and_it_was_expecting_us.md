@@ -1,0 +1,469 @@
+None of us could remember how we found the room inside the mall.
+
+One day it meant nothing to us, and the next, it was an unspoken part of our after-school routine. Felt like it’d been our little hideaway for as long as we'd known each other, but that was a lie. The room slipped silently into our memories and we never even thought to question it because its presence in our lives was just so…plausible. 
+
+Poor kids hole up in abandoned places all the time, don’t they?
+
+There were five of us back then. We all went to different schools, and we all were different ages, but none of that mattered. We were united by deeper things, harsher truths. The aches of neglect and the bites of puberty. Camaraderie that resembled love. The comfort of a family that wasn't constricted by blood.
+
+Sophia with the dirt-caked skirts and the paint-stained fingers. 
+
+Omari with the thin frame and the thick lisp. 
+
+Alex with the wild blonde curls and the feral imagination. 
+
+And Ian, my best friend, the kid with the cloudy scar across his right eye that he didn’t care to talk about. 
+
+The two of us would travel there together every afternoon.
+
+We'd meet at rundown multiplex movie theater, taking broad street west for a few miles until we reached our city's outskirts: a barren, shell of a place that even the junkies seemed to avoid.
+
+Under the rust-stained fence, across the empty parking lot and into the derelict mall, climbing through the shattered window beneath the *“R”* in the “*FOOD COURT”* sign.
+
+Past the pretzel shop, sharp right at the fast-fashion boutique with the half-naked mannequins piled out front, down the paralyzed escalator. Then, a few yards ahead, between the remnants of an arcade and a *Hobby Lobby*, there it was: a wooden door without a label. 
+
+The room beyond the door was empty. 
+
+Four windowless walls above a layer of frizzy brown carpet. Five hundred square feet of asylum from our lives outside the mall. 
+
+It was always clean, but we never cleaned it. 
+
+We never could agree on what color the wall was painted. Omari and Ian saw two separate shades of red. Sophia saw ocean blue. I saw a pure, unfiltered white. 
+
+We could’ve made the space more hospitable, scavenged chairs from somewhere else in the mall, but Alex was vehemently against furnishing the room.
+
+“It’s already perfect,” he said, lying on the carpet, staring up at the ceiling like it was as vast as the night sky. “Can’t make perfect more perfect, right?” 
+
+I didn’t think of Alex as our ringleader. Ringleader implied organization, direction, a method to the madness. He was more like our engine. A force that propelled us, but to no discernible end. Alex kept things interesting. We never knew what he'd do next.
+
+Which brings me to the day that room became something more. 
+
+We were hanging out like usual. Sophia was turning failed math tests into origami. I was next to her, hunched over, carefully unsealing a pack of *Magic: The Gathering* I’d pocketed from a convenience store on the way over. Ian and Omari were comparing belt-shaped bruises, playfully arguing about who had the nastiest one, a means of disarming the horror. Then, out of nowhere, Alex stood, strolled to the middle of the room, and began clearing his throat like he was about to give a speech. 
+
+“Okay, okay, okay: I’ll start.” 
+
+Ian and Omari went quiet. Sophia and I shared a confused glance. 
+
+“Start…what?” I asked. 
+
+He shook his head and gestured for us to come sit. I smiled, excited - and the tiniest bit fearful - for whatever Alex had planned. 
+
+With the four of us at his feet, he started.
+
+“Once upon a time…” 
+
+“*Once upon a time?”* Omari snorted, his lisp causing the words to buzz with static. “What the hell is this? The fairy-tale slam-poetry hour?” 
+
+Ian sent an elbow into his rib cage. The jab wasn’t meant to injure, but it wasn’t gentle, either. A snarl surged across Omari’s face, but quickly dissipated. Alex watched the exchange with a vacant sort of grin, the motionless smirk of an animatronic stalled mid-performance. 
+
+After a long inhale, he started again. 
+
+“Once upon a time, there lived a mirror-toothed boy. He had no mother. He had no father. Far as he could tell, he hadn’t been born; he just *was*. He didn’t know what his purpose was, but he knew his gums hurt, and he knew he needed to bite.” 
+
+Alex audibly chomped. The sharp *clack* made Sophia gasp, then giggle. 
+
+“Course, everyone in town was afraid of him. He wanted to bite them, but they could see him coming a mile away: his mouth was a mess of jagged glass, and it was blindingly bright, even after the sun had set, because his teeth reflected everything, moonlight included.”
+
+I felt something. A sizzle in my fingertips. Slow electricity spreading into my palms. I looked to Ian. His eyes were fixed on Alex, and they were gleaming. 
+
+“So, for centuries, his gums throbbed, and the people were safe, but then, there was a change. The boy had an idea. A plan.”
+
+Alex leaned forward. Lowered his voice to a wet growl. 
+
+“A way to make the people come to him.” 
+
+Silence fell heavy. 
+
+Alex’s eyes slithered over us, one by one. 
+
+After a small eternity, he clapped and said: 
+
+“Cool! Cool cool.” 
+
+The electricity in my palms abruptly vanished.  
+
+“Rosie, you can pick up where I left off tomorrow.”
+
+“Pick up *what?”* 
+
+“The story! Like when a teacher wants their class to read something popcorn-style, y’know? Jumping from person to person? It’ll be like a game. A contest to see who can make the scariest ending.” 
+
+He shrugged. 
+
+“I dunno, sounded fun in my head.” 
+
+Ian piped up. 
+
+“I can try tomorrow!” 
+
+Alex plopped down, lay back, and yawned. 
+
+“Whatever. Just make it scary.” 
+
+I wasn’t sure what to expect the next day. 
+
+Ian was jittery the whole ride over. About halfway there, his arm spasmed, and he nearly crashed into a dumpster. As we hid our bikes in the mall’s overgrowth, I shot him a concerned look. 
+
+“You good, dude? Everything OK at home?” 
+
+“Yeah.” He chuckled. “I mean, it’s not *actually* OK, but it’s not any worse than usual, either. Dad’s still looking for job, though he ain’t finding many at the bottom of his fuckin’ *Smirnoff* bottles…” Ian trailed off, staring blankly at the shattered glass scattered around the weeds.
+
+My best friend snapped back like he’d been struck by lightning. 
+
+“But yeah! I’m good. Just nervous is all.” 
+
+I walked forward, about to wrap my arm around his shoulder. 
+
+“Alright. If that changes, you know I’m always here for - “ 
+
+Electricity shot through my skin. 
+
+I shrieked and leaped back, stumbling, falling hard on my ass. Ian rushed over.
+
+“Rosie! Jesus, are you OK?!” 
+
+He knelt down and placed his hand on my back. I winced, anticipating pain, 
+
+but there was nothing. 
+
+“What happened??” he asked. 
+
+“Uh…I don’t know.”
+
+Through ragged breaths, I examined my arm. No blood. No marks. Didn’t hurt anymore, either. 
+
+“Just…like…some static, I guess.”
+
+He offered me a hand, but I pretended not to notice. I dug my fingers into the dirt and pushed myself upright. 
+
+“I’m fine, Ian. Surprised me is all.” 
+
+He nodded. 
+
+We continued inside. 
+
+As I swung the door open, I saw Alex, lying face-up in the middle of the room. He was a grade ahead of us, which meant his school day ended slightly earlier, so he always beat us there. Sophia and Omari stepped in a few minutes later. 
+
+With little preamble, Ian gathered us at his feet and picked up where Alex had left off. 
+
+“The mirror-toothed boy had an idea,” he rasped, curling his upper spine so he could loom over us like storm clouds. “A plan. A way to make the people come to him.” 
+
+I leaned back, grinning, awed by the theatrics. Seemed like my soft-spoken buddy was finally emerging from his shell. 
+
+That was a good thing, right? 
+
+“He’d shrink. That’s what he’d do. He’d rip out the sharpest tooth in his mess of a mouth and he’d carve into himself, cutting away the excess, every rib he didn’t need, every organ he could live without; he’d tear himself to shreds until he appeared very, very small. All the while, a pale red rage would fill his tattered body, blooming like a cancer.”
+
+Once again, I felt my fingertips begin to sizzle. Ian was pacing. His cloudy eye quivered in its socket. 
+
+“You see, the boy treasured his pale red rage. It kept him hopeful. One day, they would come, and they would get what they deserved.” 
+
+Electricity ran up my arms and dove into my chest. My grin faltered. Nausea squeezed my gut. I swallowed bile and looked around: the room’s pure white walls were starting to give me a headache. 
+
+“The people would stagger from the safety of town, shouting at the boy, calling him awful things with fermented breath, wondering why they’d ever been afraid of something so small, so harmless…and once they were finally close enough…” 
+
+“…he’d bite,” Omari whispered. 
+
+I was on the verge of passing out. 
+
+Suddenly, Alex began applauding. 
+
+Sophia and Omari promptly followed suit, filling the room with claps and cheers. 
+
+Oxygen flooded my lungs. 
+
+The static in my veins simmered.  
+
+Ian was beaming. His lips curved into a trembling smile. His scarred eye was shimmering. I couldn’t remember the last time I’d seen him so happy, so triumphantly alive. 
+
+He took a bow. 
+
+When he lifted his head, his gaze darted to me, expectant. 
+
+I couldn’t let him down. 
+
+So, even though it felt wrong, I began clapping too. 
+
+The next day, Omari told his version of the story. It was similar to Ian’s. He wasn’t a copycat, there was just a shared throughline: the underdog toppling their overlord. His rendition was decidedly more violent, though. He reveled in the gory details. The vicious bite and the blood-soaked aftermath. 
+
+At first, Sophia’s version seemed like a much-needed palate cleanser. Restrained. Poetic. Though, in the end, it was just as disturbing. According to her, the mirror-toothed boy spent years erecting a circle of marble sculptures around the town's perimeter. Eventually, the beauty became overwhelming. Bewitched, people would abandon their homes in the dead of night, and when they got close enough, the bite would come, but in her story, the teeth were different. Venomous. Dripping with a black toxin that altered the composition of their flesh. Made their bodies like clay: soft, dry, and malleable. Her story culminated with the town’s few survivors fixed on the horizon, eyes locked on the boy’s magnum opus: a twenty-foot-tall sculpture of himself, molded from still-living flesh.
+
+“And they never looked away, but it wasn’t ‘cause they couldn’t; they just didn’t want to,” she whispered. “If only they’d realized the boy’s potential before it was too late.” 
+
+After Sophia, it was finally my turn.
+
+I didn’t have the faintest clue how I was going to tell the story, so the first day Ian didn’t show up felt like a stroke of luck. I had more time to figure out my version. 
+
+But two days passed. 
+
+Then three. 
+
+Then a whole week. 
+
+My parents knew what’d happened - they’d read about it in the paper - but they didn’t bother to tell me. No, my goddamned TV set broke the news. 
+
+Everyone talks about *growing up* like it's a gradual process, some steady metamorphosis that takes years to complete, but it ain’t like that: growing up is a single, painful moment. The change is instantaneous. Something happens, a circumstance that forces you to touch the cold heart of reality, and the cotton-candy insulation of childhood molts away like snake skin. 
+
+The grainy picture showed Ian’s dad being dragged from their mobile home in handcuffs. 
+
+I collapsed into a sobbing heap on our living room floor. 
+
+He’d finally taken it too far, just like Ian always feared he would. 
+
+My best friend was gone. 
+
+Over the next few weeks, I learned finer details. 
+
+Detectives were confident they knew what befell the missing kid. His Dad was insistent that Ian just never came home one night, but between the various bloodstains discovered in the mobile home and his lengthy criminal history, no one believed he was innocent. The case never went to trial, though. The night before the proceedings were due to start, Ian’s dad died of cirrhosis. His brain quietly swelled like a wet sponge and the bastard just drifted away. 
+
+In the wake of everything, we stopped telling stories about the mirror-toothed boy. Just didn’t seem right to continue without Ian. 
+
+The grief was devastating. 
+
+My mind moved like mud. Every muscle in my body felt ice-cold, useless. I couldn’t manage to eat anything other than Pop-Tarts, and, of course, my family was no help, no help at all. My reliance on my friends and the room grew. I didn’t feel safe anywhere else. 
+
+Then, one afternoon, something inside me just seemed to…break. 
+
+Omari was shadow boxing. Sophia was scribbling in her sketchbook. Tired of sulking in the corner day in and day out, I sprang up, paced over to the boy lying flat in the middle of the room, and made my demand.  
+
+“Let’s do something.” 
+
+Alex peered up at me. 
+
+“Been waitin’ for you to ask.” 
+
+So, we began to play a new game. 
+
+Every day, it’d be someone’s turn to *perform*. 
+
+The goal was simple - outperform the person who came before you. 
+
+Alex went first. 
+
+He bit his cheek until it bled, dabbed his fingertip along his gums, and wrote his name on the wall.
+
+We clapped and cheered. 
+
+Omari was next. 
+
+Gritting his teeth, he wrenched at his thumb until it dislocated, then snapped it back into place. 
+
+We patted his back and helped splint his injury. 
+
+Sophia went third. 
+
+She flipped to the back of her sketchbook and read some poetry. A haunting and delicate piece, a thinly veiled metaphor that recounted the abuse she’d suffered at the hands of her uncle. None of us knew she wrote poetry. None of us knew what’d happened to her, either. 
+
+We gathered around and embraced her. 
+
+There was no question anymore: I’d grown to enjoy the strange electricity that cascaded through my body with each performance. It was pleasure with a lick of peril. An excess of physical sensation. A reminder that I was truly alive. That said, something new began to accompany the electricity. A wispy sort of itch that trickled across any exposed skin. I thought I’d suddenly become allergic to the carpet, but when I examined where I’d felt the itch, there’d never be a rash or anything. I did my best to ignore it. The show had to go on. 
+
+Eventually, it was my turn, and despite my burgeoning love for the room and its games, I couldn’t suss out my *performance*. I arrived that afternoon and approached Alex, figuring he could provide guidance or inspiration. 
+
+My vision went black. 
+
+The next thing I knew, I was opening my eyes, at home and under my covers. 
+
+Sunlight drizzled through the blinds. I had no recollection of the previous twelve hours, but I felt awful. On the edge of vomiting and critically exhausted. I lurched out of bed. As soon as I hit the floor, fiery pain flared across the soles of my feet. I buckled. Cracked the bridge of my nose against my nightstand on the way down. Groaning, I lifted my head and yanked my foot into view. The bottom was covered in hundreds of tiny, intersecting cuts. A purple-red latticework I couldn't even begin to explain. 
+
+I still biked to the room that afternoon. 
+
+The rhythmic agony of my sneakers slapping the pedals was infinitely preferable to staying at home. 
+
+As I approached the city limits, I felt a certain sort of anger bubbling in my chest, a gnawing betrayal. 
+
+What the hell had they done to me? 
+
+Or, even worse, what the hell had they allowed me to do to myself? 
+
+I limped down the rusty escalator and marched toward the room, raring to give those assholes a piece of my mind, but the moment I swung the door open, my friends rushed over, grinning wide, praising me like a newly minted war hero. 
+
+“There she is!” Sophia exclaimed, leaping forward and throwing her arms around me. Before I could even get my bearings, Omari grabbed my shoulders and ripped me from the embrace.
+
+“Can’t stop thinkin’ about what you did yesterday…fuckin’ savage. You’re a goddamned legend, Rosie, you know that, right? I mean, no *way* Alex tops you today.” 
+
+I didn’t yell. 
+
+I didn’t ask what I’d done to earn such acclaim. 
+
+I just…I just smiled. 
+
+“I’m sure he’s got something in his back pocket.”  
+
+The performances continued, and they got worse. So much worse. 
+
+Each afternoon, a new horror. A sharpened pencil disappearing into an ear canal. Toenails slowly displaced and stacked into a neat little pile. A shoebox brimming with cockroaches, its contents crushed and eaten. My blackouts lengthened. The resulting damage grew increasingly grotesque, and I never had the stomach to ask what in God’s name I’d done to myself. 
+
+On, and on, and on. 
+
+The mood became perverse. Our cheers soured into animalistic shouts. Our claps devolved into closed fists thumping the floor, giving the spectacle a primal rhythm. The electricity coursing through our veins turned to lightning, and all the while, I felt that nagging itch, a soft wind tickling my exposed skin, desperate for my attention. I should’ve said something. Talked some sense into my friends, because we all knew where our *performances* were heading, but I couldn’t do it. What if they didn’t want to stop? They were all I had. I’d risk my life before I risked rejection. 
+
+After months of the macabre pageantry, my body was broken and my mind was numb, so when Alex mumbled those words - the last words I ever heard him speak - they barely even registered. 
+
+“Today’s the day. We’re ready. I can feel it.” 
+
+It was Omari’s turn. 
+
+I collapsed at his feet, nauseous about what was to come but desperate for the release. 
+
+“Before I…start…I just wanted to say something. Two things, actually.” 
+
+He paused. I cocked my head.
+
+“First off, what I’m about to do - well, it’s not my idea, but Alex said that wasn’t against the rules.” 
+
+I fought the urge to tell Omari to *hurry the fuck up*. The itch was bad that day. I fidgeted like mad, but I couldn’t get comfortable.
+
+“Secondly…” he gulped, reaching into his pocket with a trembling hand. 
+
+I leaned back and laid my hand onto the carpet. A seething itch ravaged my palm. I cursed under my breath and lifted the hand. 
+
+I’ll never forget what I saw. 
+
+“…this is for you, Ian…” 
+
+On the floor, peeking out from the frizzy brown fibers, bulging with incomprehensible terror, 
+
+a single human eye with a cloudy scar. 
+
+It blinked. 
+
+The wispy caress of batting eyelashes washed across my entire body. 
+
+“…I can’t wait for all of us to be together again.” 
+
+Sophia gasped.  
+
+“Omari! Don’t - !”
+
+A wet squelch pierced the air. I flipped around. 
+
+Jagged, emerald-tinted glass protruded from Omari’s abdomen. Blood seeped from the wound, blotting out the half-visible beer logo with thick crimson. He gripped the edge, took a shuddering breath, 
+
+and kept carving. 
+
+Electricity exploded down my spine. 
+
+The room transformed. The walls moaned, deforming, rippling like molten wax. A hellish uproar erupted above us. My head shot up. The ceiling had been replaced by a writhing mass of faces and limbs, kicking, twitching, pleading, screaming with pain, screaming with pleasure, a relentless aggregate of sound and motion. 
+
+Sophia lunged toward Omari.
+
+She grabbed his forearm with both hands and wrenched it back, ripping his palm from the improvised knife, but something happened at the point of contact: a melding of flesh. A seamless connection. She couldn’t pull her fingers away, and from behind Omari, a figure rose. Alex. A blonde-haired boy with diamond-white eyes and the mouth of a lamprey, gaping and circular, adorned with a blinding array of reflective, razor-sharp teeth. 
+
+I turned and bolted toward the door. 
+
+My sneakers stuck to the carpet like it was quicksand, pulling thin strands of liquid carpet up with each agonizing step. Sophia’s shrill, buzzing scream layered into the cacophony. Then, a crashing, thunderous *clack* silenced her. I didn’t think. I didn’t look back. I kept moving. The door frame was drooping, distorting, melting down. I threw my hand out. The skin of my palm adhered to the knob like it was made of flypaper. I twisted my wrist, threw the door open, squeezed my body through, and spilled out into the mall. I didn’t hear it slam shut behind me. 
+
+Everything was quiet. 
+
+I lay in a crumpled, breathless heap on the cold tile floor, until the thought of Alex slithering through the dissolving door forced me to scramble to my feet. 
+
+But there was no door. 
+
+Only an unremarkable stretch of wall.
+
+It took a long, long time for me to bike to the nearest police station. 
+
+My mind was shattered. My right palm was a bloody, skinless mess. I burst into the lobby with no plan. Just screamed that my friends were hurt and they needed help. To my relief, I was taken seriously, right up until I told the officer *where* they needed help. 
+
+He scoffed. 
+
+Rolled his eyes. 
+
+Looked at me like I’d told him they were on the surface of the moon. 
+
+“I’m not going out past city limits, kid. It ain’t safe.”
+
+I stared at him, dumbfounded. 
+
+“Didn’t your parents ever tell you? Sit you down and give you…uh…the talk?” 
+
+I slowly shook my head *no*. 
+
+He sighed. 
+
+Slumped down next to me, handed me a cup of tepid water, and placed a warm hand on my shoulder. 
+
+“You see, that’s *precisely* what **the boy** wants you to do...” 
+
+By the end of the month, Sophia’s obituary was published online.
+
+Omari’s was posted a few days later. 
+
+But no matter how hard I searched, 
+
+I never could find an obituary for Alex. 
+
+\- - - - -
+
+Life as a teenage runaway was rough. 
+
+Though, to be clear, I didn’t leave the city. No way in hell. Just got as far away as the geography would allow. Laid low during the brief, half-hearted search attempt, and then *voilà* \- I was free to start again. 
+
+Let’s skip forward. Past the drugs, the pain, and the sleepless nights. None of it really matters, and whatever you’re imagining is probably pretty damn close. 
+
+Social work isn’t exactly glamorous. 
+
+The pay is shit. The hours are grueling. Worst of all, you clock in knowing that - most of the time - the effort you put in won’t change anything in the long run. But it just felt like something I needed to do, you know? Giving the support that I always wished I’d had. It was penance. Something to scrub my conscience clean. 
+
+It helped. 
+
+But it didn’t help enough. 
+
+Lately, I’ve been dwelling on what happened. Sophia. Omari. Ian. None of them were prepared for what was out there, and yes: I was complicit. I was a coward. I was a failure. But remember: I wasn’t prepared either, and the only reason I’m still around is that I got lucky. I wasn’t consumed by the mirror-toothed boy because I was afforded the opportunity to run. 
+
+I didn’t fail. We didn’t fail. The world failed us. 
+
+So, with each passing day, my resentment has festered. 
+
+It grew and grew and grew, and then, suddenly, I felt it. 
+
+The tiniest, most infinitesimally small blip of static in my fingertips. 
+
+I could’ve suppressed it. 
+
+Would’ve been the virtuous thing to do. 
+
+But I didn’t. 
+
+Instead, I harnessed it. 
+
+Made a wish. 
+
+An invitation of sorts. 
+
+And then, like magic, there it was. 
+
+A door. 
+
+A door on the wall of my office, in the center of my city. 
+
+I can see it from my desk as I type this. 
+
+I’m terrified. I’m ashamed.
+
+But I’m excited, too. 
+
+I hear their voices behind the door. 
+
+I see their shadows dancing under the frame. 
+
+I want to be with my family again, my *real* family, and if that means letting Alex into this city, well, that’s fine by me. 
+
+He’s hurting too, isn’t he? 
+
+He didn’t choose his life either.
+
+So you know what?
+
+Fuck it. 
+
+Fuck it all. 
+
+I say: 
+
+Let
+
+the poor kid
+
+[bite.](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/) 
