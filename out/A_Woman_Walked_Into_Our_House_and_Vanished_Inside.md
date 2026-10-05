@@ -1,0 +1,275 @@
+At three in the morning, while everyone in our family was fast asleep, a loud knock on the door suddenly woke us. A woman’s voice followed:
+
+“Please, open the door! Help me, please! Open the door!”
+
+We all woke up because of the noise. My father went to the door and opened it, only to find a young woman standing there who looked to be in her early twenties. She looked absolutely terrified. She was trembling and crying as she said:
+
+“Please, help me! He’s going to kill me… He’s going to kill me!”
+
+My father, along with the rest of us, tried to make sense of what was happening. We had just been suddenly jolted awake, so it took us a few seconds to process what was going on.
+
+Then my father stepped aside and let the young woman inside before closing the door behind her.
+
+She looked at us and thanked us, still trembling. My mother then asked her:
+
+“What happened to you?”
+
+The girl told her that there was a man following her and threatening to kill her.
+
+My mother asked:
+
+“Is he nearby?”
+
+“Yes,” the young woman replied. “He was following me. I just hope he didn’t see me come into your house.”
+
+My father walked toward the windows, and we followed him. We started looking outside to see if the man she was talking about was anywhere nearby, but we couldn’t see anyone.
+
+The neighborhood was completely empty and silent.
+
+I turned around to look at the young woman.
+
+She was gone.
+
+“Mom! Dad! Where’s the girl?”
+
+My father and my siblings turned around, and they saw it for themselves.
+
+She had disappeared.
+
+We looked at one another.
+
+“Where could she have gone?”
+
+We started searching the entire house. Literally everywhere. Every room, the attic, the basement, under the beds and tables, inside the closets… everywhere.
+
+But we couldn’t find a trace of her.
+
+It was extremely strange.
+
+“Where could she possibly have gone?”
+
+The following morning, we called the police and told them what had happened.
+
+The police checked the security cameras. We had cameras covering the entire area around our house.
+
+And sure enough, the girl appeared on the footage at around three in the morning. She was standing outside our house, knocking on the door, looking around fearfully, crying and saying:
+
+“Please, open the door! Help me, please! Open the door!”
+
+Then my father opened the door, and a few seconds later, she entered our house.
+
+But the cameras never showed her leaving.
+
+Not once.
+
+Strange.
+
+The police couldn’t explain what had happened to us. They told us they would contact us if they discovered anything new.
+
+As for our family, we decided to forget about the whole thing and move on with our lives. We assumed that what had happened to us was simply one of those strange things that sometimes happen in life that you can’t explain.
+
+But we were wrong.
+
+That wasn’t the end.
+
+The next day ,At three-thirty in the morning, we heard someone banging on our door.
+
+It was incredibly loud, as if whoever was outside intended to break it down. He was pounding on it with his fists, even kicking it, while screaming:
+
+“Come out, you bitch! Where do you think you're running off to?** **I’ll kill you! Come out!”
+
+It was a man’s voice.
+
+We all got out of bed and gathered in front of the door. We looked at each other, then at the door, then at each other again, and then back at the door.
+
+And so it went.
+
+The man continued screaming and pounding on the door.
+
+My father stepped toward the peephole to see who was outside, but to our surprise, there was no one there.
+
+“Who could possibly be knocking on the door?”
+
+The door was still being pounded on. We could hear the screaming at the exact same moment my father was looking through the peephole, but he couldn’t see anyone.
+
+We went to check the security cameras and found the same thing.
+
+There was no one outside.
+
+Yet the door was shaking violently from the force of the pounding, and the man’s screams were still coming from outside.
+
+No one dared to open the door.
+
+After a while, we began to hear a woman crying.
+
+The crying seemed to be coming from the kitchen.
+
+We became tense and looked at one another.
+
+“Do you hear what I’m hearing?”
+
+We went into the kitchen. The crying seemed to be coming from all around us. We searched the kitchen, trying to find the source of the sound, but there was no one there.
+
+And yet we could still hear it.
+
+We called the police.
+
+By the time they arrived, everything had stopped.
+
+We showed the police the security camera footage as evidence of what had happened. They didn’t seem to react much. One of them would look at us and raise an eyebrow each time.
+
+Then they left without taking any action.
+
+Maybe they thought we were pulling some kind of stupid prank?
+
+The next day, the same thing happened again.
+
+At exactly three-thirty in the morning, there was a loud pounding on the door, accompanied by a man’s screams:
+
+“Come out, you bitch! Where do you think you’re running off to ? I’ll kill you! Come out!”
+
+Then the crying followed.
+
+But this time, the crying was coming from the basement .
+
+We all woke up again and tried to figure out what to do, but eventually we gave up and went back to our rooms.
+
+My siblings and I couldn’t sleep in our room that night, though. We ended up sleeping in our parents’ room because we were too scared.
+
+Over the following days, the same thing kept happening, in the exact same order.
+
+The only difference was that the woman’s crying came from a different place in our house every day.
+
+I still remember how terrified I was one day when I heard the crying coming from underneath my bed.
+
+I ran straight to my parents’ room, shaking with fear.
+
+And that was how it became a daily occurrence.
+
+Our sleep became terrible. We would wake up exhausted every morning, and at that point, we didn’t even have the means to move out of the house.
+
+But as time passed, we started getting used to it.
+
+I mean… what else could we do?
+
+We lived like that for almost a year.
+
+Until that day.
+
+It was a Sunday. I remember being woken up by the pounding and the crying.
+
+I lay there staring at the ceiling for several minutes as the noise grew louder.
+
+I felt like I had reached my limit.
+
+I thought:
+
+“How long are we going to live like this?”
+
+I decided that I had to find a solution to this madness.
+
+Then it occurred to me that, throughout all this time, none of us had ever dared to open the door.
+
+What if I opened it?
+
+Could I somehow find out who was knocking?
+
+After going back and forth in my head, I gathered my courage and got out of bed.
+
+I left the room and walked toward the front door.
+
+As I got closer, I slowed my steps until I was standing right in front of it.
+
+I swallowed hard and took a deep breath.
+
+Then I opened the door.
+
+As soon as I opened it, a gust of wind blew inside, making my hair fly around.
+
+The pounding stopped.
+
+The screaming stopped.
+
+Then the crying stopped too.
+
+I stepped outside.
+
+“Is anyone there? Who are you?”
+
+No answer.
+
+I looked to the right, then to the left.
+
+The neighborhood was completely empty. There wasn’t a single sign of another person.
+
+I went back inside, closed the door, hurried back to my room, and went to sleep.
+
+we woke up.and that day ,we decided to go out for a simple family meal at a restaurant.
+
+We went to the restaurant and had a nice time. We talked for a while, even about what had been happening to us.
+
+My father mentioned that he had noticed the noise hadn’t lasted as long as usual. Normally, it would continue for about an hour, but this time it had stopped much sooner.
+
+I didn’t tell them that I had opened the door.
+
+At around eight that evening, we headed home.
+
+As we were driving through the neighborhood and getting closer to our house, we noticed from a distance that the lights inside were on.
+
+Then they started flickering.
+
+On.
+
+Off.
+
+On.
+
+Off.
+
+Over and over again.
+
+As we got closer, we began to hear sounds coming from inside the house.
+
+The closer we got, the clearer they became.
+
+They were screams.
+
+A woman screaming, accompanied by a man’s growling, shouting, and obscene words.
+
+We stopped the car and rushed toward our house.
+
+We opened the door and stood there in the middle of the living room as the furniture shook, the lights flickered on and off, and the screaming seemed to move throughout the house,from the basement to the attic , to the hallways, and then to the rooms.
+
+It sounded like a fight was happening inside our house.
+
+We could hear:
+
+“Die, you bitch! Die!”
+
+It was a man’s voice, accompanied by a woman screaming.
+
+Eventually, the sounds ended in the basement.
+
+Then the woman’s voice gradually became quieter, followed by a gurgling sound.
+
+And then, suddenly, everything stopped.
+
+The furniture stopped shaking.
+
+The lights returned to normal.
+
+“What the hell is happening?”
+
+We had been standing in the living room the entire time. None of us had moved until everything stopped.
+
+We cautiously made our way toward the basement.
+
+But there was nothing there.
+
+We couldn’t find any explanation for what had happened to us. And we figured that even if we called the police, they probably wouldn’t take us seriously, just like the last time.
+
+From that day on, nothing strange or unexplained ever happened to us again.
+
+No more knocking.
+
+No more crying.

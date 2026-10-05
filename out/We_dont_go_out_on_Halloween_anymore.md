@@ -1,0 +1,119 @@
+The first time I stayed home on Halloween, I was running a 101.8 fever. Low-grade, but enough to warrant a night in. To be honest, I wasn't all that bent up over it. I had just hit that pre-teen age where I started to reject social norms and became embarrassed over literally everything. The thought of facing the neighborhood bullies with a lame-ass costume and an attached-to-the-hip mom and sister was enough to keep me in. It happened to be a stroke of luck I fell ill.
+
+Before my mom left with my little sister, she made me recite her cellphone number thrice. They wouldn't be out long, though. We lived on the corner of a street just before a cul-de-sac, and they planned to only visit our small part of the neighborhood.
+
+"And no scary movies!" my mom said while adjusting Jules' bumblebee wings. "You'll just scare yourself while you're home alone."
+
+"I'll bring you lots of candy," Jules said. She held up her empty, pumpkin themed bucket to me.
+
+"Thanks, Jules."
+
+I turned on a scary movie as soon as they left. It was already impossible to watch one while they were home, and I really looked forward to eating popcorn and cozying up under a blanket until they returned. 
+
+We had set up a "Take One" sign on the door with an arrow pointing to a bucket on a rocking chair so I wouldn't have to get up to greet trick-or-treaters. I always thought people who did that were kind of pathetic, but now I was grateful I wouldn't have to answer the door. The curtains covered the front-facing window, and we didn't have any windows on our door, so no one could tell I was here, anyway. 
+
+I made it about 30 minutes into *Sinister* before I had to turn it off (mom was right, damn her!). I started channel surfing to find something a bit more kid friendly. In the channel flipping, something weird caught my eye. I clicked the back button a few times before I finally found what I'd noticed.
+
+It looked like a CCTV video where the camera was placed high up on a light pole, and it aimed down at the front of a house. I tried to remember if there were any horror movies that included a scene like this, but nothing came to mind. It seemed harmless enough; there were families walking up and down the street while chatting. Then, a little girl starting to trot up the front steps of the house and—
+
+*KNOCK KNOCK KNOCK*
+
+I nearly jumped to the ceiling. I whipped my head around to look at the front door as I heard a muffled "Trick-or-Treat!"
+
+My heart thumped against my chest as I stared behind me in disbelief. I could just about make out a shadow on the window curtains.
+
+A creeping realization burrowed into my head. I slowly turned back to the TV and saw a little girl dressed up as a pumpkin read the sign, take some candy from the bucket, then bounce down the steps of the house back to her family. I heard it all too, but not from the television.
+
+*No way, right?* I thought to myself.
+
+I crawled off the couch and sat closer to the TV.
+
+*Holy shit.*
+
+It was my house. My front porch, my painted blue door, our mailbox, that was our goddamn street!
+
+I put my hands on either side of the TV as if I could shake the image away. The static fuzz buzzed softly against my thumbs. 
+
+Maybe the antennae had patched into some security camera, or my mom was setting up some elaborate scare to teach me a lesson.
+
+*Was I hallucinating?*
+
+I quickly felt my own forehead, but I couldn't tell if the fever had grown worse or not. My eyes were settling on the live footage when I finally noticed something in the lower right corner. 
+
+It was a figure, standing across the street just about making it in frame of the camera. It was dressed in all black, and I couldn't see its face. 
+
+*It has to be a prank—surely by one of the older kids,* I thought. One of them must have bought a morph suit to prank the littler kids. To prank me.
+
+He began making his way to my front porch, but the way he walked... It was like bending his legs was difficult. Like he had been sitting down for a long time, and his legs had fallen asleep. His arms stuck out a little from his sides and didn't sway like they normally should. He weaved in and out of the groups of families walking the street, but no one seemed to notice him.
+
+My eyes were glued to the screen. I didn't freak out just yet. Creeped out, sure, but there was no way this person knew I was sitting just inside. 
+
+They finally made it up to my door. I anticipated the knock, but he just stood there. I slowly turned around to face the window, and his oblong shadow splayed across the curtain, unmoving. I broke out in a sweat. 
+
+"Trick or treat!" 
+
+It sounded like an old man trying to tighten his voice and imitate a younger kid. The shadow didn't move, and neither did I.
+
+I gulped, and as quietly as I could I made my way over to the door. We had a peephole. One of the ones where you couldn't see in from the outside. I stood up on my tippy toes and looked through it.
+
+Black.
+
+*THUD THUD THUD*
+
+I fell behind on my ass and crawled backward as quick as I could. He laughed from the other side, but it was muffled as if he was covering his mouth with his hand.
+
+Anger swelled inside me. Of course it was some older teenager trying to scare kids on Halloween. I reminded myself that I was safe inside, and, with my new found courage, I yelled out.
+
+"Fu-fucking asshole!" 
+
+I wish I had come across a little more brave than I ended up sounding. My voice came out just above a squeak. Surely, now whoever was out there knew for certain I was inside. I mentally kicked myself for that one.
+
+There was a shimmying clink coming from the door, and my eyes raced to look at the handle, but it wasn't jiggling.
+
+The mail slot cover moved; opened just a little bit, then closed again. 
+
+*clink, clink clink*
+
+My breathing quickened as a black finger slid through the slot and opened up the little hatch. 
+
+A black face with fake, sewn-on eyes stared back at me. The eyes weren't perfectly attached to the suit, but instead one drooped a little lower than the other in an uncanny fashion. 
+
+"I see you. Heh. Right there, I see you!" he said in that same mocking, tight voice. His long black finger was pointed toward me. I fell too far back to make out any other features, but it would've been covered by the suit anyway. If it was someone I knew, I couldn't tell from his fake voice.
+
+I didn't want to look away from those fake plastic eyes, but I had to glance at the lock. I needed to make sure he couldn't get in. Thankfully, it was secure. Surely if he tried to get in, someone from the street would see and come help. Everyone was out tonight. Everyone except me.
+
+The man and I stared at each other. My body was moving up and down from the excessive breathing while drips of sweat rained down on my forehead, but the man did not move. He was eerily still. I just stared into those dummy eyes for as long as it took me to try and calculate the time it would take for me to get up and run around the corner to the house phone.
+
+*Shit,* what was mom's number again? No, no, I need to call the police, I need to—
+
+The man pressed his face into the letter box. The plastic eyes *tink*ed against the metal frame as he forced his head through the slit. There was this stretching and crunching sound as more of his head moved through the opening, like he was Play-Doh molding into the opening of the slit.
+
+I couldn't help but let out a yelp as I scampered to my feet and ran to the back door on the other side of the house. I looked back once to see he had gotten his head all the way through, and it bounced back into its original shape. Then his shoulder started to push through.
+
+I tried bursting through the back door, but was quickly met with a locked door. My hands fumbled around the handle, but sweat was pouring into my eyes and my hands were shaking too terribly. I could hear shuffling behind me, and I had to rid my mind of the idea that the intruder was already to his feet and making his way toward me. I couldn't bear the thought of looking back; I just might have frozen in fear.
+
+Finally, with a click, I unlocked the door and ran through the backyard, not daring to turn back. My vision began to blur; a mix of the sweat, tears, and my fever reaching its peak. I ran up the side of the house and through the side gate out into the street. 
+
+It happened all at once. I screamed for my mom, and then suddenly I was by her side stammering about a man dressed in black, seeping through the door. 
+
+"Jesus, Codey, you're burning up," she said, kneeling in front of me with her hand on my forehead. It was like she wasn't even processing what I was saying.
+
+I don't even know if I explained what I truly saw. I was a blubbering mess, and even Jules began to cry at my terror.
+
+"There was—" *sob* "—someone in the house!"
+
+My mother's face turned somber, then stern. "You're not messing with me? You're certain?"
+
+I nodded my head, and she must have seen the truth in me somewhere. 
+
+The cops claimed to have searched every corner of the house, yet they came up empty-handed. I asked of the television, explaining to them that I saw live footage of our front door. They said that all that was playing were the end credits to *Coraline*. 
+
+I did end up confessing that I watched a bit of a scary movie alone. The glances that were exchanged between the two cops told me they were taking a statement from a fever-ridden, scared little kid, but my mom believed me. Even after her and the cops talked for hours on the porch, she was still disappointed by their nonchalance.
+
+She made me tell her the story many times. While I was still sick, after I had gotten over it, days after, and weeks after. A month before the following Halloween, she made me tell her again. It was the same story every time.
+
+We don't go out on Halloween anymore. Instead, we stay inside, and watch movies and eat popcorn. My mom holds Jules and I close while keeping her phone on the arm of the couch, pre-dialed with 911. 
+
+We keep a bowl of candy out, but under no circumstance do we answer the door, no matter what. We ignore the thuds, the knocks, and the clinks of the mail slot. 
+
+I'm far too scared to ask my mom when it first started happening to her.
