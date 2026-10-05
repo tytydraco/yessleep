@@ -1,0 +1,397 @@
+My name is Bryan and I’m a vampire hunter.
+
+Or at least, I used to be, back when I still had two limbs to stand on. Now I’m mostly a guy who sits in a stained leather recliner, drinks warm Milwaukee’s Best, and yells at a freezer in the kitchen whenever it starts rattling too loudly.
+
+"Hey! Shut the hell up in there!" I bellowed toward the kitchen, tossing an empty aluminum can at the wall. It hit the drywall with a hollow *clack* and bounced into a pile of unwashed laundry. "I’m trying to watch the late-night infomercials! If you don't stop banging your skull against the lid, I’m turning the dial down to deep-freeze and leaving you in a block of ice until Tuesday!"
+
+From inside the white, dented Sears chest-freezer positioned right next to my refrigerator, a muffled gargle sounded out.
+
+*Ghlrrrb... rllph... ffffk-youuu...*
+
+"That’s what I thought," I muttered, grunting as I pulled myself up by my elbows to adjust my position.
+
+Where my legs used to be, two puckered stumps sat bunched in compression sleeves. Every time the humidity shifted, phantom nerves throbbed deep in the marrow where my knees used to sit, and the hole in my left shoulder ached right along with them.
+
+I reached over to the side-table, picked up a bag of raw chicken livers I'd bought on sale at the corner bodega, and wheeled my chair over to the kitchen. I flipped open the heavy plastic lid of the chest freezer.
+
+A cloud of white frost vapor rolled out, carrying the crisp, copper smell of frozen blood. Sitting on top of a stack of frozen pizzas and microwave burritos was the head, neck, and upper chest torso of what used to be a high-ranking lieutenant of the subterranean siphon-vamps.
+
+I called him Barnaby. He didn't have a lower jaw; Where his jaw, chin, and lower mouth should have been, there was just an open cavern of purple flesh, a twitching, barbed tongue, and a throat orifice lined with ringed, translucent teeth that looked like shattered fiberglass. His skin was the color of a drowned pig, and his eyes were two bulbous, milky yellow spheres with slit pupils that followed the bag in my hand and never once left it.
+
+I had tied a tiny frozen ice-pack to his bald crown with a blue rubber band to keep him chill.
+
+"Dinner time, you ugly bastard," I said, plucking a slimy, raw chicken liver out of the bag and dangling it over his open throat tube.
+
+Barnaby's upper chest twitched. He didn't have arms or legs anymore, just cauterized shoulder nubs, and his throat-cavity pulsated with a *shhh-luck* sound. The barbed tongue lashed out and snagged the chicken liver, and sucked it down into his exposed gullet with the wet pop of a sink plunger.
+
+*Ghlrrr-k-k-k,* he gurgled, yellow eyes narrowing.
+
+"Don't give me that look," I said, slamming the freezer lid down and latching it with a heavy rubber bungee cord so he couldn't kick his head against the lid. "You’re lucky I don't drag you out to the fire escape and let the morning sun turn you into a pile of crispy pork rinds."
+
+I wheeled back to my chair, popped another beer, and stared out the grime-crusted window at the neon city lights.
+
+People think vampire hunting is all slick leather trench coats, silver-plated handguns, and brooding in cathedral loft apartments while playing violin. Those people are morons. Those people watch too many late-night cable movies. Real vampire hunting is dirty, disgusting work that usually ends with you needing a tetanus shot and a psychological evaluation.
+
+Before I took the contract on the 14th Street Rendering Plant, I thought I had the gig figured out. I thought it was mostly tragic bullshit and sad old people.
+
+My first gig, last Spring? Mrs. Higgins. She was eighty-four years old, living in a hospice facility in South Jersey, riddled with stage-four lung cancer. Her seventy-year-old husband, desperate and half-demented with grief, paid three grand to some back-alley occult creep in a trench coat to 'cure' her. The creep turned her into a blood-sucker.
+
+When I broke into her hospice room expecting a nightmare, I found an old lady in a pink flannel nightgown, sitting on her bed, gnawing harmlessly on a foam pillow because she’d lost her dentures three years prior. She was making soft, gumming noises at my arm while her weeping husband sat in the corner chair bringing me warm chamomile tea and begging me not to hurt her. I had to put a wooden survey stake through her ribs while the old man sat there sobbing into a paper towel. I cried all the way home in my pickup truck and spent forty bucks on cheap tequila.
+
+My second gig wasn't much better. Three kids in an abandoned basement on the east side of town. A starving, rabid leech-vamp had nipped them through a sewer grate and skittered off into the dark. The poor little bastards didn't even know what was happening to them; they were huddled under a blue tarp, crying, their faces stained with dry blood because they’d been drinking feral rat blood out of a rusted soup can to keep the burning in their bellies down. I had to use a magnesium flare on them. The smell of burning hair and sweet fat stayed in my nose for a month.
+
+I thought vampire hunting was a melancholy mercy-killing service. I thought I was a sad guardian angel putting down pitiful accidents.
+
+Then came the rendering plant. That was my first real test of mettle. That was the night I learned what vampires actually are when you strip away the romantic Gothic bullshit and look at the rotting, parasitic engine underneath.
+
+It started on a rainy Thursday in November. The Local 402 Meatpackers Union rep, a guy named Big Tony who looked like a walking thumb in a sweat-stained suit, met me behind a greasy diner in the industrial district. He handed me an envelope stuffed with twelve thousand dollars in unmarked hundreds.
+
+"Something’s in the old rendering plant on 14th," Tony had grunted, chewing on a toothpick. "We got four night-shift maintenance guys gone. No bodies, just blood splatters on the tallow vats and their boots left behind. Cops won't go down into the subterranean cold-storage levels. You take care of it, or the union shuts the whole block down."
+
+I took the cash, went back to my garage, and geared up like I was invading a small hostile nation.
+
+I wore my heavy, double-lined cattle-rancher leather jacket, thick enough to turn a dog bite, and pulled on steel-toed combat boots. Over my shoulder, I slung a customized Mossberg 500 12-gauge shotgun loaded with home-brewed silver-magnesium breacher slugs. I had a tactical sledgehammer hooked to my belt, two heavy carbon-steel meat cleavers strapped to my thighs, a pair of night-vision goggles, three road flares, and a modified industrial weed-torch connected to a three-gallon propane tank strapped to my back.
+
+I looked like a mix between a butcher, a plumber, and an asylum escapee. I felt invincible. What a fucking idiot I was.
+
+The 14th Street Rendering Plant was a towering monument to industrial decay. A red-brick monolith built in the 1920s, its corrugated tin roof was rusted through, venting a perpetually stagnant fog into the night air.
+
+I kicked open the side entry door and stepped into the main slaughter hall.
+
+The floor was covered in a two-inch slurry of dried lard, yellowed bone-meal, and black, congealed grease. The smell was enough to make a maggot vomit: a toxic soup of rancid animal tallow, hot ammonia, and that thick, sickeningly sweet copper stench that meant human blood had been sitting out in the damp air for days.
+
+"Hello?" I called out, my voice echoing off the massive, rusted iron meat hooks dangling from overhead monorails. "Anyone home? I’m here for the safety inspection!"
+
+Silence. Just the steady *drip... drip... drip...* of condensation falling into a drainage pit in the center of the room.
+
+I clicked on my flashlight. The beam sliced through the thick, greasy gloom, illuminating a heavy iron trapdoor set into the concrete floor near the offal grinders. The padlocks had been sheared off from the inside, the metal bent outward like peeled banana skin.
+
+"Subterranean cold storage," I muttered to myself, adjusting the heavy straps of the propane tank on my shoulders. "Of course. Why can't these creeps ever nest in a nice, well-lit penthouse?"
+
+I pulled open the trapdoor. A wave of heat hit me square in the face.
+
+That was the first wrong thing. A cold-storage floor should have been freezing, but the air puffing up out of that black hole was warm, humid, and thick as engine oil. It smelled like the breath of a dog that had been eating rot for a month.
+
+I racked a shell into the Mossberg, gripped the ladder, and descended into the dark.
+
+The subterranean level wasn't concrete anymore. The moment my boots hit the bottom, they sank with a nauseating *squelch* into something soft and spongy.
+
+I shone my flashlight down. The floor was carpeted in a six-inch-thick carpet of calcified human bones, shredded clothing, and a gelatinous, pulsing reddish-black sludge that looked like liquefied liver. The walls were lined with large iron pipes, but the metal had been completely overgrown by a pinkish web of wax and swollen, throbbing veins the size of garden hoses.
+
+"Okay," I whispered, my heart hammering against my ribs. "Not sad old ladies. Definitely not sad old ladies."
+
+I flipped down my night-vision goggles. The world turned a grainy, glowing green.
+
+That’s when I heard the scraping sound.
+
+It was coming from the ceiling directly above me. I snapped the barrel of the shotgun upward, raising the light with it.
+
+"Jesus H. Christ on a side-car," I gasped.
+
+It wasn't a guy in a cape. It wasn't even remotely human anymore.
+
+It was a Flayed. A creature that had once been a man, but whose body had shed every single inch of skin through some grotesque, parasitic metamorphosis. It clung to the rusted overhead pipes with four elongated, jointed limbs that ended in split-bone spurs instead of fingers. Its entire body was raw, glistening muscle, exposed yellow fat deposits, and weeping lymphatic vessels. It had no lips, no cheeks, and no eyelids. Its jaw was split right down the center like a lobster claw, lined with jagged, needle-like teeth, and its milky, lidless eyes hung slightly out of their sockets by red, pulsing optic threads.
+
+It tilted its skinless head at me, and its split jaw snapped open with a *CRACK*, spraying a mist of yellow, foul-smelling digestive bile onto the front of my jacket.
+
+*SCREEEEEEECH!*
+
+The screech was so loud it rattled my fillings and sent a spike of agony straight behind my eyeballs.
+
+Before I could pull the trigger, the flayed horror dropped from the ceiling, landing squarely on top of me.
+
+We went down together into the slurry of bone fragments and rotten blood. The weight of the thing was unbelievable, it felt like being tackled by a hydraulic press. Its split-jaw snapped closed inches from my face, the bone-teeth biting into the heavy leather collar of my jacket, spraying hot, metallic-tasting foam into my eyes.
+
+"Get off me, you skinless freak!" I yelled, jamming the muzzle of the Mossberg directly under its ribs, right where its exposed diaphragm was pumping like a bellows.
+
+I pulled the trigger.
+
+The silver-magnesium slug detonated inside its chest cavity. The creature’s torso exploded outward in a volcanic geyser of shredded muscle, burning fat, and liquefied internal organs. The magnesium ignited inside its flesh, turning its thoracic cavity into a roaring white furnace. The creature shrieked, a high-pitched, whistling sound as pressurized steam and boiling blood erupted from its open ribs, spraying hot red goo all over my face and chest.
+
+It kicked violently, its bone-spur fingers scraping deep gouges into the concrete walls, before it collapsed into a smoldering, twitching heap of charred, raw meat on top of me.
+
+I kicked the burning carcass off my legs, gasping for air, wiping a mixture of burnt fat and yellow bile off my night-vision goggles.
+
+"One down," I panted, wiping my mouth with the back of my glove. "Just... a whole lot more to go."
+
+I didn't even have time to stand up fully before the walls around me started to *move*.
+
+From the shadows of the massive, vein-draped storage tunnels, more shapes emerged. But these weren't just the skinless ones. These were worse.
+
+Out from the darkness slithered a pack of Jawless Vacuum-Leeches.
+
+They had lost their human facial structures entirely. Their heads were smooth, featureless domes of pale flesh, devoid of eyes, nose, or ears. Where the lower half of the face should have been, there was an enormous, ringed muscular orifice. A gaping, pulsing vortex lined with row upon row of concentric, barbed keratin teeth.
+
+From the center of these horrific gullets, rubbery, three-foot-long muscular tubes, their altered esophagus organs, extended and retracted, dripping a milky, corrosive acid that hissed and bubbled as it hit the floor. They slithered and crawled on six jointed, vestigial ribs that had burst through their torsos like the legs of a centipede.
+
+I screamed, panic finally tearing through my tough-guy facade. "What happened to classy vampires?! Where are the velvet coats?!"
+
+I leveled the shotgun and fired again.
+
+The slug caught the lead leech right in the center of its featureless head. The head split like a ripe watermelon, spraying thick, black, clotted blood across the vein-covered pipes. But two more were already on me. One of the vacuum-leeches lunged, its muscular throat-tube lashing out. The barbed tip struck my left shoulder, hooking into my leather jacket and instantly creating a high-pressure vacuum seal.
+
+I felt a terrifying, agonizing tug as the organism’s throat organ began to pulse, trying to draw blood through three layers of leather and canvas. The suction was so immense it felt like my skin was being pulled off my shoulder-blade.
+
+"Oh SHIT man!" I roared, dropping the shotgun, pulling one of the cleavers from my belt, and bringing it down with all the strength in my right arm.
+
+The cleaver sliced cleanly through the rubbery, three-foot throat tube.
+
+A fountain of high-pressure, dark arterial blood and yellow digestive fluid sprayed outward, hitting me square in the chest. The severed piece of the throat organ stuck to my shoulder, still twining and pulsing until I ripped it off and stomped it into paste under my boot.
+
+The wounded leech-vamp shrieked and squirmed backward, clutching its spurting neck stump with its rib-legs.
+
+I didn't give it a chance. I unhitched the industrial weed-torch, squeezed the trigger, and clicked the igniter.
+
+*FWOOOOOOSH!*
+
+A ten-foot lance of roaring blue and yellow flame erupted from the nozzle. The tunnel transformed into an inferno.
+
+The heat was instantaneous and unbearable. The bio-wax on the walls sizzled, melted, and began to drip down like hot candle fat. The two remaining leeches caught fire instantly. Their pale skin didn't burn so much as it blistered and popped; the fat beneath their hides boiled, causing their bodies to swell up like overcooked hot dogs before bursting in violent pops of grease and flame. They rolled around in the bone-slurry, shrieking and thrashing.
+
+I stood there in the smoke, chest heaving, holding the roaring torch in one hand and my meat cleaver in the other, covered from head to toe in black blood, yellow bile, and chunks of skinless muscle.
+
+I took a deep breath, instantly regretted it as I choked on the smoke, and looked deeper down the tunnel.
+
+The tunnel didn't end. It sloped downward at a steep forty-five-degree angle, diving deeper beneath the city streets, heading far past the foundations of the rendering plant, down into the dark, uncharted depths where the city sewers merged with ancient, forgotten limestone caverns.
+
+And from down in that black abyss, I could hear a sound that made my blood run colder than Barnaby’s freezer.
+
+It wasn't a roar. It wasn't a screech.
+
+It was a resonant *throbbing*. Like the heartbeat of a whale, amplified a thousand times, vibrating through the solid bedrock beneath my feet. *THUMP-THUMP... THUMP-THUMP...*
+
+"Bryan," I whispered to myself, staring into the black hole. "You should turn around. You should take your twelve grand, move to Idaho, and buy a small bait shop."
+
+Instead, like the arrogant, hard-headed bastard I was, I picked up my shotgun, reloaded it with silver slugs, adjusted my propane tank, and started walking down into the hive.
+
+The deeper I went, the less the place looked like anything built by human hands.
+
+The tunnel walls were completely encased in a thick, pulsating membrane of calcified bone, red wax, and thick, rubbery arterial trunks that hummed with fluid pressure. The floor was slippery with a thick grease.
+
+I reached what I can only describe as the Incubation Shaft.
+
+It was a cavernous dome, fifty feet across and eighty feet high. Hanging from the ceiling on thick, braided ropes of calcified throat tissue were dozens, maybe hundreds, of bulbous sacs made of amber-colored skin.
+
+Inside those sacs, floating in murky, yellow digestive fluid, were human beings.
+
+Some were union workers in hi-vis vests. Some were homeless people from the nearby alleyways. Some were teenagers who had probably been reported missing weeks ago. They were all still alive, their eyes wide and glassy, staring through the semi-transparent membrane, their mouths connected to long, pulsating feeding tubes that ran down from the main cavern roof.
+
+And attached to their chest cavities, feeding like giant, grotesque leech-ticks, were infant vampires. They looked like blind, pale, fat grubs. Three feet long, with soft, translucent white skin through which you could see their black internal organs twitching. They had tiny, malformed human baby faces crammed onto the front of their grub bodies, their toothless mouths clamped tightly over human sternums, slowly dissolving bone with acidic saliva to reach the bone marrow inside.
+
+I stood there in the entrance of the cavern, my hand trembling on the grip of my shotgun, my stomach churning violently.
+
+"Jesus... sweet merciful Jesus," I breathed.
+
+I stepped forward, reaching out with my meat cleaver to slice open the nearest sac and free a guy wearing a blue mechanic's shirt.
+
+The moment the steel blade nicked the amber membrane, the sac burst with a *SPLAT*, spilling gallons of warm, acidic fluid onto the cavern floor. The mechanic fell out, crashing onto his hands and knees.
+
+"Hey! Hey, buddy, I got you!" I yelled, dropping to one knee and grabbing him by the shoulder to lift him up.
+
+"Don't..." the mechanic wheezed, his voice sounding like two dry leaves rubbing together. "Don't... touch..."
+
+When I pulled on his leather jacket, his skin didn't hold. The acidic fluid had already completely liquified his connective tissue from the inside out. His entire upper epidermal layer peeled off in my gloved hands like wet tissue paper, revealing a soft, yellow, half-dissolved slurry of fat and liquefied bone underneath.
+
+He didn't scream. He just collapsed into a puddle of his own digested remains at my feet, his mechanical name tag, *DAVE,* floating in the red puddle.
+
+I backed away, gagging, slamming my sleeve over my mouth. "Oh God... oh Christ..."
+
+*GLRRR-K-K-K.*
+
+A sound came from the high ledge above the incubation sacs.
+
+I snapped my light up. Standing on a protruding shelf of calcified bone was a creature that looked distinctly higher up the food chain than the skinless quadrupeds.
+
+It was eight feet tall, standing upright on twisted, backward-jointed legs. It had a lower jaw hinged in four plates like a mantis's mandibles, plus four extra arms made of fused, sharpened human femurs that protruded from its chest like a mantis's legs. Its skin was pale white, covered in black, writhing veins, and its yellow eyes burned with a cruel, terrible intelligence.
+
+This was Barnaby. 
+
+Before I put him in a Sears chest freezer, back when he had all his parts.
+
+*Sssskkk-aahhh!* Barnaby hissed, pointing at me with one of his femur-arms.
+
+From the dark corners of the dome, dozens of skinless quadrupeds and jawless vacuum-leeches slithered out from the tissue-draped walls. They crawled over the egg sacs, their split jaws snapping, their esophagus organs extending and spraying acid into the air.
+
+"Alright then," I growled, the horror in my gut turning into a blinding, white-hot rush of adrenaline. "If I’m dying down here, I’m taking every single one of you unholy abominations with me!"
+
+I slammed the flame-torch valve wide open and pulled the igniter.
+
+A wall of fire rushed across the incubation chamber.
+
+The amber egg sacs ruptured in violent explosions of superheated gas and steam. The grub-babies shrieking as they were incinerated in mid-air, popping like popcorn. The skinless quadrupeds leaped through the flames at me, their raw muscle sizzling and smoking as they flew.
+
+I fired the Mossberg until the barrel was glowing orange.
+
+*BOOM!* A flayed’s head blew apart in a cloud of bone and grey matter.
+
+*BOOM!* A vacuum-leech’s midsection disintegrated, sending its torso spinning into the air.
+
+I swung the meat cleaver with my left hand, hacking through limbs, splitting throat-tubes, chopping through calcified ribs. The cavern was a war zone of deafening explosions, roaring fire, blinding magnesium light, and rain, literally a torrent, of warm, liquefied gore falling from the ceiling.
+
+Barnaby dropped from his ledge like a stone, landing right on top of me.
+
+One of his mantis-like femur arms punched clean through my heavy leather jacket, piercing my left shoulder and driving straight out through my back-blade.
+
+"AAAAAHHHH! YOU MOTHERFUCKER!" I shrieked, the agony searing through my nervous system like liquid lead.
+
+Barnaby brought his pale, jawless head down, his ringed gullet opening wide, preparing to clamp onto my exposed neck and suck my carotid artery out of my chest.
+
+I didn't think. I acted on pure, animal instinct.
+
+I brought the running powered saw, a small, gas-powered rescue saw I’d rigged to my hip, and jammed the spinning diamond blade right into his face.
+
+*BZZZZZZZZZ-CRUNCH!*
+
+The saw chewed through his flesh, bone, and teeth in a spray of white sparks and purple blood. It deleted his lower jaw in less than two seconds, sending fragments of bone and his tongue flying into the dark. He shrieked a gurgling roar of agony, pulling back his arm.
+
+I brought the saw down again, chopping off his upper right arm, then his lower left arm, hacking him down to size like you'd a pine tree.
+
+He fell sideways into the mud, gurgling violently, his yellow eyes wild with shock.
+
+"Stay down, you freak!" I screamed, panting, bleeding heavily from my shoulder.
+
+I pulled out my last road flare, struck it against my boot, and threw it into the remaining pile of wax and egg sacs. The chamber erupted into a hellish inferno of red and pink fire.
+
+I thought I had won. I actually stood there, bleeding, panting, clutching my torn shoulder, and thought I had cleared the nest.
+
+Then the floor gave way.
+
+The entire bottom of the incubation cavern, the calcified bone-slurry, the wax, the burning remains of the vampires, was pulled downward into a massive, muscular vortex that opened up beneath us like the iris of a giant eye.
+
+I fell sixty feet into total, pitch-black darkness.
+
+I crashed onto a soft, undulating surface that felt like a mountain of living raw meat. My shotgun was gone. My saw was gone. All I had left was my propane weed-torch, my cleaver, and the flashlight clipped to my chest strap.
+
+I clicked on the flashlight.
+
+And that was the moment my sanity cracked like cheap glass.
+
+I was standing in the stomach of the Worm God. Or rather, its avatar. *Gorgoroth-Teth*, the Sanguine Annelid, the ancient, parasitic mother-entity that spawned every blood-drinking horror on the continent. It was an abominable worm of impossible proportions, at least forty feet in diameter and extending into the pitch-black limestone abysses as far as the eye could see. Its body was made of ringed pale-grey flesh through which I could see millions of half-digested human corpses, cattle bones, and red blood cells moving in a churning, acidic current through its intestinal tracts.
+
+It didn't have a head. Its front end was a massive, gaping circular vortex, a hundred feet wide, bristling with concentric rings of millions of needle-sharp teeth that rotated continuously like the drill bit of a tunnel-boring machine.
+
+Crowning this nightmare orifice was a ring of hundreds of weeping, eyelidless human eyes of all different colors, and fused human skulls that twitched and opened their mouths in a silent, unending scream.
+
+The Avatar didn't speak. It didn't have a mind that could construct words.
+
+Instead, it emitted a deep, hydraulic suction sound that vibrated straight through my skull:
+
+*SHRRRR-LUCK... SHRRRR-LUCK... SHRRRR-LUCK...*
+
+The sound was so powerful it blew out my right eardrum in a pop of sudden, metallic-tasting blood.
+
+I couldn't move. I was paralyzed by a wave of pure, primal dread so profound that my brain simply refused to send signals to my legs. Every instinct in my human DNA was screaming that I was looking at something that wasn't supposed to exist in the same universe as trees, sunlight, and cold beer.
+
+A massive, ringed muscular appendage, a sixty-foot tentacle lined with rasping teeth, erupted from the side of the worm's neck and lashed out.
+
+It caught me around the waist.
+
+"NO! NO! NO!" I shrieked, kicking wildly, swinging my remaining meat cleaver with all my strength.
+
+The cleaver struck the flesh, bouncing off its rubbery hide with a dull *thud*.
+
+The tentacle pulled me toward the gaping, rotating vortex of teeth. But it didn't pull me in headfirst. It pulled me in lower-body first.
+
+I was dragged into one of its lateral digestion sphincters on the side of its ringed gullet.
+
+Then came the butchery.
+
+The muscular pressure of the sphincter clamped down on my legs.
+
+*CRACK-CRACK-CRACK!*
+
+I felt my femurs snap into dozens of jagged splinters inside my thighs. The sound was distinct, loud, like dry pine logs being snapped over a knee. The pain wasn't immediate. It was too massive, too overwhelming for my nerves to process. It felt like a wave of boiling acid being injected directly into my lower spine. The digestive enzymes inside the sphincter hit my legs. My heavy steel-toed boots sizzled and melted away in seconds. My denim jeans vanished into smoke. I could feel, literally *feel,* the soft tissue of my calves, my knees, and my thighs being stripped away, the flesh liquifying and being siphoned off through tiny, rasping pores in the creature’s inner walls.
+
+I was being digested alive. I was being turned into soup.
+
+"AAAAAHHHHHHHHHH! JESUS CHRIST! GOD! AAAAAHHHH!" I screamed until my vocal cords tore and blood bubbled up over my lips.
+
+My vision was swimming in red and black spots. The pain was a blinding, roaring sun behind my eyes. I knew I had maybe ten seconds before the creature crushed my pelvis and sucked my intestines out through my legs.
+
+My hands, slick with my own blood and digestive acid, reached out wildly. They touched the propane tank strapped to my back.
+
+The tank was bruised, dented, but still pressurized. The hose to the weed-torch was still in my right hand. I didn't try to pull myself out. I couldn't. My legs were already gone.
+
+Instead, I jammed the end of the weed-torch nozzle straight into one of the creature’s pulsing, weeping eye-sockets ringed around its ingestion mouth. I rammed the steel tube six inches deep into its jelly-like optic nerve.
+
+I reached back, opened the main high-pressure valve on the propane tank all the way, and jammed my thumb down on the electric spark igniter.
+
+For one agonizing second, nothing happened.
+
+Then, the propane gas, flowing under high pressure directly into the creature’s pressurized internal air-vessels, caught the spark.
+
+*KAAAA-BOOOOOOOOOOOOM!*
+
+The Avatar of Gorgoroth-Teth detonated.
+
+The force of the explosion blew me backward out of the lateral sphincter; A blinding wave of orange fire, boiling gut-juice, liquified fat, and shredded muscle exploded outward in a three-hundred-foot mushroom cloud of gore and smoke.
+
+I flew through the air, tumbling through the darkness, before crashing heavily onto a ledge of solid rock high above the cavern floor.
+
+I lay there in the dark for what felt like three days, but was probably only ten minutes. The cavern below was a roaring sea of burning propane and sizzling, liquified worm-meat. The great avatar was thrashing blindly, beating its massive, ruptured head against the cavern walls, causing tons of rock and concrete to collapse down on top of it, burying the core of the hive under a mountain of rubble.
+
+I looked down at myself.
+
+Down below, there was nothing left but two charred, mangled, bone-exposed stumps that ended midway down my thighs. The ends were blackened and cauterized. The only reason I hadn't bled to death in thirty seconds.
+
+I didn't cry. I didn't scream anymore. I was past fear, past pain, past sanity. I pulled myself forward with my elbows. Dragging my upper body across the rock floor, inch by painful inch. As I crawled toward the exit tunnel, my hand brushed against something wet, soft, and squirming in the dark.
+
+It was Barnaby.
+
+His legs were gone. His arms were gone. His lower jaw was gone. But his yellow eyes were still open, staring at me in the dim firelight, his throat-stump twitching helplessly in the mud.
+
+I stopped. I looked at Barnaby. Barnaby looked at me.
+
+"You..." I rasped, coughing up a splutter of dark blood. "You’re coming with me, you son of a bitch. I’m not coming out of this empty-handed."
+
+I grabbed Barnaby by his sparse, slimy hair, hauled his remaining thirty pounds of jawless, limbless upper torso under my left arm, and began the long, agonizing crawl back up toward the surface.
+
+I dragged myself through two hundred yards of collapsed sewage tunnels. I dragged myself up three flights of iron emergency stairs using only my forearms and shoulders, pulling my mutilated torso and Barnaby behind me. When I finally pushed open the trapdoor into the cold November night air behind the 14th Street Rendering Plant, the rain was falling hard, washing the blood out of my eyes.
+
+I crawled into the cab of my Ford F-150, threw Barnaby onto the passenger seat, pulled two ratchet straps from behind the bench, and wrapped them as tight as I could around my thigh stumps to act as improvised tourniquets.
+
+I drove myself to an off-the-grid combat medic’s garage in Queens using a sawed-off broomstick to push down on the gas pedal.
+
+Which brings us back to my apartment, six months later.
+
+I opened another Milwaukee’s Best, taking a long, cold swig as the infomercial on the TV flickered back to a set of non-stick copper frying pans.
+
+"Yeah," I muttered aloud, staring down at my thigh-stumps. "Vampire hunting is a young man's game."
+
+From the kitchen chest freezer, Barnaby gave another muffled rattle against the plastic lining.
+
+*Ghlrrrb... rllph...*
+
+"Quiet! Or I’m not giving you your liver tomorrow!" I yelled over my shoulder.
+
+I pulled up my laptop, which was sitting on a tray table beside my recliner, and opened up an encrypted occult message board on the dark web.
+
+My fingers hovered over the keyboard.
+
+I was broke. The twelve grand from Big Tony had mostly gone toward my back-alley medical bills, a pair of custom wheelchair wheels, and buying a lifetime supply of frozen poultry livers for the freak in my freezer. I needed a new line of work. Something in the paranormal field, but something... Safer.
+
+I scrolled past the "Subterranean Blood-Feeder Contracts" section with a shudder. Never again. I didn't care if they offered me a million bucks and a helicopter.
+
+I stopped scrolling on a new board.
+
+**WEREWOLF TRACKING: PACIFIC NORTHWEST. $20,000 PER HEAD.**
+
+I rubbed my chin, thinking about it.
+
+"Werewolves..." I pondered aloud. "Now see, a werewolf is just a really big, aggressive dog... It’s just a wolf on steroids, really."
+
+I nodded to myself. "You just stay in a chopper with a fifty-caliber rifle mounted to the door, shoot it from two hundred feet up in the air, and call it a day. Simple. Clean..."
+
+I scrolled down a bit further.
+
+**GHOST HUNTING & EXORCISMS: RESIDENTIAL REAL ESTATE. $5,000 PER CLEARANCE.**
+
+I looked at my stumps, then at the laptop screen, a slow grin spreading across my face.
+
+"Ghosts!" I chuckled, popping the tab on another beer. "Now *that* is a sweet gig. What's a ghost gonna do to me? I’ll just roll into the haunted house with a vacuum cleaner and a holy water spray bottle, throw some salt around, and charge 'em five grand. Easiest money in the world."
+
+From the kitchen, Barnaby thumped his head against the freezer lid again.
+
+*Ghlrr-k... idiot...*
+
+I laughed, taking a long drink of beer and clicked on the ghost hunting application form. What could possibly go wrong with a ghost?

@@ -170,7 +170,7 @@ The speckles of blood are a disconcerting reminder of the *second* tragedy that 
 
 Aside from the spattering of blood, the rest of the landing is clean. In one direction lies the master bedroom and bathroom. In the other direction, Coyote sets his hand on the door to the study.
 
-“… the study is where I was when I encountered… *it*.” Goddard’s tinny voice pipes up from my pocket.
+“… the study is where I was when I encountered… *it*.” Goddard’s tinny voice pipes up from the phone.
 
 Coyote braces himself and glances back at us. “Ready?” he asks everyone. “If it’s a spirit, Madam Savino pacifies it. If it’s a demon, Father Corwin exorcises it. And if it’s a creepy clown…” He turns the knob. “… I’ll go for the juggler.”
 

@@ -66,7 +66,7 @@ But then I was interrupted by a phone call. I forgot to point this out earlier, 
 
 My parents were contacting me and saying that they were coming to Mason County to visit me. I remember being happy to be aware of this as I felt comfortable. It has been a while since I had anyone close to me; most of my friends have moved on with their lives, and some live far away from this area while the rest I talk to are on Discord.
 
-Rambling aside, I was happy to hear this, but I told them, “Be careful and let me know if they need anything.” I was thinking about the thing I saw twice, and I didn’t want anything to happen or even bring it up to them, as I feared making myself sound insane.
+Rambling aside, I was happy to hear this, but I told them, “Be careful and let me know if you guys need anything.” I was thinking about the thing I saw twice, and I didn’t want anything to happen or even bring it up to them, as I feared making myself sound insane.
 
 The call went pretty well; they asked me how I was doing after my recent high school graduation. I spoke about my plans of heading over to SCAD as an interest in animation.
 
@@ -141,4 +141,3 @@ I don’t know why I didn't ask, as I would have them with me rather than just p
 However, each time I cried myself to sleep, I felt this odd protection, charcoal black legs on my bed, but I chose to lie on it, as a wing lowered on top of me.
 
 “I m here”
-
