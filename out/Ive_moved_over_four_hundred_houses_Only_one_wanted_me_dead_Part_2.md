@@ -673,3 +673,5 @@ His hand disappeared beneath the hoodie.
 Steel flashed.
 
 A gun.
+
+[Part 3](https://www.reddit.com/r/nosleep/s/uhTQDNOZsX)
