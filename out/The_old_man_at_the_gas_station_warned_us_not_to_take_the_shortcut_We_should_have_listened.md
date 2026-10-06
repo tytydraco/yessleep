@@ -1,0 +1,273 @@
+Thailand is one of the most culturally diverse countries you could ever visit. The north used to be the Lanna Kingdom. The northeast, Isan, used to be Lan Xang. The deep south was once home to Muslim sultanates. Every region has its own food, its own dialect, its own idea of what's waiting out there in the dark.
+
+The one thing we all seem to share is the belief that if you try hard enough at something, you'll eventually get it.
+
+My name is Net. It means "eye" in Thai Sankrit, like the body part. Don't ask me what my parents were thinking.
+
+I'll just get into it.
+
+It starts with my best friend Mai, who I've known since high school. When we graduated, we all split up. I got into one of the top universities in the country, and so did our other friend, Ton. Mai followed his girlfriend, Mali, to a different school. They'd been together since middle school, and I swear that guy has never looked at another girl in his life.
+
+I found out about the wedding because he called me. I was at the park near my place, doing my usual evening jog, sweating through my shirt, when my phone started buzzing in my armband. I almost ignored it. I wish I could say that would have changed anything.
+
+"Net! I've got good news."
+
+"What is it?" I asked, jogging in place.
+
+"Remember Mali?"
+
+"Your girlfriend? Of course. What about her?"
+
+"I asked her to marry me. She said yes. I want you at the wedding, man."
+
+I stopped dead in the middle of the path. "No way. For real? Congrats, dude! You two have been together since middle school! Where's the wedding? I'll be there."
+
+"It's up north. Her parents live there, so that's where we're doing it."
+
+"The north? Mai, you know Ton and I are in the central region. That's a hell of a distance."
+
+His voice dropped. "Then it's okay. Don't worry about it if you can't make it."
+
+He sounded so disappointed that I felt like garbage. "Of course I'm coming, idiot. I'll go tell Ton right now. Just send me the location and the date."
+
+A minute after we hung up, he sent me a pin. It was deep in the countryside, the kind of area with more rice paddies than houses. The wedding was in seven days. Luckily the university was on its long break, so neither of us had an excuse. Mai wanted us there early to help set things up, and honestly I think he just wanted his friends around.
+
+I told Ton the next morning and he'd already packed. He had the car ready and said we could leave that afternoon. There was only one complication: his girlfriend wanted to come too.
+
+Oh, right. I forgot to introduce her. Her name is Pink. Yes, like the color. She's the kind of pretty that could be a model, the kind of pretty that makes strangers turn their heads. But she's weird. I'll explain in a second.
+
+We drove for seven hours straight. We'd left in the afternoon, so by the time the sun was long gone I was starving, and I hadn't been able to eat anything since lunch because Ton refused to stop. He wanted to beat the traffic. There was no traffic. There was nothing out there at all.
+
+"Did you know spacetime might be emergent?" Pink said from the front passenger seat, practically bouncing with excitement. "It might not be fundamental at all."
+
+"Mmm," Ton said, eyes on the road, in this soft little voice he only uses around her. "I read it could come from quantum fluctuations."
+
+"And even if the universe is totally deterministic," Pink said, pinching his cheek gently, "at least it sent you to me."
+
+"Can you two please drive faster?" I said from the back seat. "I'm starving. And you're stinking up the whole car with love."
+
+So, Pink. What's weird about her? This woman spends all day muttering about space. All day. I'm going to lose my mind. And Ton, my shy, turns-red-when-a-girl-says-hi friend, happens to be obsessed with space too, which is how they got together. These two idiots once went to Ton's dorm so she could see his cat, and they ended up sitting on the floor talking about the universe for hours. The cat was ignored. I gave them a finger. You can guess which one.
+
+"I'm already driving fast," Ton said. "I'm basically at the legal limit. And you, stop being jealous. If you want this, get a girlfriend. Hehe."
+
+"Says the guy who used to go red when a girl looked at him," I shot back.
+
+"There!" Pink said, pointing. "A gas station!"
+
+And there it was, glowing out of the dark with a little convenience store attached, the only light for miles.
+
+We pulled in and Ton filled up the tank while I jumped out and practically ran inside. I grabbed a cup of tom yum shrimp instant noodles, filled it from the hot water machine, paid, and ate it standing at the counter, because the whole store was empty. The fluorescent lights buzzed. Outside, bugs were throwing themselves against the glass.
+
+The man behind the register looked to be in his fifties, thin, with tired eyes. He watched me slurp for a while before he spoke.
+
+"Where are you headed, kid?"
+
+"A friend's wedding," I said with my mouth full. "Looks like we go this way, though." I held up my phone and showed him the GPS route.
+
+His face changed. I'm not exaggerating. The color drained out of it like someone had pulled a plug.
+
+"That's the shortcut," he said.
+
+"Even better, right? A shortcut means we get there sooner."
+
+"Listen to me, kid." He leaned across the counter. "Whatever happens, don't take that road. Stay on the highway. Yes, the shortcut is faster. But you'll never forget it, and it isn't safe. You know the saying, go slowly and you get a fine machete? Slow and steady wins. Trust me on this."
+
+I should tell you something about myself. I don't have a religion. I believe in science, in cause and effect, in things that can be measured. I wasn't about to be spooked by a ghost story from a convenience store clerk at a gas station in the middle of nowhere. But he looked so worried that I felt bad.
+
+"I'll think about it," I said, and smiled so I'd seem friendly. "Thanks for the warning, sir. I appreciate it."
+
+He didn't say anything else. He just kept looking at me. So I bought drinks, and snacks, and then more snacks. I'm talking a mountain. By the time I got to the car, the backseat was half buried (I sit in the back, remember). I never told Ton or Pink what the man said. It seemed too silly to repeat. I want you to remember that, because I've thought about it every hour since.
+
+"Where's Ton?" I asked Pink.
+
+"Bathroom," she said.
+
+I scrolled through the news on my phone while I waited.
+
+Ton came back and started the engine, and we pulled out of the lot.
+
+It didn't take long for the smooth, concrete highway to disappear. The pavement just ended, and in its place was a red dirt road, the kind you see in the countryside, rough with gravel. The headlights barely cut into the dark. There were no lamps along the road. Nothing but trees pressed up against both sides like a wall.
+
+"Is this the shortcut?" Ton asked, slowing down, looking into the dark ahead. I could see his knuckles tightening on the wheel. "It looks creepy as hell."
+
+"I think we should take the main road," he said, and started to put the car in reverse.
+
+"What? No!" I shouted, leaning between the seats. "What's your problem? Just keep going. We'll be there in an hour. It's a damn shortcut, there's nothing here. What are you afraid of?"
+
+"I don't know," Ton said quietly. "It feels like if we go in, we won't come out."
+
+"It's fine, Ton," Pink said, taking his hand and squeezing it. "It's nothing. We'll be through in no time. You can do it."
+
+"Mmm," Ton hummed, and put the car back in drive.
+
+The whole way, it felt like something was watching us from the forest. I told myself it was nothing, just my caveman brain doing what it was built to do, old survival instincts misfiring in the dark. That's what science says, so that's what I told myself. My palms were still sweating. I kept my eyes on the window.
+
+Then our headlights landed on a group of children sitting by the side of the road.
+
+They were small, maybe six or seven years old, sitting in a circle, eating something. I couldn't see what it was. Something dark and red and wet, held in both hands like fruit. The light caught their faces and they didn't squint. They just kept eating.
+
+"What are kids doing out here this late?" Pink said.
+
+One of the kids looked up. "Please, sister. Come down from the car and help us."
+
+"Be careful," I said. "It could be a scam. Bandits use kids all the time."
+
+But by the time the words were out of my mouth, Pink had already opened her door and stepped out.
+
+"Pink!" I yelled.
+
+All at once, the children stopped eating. They turned, and they laughed.
+
+"Hee. Hee. Hee."
+
+Before any of us could move, they were on her. Small hands everywhere, grabbing her arms and legs and hair, and they dragged her backward into the trees. She didn't even have time to scream properly.
+
+"No!" Ton screamed. "PINK!" He lost it. He scrambled over the center console to get out through her side of the car.
+
+I don't know what I was thinking. I just knew we couldn't get out of that car. I threw my arm around his neck and locked it, then threw myself into the driver's seat and floored it.
+
+"What the fuck are you doing?! Let me go! Let me go, you piece of shit!" Ton roared, and he started punching me in the face. Over and over. I tasted blood.
+
+"Ow, what the hell, Ton! Don't you see? They're scammers! We have to go to the police!" I tightened my arm around his neck.
+
+"They're ghosts! They're going to kill my girlfriend! I told you not to come in! I told you and you didn't listen! Let me go!"
+
+Something crossed in front of the car. I only saw it for a fraction of a second, a shape, pale and low to the ground. I yanked the wheel and lost control. The car swerved off the road and everything went black.
+
+When I woke up, I was in the same spot on the same road, where I'd swerved. But the car hadn't crashed. It was sitting in the middle of the road, perfectly fine. It was so dark I could barely see, so I turned on the dome light, and next to me, my best friend was sitting there sobbing.
+
+"I told you," he said. "I told you not to come this way. You never listen to me. My girlfriend is probably dead."
+
+"Hey, calm down," I said, though my voice was shaking. "You studied science too. Why don't you think those could have been scammers?"
+
+"Look at what just happened to us," Ton said. "We swerved off the road. We should be dead right now. Can your science explain that?"
+
+I opened my mouth to argue. I couldn't think of a single thing to say. Then something moved at the edge of my vision, and I turned my head.
+
+A monk was walking slowly toward the car.
+
+He was old, maybe seventy, in saffron robes, barefoot on the gravel. I didn't hear his footsteps. The dust on that road should have been all over his feet. It wasn't. Ton must have seen him too, because he went completely still.
+
+The monk walked to the passenger door, Ton's door. Ton scrambled into the back seat. The monk opened the door and got in.
+
+I should have told him to get out. I should have driven off. But somewhere deep in my gut, something told me this man was our way out.
+
+Ton and I pressed our palms together, as quickly as we could. Even though I don't have a religion, the wai is just how Thai people show respect.
+
+"Luang Phor," I said, "why are you out walking so late at night?"
+
+He smiled faintly. "This monk saw you were in trouble, Yom, so this monk came to help." (That's what monks call laypeople, by the way. "Yom." And they refer to themselves as "this monk.") "This monk's name is Chen."
+
+"Then please," Ton said, desperate, "help my girlfriend, Venerable. I'm begging you. I'll give you money, I'll give you anything."
+
+The monk only shook his head. "It is dangerous, Yom. If you go after that young woman and make a mistake, none of you may leave here alive. This monk advises you to go now. This monk will help her. As for her fate, it follows karma."
+
+I didn't think. "Even if it's dangerous, I'll go," I said. "I'm the stubborn idiot who dragged everyone onto this road. I'm ready to help."
+
+The monk let out a long sigh. "Then keep driving. When we arrive, this monk will get out. You follow. Do not stop. Do not take your eyes off this monk, not for an instant."
+
+"Understood," Ton and I said at the same time.
+
+The drive was the quietest thing I have ever experienced. No crickets. No frogs. Not even a breeze. The engine sounded muffled, like we were driving through a pillow. It felt like the whole forest was holding its breath.
+
+Then, up ahead, an old woman was sitting by the side of the road, waving at us. Her hand was curling in the air, scooping toward herself, like she was gathering something. She was smiling.
+
+"Yom, do not stop for her," the monk said, instantly. "When we pass, push the engine as hard as you can."
+
+I did. At first it looked like nothing was going to happen. Then in the mirror I saw her stand up, and she started to run.
+
+I put my foot to the floor, as fast as that car could go on a gravel road, which was so fast I could barely keep it from sliding off. The old woman kept pace. Then she gained. Every time I looked, she was closer. Her legs weren't moving the way legs are supposed to move.
+
+"Yom in the back," the monk said, calmly, "take this holy water. Open the window and sprinkle it on the road."
+
+That was when I noticed he was holding a small brass bowl of water in his lap. I swear his hands were empty when he got in the car. When did he get it?
+
+Ton snatched the bowl from him, rolled down the window, and flung the water out in a wide arc. The old woman, mid-leap, crashed to the ground, and when I checked the mirror again, she was gone.
+
+I slowed down once I was sure she wasn't coming. A little later, I saw a spirit house on the side of the road, next to a huge tree. And there were dancers there. Classical Thai dancers in full costume, dancing in total silence in the dark, no music at all.
+
+"Pay them no mind," the monk said. "We keep to ourselves, and they keep to themselves."
+
+I drove past. As the headlights swept across one of the dancers, I saw her hand, held in the graceful arch of the dance. Her ring finger wasn't there. It wasn't hurt, or cut. It was just gone, smooth, like it had never existed.
+
+A little farther along, the monk said, "Stop here."
+
+I parked. He got out and started walking into the forest, and Ton and I scrambled after him. He moved faster and faster, until we had to run to keep up. Branches whipped my face. I couldn't feel my legs. We ran like that for five minutes, and then he stopped, and held out an arm to hold us back.
+
+Ahead of us was a clearing, and in the clearing was a group of children. Hungry ghosts, the monk whispered. Petas, in Thai Buddhism. Ghosts that suffer from a hunger that can never be filled. They stood in a circle around Pink, who was lying on the ground with her eyes open and unfocused, like someone had unplugged her. One of the children was holding a knife. They were getting ready to cut her belly open.
+
+"One of you must run out and lure them away," the monk said quietly. "This monk and the other Yom will bring the young woman out and break the spell."
+
+"I'll do it," Ton said. "You go with the monk, I'll lure them."
+
+"No," I said. "You go with him. I'll do it. If I don't make it, I want you and Pink to live a happy life, okay? Get married. Have kids."
+
+I didn't let him argue. I ran out of the trees, straight toward the clearing, and I screamed at the top of my lungs.
+
+"Hey, you little shits! If you're so tough, come and catch me!"
+
+"Hee. Hee. Hee."
+
+And they came. All of them. They chased me.
+
+I ran. I don't know how long, but it had to be more than half an hour. My lungs were on fire. Every step felt like I was running through water. I could hear their feet behind me, hundreds of little footsteps, closing in. In the end, my legs gave out and I collapsed on the ground.
+
+That's it, I thought. I'm not going to make it.
+
+Before everything went dark, I saw a golden light. And I said, for what I thought was the last time, words I hadn't thought about since the chanting we did at school assemblies when I was a kid:
+
+"The Buddha, who awakened to the world fully and clearly, perfect in knowledge and conduct, I offer this spirit of mine as worship to the Buddha, and ask that you be my refuge forever."
+
+And everything went out.
+
+I woke up in the forest, in the morning.
+
+I wasn't dead. I lay there for a while, just breathing, not understanding. Then I got up and started walking, no destination, until I came to a gravel road. There was a car on it. And standing next to the car were Ton and Pink.
+
+Ton ran over and hugged me so hard I thought he'd crack my ribs. Pink said, "Thank you so much for saving us."
+
+"Was all of that real?" I asked. "It wasn't a dream, was it?"
+
+"I wish it was a dream," Ton said, dryly. He told me the monk had ruined the ritual, got Pink on her feet, and led her running back to the car. Then he'd vanished into the mist.
+
+"Let's go to the wedding," I said.
+
+Before I got in the car, I heard something, very quietly, from deep in the trees.
+
+"Hee."
+
+We arrived at Mai's place, and he was overjoyed to see us. We caught up on everything, how life was going, the usual. And eventually I told him what had happened.
+
+"I'm so sorry," Mai said. His face had gone gray. "I forgot to tell you. That shortcut isn't something you should take in the middle of the night."
+
+"It's fine," I said. "It's over now."
+
+"By the way," Ton said, "who was the monk who helped us?"
+
+"Was his name Chen?" Mai asked.
+
+"How did you know that?" I said.
+
+Mai was quiet for several seconds. "Let's talk inside."
+
+He led us into his bedroom and shut the door and sat down on the edge of the bed.
+
+"Luang Phor Chen. My dad told me about him. He wasn't a good man, back in the day. He was a gangster, a dangerous one. He used to ambush people on that road, rivals, enemies. As time went on, he started to feel guilty about it, so he ordained as a monk for life. But one day, while he was walking on his alms round, an old enemy who still hated him shot him dead. Right there, on that road. The merit he'd made kept him from being reborn as an animal or becoming a lost spirit, but the karma of what he did keeps him stuck there until it's all paid off. You guys were lucky he saw you when he did. Without him, no one can get out of that road."
+
+Nobody said anything. We didn't know how to process it. We'd met a ghost, and been saved by a ghost, a ghost monk.
+
+"Forget it," Pink said, shaking so hard that Ton rushed to her side. "I don't want to think about it."
+
+So we let it go.
+
+I'm typing this in Mai's bedroom now, after helping set up the speakers on the wedding stage. He's going all out. I wanted a quiet place to write it down, and this was the only one.
+
+I still believe in science. I still believe in cause and effect. I just have a lot of effects now and no cause for them. Maybe I'll try opening my mind to Buddhism, at least a little.
+
+And if your GPS ever offers you a shortcut at night, out in the countryside, in a place where the streetlights end, take the long way. Please.
+
+Because last night, I heard it again, very faintly, just outside Mai's window. I'm pretty sure I heard it.
+
+"Hee."
+
+I have to go help my friend now. See you later.
