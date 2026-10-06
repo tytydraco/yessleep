@@ -1,0 +1,95 @@
+If you ever see a Craigslist ad for a "residential psychiatric caretaker" at a private estate in upstate New York, offering double the standard salary and free room and board, keep scrolling. Don't email them. Don't answer if they call from an unlisted number.
+
+I took the job because I was desperate. I had a suspended nursing license, a mountain of debt, and nowhere to go. When Dr. Arthur Vance interviewed me in the mahogany-paneled library of what they called The Oakhaven Institute, he didn’t ask for my references. He just asked if I had a strong stomach and a tight lip.
+
+I signed a sixty-page NDA. They took my smartphone at the gates, handing me a two-way radio and a heavy ring of brass keys in exchange.
+
+Oakhaven doesn't look like a hospital. It looks like a gothic fortress built for Gilded Age royalty, surrounded by a wrought-iron fence and miles of dense, silent pine forest. There are no computers. The charts are thick, yellowing paper kept in heavy metal binders. The nurses don't wear scrubs; we wear stiff, starched white dresses and caps that make us look like ghosts drifting through the dim corridors.
+
+I figured it was just an eccentric retreat for the ultra-rich. The patients were all heirs, disgraced politicians, or unwanted socialite daughters, hidden away for a steep price.
+
+Then I met Claire.
+
+Claire was fourteen. She was in Room 3B, a tiny, windowless cell on the third floor. According to her chart, her parents admitted her for "acute hysteria and rebellious mania.” That’s a diagnosis that hasn't been in the DSM for decades. In reality, she was just a teenager who had caught her wealthy father in an affair and threatened to tell her mother.
+
+The first time I brought Claire her dinner, she was shivering in the corner of her cot, wrapped in a coarse wool blanket. Her hair was damp, plastered to her forehead, and her lips were faintly blue.
+
+"Did they send you for the straps?" she whispered, her voice trembling.
+
+"What? No," I stammered, the heavy metal tray suddenly feeling awkward in my hands. "I'm just... I just have your food."
+
+She looked at me with eyes so hollow they seemed bruised into her skull.
+
+"Don't let them put me back in the water," she begged, grabbing my wrist. Her skin was freezing. "Please. I’ll be good. I won't cry anymore. Just don't let Dr. Vance order the water."
+
+I didn't know what she meant until my third day, when I was assigned to the basement ward.
+
+They call it the Hydrotherapy Wing. I opened the heavy oak doors and was hit by the overwhelming stench of mildew, bleach, and old sweat. The room was lined with six deep, clawfoot porcelain tubs.
+
+Inside the tubs were patients.
+
+They were submerged up to their necks in ice water. Heavy canvas sheets were stretched taut over the tops of the tubs, featuring only a small cutout for their heads, strapped down with thick leather buckles so they couldn't move. Their teeth chattered in a haunting, rhythmic staccato that echoed off the tile walls.
+
+Dr. Vance stood at the center of the room, checking his pocket watch.
+
+"Ah, our new arrival," he smiled warmly, gesturing to the tubs. "Continuous bath therapy. A lost art, truly. Modern medicine relies on chemical restraints, turning patients into zombies. But cold water? Cold water shock resets the nervous system. It draws the blood away from the inflamed brain. It forces compliance through endurance."
+
+I stared in horror at the tub closest to me. The woman inside had been there so long her skin was macerated, her eyes rolled back into her head.
+
+"How long have they been in here?" I choked out.
+
+"This batch? Forty-eight hours," Vance said casually, making a neat checkmark on his clipboard. "We'll pull them out for insulin therapy tomorrow."
+
+Insulin coma therapy. Lobotomies. Electroconvulsive therapy without anesthesia or muscle relaxants. Oakhaven wasn't a quirky retreat. It was a time capsule of psychiatric torture, operating entirely off the grid, funded by families who paid millions to make their problems disappear.
+
+I knew I had to get Claire out.
+
+Last night, I found her name on the surgical registry for this morning. The procedure listed was Transorbital Leukotomy. The ice pick. Vance was going to sever the connections in her prefrontal cortex because she had cried too loudly during room inspection.
+
+At 2:00 AM, I crept out of the staff quarters. The halls were dead quiet, save for the hum of the radiators and the occasional muffled scream from the basement. I had a crowbar I’d smuggled from the groundskeeper's shed and my brass keys.
+
+I made it to the third floor. My hands were shaking so badly I dropped the keys twice before unlocking 3B.
+
+The room was empty.
+
+The bed was made. The heavy leather restraints were unbuckled and hanging off the sides.
+
+Panic seized my chest. I ran for the stairs, taking them two at a time down to the basement. I didn't care about the noise. I didn't care about the NDA. I just wanted to get that kid out of this nightmare.
+
+I burst through the double doors of the surgical theater.
+
+The lights were blindingly bright. Claire was strapped to a heavy iron chair in the center of the room. Her eyes were wide, darting around in absolute terror, but a tight leather strap across her forehead kept her head completely immobilized.
+
+Standing over her was Dr. Vance. He didn't have a surgical mask on. He was humming a soft, classical tune. In his right hand, he held a thin, sharp steel orbitoclast. In his left, a small silver mallet.
+
+He looked up when the doors slammed open. He didn't look surprised. He just looked disappointed.
+
+"I told you," Vance sighed, setting the mallet down on a stainless steel tray. "You need a strong stomach for the work we do here."
+
+Two male orderlies stepped out of the shadows behind me. I didn't even hear them move. One grabbed my arms, twisting them painfully behind my back, while the other seized my hair.
+
+"Let her go!" I screamed, thrashing wildly. "You're a monster! This is illegal!"
+
+"Legality is a construct for the poor," Vance said gently. He stepped away from Claire and walked slowly toward me. "The families who pay for Oakhaven don't want cures. They want quiet. And the old ways? They are exceedingly good at producing quiet."
+
+He reached into his pristine white coat and pulled out a heavy syringe.
+
+"You're clearly suffering from acute hysteria," he whispered, right in my ear. "Don't worry. We have a bed waiting for you."
+
+I did the only thing I could think of. I threw all my weight backward, crushing the orderly's foot beneath my heel, and bit down on the arm holding my throat. He howled, his grip loosening just enough.
+
+I bolted.
+
+I heard Vance shouting, the heavy thud of boots chasing me up the stairs, but adrenaline made me faster. I threw myself through the first-floor window of the laundry room, shattering the glass and tearing my arms open. I hit the muddy ground outside and ran into the woods. I ran until my lungs bled and the flashlights behind me faded into the dark.
+
+I've been hiding in a motel two towns over. I bought a cheap burner smartphone with the cash I had in my pocket. I tried calling the police. I told them everything—the tubs, the ice picks, the unmapped facility.
+
+The dispatcher put me on hold for ten minutes. When she came back, her voice was completely devoid of emotion.
+
+"Ma'am, there is no facility by that name at the address you provided. The owner of that estate has reported an escaped patient in acute distress. Since you're calling from a prepaid device, I cannot pinpoint your exact coordinates. Please provide your current location so we can send medical transport."
+
+I hung up.
+
+I’m typing this on the burner right now, just to get it out there. Once I hit post, I might smash it to pieces just to be safe. I’m packing my bags. I have to keep moving. But whenever I close my eyes, I don't see the dark of the motel room.
+
+I see Claire, strapped to that iron chair, waiting for the tap of the mallet. And I know she isn't crying anymore. Because Dr. Vance finally made her quiet.
