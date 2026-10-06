@@ -20,7 +20,7 @@ The concept froze me in place. If there was enough soil to reach the second floo
 
 I forced a chuckle at my own thought.
 
-I shone the phone light, now at a solid 44%, towards the stairwell. The right side of the stairs had been crumpled inwarrds. My garage was on the other side. Although the damage was nasty and would probably be a thousand or more repairing, I couldn't see through any holes, even up closely. *I can check the room later. I'd kill for a meal.*
+I shone the phone light, now at a solid 44%, towards the stairwell. The right side of the stairs had been crumpled inwards. My garage was on the other side. Although the damage was nasty and would probably be a thousand or more repairing, I couldn't see through any holes, even up closely. *I can check the room later. I'd kill for a meal.*
 
 I'm in the living room. The kitchen is connected, and only separated by a wooden table for three. The walls and ceiling are painted storm blue. Every little bit of furniture was in its place, to my relief; there was no damage down here.
 
@@ -80,7 +80,7 @@ Fury implodes within, and I slam multiple items around the house. A plastic plan
 
 *Oh my god.*
 
-The side of the garage next to the house collapsed. If it's not enough to destroy the building, I would have reduced the elevation by a floor. This was my opportunity, one that I would not miss. With renewed vigor, I returned upstairs, placed the flashlight on a rustic end table, and dragged a few towels to form a crude tarp. I slid the window up and slashed the mosquito net, tearing it out with my hand. 
+The side of the garage next to the house collapsed. If it's not enough to destroy the building, I would have reduced the elevation by a floor. This was my opportunity, one that I would not miss. With renewed vigor, I returned upstairs, placed the flashlight on a rustic end table, and dragged a few towels to form a crude tarp. I slid the window up and slashed the mosquito net, tearing it out with my hand.
 
 My short, curly black hair slowly became drenched, and my shirt stuck to my skin, but every scoop counted.
 
