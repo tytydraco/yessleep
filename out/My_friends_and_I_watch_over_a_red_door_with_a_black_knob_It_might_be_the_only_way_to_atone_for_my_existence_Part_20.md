@@ -1,7 +1,6 @@
 [{Original Post}](https://www.reddit.com/r/nosleep/s/sUamI1zfQR) \~ [{Part List}](https://www.reddit.com/u/Ink_Wielder/s/UgyH6uqoq7)
 
-Content Warning: >!Depictions of physical and verbal abuse!<  
-
+Content Warning: >!Depictions of physical and verbal abuse!<
 
 When I was a kid, we stole our cable from the neighbor next door.
 
@@ -288,3 +287,5 @@ The problem was, the door didn’t do what it always did. What came calling down
 My friend faltered in her stance, her gun lowering ever so slightly as a breath iced over in her throat. The rest of us did the same. Of the dozens of beasts we’d fought, the door had never once sent us a creature that could talk, let alone one that was related to anything from this realm.
 
 What came creeping into view at that moment was not a monster. It was a human; one that was an old friend. The pale, shambling from of Casey stepped into the fingertips of Lacey’s flashlight, throat still a slit, bloodied mess, and eyes glazed and glinting.
+
+[{Next Part}](https://www.reddit.com/r/nosleep/s/JMHTt4osMp)

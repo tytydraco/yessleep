@@ -196,4 +196,4 @@ I’m terrified. I don’t know what to do next.
 
 If anybody has any ideas, I’m willing to listen.
 
- 
+[Part 3](https://www.reddit.com/r/nosleep/comments/1wznjjr/has_anyone_heard_about_alvermont_global_solutions/)

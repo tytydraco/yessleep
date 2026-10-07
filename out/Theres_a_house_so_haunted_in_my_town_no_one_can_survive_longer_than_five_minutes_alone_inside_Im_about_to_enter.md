@@ -338,8 +338,6 @@ It begins scanning radio frequencies, catching mostly static, lots of bits of no
 
 At five minutes, there’s a *clink*—the sound of metal straining—and my heart slams my ribcage as the murphy bed falls open with a deafening *CRASH*, the mummified body staring at me, sockets gaping and teeth exposed by shrunken lips. My pulse shoots to the stratosphere as the spirit box loudly crackles, and a girl’s voice says: “My baby, my baby is the devi—”
 
-And then my eyes roll up in my head as the world goes blank...
+And then my eyes roll up in my head as the world goes [blank...](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
 
-*(Note: Apologies, my account is too long for a single post, so I will share the horrifying conclusion of the events at the Hopkins House in a followup. It is... hard to write. I keep wondering if I could have done something differently... forgive me. I will update* [*soon)…*](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
-
-| [Part 1](https://www.reddit.com/r/nosleep/comments/1wxq1wk/theres_a_house_so_haunted_in_my_town_no_one_can/) |
+| [Part 1](https://www.reddit.com/r/nosleep/comments/1wxq1wk/theres_a_house_so_haunted_in_my_town_no_one_can/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1wzleo8/theres_a_house_so_haunted_in_my_town_no_one_can/) |
