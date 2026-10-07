@@ -1,0 +1,111 @@
+[Part One](https://www.reddit.com/r/nosleep/s/E3BitMxeX1) | [Part Two](https://www.reddit.com/r/nosleep/s/axoDhVI4kc) | [Part Three](https://www.reddit.com/r/nosleep/s/iyowbt2J2e)
+
+I escaped.
+
+Hello, everyone. I know it's been a while. Six months, to be exact. I've been hiding like a caveman ever since, away from every device and almost every human being.
+
+My paranoia is increasing by the minute. In the previous parts, I said that they wouldn't let me quit, and that they'd find my posts.
+
+An unmarked black SUV has been parked a street down for the past two days. The windows are blacked out, so I can't be sure, but I know for a fact that they're looking at my door.
+
+That's not the part that keeps me up at night, though.
+
+My escape was simple. Suspiciously easy. I kept crawling through the vent, pausing when I felt like whatever was chasing me had almost reached me, and somehow ended up in a vent that was level with the ground outside. Luckily, the fan had stopped spinning, so I forced my way through by some miracle. That part is still foggy.
+
+I never once looked back. I crawled outside like some skilled intruder and started running in a random direction. I was determined to either die in the snow or find civilization. Either option was much better than whatever was waiting for me back in Corvus Mountain.
+
+I still remember the numbness in my fingers, how the wind made my face ache, and how loud the silence was. I will be honest with you: I'm not sure how I made it. I don't remember much.
+
+Which brings me to the reason I'm making this post. First of all, they've already found me, so it doesn't really matter anymore. Secondly, and this is the actual reason, I'm writing this to warn you. I think it let me leave. I think, and I know how it sounds, it helped me survive the cold.
+
+I think it escaped with me.
+
+The rules followed me too. I hear knocking on my window almost every night. It's driving me crazy. I've never once looked at it, but the rhythmic, perfectly spaced taps are making my skin crawl.
+
+This shouldn't be happening. But since it is, I have a theory. The rules could be tied to the Crowmen, not the base itself. That would validate the theory that it escaped with me, though, which I'm not a big fan of.
+
+It's been difficult to explain the situations I've been in since I escaped. It might be because I've been trying to cling to the hope that I'm safe, and that nothing abnormal is happening.
+
+The turning point was four nights ago, a few minutes after midnight. I don't answer doorbells, and I don't step outside. So I certainly wasn't going to get out of bed.
+
+"Delivery!"
+
+The voice came in muffled through the wall. I haven't seen or talked to anyone other than my sister for half a year, so curiosity got the best of me. I slowly walked to the window and looked at my front door.
+
+It was dark, so it was difficult to identify the person, but they looked human enough. They wore a blue uniform, a blue cap, and a brown bag like the ones old postmen used to have.
+
+Emphasis on the "used to," because no house in my neighborhood has a mailbox. Nobody delivers letters, other than the neighbor's kid who throws newspapers at our door from time to time.
+
+It was the first time I'd gone near a window at night in months, and I regretted it instantly.
+
+"Delivery!" they repeated, and knocked on the door this time. Not the doorbell.
+
+I slowly walked toward my bed, careful not to make a sound. It wasn't impossible that they could hear me through the wall. I closed my eyes and waited for them to leave me alone.
+
+They didn't.
+
+"Delivery!" they repeated, and knocked once more. It was louder this time. Harder.
+
+It sounded like they were getting impatient. Like they knew I was ignoring them on purpose, which made my heart jump into my throat.
+
+"Delivery! Open the door!"
+
+The knocking turned to banging. Strong enough to break through the door. They didn't sound impatient anymore. They sounded angry. Furious.
+
+"Delivery! Delivery! - *CLICK* \- Delivery!"
+
+There it was. That godforsaken clicking sound, coming from the beak. It had escaped with me. It had been knocking on my window for six months straight, and when it realized it wasn't working, it used another approach. Which meant it was learning. It was adapting and evolving.
+
+"Please! Open the door! Help me!"
+
+Its voice sounded like a dozen stolen voices stitched together, rasping and warping as if something inhuman were wearing a person's throat.
+
+That wasn't even the most unsettling part. The banging was precise. Each one exactly a second apart from the last, with the same power.
+
+It kept harassing me for about ten minutes, until a neighbor yelled at it to be quiet. It stopped the moment he yelled, and simply disappeared. Or, I assume it did, because there was no way I was checking.
+
+I mentioned that I haven't seen anyone other than my sister. It wasn't really by choice, but I'm glad it happened anyway.
+
+She was watering the flowerpots at my house when I somehow made it back. She didn't ask what had happened to me, or why I was in the condition I was in.
+
+She's been taking care of me ever since. She has her own life, so I don't want to bother her much. She goes to the convenience store for me, and updates me on her family situation. Our chats are what have kept me sane.
+
+It pains me that I realized it. I'd hoped I could pretend for just a bit longer.
+
+Two days ago, we were sitting on my couch, drinking coffee. She was particularly happy that day, because her husband got a promotion at work.
+
+"Well, he'll surely have more responsibilities now," I pointed out.
+
+"Definitely, but he'll pull through. Just like you did," she replied, hitting my shoulder playfully.
+
+"I doubt he'll have it worse than me," I joked back.
+
+She laughed and sipped her coffee.
+
+"Please, nothing is worse than what you went through on that mountain," she reassured me.
+
+The rest of the evening was the same as any other. The moment she left, I basically crawled to the bathroom and threw up everything I'd consumed in the past two days.
+
+I never told my sister about the mountain. I told her I was a Marine.
+
+How long has it been? Have I been talking to one of them since the very beginning? That's not possible, since the postman was clearly it. Did she run into it? Or worse, is there more than one?
+
+I hope it's just a mimic, and that my dear sister is alive and well. I know that everything I've said in the previous posts contradicts this, but I'm certain. My sister is fine. She's alive and well.
+
+It came back the next day. Although I was scared shitless, I couldn't let it know that I'd caught on. So I acted as if everything was fine. It took a lot of strength I didn't have not to jump on it and strangle it with my bare hands.
+
+When it left, I went to the window. The same window I used to look at the postman from.
+
+My sister was staring at my door, a mere breath away from it, unmoving. She wasn't even breathing.
+
+The SUV was still parked in the same spot. I wonder if they watched her too.
+
+I have to do something about this. I can't live like this.
+
+This is probably my last post. Thank you for the advice in my previous posts, and thank you for believing me. I'm taking matters into my own hands.
+
+Rule five was very clear about what to do if they persist. 
+
+She's coming over tomorrow at noon.
+
+I walked into this, and I'm going to end [it.](https://www.reddit.com/u/Fasaiokratwr/s/11emH81Wiz)

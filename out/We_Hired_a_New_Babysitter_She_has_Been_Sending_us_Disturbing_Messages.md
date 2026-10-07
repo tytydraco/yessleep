@@ -1,0 +1,259 @@
+Any mother knows the horrible feeling of spending that first night away from her child. What should be a break from the incessant crying and the never-ending mess is actually a slow and agonizing procedure of ripping away every ounce of love that you have ever poured into them. For five long and perfect years I have raised my daughter. But tonight, for the first time in her life, Abi was going to be under the guidance and protection of a complete stranger.
+
+I looked nervously at Harry as we turned onto the highway, the road a sea of brake lights obscured by biblical levels of rain.
+
+“Are you sure about this?”
+
+I knew what he would say before he even answered. He was far more comfortable with the arrangement than I was.
+
+“What other choice do we have? We can’t just leave her alone.” His eyes didn’t bother leaving the road to comfort me.
+
+I only had a short moment to speak with the babysitter, before Harry was ushering me into the car. By the time that we were on the road I was already kicking myself for failing to research local sitters in more detail. Tiffany, or “Spiffy Tiffy” as she referred to herself on her Facebook post seemed adequate enough, but there was so much that I didn’t know about her.
+
+Where did she go to school?
+
+What did she wish to do with her career?
+
+What sports did she play?
+
+Where did she volunteer?
+
+When it came to my selection for this evening, everything mattered.
+
+As if she knew that I was thinking about her, I received my first text from Tiffany. I nearly recoiled when I noticed the length of the message.
+
+*Just finished cooking Abi dinner!* 😋 *She is the SWEETEST little pumpkin!* 🎃 *She wanted to help so I let her play with a bowl and spatula as I made the spaghetti. I hope that’s okay. If it’s not, I’m sorry, just let me know and it won’t happen again. I think we might watch a movie next, but Abi mentioned that she loved to play Princesses and Dragons with you.* ✨ *It sounds like a lovely game, do you think that it is alright if we play? Also, I wanted to double check on her bedtime. I don’t remember you mentioning a time when we spoke. Does she follow any special routine? I remember when I was a kid I had a jammy time song that I sang when I brushed my teeth.* 😴 *Hope that your travels are going well!*
+
+I stared at the longwinded message unsure of what to think. We had been driving away from the house for only about thirty minutes and Tiffany already had half a dozen questions. I was beginning to worry that I had made a poor choice.
+
+I typed out my response and pressed send.
+
+*Princesses and Dragons is fine. 9:30 Bedtime.*
+
+“I’m worried about Tiffany.” I said to Harry.
+
+“Who?”
+
+“The babysitter.” I responded ignoring his impossible ignorance. “I don’t think she’s qualified.”
+
+“You worry too much. Abi is going to be fine.” Harry clicked on the radio and turned the volume up, signaling the end of our conversation.
+
+It reminded me of the last time that we traveled together. Five years ago, before we had Abi he had gotten the same way. Everyone deals with stress in their own way, I suppose.
+
+It wasn’t long before I received my next text from Tiffany.
+
+*Mrs. Murphy!!! You didn’t tell me that it was Abi’s birthday tomorrow!* 🎂 *I feel so unprepared! Do you want me to take her out for ice cream or do anything special? I don’t mind driving her to Scoop City, it can even be my treat. On my birthday I would always get a cookie dough waffle cone with gummy bears, AND my foster family usually let me stay up past my bedtime to watch the late night cartoons.*
+
+A second text came a moment later.
+
+*Not that I am suggesting that Abi do any of that! Sorry I didn’t mean to overstep.* 🙈 *This is so embarrassing. Birthdays just make me SO excited. 🎉*
+
+My heart felt unnatural in my chest as I tapped out my response. I was not only leaving my daughter with a complete stranger, but I was doing it on her birthday as well. I tried to ignore the reality, but Tiffany pointing it out was like a punch to the gut.
+
+*No ice cream. Stay in the house. 9:30 bedtime.*
+
+“Something feels wrong.” Harry ignored me as he drummed his fingers on the steering wheel to the beat of whatever classic rock song was playing at the time.
+
+I glanced at the radio and noted that the time was 8:24. Only one more hour of this before Abi was safely in bed, and I wouldn’t have to think about *Spiffy Tiffy* ever again. I knew I wouldn’t be able to sleep, but I put my head back and closed my eyes regardless as I thought about the daughter that I was leaving behind. The ding of my phone pierced my concentration and I shot up to check my messages.
+
+*I know you said no ice cream, but we had to celebrate somehow.* 🤭
+
+A photo came in a few seconds later. Abi was smiling widely as she hoisted fistfuls of chocolate candy in both hands. Tiffany held up the phone, she posed back to back with Abi as she stared directly into the camera. She had a lollipop in her mouth and a smug expression. Her eyes seemed as if they were staring straight at me. 
+
+“No! How is it even possible that they found chocolate? Harry, did you buy Halloween candy?”
+
+His guilty expression was all the confirmation I needed.
+
+“Why? We aren’t even going to be home for Halloween!”
+
+“You know I have a sweet tooth!” His voice rose defensively.
+
+“Now look at what happened!” I shoved the phone into his face, so close that he couldn’t ignore it. He took a quick glance before he directed his eyes back to the road, swerving to avoid rear ending an eighteen wheeler. 
+
+“So what? Abi looks like she is having fun. It’s only a little bit of candy.”
+
+“I told the babysitter no snacks. She broke a rule. Is this the kind of person you want our daughter to be like?”
+
+Harry let out a puffy breath. He knew better than to fight back. Our marriage, which had already felt like it had lasted an eternity, had its ups and downs. The stress of our upcoming travel combined with the reality of leaving Abi behind left us both on edge.
+
+I was in the midst of typing out an authoritative reply when I saw that Tiffany was typing again.
+
+*Is Abi allergic to anything? Like ANYTHING at all? You never specified, but you can also never be too careful… The last thing we need tonight is a hospital visit! But don’t worry, I am capable of using an Epipen if it comes to it. You can trust that Abi is in good hands! We’re practically sisters already.* ❤️
+
+Another text came a moment later.
+
+*It is kind of funny that Abi looks more like me than she does you or Harry…*
+
+*Maybe we actually are long lost sisters!*
+
+“Harry, we can't do this.”
+
+“It’s too late. We can’t turn back now.”
+
+I typed out my response hoping to remind the babysitter who was in charge.
+
+*No more dessert. Do not break any more rules. This is your last warning. Abi has no allergies. And please, for the love of God, stop with the emojis.*
+
+Tiffany’s typing bubbles appeared and then disappeared several times. After waiting for several agonizing minutes, her response came.
+
+*Ok.*
+
+I hoped that that would be the last of it, but soon I began to realize that Tiffany’s silence was more unsettling than her constant chatter. Drawn out minutes passed as I listened to music that I didn’t enjoy and watched heavy drops of rain bounce off of the windshield. The storm was picking up and with it traffic on the road was slowing down.
+
+It felt like my entire life stalled as I stared at the clock waiting for each minute to tick over to the next. As soon as 9:30 came, I reached for my phone.
+
+*Is Abi in bed?*
+
+I needed to know that my worries were over and that my daughter was safe. When Tiffany didn’t respond within a minute, I sent another message, repeating the question with more exclamation. I felt less like a passenger and more like a prisoner as hopelessness began to consume me. If anything went wrong we would be stuck here on the highway miles away from Abi. 
+
+*Sorry!! Had to clean a mess in Abi’s room. Very yucky.*
+
+*What mess?*
+
+*Don’t worry. The house will be squeaky clean by the time you come back. It is such a beautiful place. It does seem like you may be out of bleach. I don’t think there are too many neighbors close by either. It's very quiet around here at night. Shame. I was hoping I might be able to borrow some cleaning supplies.*
+
+I kicked myself again for failing to install home surveillance cameras. When I pitched the idea to Harry he simply shook his head and said that he would rather not have them.
+
+Spineless oaf.
+
+*What is happening? Where is Abi?*
+
+Once again, Tiffany took her sweet time with the reply.
+
+No text, only a picture.
+
+It was a picture of Abi’s room taken from the perspective of someone standing in the doorframe. The space was ominously lit with slivers of light from the hallway sneaking past Tiffany’s shadow. In the darkness, I could make out the form of my daughter tucked under her sheets on her twin bed. It was difficult to tell with the moody lighting, but I could almost make out a dark stain on the carpet in the corner of the room.
+
+ Tiffany followed the image with a short text.
+
+*Goodnight, Abi.* 
+
+I stared at the image for a staggering amount of time. It was undeniably creepy in a way that had to be intentional.
+
+*Tiffany, close the door and let Abi sleep.*
+
+*You’re right, you’re right. She looks so peaceful, if I stand here any longer, I just might have to keep her for myself!* 
+
+My throat tightened and the grip on my phone grew weak. She was toying with me. She had to be. 
+
+*Obviously JK!*
+
+My fingers seemed to be frozen over my phone. My mind struggled to come up with any reasonable response. I tried to reassure myself that everything was fine. Abi was safely in bed. Tiffany was a peculiar teenager, but she wasn’t some deranged murderer. Right? If we could just hold out a few more hours it would all be over and we wouldn’t need to deal with her ever again. I looked at the clock hesitantly and was relieved to note that the time was already 10:45. Tiffany would need to go to sleep sometime soon. 
+
+I knew that I was overreacting and that I was being a complete worrywart. I debated turning off my phone, but what kind of mother would I be if I ignored my daughter when she actually needed me. Instead, I responded with a simple message that I hoped would be my last.
+
+*Thank you. Goodnight, Tiff.*
+
+After several minutes passed it became clear that Spiffy Tiffy had other plans.
+
+*I found something interesting in Abi’s room. That girl really does have quite the imagination!*
+
+My heart dropped. What the hell was she still doing in Abi’s room? Another text from Tiff came in immediately after it.
+
+*Does Abi have any imaginary friends? She drew a strange picture of a girl labeled “Jaine”. I thought that it might be a classmate, but Jaine here has some very… odd characteristics. The drawing is actually kinda spooky.*
+
+Harry noticed that I had begun furiously typing.
+
+“What’s the matter?” His question fell on deaf ears.
+
+*LEAVE Abi’s room this instant. DO NOT snoop around any more. Go to bed, NOW.*
+
+Typing bubbles came and went several times.
+
+*I would Mrs. Murphy, but I haven’t been entirely honest with you.*
+
+Outside, thunder cracked and the sky lit up for a moment.
+
+We passed a sign on the highway that Harry acknowledged.
+
+“We’re close.”
+
+*Abi is a great kid, I really think she is. But she bit me. It’s pretty bad. She has some seriously sharp baby teeth. The cut is pretty deep. It might be best if I head home for the night and get some rest. Abi is already out cold. I promise to be back before she wakes.*
+
+I stared at the message for a long time, trying to decide what I could do to best salvage the situation.
+
+“Harry, did you resupply the closet?”
+
+Harry’s lips drew into a flat line. He nodded.
+
+*There are bandages in the closet on the second floor next to the bathroom. Wrap up before any more blood gets on the carpet.*
+
+Tiffany responded with an avalanche of messages.
+
+*Thank you! I will definitely make sure to do that.*
+
+*I think I found them.* 
+
+*Is there a trick to the closet door handle? The door closed behind me and now I might be stuck, haha!*
+
+*Really, this thing is quite jammed. I actually think it might be locked from the outside somehow. I cannot believe I did this! I am such a ditz* 🤦‍♀️
+
+*Oh sorry! Emoji was sent out of habit.*
+
+I didn’t respond.
+
+*Mrs. Murphy? Are you getting my messages?*
+
+*I can probably call out for Abi, but I don’t want to wake her.*
+
+*Actually, I think she might already be up, I hear footsteps.*
+
+*I called out, but she didn’t respond. Does Abi sleepwalk? Really, if there is any way out of this closet please let me know! Sleepwalking can be really dangerous for unsupervised children.*
+
+Harry glanced over at the unending stream of dings that were interrupting his rock music and raised an eyebrow.
+
+I shook my head and pointed to my phone with an exasperated expression. The clock on my lock screen read 11:57.
+
+“Don’t look at me, you’re the one that picked her.” He said.
+
+*I hear Abi right outside! But her footsteps sound weirdly heavy. Still not sure if she is awake though.*
+
+*Abi won’t reply. She’s scratching at the door rabidly*
+
+*Oh my god. I think she is trying to claw her way through*
+
+My phone rang and I declined the call without hesitation. A moment later, it rang again and I let it go to voicemail. After about thirty seconds, an audio message populated my inbox. Tiffany was frantic, speaking at a pace that would make an auctioneer jealous.
+
+“Mrs. Murphy, I’m really sorry to bother you on your vacation, but something isn’t right with Abi. I got stuck in a closet and, and, and, she, or it, or- oh my God, I am going to die! She’s going to kill me.”
+
+In the audio recording, I could hear the hunger in Abi’s groans as she burst her way through the door. Tiffany’s voice was slurred with sobs and desperation.
+
+“She has claws. And her arms are so long. And her teeth! What is wrong with Abi? I don’t want to die. I don’t want to die! Abi please stop it! Stop right now!”
+
+The voicemail ended with an abrupt thud.
+
+“About time.”
+
+“And well timed, too.” Harry said as we turned into the hospital parking lot.
+
+He got out of the car and stood, unshielded from the torrential rain.
+
+“You coming?” 
+
+I remained in my seat, my lips curved into a frown.
+
+Harry walked around and opened the passenger side door. 
+
+“I feel like I let Abi down. I spent five years raising her, and then when it really matters, I give her Spiffy Tiffy. She deserves a girl like that basketball player that we got for Jaine. Smart, successful, affluent.”
+
+“All of our daughters have turned out wonderful in their own ways. Abi will be no exception. Tiffany wasn’t the brightest, but she had character.”
+
+I forced a weak smile as I took his hand and he led me towards the hospital entrance.
+
+As we stepped inside, my phone dinged for the final time that night. It was a message from Tiffany’s number.
+
+*Hi Mommy! Thank you for the WONDERFUL snack! Tiffany was the best birthday present ever! She was soooo fun. I can’t wait to be just like her.* 👸
+
+I smiled at my phone before tucking it into my back pocket.
+
+“I suppose you’re right. I have to admit that I was actually a *little* fond of her.”
+
+I followed Harry as he led me towards the familiar hallway that contained the nursery.
+
+“I was thinking,” He paused as we passed a nurse who walked briskly past us. “What do you think about having a boy this time?”
+
+I looked through the glass at the two rows of newborn babies. Fresh sacks of life brought to this earth by mothers that would never love them the way that I would. A little baby boy with a tuft of hair wiggled in the blanket that he was wrapped in, his eyes closed. He looked peaceful. He looked like he could be ours.
+
+I smiled at Harry and kissed him on the cheek.
+
+“I think that Abi would love to have a baby brother.”

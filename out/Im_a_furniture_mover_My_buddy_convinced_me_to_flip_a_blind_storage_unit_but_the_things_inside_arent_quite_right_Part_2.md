@@ -2,6 +2,8 @@
 
 [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1wx3gjg/im_a_furniture_mover_my_buddy_convinced_me_to/)
 
+[\[Part 4\]](https://www.reddit.com/r/nosleep/comments/1wzw55w/im_a_furniture_mover_my_buddy_convinced_me_to/)
+
 First off, thanks to everyone who replied to my last post. I honestly wasn't expecting that many people to take it seriously, and I read through pretty much everything: every theory, every warning to throw the stuff out, call somebody, all of it. A few of you asked me to update if anything else happened, and at the time I wasn't sure anything would be worth updating. Henry and I had agreed we were done poking at the stranger items, and I was still trying to convince myself most of what we'd seen could be explained.
 
 That was Thursday night. It's now Saturday night, and I can't do that anymore. Friday, we tried to sell the stuff. Saturday, something happened to my son that I still can’t explain. I'm updating because this is the point where the weirdness stopped feeling harmless.
