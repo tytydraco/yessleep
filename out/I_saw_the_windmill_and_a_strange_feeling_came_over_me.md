@@ -1,0 +1,98 @@
+Many times I have tried to write down this story, but my hand shook as I recollected the events, and knowing that “he” was still out there made it even more unsettling.
+
+ 
+
+Eventually I learned to control my emotions better with the help of experts and today I’m able to write down what happened to me and the other hunters.
+
+ 
+
+It was winter of 1922 in Louisiana, next to New Orleans. I was the sherif of a small town named Borteux. Since the community was tiny, I only had one other policeman working with me, Tim.
+
+ 
+
+It was a quiet community with strong christian presence. People were well knit together and supported each other. The only horror we have experienced in my first five years as the sherif was little girl who drowned. She was one of three children in that family. The whole town mourned for their loss, our priest, father Francois, gave a beautiful speech and prayer.
+
+ 
+
+We were not ready for the terror that our community experienced next. That winter a whole family went missing, father, mother and their two boys. There was no trace of them. Community also noticed that the windmill keeper and farmer, Luc, who lived across the swamp forest, haven’t showed up in a few months. I took Tim with me to investigate, we drove on the road which led around the swamp, but half way through, the road was blocked by a large tree. Upon examination we noticed that the giant tree was cut down rather than falling from natural causes.
+
+ 
+
+Tim and I decided to walk the rest of the way, despite it being five more miles away. Through the forest the shortcut was fast, but also dangerous. Only Luc knew the safe shortcut, I hoped that after we found him he would show us the faster way back.
+
+ 
+
+Thankfully we set out early morning and had plenty of time till night fall. Sometimes alligators came upon this road, so we had our revolvers ready just in case.
+
+ 
+
+The walk was long, dull and tiring, Tim wasn’t exactly the most exciting company either. Eventually we got to the farm. Strangely we saw no animals around, and the farm dog that usually ran to greet strangers was nowhere to be seen. We knocked on the house door, no answer followed, we looked inside through the window and saw a large spiderweb.
+
+ 
+
+We proceeded to go up to the windmill, before we could walk up the steps to knock, the door creaked open, half a face appeared, it was Luc, but usually kind and well mannered man looked angry and rudely asked us what the hell were we doing there. I was a bit startled, but figured perhaps bad times have befallen our town’s friend and asked him if he was fine. He just started at me without an answer. I proceeded to ask him about the missing family and if he could show us the shortcut through the swamp.
+
+ 
+
+“Stay on solid ground, fool!” he hissed at us and slammed the door shut.
+
+ 
+
+We were taken aback by this, but there wasn’t much else we could do, there was no warrant for us to search through his home, although he obviously sounded suspicious. I told Tim that we had to try to go through the shortcut to avoid night fall and it was starting to drizzle which meant it could get darker earlier due to the storm that was gathering.
+
+ 
+
+The swamp stench was never my favorite. We had to move slow to make sure we stayed on hard ground and to keep our eyes open for alligators and snakes. Tim wasn’t sure this was going to be faster, but the fact was that this part of the swamp was only a mile long shortcut and we’d come out right next to the town.
+
+ 
+
+We were surrounded by green moss, plants, trees. Time to time there was a sound of woodpeckers making holes, we also heard movements in the waters, perhaps animals getting away from us. Around the half way of the path it began to rain harder and it got darker, we heard an abnormally loud croaking of a frog and heard movements in the water behind a massive thick tree which looked like it was taken from a demon’s garden. The sound intensified and from behind the tree emerged a giant frog. When I write giant, I mean the size that no human has ever seen, bigger than a wolf. It jumped towards us and covered a tremendous distance. This frog’s eyes were large and black, it came close to Tim as he took out his revolver. We should have acted faster for this frog opened its mouth and revealed meat grinding teeth inside and from within depth of it’s throat shot out thin tentacles which grabbed Tim’s face, the frog leaped up and bit of his head clean. Horrified and shocked I fired all if my revolver rounds, bleeding the frog leaned against a tree, but was alive and began making a loud screeching noise. I could hear hundreds of noises around the swamp.
+
+ 
+
+I ran, despite the dangers of quick mud, I ran like a madman, my heart was pounding and my body seemed not my own as my vision was slightly blurred. I made out of the swamp and ran into the town.
+
+ 
+
+The following day I gathered all of the hunters, six of them. We took backpacks of food and water with us and went on the road around the swamp. We were going to make Luc talk about what was going on and what those creatures were. By late part of the day we arrived at the farm.
+
+ 
+
+It was the same scene, but this time there was no answer at the windmill either. We forced the door open and to my horror, we found things belonging to that missing family inside. On the walls were sinister looking drawings. One of them depicted a creature with tentacle arms and a large head. I could feel the uneasiness of the group in the air, and despite being nervous myself I had to project strength and confidence.
+
+ 
+
+Night was coming and we broke camp in the middle of the farm, making two fires. At first we ate and drank without any trouble, although it was obvious that everyone had something worrisome on their mind. The sounds that came next made everyone get up and grab their rifles. They came from the swamp and it was a cross between roar and a croak, I though it was the same creature frog that I saw, but as we came closer and shone our lamps and flashlights we saw something absurd and horrific, it was a two headed alligator with tentacles coming from its back. It quickly ran towards us. Everyone began firing at the two heads, the monster managed to grab one of the hunters and tear of his leg, but then the beast lay still with blood coming from its heads and all four eyes have been penetrated by bullets. The hunter who lost his leg screamed and the lost consciousness. As I moved to help him I looked around and noticed that there were only four of us standing, then I saw the windmill door quickly shut. I ordered the two of the hunters who were barely standing and clearly taken by horror to help the man with his leg. I asked one of them to follow me. Despite being terrified myself I led him. I raised my revolver and the hunter had his rifle up and ready. Before I could pull on the handle, the door opened violently and I barely dodged the shovel which was swing at my head. Luc emerged from the entrance. His face was stretched and pale, his eyes deep and black, in one arm he had his shovel and the other arms wasn’t there! It was a tentacle!
+
+ 
+
+I rolled away as he tried to strike me again, the hunter wasn’t firing, he was frozen with fear, Luc’s tentacle wrapped around hunter’s neck and snapped it. I turned and called to others, but to my absolute horror the other hunters were being devoured by dozens of deformed swamp creatures who have emerged and were illuminated by our fires and few flashlights which lay on the ground.
+
+ 
+
+Luc moved towards me and stretched his tentacle, I fired into it and he quickly withdrew. I proceeded to run towards the road. I could hear dozens of horrific noises behind me, following me. I dropped my weapons, coat, and even my shirt, so I could run longer.
+
+ 
+
+The run felt endless, but the adrenaline from utter horror propelled my body to run all the way into town, even when the noises were gone, I still somehow felt that the creatures were right behind me.
+
+ 
+
+I jumped into my car and drove straight into the big city. Authorities there had initial reaction to me as to a madman, but one high official was my friend and he sent men to investigate. I was taken to a hospital.
+
+ 
+
+Later I was told that only few man came back alive and that military became involved. They bombed and burned the swamp and destroyed the farm, but there was no presence of Luc found anywhere.
+
+ 
+
+ 
+
+Many years have passed. I went through much therapy and medication to finally write this down.
+
+ 
+
+ 
+
+I hear someone knocking, I will finish once I see who it is.
+

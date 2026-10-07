@@ -402,12 +402,9 @@ I read it until the screen dimmed.
 
 I didn't say sorry to him on Saturday. I said it to an empty garage, with a radio the only thing listening. When I turned, I found myself facing the painting. It was now inexplicably hanging from the wall, even though I hadn’t noticed it move since I entered the garage. The pale smear in the crook of its arm had been painted back in. It was a small head with dark hair, with its face turned to the cloth. Its eyes were closed, and it looked almost at peace.
 
-Nobody from CATALOGUE has contacted me since then. I keep telling myself they’ll come. They wrote, *"Do not attempt to enter the wardrobe,"* which means they probably know what lives in it. Someone in a grey car is probably on their way. I'd let them take everything. I'd even carry the wardrobe out to the truck myself. 
+Nobody from CATALOGUE has contacted me since then. I keep telling myself they’ll come. They wrote, *"Do not attempt to enter the wardrobe,"* which means they probably know what lives in it. Someone in a grey car from CATALOGUE  is probably on their way. I'd let them take everything. I'd even carry the wardrobe out to the truck myself. 
 
 I keep hoping it'll be today.
 
-It has to be today, because I don't think I can take another night of this. I hear Toby all the time now. Not just from the garage. From the hallway, the vent, and even the pipes behind the kitchen wall. I answer every time. Because what if it's him, still trapped somewhere beyond our world? If whoever sent that email is reading this, if they're watching the thread, please. Come soon.
+It has to be today, because I don't think I can take another night of this. I hear Toby all the time now. Not just from the garage. From the hallway, the vent, and even the pipes behind the kitchen wall. I answer every time. Because what if it's him, still trapped somewhere beyond our world? If whoever sent that email is reading this, if they're watching the thread, please. Come[ soon.](https://www.reddit.com/r/AmoebaGold715/)
 
-Somewhere inside the wardrobe, someone is counting to[ thirty.](https://www.reddit.com/r/AmoebaGold715/)
-
-  

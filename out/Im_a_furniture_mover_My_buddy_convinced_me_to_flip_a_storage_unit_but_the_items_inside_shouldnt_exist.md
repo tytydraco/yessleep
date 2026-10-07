@@ -40,13 +40,13 @@ A handful of unlabeled cardboard boxes sat in an uneven cluster near the door. T
 
 He stepped right past me toward the blanketed shapes in the back. He was clearly more interested in the big-ticket furniture than the loose boxes.
 
-I wasn't really listening. I was still standing just inside the doorway. My brain was desperately trying to catalog the room's layout, and that's when my eyes caught the cassette tape.
+I wasn't really listening. I was still standing just inside the doorway. My brain was trying to catalog the room's layout, and that's when my eyes caught the cassette tape.
 
 It sat loose on top of one of the boxes, without a plastic case. It had a blank white label with absolutely nothing written on it. I've handled a thousand of these tapes over the years because people never seem to throw them out. I picked it up. Naturally, I tried to slide my thumbnail under the edge of the clear viewing window.
 
 My nail found no seam.
 
-I pulled the tape closer to my face. There wasn't a window at all. What I was holding was a solid, rectangular block of black plastic. It was cassette-shaped and cassette-sized. It even had two shallow circular indents pressed into the front where the spinning reels should have been. They were indents, not actual holes. It looked exactly like someone had described a cassette tape to a sculptor over a bad phone line. I turned it over six times looking for a single joint. There wasn't one. It was one continuous piece of solid plastic all the way through.
+I pulled the tape closer to my face. There wasn't a window at all. What I was holding was a solid, rectangular block of black plastic. It was cassette-shaped and cassette-sized. It even had two shallow circular indents pressed into the front where the spinning reels should have been. It looked exactly like someone had described a cassette tape to a sculptor over a bad phone line. I turned it over six times looking for a single joint. There wasn't one. It was one continuous piece of solid plastic all the way through.
 
 I didn't say anything to Henry. I quickly put it back down on the damp cardboard and walked toward the moving blankets to shake off the weirdness.
 
@@ -76,7 +76,7 @@ By the time we backed the truck up to the garage door, the sun was dropping fast
 
 We didn't even try to unload the big pieces that night. Three boxes in, both of our shirts were thoroughly soaked through with sweat. We agreed the rest of the work would take another hour we just didn't have. There was no immediate rush. Plenty of daylight tomorrow after work would let us sort through everything properly.
 
-I'm writing this from my kitchen table. Henry left a while ago, still doing resale math on his phone when he drove off, still convinced we lucked into a decent flip.
+I'm writing this from my kitchen table. Henry left a while ago, still doing resale math on his phone when he drove off, convinced we lucked into a decent flip.
 
 I didn't tell him, but the moment his truck pulled out of the driveway, a sick kind of curiosity took hold of me. It was a deep, nagging itch that I didn't want to admit to anyone, least of all myself. I couldn't just sit in my living room pretending everything was normal. The quiet of the house was too loud. I needed to know whether the wrongness went beyond what I had seen or if my mind was just playing tricks on me after a long shift.
 
