@@ -14,7 +14,7 @@ My coworker Henry's the one who talked me into this. Henry's good like that—an
 
 He pitched it to me as a clean 50/50 split. We’d pool our cash, set a strict maximum budget, and gamble that we'd luck out on a few high-value items to make our money back and then some. He knew I was drowning in legal fees. I didn't actually believe a blind auction would magically solve my financial troubles, but I was desperate enough to give it a shot anyway. I didn't know what I was doing, and neither did he, really. But I had four grand riding on a lawyer I couldn't afford yet. Henry said, Worst case, we're out a few hundred bucks and an afternoon.
 
-So after work that Wednesday, we drove forty minutes in our company’s moving truck out to a self-storage place off the highway. It was one of those long rows of orange roll-up doors. We stood in a loose crowd of maybe a dozen people on a sultry hot afternoon while a bored auctioneer walked us down the row. He went door by door, unlocked them, and gave everybody ninety seconds to shine a flashlight in and guess.
+So after work that Wednesday, we drove forty minutes in our company’s moving truck out to a self-storage place off the highway. It was one of those long rows of orange roll-up doors. We stood in a loose crowd of maybe a dozen people on a sultry, hot afternoon while a bored auctioneer walked us down the row. He went door by door, unlocked them, and gave everybody ninety seconds to shine a flashlight in and guess.
 
 Most of the units were worthless. They contained nothing but boxes of junk nobody wanted and furniture wrapped in dirty blankets. The only exciting moment of the whole afternoon was a six-hundred-dollar bidding war over a unit where someone thought they saw a motorcycle under a tarp. Otherwise, it was all mediocre trash. But as the saying goes, 'One man's trash is another man's treasure.' So that’s exactly the kind of unit Henry and I ended up buying.
 
@@ -100,11 +100,11 @@ Then, I raised my left hand to push my hair back. The hand in the mirror came up
 
 On the same side. The left side. It didn't reverse.
 
-A sudden, sick wave of panic hit my stomach. I stood entirely frozen for what felt like a minute, slowly moving my hand back and forth, up and down. The reflection mirrored the exact motion on the exact same side. 
+A sudden, sick wave of panic hit my stomach. I stood entirely frozen for what felt like a minute, slowly moving my hand back and forth, up and down. The reflection mirrored the exact motion on the same side. 
 
 I swallowed hard, my breathing turning shallow. I turned my head just a fraction of an inch to check my profile and break the stare.
 
-The reflection didn't turn with me. It kept facing forward a half-beat too long, staring directly at the empty space where my face had just been. When it finally did move, it whipped around to match a head-turn I hadn't even finished making yet, anticipating my movement before I got there. For one horrific split second, I was staring directly at a full, clear view of the back of my own head.
+The reflection didn't turn with me. It kept facing forward a half-beat too long, staring directly at the space where my face had just been. When it finally did move, it whipped around to match a head-turn I hadn't even finished making yet, anticipating my movement before I got there. For one horrific split second, I was staring directly at a full, clear view of the back of my own head.
 
 I cried out in shock and dropped the mirror instantly.
 
@@ -140,7 +140,7 @@ That was all the credit he gave it. He set it carefully back on the shelf, wiped
 
 He headed back out to the driveway. Standing alone in the quiet garage staring at that skin-textured ball felt infinitely worse than following him, so I hurried out right behind him.
 
-We set to work removing the remaining smaller boxes, a task that took the better part of an hour. We arranged them in untidy stacks around the perimeter of the garage, making sure to leave a wide circle of empty space in the center. Three major things still sat in the truck bed that neither of us could have wrestled out alone—the fake dresser, the wardrobe, and that sealed glass tank. Each was heavy or awkward enough that we had to move them one at a time.
+We set to work removing the remaining smaller boxes, a task that took the better part of an hour. We arranged them in untidy stacks around the perimeter of the garage, making sure to leave a wide circle of space in the center. Three major things still sat in the truck bed that neither of us could have wrestled out alone—the fake dresser, the wardrobe, and that sealed glass tank. Each was heavy or awkward enough that we had to move them one at a time.
 
 After we dragged the faux dresser across the concrete, we moved on to the wardrobe. Honestly, pulling the grey dust sheet off the wood was the first real breath either of us took that entire afternoon. It actually looked like a normal piece of furniture. It was a tall, dark-stained cabinet, showing a few ordinary scuffs at the base from years of storage.
 
@@ -238,7 +238,7 @@ A second playback followed immediately, overlapping the first line. "Hello...lo.
 
 “Who’s there?” the receiver echoed back instantly.
 
-Henry tried to laugh, his chest heaving. "To whom am I speaking?"
+Henry tried to laugh, his chest heaving. "Who am I speaking to?"
 
 Something answered that was not an echo.
 
@@ -248,7 +248,7 @@ The voice was unmistakably Henry's tone. But the inflection was entirely flat, d
 
 Henry swore loudly, dropping the handset so fast it clattered violently against the wood. It bounced off the workbench, but it didn't hit the floor. It hung there, swinging gently in mid-air, suspended by nothing.
 
-Neither of us breathed for a solid five seconds. The handset just bobbed in the empty space above the concrete.
+Neither of us breathed for a solid five seconds. The handset just bobbed in the space above the concrete.
 
 "That's a recording," Henry barked, his voice cracking into a high pitch as he backed away until his spine hit the garage door. He was laughing in that frantic, too-fast way that meant he was on the verge of screaming. "Somebody rigged that, Ian! It's a novelty prop, like those talking dolls. There's a digital chip in there somewhere doing pre-set replies!"
 
@@ -268,7 +268,7 @@ The screech cut off instantly. We stood in the sudden silence, our ears ringing 
 
 *Thump.*
 
-A soft sound, emanating from inside the massive wardrobe right behind us.
+A soft sound emanated from inside the massive wardrobe right behind us.
 
 Henry froze. I did too. After the things we had witnessed, we were fully braced for the absolute worst. My mind instantly conjured an image of some pale, emaciated creature coiled up in the dark, waiting to spring forward and chew us alive.
 
