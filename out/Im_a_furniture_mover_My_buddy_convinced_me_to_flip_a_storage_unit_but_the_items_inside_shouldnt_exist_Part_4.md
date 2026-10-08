@@ -194,7 +194,7 @@ It was the night of Toby’s stitches. We put Toby to bed with eight stitches on
 
 *"You were asleep, Ian."*
 
-"Because I worked a double so we could afford to keep a roof over his head! What do you want me to say? That I'm a monster? He does this all the time, Alicia! The stove, the dresser, and the stairs. Do you know what it actually feels like to live with a kid who's always one second away from the ER? He doesn't listen, he doesn't sit still, he's like something wound up too tight—"
+*"Because I worked a double so we could afford to keep a roof over his head! What do you want me to say? That I'm a monster? He does this all the time, Alicia! The stove, the dresser, and the stairs. Do you know what it actually feels like to live with a kid who's always one second away from the ER? He doesn't listen, he doesn't sit still, he's like something wound up too tight—"*
 
 *"He's five years old!"*
 
@@ -407,4 +407,3 @@ Nobody from CATALOGUE has contacted me since then. I keep telling myself they’
 I keep hoping it'll be today.
 
 It has to be today, because I don't think I can take another night of this. I hear Toby all the time now. Not just from the garage. From the hallway, the vent, and even the pipes behind the kitchen wall. I answer every time. Because what if it's him, still trapped somewhere beyond our world? If whoever sent that email is reading this, if they're watching the thread, please. Come[ soon.](https://www.reddit.com/r/AmoebaGold715/)
-
