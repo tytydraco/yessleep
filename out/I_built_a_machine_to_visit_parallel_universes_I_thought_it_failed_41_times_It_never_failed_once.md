@@ -1,0 +1,53 @@
+I'm not going to tell you my name or where the lab is. If I'm right about what I did, it don't matter anyway.
+
+For six years I worked on what we called the transit rig. The physics ain’t important, the short version is that you can't punch a hole into an adjacent universe, but you can convince a small region of space that it belongs to one. You change its address, the universe does the rest.
+
+The first test was a Tuesday in March. I stood on the platform, my colleague Dana ran the sequence, there was a sound like a held breath, and then nothing. Same lab. Same Dana. Same damn coffee going cold on the same bench.
+
+"Null result," she said, and wrote it down.
+
+We ran it 41 times over two years, with more power and different target coordinates. Every time I stepped off the platform into the exact room I'd left…we lost our funding in the fall.
+
+Here's what I didn't understand. The rig was supposed to change the address of a region of space around me. We set the radius at two meters. But the radius was a number in a config file, and the math underneath it didn’t care none about our number. The region had no edge. It never did.
+
+I wasn't failing to leave. I was arriving every single time, and I was bringing everything with me: the lab, Dana, the city, the sun, every galaxy we'd ever photographed. All of it showed up at the new address and landed on top of whatever was already there.
+
+That's 41 universes, each with its own lab, and maybe its own version of me standing on a platform, hopeful.
+
+I figured it out because of the tides.
+
+A friend in oceanography mentioned over beers that coastal gauges had been picking up a second tidal signal for about two years. It was small and regular, with a period of nineteen hours. It weren't an error, since every station on Earth showed it. Something was pulling on the ocean, and there was nothing in the sky to do the pulling.
+
+I went home and checked the start date. It was run 7.
+
+After that I couldn't stop finding them. A star catalog had forty entries whose positions matched nothing, flagged as "legacy errors" by people who didn't remember entering them. My neighbor's daughter, who is four, draws our street with a river down the middle, and she cries when you tell her there's no river. I counted the stairs to my apartment. There are fourteen. My legs expect fifteen. Every night I lift my foot at the top for a stair that isn't there, and so does everyone else in my building. I've watched them do it.
+
+Then there's my wife. She hums when she cooks. Last month I asked her what the song was and she stopped, and she looked at me with an expression I've never seen on her face. She said, "My mother used to sing it."
+
+Her mother doesn't sing. Her mother has never sung. We called her to check.
+
+I think the overwrite isn't clean. I think when you drop one universe on top of another, the one underneath doesn't vanish. It gets pressed flat, like a flower in a book. Mostly it stays put. But some of it comes through; a moon's worth of gravity, a river, a lullaby, one stair.
+
+That's forty-one of them, layered under us.
+
+I went back to the lab last week. The building's been leased to a logistics company, but nobody cleared out the sub-basement, and the rig is still there under a tarp. I wanted the logs. I wanted to know exactly what I'd done.
+
+The logs show 41 runs. I remember 41 runs.
+
+They also show a 42nd.
+
+It's dated eleven days ago. The operator field has Dana's login. Dana moved to Portland in 2024, and when I called her she had no idea what I was talking about. Then she went quiet and asked me why she'd dreamed about the held breath sound every night this month.
+
+I checked the run parameters. The 42nd run wasn't outbound. The rig didn't fire. It registered a transit, the way a door registers being opened from the other side.
+
+Somebody else built one, somewhere adjacent. They stood on a platform, their own Dana ran the sequence, and they stepped off into the same room they'd left, disappointed. Null result.
+
+They don't know they arrived. They don't know they brought everything with them.
+
+So I need you to do something for me. Count the stairs in your home. Count them with your eyes, then walk them in the dark and see whether your feet agree. Call your mother and ask what she used to sing to you. Look at the moon tonight and ask yourself, honestly, whether it's the size you remember.
+
+Because I've been doing all of that for eleven days, and everything matches. Every stair, every song, every star. Nothing here feels wrong to me anymore.
+
+I think that means I'm not on the top layer now. I think I'm the thing that comes through.
+
+My wife is humming in the kitchen. I know all the words.

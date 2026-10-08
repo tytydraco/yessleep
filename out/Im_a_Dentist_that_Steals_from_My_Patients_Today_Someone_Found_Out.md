@@ -1,0 +1,99 @@
+What’s a tooth worth? Well most insurances pay me, a dentist, about seven hundred bucks when I pull one. Most patients, especially older ones, don’t argue. They come in with a sore tooth, then leave without it. They also don’t argue when I prescribe certain pills.
+
+Most of them are poor, even homeless. It doesn’t cost them a dime.
+
+Today I got a call that changed things. 
+
+It was my mom. She’s 89 years-old and lives in a home not far from my clinic.
+
+“Hey mom,” I tried to sound upbeat, but my head pounded from withdrawals. I hadn’t had any pain killers for days.
+
+“Are you at work?” She asked.
+
+“Yes,” I said.
+
+“I’m going to face app you,” she said. I heard her pushing buttons.
+
+I tried to stop her, “That’s not what it’s called mom, and now isn’t the best…”
+
+I was cut off with the all too familiar ring of the video call coming through.
+
+“Hey mom,” I groaned.
+
+She was at home, I recognized her knickknacks. There was something different, in the background. A large poster of a man crying, the word integrity burned into his face.
+
+Suddenly someone unfamiliar jumped in front of the camera, “Well helloooo sonny boy!” he giggled. He started bouncing around like a kid at an ice cream parlor. He was holding my mom’s hands, she giggled along. 
+
+“Who is this?” I asked.
+
+My mom’s face appeared. “This is my new nurse,” she said. “He’s very sweet, and says he knows you.”
+
+“Oh I dooooo,” the guy sang out.
+
+He put his face in the camera “Very well,” he said. “And you’ve been a naughty little boy. Haven’t you… Doctor.”
+
+“Who the fuck are you?” I asked.
+
+The guy took a deep breath, covering his mouth with his hands. “You would swear in front of your dear old mother?” He asked as he walked over to my mom.
+
+“Don’t touch her you creep,” I shouted.
+
+“Or what?” The guy said. “You’ll pull more teeth.”
+
+“Fuck you,” I shot back.
+
+The creep turned toward my mother, “Show us a big smile honey,” he said.
+
+“Mom, you don’t have to listen…” I started.
+
+She tilted her head to the side and opened her mouth showing her toothless smile, the smile I gave her.
+
+“You look marvelous darling,” the guy said while draping his arms around her. He turned back toward the camera. “Doctor, I love what you’ve done here.”
+
+I started to protest, but the guilt of having pulled my own mothers teeth for the insurance claim shut me up.
+
+“That’s what I thought,” he said.
+
+“What do you want?” I finally asked.
+
+“What’s the old saying? An eye for an eye, a…” he buried his face in the camera waiting for me to finish the sentence.
+
+“A tooth for a tooth,” I whispered.
+
+“Bingo!” he yelled before turning back towards my mom. “You have such a smart boy.”
+
+My mom smiled again. I had to look away.
+
+He went and sat next to her. “I’m going to ask her a few questions,” he said. “First question, did you know your son was a drug addict?”
+
+I let out a deep sigh.
+
+“Yes. But I still love him,” my mom responded, tears filling her eyes.
+
+“Second question. Did you know he pulled your teeth to get insurance money to support his drug addiction?” the guy asked.
+
+There was a long pause before my mom answered, “I thought you said they were bad,” her voice quivering.
+
+“Please stop,” I pleaded. “I’ll do anything if you just stop and leave her alone.”
+
+“I think you know what I want,” the guy said.
+
+“A tooth for a tooth,” I said.
+
+“Make sure we can see you,” the guy said before he started to dance around, laughing and clapping. He again buried his face in the camera. “And no drugs for you….”
+
+I sat in the old dentist chair and wheeled over a tray full of tools. I set the phone on the edge of the tray so they could see my face. I grabbed the extraction forceps and reached for one of my back teeth.
+
+“Uh uh uh,” the guy scolded. “One of the front ones,” he said with excitement.
+
+I removed the forceps from my molar and gripped them tightly around one of my lower front incisors. I sat for a moment contemplating how I will do this. If I will do this.
+
+“I think mom needs another story. Did he ever tell you about your friend Mrs…”
+
+“Okay, I’ll do it,” I shouted, cutting him off before he finished.
+
+I gripped the forceps tight with my left hand and reached my right hand high in the air. In my head I counted to three before I threw my right arm down as hard as I could against my other arm, yanking down on the forceps at the same time.
+
+A loud crunch echoed through the room as the roots holding my tooth cracked. The pain was immediate and intense. Blood filled my mouth. I screamed as nauseous took over.
+
+I looked at the phone. The creep had a camera and was taking pictures of me while laughing. My mom was weeping.

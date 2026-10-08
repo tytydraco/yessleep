@@ -1,0 +1,45 @@
+Well tonight I was fortunate, or, unfortunate depending on your view point to be taking my break at the same time as Martha. I tried not to stare as she gently lifted the coffee mug she was drinking from to each, individual snake weaving back and forth, flicking delicate tongues into the sweet smelling Espresso. Apparently my attempt to hide the fact that I was infact staring didn't go unnoticed, of course not. Her slit green eyes found mine, and for a moment I did feel petrified, as in absolutely frozen with fear. Yes, any Gorgon will make you feel like that, no matter how strong your wards are. As my boss she was already terrifying ; as a Gorgon, with a head full of snakes, she was.. Well you can imagine. 
+
+"What are you looking at? " She hissed. Instantly 28 pairs of eyes snapped their focus onto me. Coffee apparently forgotten. For some reason, I refocused on the mug she was drinking from, white, pristine, and in bold green writing a motif stating ' WORLDS OKAYEST BOSS'
+
+She coiled her emerald green tail onto the vinyl chair, the scales hissing softly against the cushion and took a large, noisy swallow from her mug. Then her face broke into a wide grin. 
+
+"You humans are so funny, no matter how many centuries pass, this never gets old. " She began to laugh, " The look on your face! "
+
+I felt my face burn with embarrassment, even her snakes seemed to be grinning. Turning away with what I hoped was a nonchalant attitude I filled my own cup with coffee, with hands that I hoped she didn't notice much to my shame were still shaking. I took a seat across from her wrapping my unruly hands around the flimsy styrofoam cup. I forced my eyes to meet hers with what I hoped was a steady gaze, ' rule one' never let a supernatural being see fear. This is the most important rule, if you can't follow this, then the others are meaningless. 
+
+She then surprised me by giving me a genuine smile, the type of smile that reaches the eyes, without preamble she began with, 
+
+" You kids complaining about the biometric scanners acting up " Martha rasped, her voice sibilant and ancient, " don't know the meaning of a staff shortage. Try processing an entire migration of frost giants through a custom gate designed for pixies, with only one working conveyor belt and a hangover that's lasted three centuries."
+
+I leaned back on my chair, feeling a bit more confident, sipping my coffee, " You never told us how you ended up running this circus Martha. "
+
+She chuckled, a dry rattling sound that made the sugar packets dance on the table. She paused then, staring into the murky depths of her mug, watching her own reflection ripple in the coffee. 
+
+" You are collecting stories. " She stated simply. 
+
+" Oh, I didn't apply for the job. In my line of work, job applications usually involve a hero with a bronze shield, a mirror, and a very bad attitude, "she said, her green gold eyes flashing with ancient memory. " No, I got headhunted. Litterly. "
+
+It was back in the late seventies, she explained. Martha had been living a quiet, early retirement life on a desolate island in the Aegean, mostly turning curious sailors and overly ambitious archaeologists into tasteful, moss covered lawn ornaments. It was honest work, but terribly lonely. The post war tourism boom had brought a tedious breed of backpacker, loud, disrespectful and utterly lacking in dramatic flair. 
+
+" I was bored out of my skull, " Martha said, shifting her coils. " Then, one Tuesday, a man in a a terribly tailored beige suit materialized out of a localized dimensional rift, right in my cavern. He was holding a clipboard and a turkey sandwich. "
+
+The man hadn't looked at her face of course, he wasn't suicidal. He had kept his eyes respectfully fixed on her left elbow while he pitched her the gig. 
+
+Turns out, the Department of Interdimensional Transit was facing a massive PR crisis. Supernatural migration was skyrocketing, and the old borders- ancient pacts, guarded by overworked sphinxes and grumpy river-styx ferrymen were collapsing under the weight of modern global flight paths. They needed someone who could command respect, freeze a disruptive crowd in their tracks with a single glance, and manage a budget. 
+
+" He told me, ' Martha, you've got great asset management skills. You turn living liabilities into permanent low maintenance infrastructure, ' She snorted, a wisp of grey smoke curling from her nostrils. " I liked his hustle. "
+
+She had negotiated a hell of a retirement package: full dental ( crucial for a Gorgon, given the jaw fatigue of hissing all day), immunity from mortal zoning laws, and a corner office with a direct view of the arrivals gate. 
+
+Just like that, Martha's story was over, after feeding the last sweet dregs from her coffee to her snakes she abruptly stood up. Tied the writing mass that passed for hair into a nimble, intricate braid and headed for the door. 
+
+" Well back to work then:" She paused for a second and looked back at me, her eyes a hard flint green. " Be certain before you write, and don't forget your place human. "
+
+Before I could answer, she had turned and left. I sighed, rubbing my temples as a migraine bloomed behind my eyes. Just then my walkie talkie crackled to life. 
+
+" Lucy? We need you at Terminal 4B . A pack of werewolves just missed their connecting flight to the full moon, and one of them is trying to mark his territory on the duty free shop. "
+
+I looked at my watch, only four more hours until my shift ended. I checked my holster, made sure I had a pocketful of silver mints, and headed back into the fray. 
+
+Welcome to the airport. Can I see your boarding pass please? And please, take off your shoes, unless they're cloven. Just the usual Tuesday night chaos in the supernatural airport. 
