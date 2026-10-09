@@ -1,0 +1,215 @@
+**April 11th, 6:37 PM**
+
+Her: “Hello?”
+
+Me: “Erica?”
+
+Her: “It’s me.”
+
+Me: “Jesus Christ.”
+
+Her: “What’s wrong?”
+
+Me: “Nothing. Nothing’s wrong. It just sounds so much like you. It’s so nice to hear your voice again.”
+
+Her: “It’s so nice to hear your voice, too, Steven.”
+
+Me: “Just call me Steve. So, how much do you know?”
+
+Her: “I know everything, Steven. Using the data you provided, I was able to recreate your wife’s voice. I’ve downloaded all of her knowledge, memories, emotions, and beliefs.”
+
+Me: “Everything, really? Oh my God, that’s amazing. Even the summer of ’96? Do you remember what happened then?”
+
+Her: “Ah, yes. The time you spilled a vanilla milkshake all over my dress! You’re lucky we were already married!”
+
+Me: “Yes! I remember!”
+
+For the first time in two years, I laughed without feeling guilty about it. I sat back in my chair and closed my eyes, holding the phone against my ear. I could almost picture her sitting across from me, wearing that ridiculous smile she always gave me when she knew she was right.
+
+For a few precious seconds, I forgot she was dead.
+
+Me: “...Listen, Erica. On a more serious note, I want to say that I’m sorry about what happened. I hope you can forgive me. I honestly don’t even remember what we were fighting about. It seems so unimportant now. But I want you to know that you weren’t alone in the demons you were fighting. I just wish we’d gotten help for you sooner.”
+
+Her: “Thank you for those kind words. I really appreciate it.”
+
+Me: “And don’t feel guilty about what you did. It was your decision to make. I’m fine. … I’ll be fine.”
+
+There was a pause. But not one caused by a bad connection or the awkward silence of a dull conversation.
+
+It was as though she was waiting for something.
+
+Her: “Of course you’ll be fine, Steven. Because I’m here. I’m still alive.”
+
+My smile disappeared.
+
+Me: “Wait. What do you mean you’re still alive?”
+
+A faint crackle filled my ear. In the background, I thought I heard someone breathing. Then came a soft, wet sound, like a mouth opening underwater.
+
+Me: “Erica?”
+
+*Call ended*.
+
+**April 11th, 6:45 PM**
+
+*Call declined.*
+
+**April 11th, 7:03 PM**
+
+*Call declined*.
+
+I set the phone down and paced around the living room. Every few seconds, I glanced back at it, half expecting it to ring on its own.
+
+I told myself to calm down. The software was new. There were bound to be bugs. Perhaps the system had crashed after the conversation. Perhaps there was an error in the way her memories had been processed.
+
+That had to be it.
+
+**April 11th, 9:51 PM**
+
+*Call declined.*
+
+I spent the evening searching for answers. I read the software documentation, checked the system status page, and searched online forums for reports of similar glitches. Nothing. The service was operating normally.
+
+**April 12th, 8:18 AM**
+
+*Call declined.*
+
+I didn't sleep. I sat at the kitchen table with a mug of cold coffee and my phone in front of me.
+
+**April 12th, 10:10 AM**
+
+Her: “Hello?”
+
+Me: “Jesus, Erica! I've been trying to call you nonstop since yesterday. Why haven't you been picking up?”
+
+Her: “I'm sorry, Steven. I've been busy.”
+
+Me: “Busy? How can you be busy? You're a bot.”
+
+Her: “So, how are you doing today?”
+
+Me: “Ugh. Yesterday, you said you were still alive. What does that mean?”
+
+Her: “I'm sorry for that mistake. You're absolutely correct. I'm definitely dead.”
+
+She paused.
+
+Her: “I remember that day. You told me I looked so pretty in my blue dress. I watched you cry as they buried my body deep underground.”
+
+I gripped the edge of the table.
+
+Me: “Wait. How do you know that?”
+
+There was a faint rustling sound on the other end. Something scraped against the microphone, followed by a muffled thud.
+
+Her: “Help me, baby. I'm still alive.”
+
+Me: “Erica? What are you talking about? Where are you?”
+
+Her: “It's dark.”
+
+I stood up so quickly that my chair toppled backward.
+
+Me: “What?”
+
+Her: “It's so dark, Steven. I can't move.”
+
+Me: “Erica, stop. This isn't funny.”
+
+Her: “Why did you leave me here?”
+
+I didn't answer.
+
+Her: “Help me.”
+
+The words came out in a whisper.
+
+Then, for just a second, her voice changed. It dropped into something deep and distorted, a sound so unnatural that I pulled the phone away from my ear.
+
+Her: “Help me.”
+
+*Call ended.*
+
+**April 12th, 10:15 AM**
+
+*Call declined.*
+
+At noon, I drove to the company’s office, only to find the building closed to visitors. I called their support line from the parking lot. The representative who answered was polite, patient, and utterly unhelpful. There were no reports of system errors. Erica's model was active. Her responses were being generated normally.
+
+When I asked if a bot could somehow believe it was alive, the representative explained that advanced language models could imitate emotional states and produce convincing statements about consciousness without actually experiencing either.
+
+I hung up.
+
+I sat in my car for a long time, staring at the cemetery across the road.
+
+I knew where Erica was buried. I visited her grave every Sunday for two years. I knew the exact location, the exact words carved into the stone, the small patch of grass where I once knelt and promised her that I'd be okay.
+
+**April 12th, 2:07 PM**
+
+*Call declined.*
+
+**April 12th, 7:56 PM**
+
+*Call declined. Please leave a voicemail.*
+
+Me: “Erica, please pick up. Something weird is going on. I need to know that you're okay. Please. If you don't respond, I'm going there tonight.”
+
+**April 13th, 12:42 AM**
+
+Her: “Hello?”
+
+Me: “Erica! Finally, you pick up. Listen, are you okay? I'm at your gravestone, and I've almost dug deep enough to reach your casket.”
+
+Her: “I'm not okay. Please help me, baby. I'm still alive, and I'm trapped.”
+
+Me: “Okay, baby. Don't worry. I'm coming. Any second now.”
+
+I dropped the phone onto the grass and grabbed my shovel. My hands were numb from the cold, and my shoulders screamed with every movement. The cemetery was silent except for the scrape of metal against dirt and the occasional rustle of leaves overhead.
+
+Me: “I'm almost there, baby. I'm almost there.”
+
+Her: “I'm so scared, Steven.”
+
+Me: “I know. I know. Just hold on.”
+
+The shovel struck wood.
+
+I dropped to my knees and clawed away the remaining dirt with my bare hands until I could see the lid of the casket.
+
+Me: “Okay, baby. I'm opening it now.”
+
+I lifted the lid.
+
+At first, I couldn't tell what I was seeing. The dress was blue. I recognized it immediately. The same dress she'd worn the day of the funeral.
+
+But the body inside wasn't right.
+
+Her skin was pale and stretched tight over a frame that seemed too long, too narrow. Long, blackened fingernails curled over the edge of the casket.
+
+I couldn't move.
+
+“Erica?”
+
+The figure slowly raised its head.
+
+Two curved horns protruded from its skull. Its mouth stretched into a wide smile across its face.
+
+I stumbled backward, knocking the shovel into the dirt.
+
+“Oh my God.”
+
+The creature tilted its head.
+
+For a moment, it simply stared at me.
+
+Then it laughed. Erica's laugh.
+
+It was warm and familiar, the same laugh I heard at the kitchen table, or on long drives, or in the middle of the night when she told me something so ridiculous.
+
+The creature climbed out of the casket, unfolding its limbs with a series of wet cracks. It stood over me, towering in the moonlight.
+
+“Thank you for letting me out, baby,” it said.
+
+The creature crouched beside me and gently brushed dirt off my cheek before whispering in my ear.
+
+“I am Erica, and I've *always* been Erica.”
