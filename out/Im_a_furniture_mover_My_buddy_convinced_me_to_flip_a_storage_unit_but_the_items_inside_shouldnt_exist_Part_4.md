@@ -300,7 +300,7 @@ Five, I think. Long and narrow, bending at too many joints. The fingers felt alo
 
 But it was a lie. The longer I stared, the more the illusion peeled away. It didn’t have a human form. In fact, it hardly resembled a human at all.
 
-It had limbs extending from where I expected a shoulder and a torso so narrow I thought I was seeing it edge-on. It had a long neck that rose and rose and then bent hard against the ceiling. Even hunched, its back brushed the plaster. My mind screamed at me to move, but my legs were shaking so hard against the workbench I was afraid it would hear them. It crossed to the bench in careful, delicate steps, touching nothing until it meant to. It lifted a screwdriver, pressed the rubber grip, and dragged a pale fingertip down the shaft. It held the tip near whatever part of its head I couldn't see, and then I heard it: a wet, slow inhale. It turned the tool in the work light, tapped it once, twice, against the bench, then put it back with exaggerated tenderness. 
+It had limbs extending from where I expected a shoulder and a torso so narrow I thought I was seeing it edge-on. It had a long neck that rose and rose and then bent hard against the ceiling. Even hunched, its back brushed the plaster. My mind screamed at me to move, but my legs were shaking so hard against the workbench I was afraid it would hear them. It crossed to the bench in careful steps, lifting a screwdriver and dragging a pale fingertip down the shaft. It held the tip near whatever part of its head I couldn't see, and then I heard it: a wet, slow inhale. It turned the tool in the work light, tapped it once, twice, against the bench, then put it back with exaggerated tenderness. 
 
 Then it found Toby's stegosaurus.
 

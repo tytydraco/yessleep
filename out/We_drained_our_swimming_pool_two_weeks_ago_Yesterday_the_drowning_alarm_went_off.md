@@ -1,0 +1,777 @@
+I manage a small municipal recreation center. Nothing fancy. One gym, a couple of multipurpose rooms, and an indoor swimming pool that has been giving us plumbing problems for about three years.
+
+
+
+Twelve days ago, we drained the pool so a contractor could replace some damaged pipes beneath the deep end.
+
+
+
+There's currently no water in it. Not a little bit of water. Not a puddle at the bottom. It's completely empty.
+
+
+
+I need to make that clear.
+
+
+
+Because yesterday, at 6:42 PM, our drowning detection system identified someone at the bottom of the pool.
+
+
+
+The system uses cameras mounted above the water to identify swimmers who have stopped moving underwater. If it detects a possible drowning, an alarm sounds at the lifeguard station and highlights the relevant section of the pool on a monitor.
+
+
+
+It's not perfect. We've had false alarms before. Usually somebody diving for goggles or swimming unusually slowly.
+
+
+
+But those were when there was actual water.
+
+
+
+I was finishing paperwork in the office when the alarm started.
+
+
+
+I initially assumed the contractors had accidentally reactivated the system. I went to the lifeguard station, expecting to find another stupid error message.
+
+
+
+Instead, the monitor read:
+
+
+
+POSSIBLE SUBMERSION
+
+DEEP END — LANE 4
+
+ELAPSED TIME: 00:38
+
+
+
+Underneath was the camera feed.
+
+
+
+The pool was full.
+
+
+
+I stared at it for a few seconds, trying to make sense of what I was seeing.
+
+
+
+The camera showed the familiar blue-green water, the black lane markings, the metal ladder on the far wall. Everything looked exactly as it had before we drained it.
+
+
+
+Except I could see the empty pool directly through the glass wall beside the station.
+
+
+
+I walked out onto the deck.
+
+
+
+Empty. Dry white tiles. A plastic bucket beside the main drain. Two lengths of exposed pipe near the shallow end.
+
+
+
+I looked back at the monitor.
+
+
+
+Water.
+
+
+
+I assumed the system was playing an old recording, although I couldn't understand why.
+
+
+
+My coworker Daniel came in from the equipment room while I was checking the settings.
+
+
+
+"What's that noise?"
+
+
+
+I pointed at the monitor.
+
+
+
+He looked confused.
+
+
+
+"That's not live."
+
+
+
+"Yeah, I figured."
+
+
+
+"Then why does it say six forty-four?"
+
+
+
+I didn't have an answer.
+
+
+
+Daniel grabbed a bright orange kickboard from the storage rack and held it over the deep end.
+
+
+
+We watched the screen.
+
+
+
+The orange rectangle appeared in the camera feed.
+
+
+
+But something was wrong with it.
+
+
+
+On the monitor, the kickboard looked distorted, as if we were viewing it from beneath the surface of the water.
+
+
+
+Daniel lowered it.
+
+
+
+The orange shape disappeared.
+
+
+
+He raised it again.
+
+
+
+There it was, wavering behind what looked unmistakably like several feet of water.
+
+
+
+Neither of us spoke.
+
+
+
+Then the alarm sounded again.
+
+
+
+POSSIBLE SUBMERSION
+
+DEEP END — LANE 4
+
+ELAPSED TIME: 02:16
+
+
+
+The highlighted shape was near the bottom.
+
+
+
+Someone was lying facedown over the black lane marking.
+
+
+
+At first I thought it was a shadow. Then an arm moved.
+
+
+
+A slow, awkward movement, like someone trying to push themselves off the floor.
+
+
+
+Daniel leaned closer to the monitor.
+
+
+
+"Is that a person?"
+
+
+
+I looked through the glass again.
+
+
+
+The actual pool was empty.
+
+
+
+We could see every inch of the bottom.
+
+
+
+Daniel suggested the camera was somehow displaying an old recording over the live feed. We agreed that had to be the explanation, even though neither of us could account for the kickboard.
+
+
+
+He went to the control panel to restart the system.
+
+
+
+I stayed at the monitor.
+
+
+
+The figure moved again.
+
+
+
+It raised one arm toward the surface.
+
+
+
+Five fingers opened.
+
+
+
+Then it turned its head.
+
+
+
+I couldn't see its face clearly. The image was blurry, and there was something dark hanging around its head.
+
+
+
+But I could tell it was looking directly at the camera.
+
+
+
+Not at the ladder.
+
+
+
+Not toward the shallow end.
+
+
+
+Straight up at the camera.
+
+
+
+The alarm stopped when Daniel cut the power.
+
+
+
+For a moment, I felt almost embarrassed by how relieved I was.
+
+
+
+Then we heard three knocks.
+
+
+
+They came from the bottom of the empty pool.
+
+
+
+Not the pipes. Not the walls.
+
+
+
+The floor.
+
+
+
+Three dull impacts that echoed around the building.
+
+
+
+Daniel came out of the equipment room.
+
+
+
+"Did you hear that?"
+
+
+
+I nodded.
+
+
+
+Another three knocks.
+
+
+
+We stood at the edge of the deep end, looking down at twelve feet of dry white tile.
+
+
+
+The bucket was still beside the drain.
+
+
+
+Nothing moved.
+
+
+
+Then I heard a voice.
+
+
+
+It was faint enough that I thought Daniel had spoken.
+
+
+
+"Help me."
+
+
+
+I looked at him.
+
+
+
+He shook his head before I could say anything.
+
+
+
+We heard it again.
+
+
+
+This time it sounded like a woman.
+
+
+
+"Please."
+
+
+
+Daniel said we needed to leave.
+
+
+
+He was right. I know he was right.
+
+
+
+But I kept thinking about the person on the monitor, reaching upward.
+
+
+
+There was a maintenance ladder bolted into the deep end. I climbed down just far enough to get a better look at the drain, telling Daniel to stay on the deck.
+
+
+
+The closer I got to the floor, the colder the air became.
+
+
+
+I noticed the smell first.
+
+
+
+Chlorine.
+
+
+
+Strong, fresh chlorine, the way the building used to smell after the morning cleaning crew had finished treating the pool.
+
+
+
+I stopped on the ladder.
+
+
+
+There was a soft splashing noise below me.
+
+
+
+I looked down.
+
+
+
+The tiles were dry.
+
+
+
+Then something touched my ankle.
+
+
+
+I jerked my foot upward so hard I scraped my shin against the ladder.
+
+
+
+Nothing was there.
+
+
+
+But I could feel pressure around my shoe.
+
+
+
+Not a hand.
+
+
+
+Water.
+
+
+
+The exact sensation of lowering your foot into a swimming pool.
+
+
+
+I looked at my shoe.
+
+
+
+It was completely dry.
+
+
+
+I started climbing.
+
+
+
+That's when I stopped being able to breathe.
+
+
+
+It happened instantly.
+
+
+
+One second I was pulling myself up the ladder, and the next I was choking, my chest contracting against something that wasn't there.
+
+
+
+I opened my mouth.
+
+
+
+Cold water rushed into it.
+
+
+
+I could taste the chemicals.
+
+
+
+I tried to cough, but more water filled my throat.
+
+
+
+My hands slipped from the rungs.
+
+
+
+I fell backward onto the dry pool floor.
+
+
+
+I remember hitting the tiles.
+
+
+
+I remember hearing Daniel scream my name.
+
+
+
+And I remember looking up at the ceiling lights through what seemed to be twelve feet of greenish water.
+
+
+
+I could see bubbles rising from my mouth.
+
+
+
+But I could also see the empty ladder, the dry walls, and Daniel leaning over the edge.
+
+
+
+It was like two versions of the pool were occupying the same space.
+
+
+
+I kicked against the floor, trying to stand.
+
+
+
+Something caught the back of my shirt.
+
+
+
+I felt fingers pressing between my shoulder blades.
+
+
+
+Then a hand grabbed my wrist.
+
+
+
+The skin was cold and wrinkled.
+
+
+
+I couldn't see who it belonged to.
+
+
+
+The pressure pulled me toward the main drain.
+
+
+
+I tried to scream.
+
+
+
+There was no air left.
+
+
+
+Something struck me across the chest.
+
+
+
+A long aluminum rescue pole.
+
+
+
+Daniel had lowered it into the pool.
+
+
+
+I grabbed it with both hands.
+
+
+
+He pulled.
+
+
+
+For a second, I felt the thing behind me tighten its grip. My shirt stretched against my shoulders. I heard stitching tear.
+
+
+
+Then I came free.
+
+
+
+Daniel dragged me up the ladder while I coughed water onto the steps.
+
+
+
+Actual water.
+
+
+
+It ran down the metal rungs and splashed against the dry tiles.
+
+
+
+I collapsed on the deck, vomiting and trying to get air into my lungs.
+
+
+
+Daniel called emergency services.
+
+
+
+I remember him kneeling beside me, asking how I'd gotten wet.
+
+
+
+My shirt was soaked.
+
+
+
+My hair was dripping.
+
+
+
+There was a puddle spreading beneath my head.
+
+
+
+He hadn't seen any water until he pulled me out.
+
+
+
+At the hospital, I told them I'd fallen into a swimming pool.
+
+
+
+I didn't know what else to say.
+
+
+
+The doctor found signs that I'd aspirated water. They kept me under observation because my breathing was still abnormal.
+
+
+
+Daniel visited the next morning.
+
+
+
+He looked terrible.
+
+
+
+He told me the contractors had checked the pool. No leaks, no standing water, no problems with the drain.
+
+
+
+Then he showed me something on his phone.
+
+
+
+A screenshot of the drowning detection monitor, taken automatically when the alarm first activated.
+
+
+
+The figure was still visible at the bottom of the pool.
+
+
+
+Only now I could make out its position.
+
+
+
+It wasn't lying facedown.
+
+
+
+It was lying on its back, staring upward, with one arm stretched toward the camera.
+
+
+
+Daniel had zoomed in as far as he could.
+
+
+
+There was something around the figure's neck.
+
+
+
+A red employee lanyard.
+
+
+
+I wear a red employee lanyard.
+
+
+
+So does Daniel.
+
+
+
+I asked him what happened to the monitoring system after he pulled me out.
+
+
+
+He said he'd switched the power back on to check whether the cameras were recording.
+
+
+
+The alarm started immediately.
+
+
+
+Except this time it displayed a different message.
+
+
+
+TWO POSSIBLE SUBMERSIONS DETECTED.
+
+
+
+Daniel said he watched the screen for about fifteen seconds.
+
+
+
+One figure was still lying on the bottom.
+
+
+
+The other was near the ladder, struggling toward the surface.
+
+
+
+He recognized my clothes.
+
+
+
+He watched himself pull me out.
+
+
+
+The second alert disappeared.
+
+
+
+The first one stayed.
+
+
+
+He shut the system off again.
+
+
+
+I haven't been back to work. I have a follow-up appointment tomorrow because I still can't take a deep breath without pain.
+
+
+
+The recreation center is closed while the incident is investigated.
+
+
+
+I haven't told anyone about the hand that grabbed me.
+
+
+
+There's something else I didn't tell Daniel either.
+
+
+
+When I was lying on the bottom, unable to breathe, I felt that person behind me trying to pull me toward the drain.
+
+
+
+I thought it wanted to drown me.
+
+
+
+But just before Daniel pulled me free, I felt the fingers release my shirt.
+
+
+
+The hand moved upward and pressed flat against my back.
+
+
+
+And I heard a voice right beside my ear.
+
+
+
+Not through the water.
+
+
+
+Inside it.
+
+
+
+"Don't leave me here."
+
+
+
+I don't think that person was trying to kill me.
+
+
+
+I think they were trying to come out with me.
+
+
+
+And I'm terrified that when they refill the pool next week, someone is going to jump in and find out who's still down there.
