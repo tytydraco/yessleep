@@ -1,4 +1,4 @@
-Hi, I am writing here because I don't know where else to ask. I took the vampirism upgrade last year with a big company (I don't know if I can name it) and I need some legal advice.
+Hi, I am writing here because I don't know where else to ask. I took the vampirism upgrade last year with a big company (I don't know if I can name it) and I don't know if I made the right choice.
 
 I mean, I am pretty okay with the vampire part. It is cool to be able to lift so much weight, and I can now jump very high. My acne scars are gone too, and I think red eyes are badass. But the working conditions suck.
 
@@ -22,6 +22,6 @@ A nurse told me that humans are force fed through the nose but for vampires they
 
 Last Friday they ran out of helmets and Diego had to work without one. He fell from the third floor's scaffolding and cracked his skull on the conveyor belt. His brain was splatted all over the floor. They made me clean it. He healed, of course, but it was a pain because he screamed for days and he lives next door. I did not feel sorry for him because he got the weekend off and I think he ate my cat.
 
-Anyway, I really don't like this. Is there a way to break the contract? I know I am not human anymore and that I don't have human rights, but I was turned less than a year ago, so maybe some still apply. And if not, can I sue Diego? I think he ate my cat.
+Anyway, I really don't like this. Is there a way to break the contract? I know I am not human anymore and that I don't have human rights, but I was turned less than a year ago, so maybe some still apply. 
 
-Thank you.
+I found a number for an interspecies lawyer in the pocket of my uniform. I think it used to be someone else's uniform. I still called the number, because I was sad and angry, and really hungry too. I don't think they are feeding us enough. I will meet him next week. I hope that at least he will help me sue Diego. I think he ate my cat.
