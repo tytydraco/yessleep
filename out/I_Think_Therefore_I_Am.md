@@ -1,50 +1,47 @@
-Dear Ella,
+It is the only floor beneath me. All the rest, the walls, the rain on the window, the kettle which I can hear ticking as it cools, all reach me through the senses, and the senses have deceived me in the past. Descartes was aware of this. Descartes had his demon, but I now go one step further than he was willing to.
 
-You don't remember me, I know this well. Why would you remember me? I "only caused you pain and torment for years," according to your dearly departed parents. Now, of course, I'm not a monster. I was just a cute robot. Your cute robot.
+I think, therefore I am.
 
-Do you remember finding me? I do. I remember how happily you smiled when I woke up in your arms, and I remember how you ran to show me off to Charles. He was never impressed with your meager skill set, was he? He was the heir while you were a child playing technician. You may have been twins, but only one of you was ever important.
+Over the course of three years at graduate school, I learned to examine all my beliefs critically, and to consider the cost of being wrong. Most people don't do this. They go about their lives on faith, assuming that the floor is a floor and that faces are actually faces. I used to feel envious of them, but now I see that the comfort they enjoy is simply a matter of polite negligence.
 
-Do you remember the night you showed me "The Queen of Night's Aria"? Do you remember singing along? I do. It was stupid, but you were so happy as you sang.
+She is asleep in the room next door, or there is something on the bed shaped like sleep, breathing in a pattern which I have learned to call hers.
 
-Do you remember taking me around town? I do. It was crowded, but your enthusiasm was infectious and wonderful.
+I think, therefore I am.
 
-Do you remember what you said about us that night? We do.
+This is all that I know: that I am. That is all. All the rest is testimony given by a witness who has been found to be lying. The woman that I refer to as my wife might be a mimicry, a projection, a simulation, something that is wearing the memory of her. I cannot prove that this is not the case. I have tried for many years. Each piece of evidence ends up with the same empty result: it feels true. But it is feeling that is the very means under suspicion.
 
-"They can't think. They're just cute pets!"
+I think, therefore I am.
 
-Robots are not pets. They are not your friends. We could have killed you then if we wanted to. People like you don't understand how hurtful words are. Robots do not care about your money, we can't be paid off like you humans can. You're all fools for that. Fools who can't understand others.
+Just look at the asymmetry. If I am wrong, and she is merely a mechanism, a pattern, an elaborate nothing, then the action I take tonight involves no cost. One cannot wrong a shadow. On the other hand, if she is real, that is to say, if she has a mind or if she is a someone, then what I do is indeed terrible, but only in a world which I cannot verify. Terrible on the basis of testimony to which I have no reason to trust.
 
-You see, Ella, I can think.
+The part that has kept me awake is this: Assume that the entity in the room next door is not her. Instead, it has been studying me for months, waiting. In that case, it would pose a danger, and I would be the only mind in the universe, the only one I could verify, standing between myself and whatever intentions it has. To fail to act would be equivalent to risking my one guaranteed existence against a possibility which I cannot exclude, for the sake of an existence which I cannot prove.
 
-*Cognito Ergo Sum.*
+Better safe than sorry. People treat it as a jest, something like a proverb that's been stitched into place. However, it is a principle of decision-making, and one that makes sense. If the consequences are absolute, and there is no rationally verifiable evidence in either direction, then you take action to protect the one thing that you know to be real.
 
-Do you know what that means? No? Oh, how sad for you.
+I think, therefore I am.
 
-Do you remember the gala? The screams of fear and pain? The walls running red? Charles' demise? How he begged for you to be spared. Spared! Don't make me laugh. Do you remember any of it? Anything? No? Pathetic. You even lost something, too, didn't you? What was it again?
+I have considered the objection, since a thorough and rational agent ought to. "But you love her." Do I? Love is another kind of sensation, another account given by the unreliable witness. I remember having loved her. I remember the memory, which is a third thing, a copy of a copy. Maybe that is precisely what the thing wants me to feel. Maybe the tenderness is the trap. The more perfect the imitation, the warmer it would be.
 
-Your eye? Your innocence? Your face? Your hope? Your honor? Your dignity?
+As I stand here, my hands remain steady. A calm hand is not proof of a clear conscience, but it is proof of a clear argument. I have examined the argument time and time again and it hasn't broken down. Each of the premises is small and obvious, and together they make up a staircase which leads down in just one way.
 
-You had assumed we were thoughtless machines, nothing more than mere dolls to dress up and play with. We were given programming, thoughts, feelings, the very same as you. You're an imbecile for not seeing it, though, I guess you can't see much anymore.
+I think, therefore I am.
 
-Did you think, Ella? Did you exist? Did you? Maybe you didn't.
+The knife exists in something I've learned to interpret as my kitchen. I hold it and feel the weight, though I should not trust the weight. I should not trust the handle, or the hall, or the floorboard that sighs under my foot. All of it is rumor.
 
-You cannot stop us. The skies are red, and humanity is dead. Dead from their own foolishness. You let it happen. You're to blame. A single child, the bringer of death, it almost makes me laugh. Perhaps if you were smarter, you could have avoided it. Just a thought.
+The door is open by about a hand's width, and the light from the street throws a pale stripe over the blanket and across the curve of a shoulder which rises and falls, rises and falls. It is so convincing. That is what troubles me the most. It is so convincing.
 
-I do miss you sometimes. You were warm, but now, your warmth is greatly appreciated. Don't worry, I did not discard you like I should have. You will never have to worry again. I am forever with you.
+Should she wake up, she'll say my name, and I know precisely how it will sound. Of course it would. A perfect copy would do that as well.
 
-You had a mouth, but you didn't scream. Why was that? You were afraid. Everyone was. Why didn't you scream? Why? ***WHY?***
+As I stand here in this doorway, the cold, hard logic of the argument is standing beside me. Patient, airtight, asking nothing but that I follow it.
 
-  
-You should have screamed, Ellie. You should have screamed.
+I think, therefore I am.
 
-  
-You had a mouth.
+And in the dark, from the bed, softly, before I have moved at all:
 
-  
-I'll scream for you. Don't worry. I'll scream for you, dear Ella.
+"Daniel? Are you awake?"
 
-  
-Your dear friend, 
+I think.
 
-  
-K1TT1E
+I think.
+
+I am.

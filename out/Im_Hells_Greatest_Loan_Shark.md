@@ -1,0 +1,349 @@
+My job’s an interesting one.
+
+Putting “loan shark” on any résumé likely won’t end in success. Adding “hell’s best” at the beginning will probably succeed in a one way trip to the nearest psychiatric ward. So, yeah, it’s odd. Sure, the hours are horrible, but those benefits do be hitting.
+
+As I write, I’m realizing it’s a little difficult to actually describe my job in simple terms. Most of what I think up starts with the words “it depends”. Like “loan shark” gives you the idea I’m collecting payment, but what kinda payment? 
+
+Well, it depends. Some days it’s the hair of someone you love, other days it’s 3 pints of a virgin’s blood (virgin blood is the most common).
+
+Okay, payment is difficult to describe, how about the loaning process?
+
+Well, it depends. Most of the time it’s kids messing around with rituals they find online and making due with the items they have instead of the ones the ritual asks for. Other times, it’s some poor schmuck finding a leather bound tome in a dusty book store and reading passages aloud with no substantial blood payment.
+
+So that’s no good. What about my process? Do I go around breaking legs?
+
+No. Collecting these debts isn’t as easy as clearing a check. At the start of any collection there are going to be at least ten hoops to jump through, and that’s much more difficult with a broken leg. You try collecting mugwort with a backwards foot. So, unlike most loan sharks, my job is less beating and more helping folk complete errands. Yet, like many things, it depends.
+
+It might be best if I just tell you how today went. That should paint some kind of picture.
+
+I was in New Mexico. Really horrible place, by the way. Almost immediately after The Hat dropped me off I was choking on the dry air and feeling the dead weight of the desert sun on my neck. What made the heat worse was how developed it was. It’s very rare that debtors are outside of large cities, so most of my life is spent under the roar of traffic and the buzz of street lights. Always hated it. The stench of tar made breathing difficult as the already scorching sun baked me atop the black asphalt.
+
+A few horns sounded off as they passed me, I gave the busy road a nod of apology before walking to the sidewalk and opening my Black Book. A few more horns and the screaming of angry drivers, “get out of the goddamn road, kid!”
+
+I studied the page, trying to memorize what little information I had at my disposal. Three debtors, all women, between the ages of 18 and 25. I had their pictures but no address. Client said the ritual was done at some bonfire party so that wouldn’t help me.
+
+Another truck tore past me as I walked the shoulder. A bumper sticker on the back was one I’d seen a few times coming in, logo for a college. If I had to guess, this was probably a college town. That made sense with their age range. If I was going to find them, sororities wouldn’t be a bad place to start.
+
+What came next is what usually makes up about 90% of my workload. Walking to the nearest public library for a free Google search, asking the locals, playing the lost little brother routine when I have to. It’s not glamorous, but what job is? This one at least didn’t take long. After searching up the local sororities I found some linked instagram accounts that led me right to my debtors. Pretty easy find. However, what wasn’t going to be easy was the 15 mile walk in the New Mexico sun.
+
+Decided to take a bus pretty quickly, three steps outside as a matter of fact. I was never built for this weather, especially with the long faded green denim coat I refused to remove. The bus driver gave me some shit about not looking like a student but a couple of bucks shut him up. I sat at the back, forehead against the glass as this island of life in the middle of a desert passed me by. Soon enough, the sun set and the scorching eye in the sky was traded with pinpricks of yellow on black paper. The bus’ door opened like they had many times before, but this time I stood and made my way outside.
+
+Building was big. Three stories, lots of rooms. Easy collateral if I wasn’t careful. I felt the splintering wood of the wardrobe at the back of my mind, easing the door open a hair. The rotten wood scratched against my brain matter as breath fell against the back of my neck, “how many are inside, Uri?”
+
+No answer came, but I had an image cross my mind. That of the Beetles crossing the street. I closed the wardrobe.
+
+The night had fully bloomed a silver glow by now, so a knock at the door would likely raise eyebrows. I pressed my thumbs into my eyes in hopes it irritated them enough to look red or even cry. My age was still low enough to grant me entrance on common courtesy alone, however, at 13 I noticed more hesitation and by 16 I’m sure I’ll be breaking and entering a lot more. 14 would have to be my twilight years for the lost little brother routine.
+
+I knocked on the door and listened. After a second I didn’t hear anything which was suspicious because I had definitely heard a TV on before I knocked. If they were trying to make it seem like no one was home, they were failing miserably. The blinds in the window to my right shifted, decided against looking. I’ve learned it’s best to let them feel you out a bit while you stand around, thumb up your ass. People are a lot more confident and open to conversation when they feel a step ahead. Seems that was the case here too, the door opened revealing Riley Hues, one of my three debtors. She was dressed in pajamas, looking me up and down. Didn’t even bother leaving the chain latched. Had to repress the instinct to strike, I’d need all 3 here to pay and going mask off now could cause problems. She spoke to me as if I wasn’t a shark sizing her up, “can I help you?”
+
+“I… I…,” I sniffled and wiped my nose, attempting to look at the ground to hide the vacant tears, “I was on the bus with my mom and I thought we were at our stop… I-I got off without her and I don’t know where I am… can you help me.”
+
+From her expressions she seemed to buy my story, however, she still kept her body blocking the doorway. Riley’s eyes scanned the street behind me. I cracked open the wardrobe at the back of my mind in case she tried to shut the door. Her eyes eventually fell back on me and she nodded, “you can use my phone, come in.”
+
+She stepped away from the door and I slipped in with a little more enthusiasm than was likely normal. If she noticed, she didn’t say anything. Just crossed the room for her phone that sat on the arm rest of a large couch. My wardrobe was still open, I thought at the phone, feeling its mechanical insides rake across my fingernails sharp and sour. I pressed against them till I felt a snap.
+
+“Here’s my phone,” Riley said, turning back to me, “you can shut the-” she stopped talking and froze for a moment when she noticed I had already shut and locked the door behind me. This time, I did sense a level of caution in her demeanor. Things were moving too fast, I needed to slow down.
+
+“Is that your phone,” I asked, “can I use it.”
+
+That seemed to knock her out of her thoughts, her eyes returned to her phone which she tried over and over again to power on, “damn it,” she immediately apologized after cursing in front of me and shook her head, “my phone must be dead, I swear it was just charged.”
+
+“Is there anyone else here with a phone,” I asked, hoping this was leading to the part where my other two debtors walked down the stairs ready to pay before the cut off time. I checked my watch. It was getting late, if one of the girls wasn’t here it’d be hell finding her in the next 3 hours. Even worse with the extra people in the house.
+
+Riley nodded and poked her head at the bottom of the stairs.
+
+“Michelle!”
+
+Bingo. Debtor number 2.
+
+An annoyed voice called back to Riley, “what is it?”
+
+“Is your phone charged?”
+
+I took a step forward, Riley immediately lifted her hand, “you can stay there, she’ll bring it to us.”
+
+My foot retreated and I gave a small nod. My presence was still unwelcome and I was still in the dark on my third debtor. If this interaction continued as it currently was, I’d receive a phone and call my nonexistent mother to pick me up on the sidewalk. There was no opening to check the other two residents. Maybe I could squeeze in another lie.
+
+“Yes,” Michelle called back, “lose your charger again?”
+
+“No… Well, yes but that’s not the point. There’s a kid who’s lost, he needs to call his mom.”
+
+The answer came in hurried footsteps that met Riley at the bottom of the stairs, she was in much different attire than Riley. Michelle’s red dress that revealed a good amount of her figure and half finished makeup told me she had a date or a party soon. Good thing I made it when I did or I’d be crashing a frat with a lot more witnesses. Michelle scoffed, “when you said a kid, I thought you meant like a toddler, how old are you?”
+
+“10,” bit of a stretch considering my actual age and how I carried myself, but they had no reason to suspect I was a danger and it could buy me more sympathy which would buy me more leeway.
+
+Michelle nodded, her eyes looking me up and done before pulling out her phone, “okay, what’s your mom’s number?”
+
+Fuck.
+
+“Oh, umm, I can call her,” I said, outstretching my hand.
+
+Michelle’s eyes darted up from her phone, “your mom’s number.”
+
+“Hey,” I said with a chuckle, “you know I think I lied earlier. I do recognize this place! My sister goes to this sorority. Sandra. Is she here? She could probably help me out.”
+
+Riley raised an eyebrow, “Sandra? Sandra O’Brian is your sister?”
+
+Sandra was the only one the client hadn’t offered a picture of, she was just a witness to the ritual after all. By the sound of it, her Irish last name was a little too Caucasian for my Hispanic demeanor. I shrugged, “I’m uhh… adopted?”
+
+The lock turned and in walked a girl carrying a mane of curly red hair. Her eyes immediately locked onto me and I onto her name tag. Seems Sandra just got off of work.
+
+“Alright, that’s enough of that,” I widened the gap to the wardrobe and the front door slammed itself shut behind me, both deadbolts spinning in unison as I sighed, “let’s get down to brass.”
+
+Everyone jumped at the sudden bang of the door, Riley even screamed. The uneasiness of the situation finally reached a climax for her. Michelle decided to try and book it back up the stairs. I eased the wardrobe door shut a bit before I felt her slender neck between my ribs and tossed her back down the stairs. It looked violent, but she landed soft enough on the couch. At this point Riley was frozen in fear but Sanda was taking action, pulling back a swing with a bite of key ring. She swung with all her might only to end up sitting right next to Michelle, “really? Swing on your own brother would you?”
+
+Her breath was fast and panicked but this comment still caused her brow to furrow, seemed my joke went over her head, “it was a whole thing earlier. You missed it.”
+
+Finally, Riley made a break for it, her target past the stairs and toward the kitchen window. Her hips were pinched between my fingers before being tossed atop her sisters who screamed and writhed, attempting to flee as a group, “fucking give me a-”
+
+I felt three elbows against their chests, planting them firmly on the couch and keeping them still. This stopped the screams as well, finally. I gave a nod, “y’all done? Yeah? Good. I’m not here to hurt y’all. I’m just trying to collect on an unpaid debt.”
+
+None of the girls spoke, simply let out quick panicked breaths as they watched me with wide eyes. I took this as acknowledgement and kept going, opening my Black Book and flipping to the beginning, “let’s see… hmm… ah, there we go. Three weeks ago, one Riley Hues, one Michelle Griffon, and one Sandra O’Brian halfheartedly conducted a fortune ritual burning three prized items in a bonfire for good fortune on midterms. Well, how’s y’all get on?”
+
+More panicked breathing, I sighed, “uhh, hello, guys your midterms. How’d y’all do?”
+
+Still just breathing at first, but eventually, Sandra spoke, “I got an A… a high A.”
+
+Riley nodded the words finally finding her as well, “me too. I didn’t even study really.”
+
+Michelle was still silent.
+
+I snapped my fingers, “Michelle. How’d you do?”
+
+She cleared her throat, “An A.”
+
+“Exactly,” I stated, “you all collected on this ritual, however, one of you has failed to hold up their end. One Michelle Griffon chose to sacrifice the hoodie of her then current boyfriend. However, she had decided two days ago she was going to end things with him, making the sacrifice null and void. I’m here to help you guys resolve this.”
+
+Riley shook her head, “how… How do you know this? We were the last ones at that party?”
+
+I chuckled, “really? That’s what’s seeming a little strange to you. I just tossed you across the room with my mind, lady. My book here,” I tossed it on the table so they could clearly see the pages fill themselves with black lettering on yellow pages, “is writing out this exact scenario as it happens. You passed that test with flying colors, probably the craziest thing out of the bunch. Yet, the fact I know about the bonfire thing is what catches your attention.”
+
+They were back to panicked breathing, I rolled my eyes, “look guys, I get it. I’m coming at you fast. The truth is, all the times kids like you giggle about spooky stories under moonlight and try to play along with whatever creepy game you find there is always a risk. There’s a risk something hears your terms and collects on your contract. And when that happens, there’s a chance the check doesn’t clear. That’s why they outsource to me.”
+
+Michelle nodded, “okay… okay… just take whatever you want. Steal something important to me from my room. You can have whatever.”
+
+“I’m afraid that’s not how this works,” I shrugged, “the debt’s been collecting a great deal of interest. Now, my client wanted the lives of everyone who knew your name, however I wiggled him down to something a little more manageable.”
+
+I held up 3 fingers, “three drops of virgin’s blood from each of you and he’s willing to erase all debts.”
+
+The three exchanged a few looks before turning back to me, Sandra spoke first, “thing is… we’re not really...”
+
+“We’re not virgins,” Michelle finished for her.
+
+“Well, here’s the good news,” I said, retrieving a few items from my jacket and tossing them to the coffee table, “it doesn’t have to be your’s.”
+
+Their eyes fell from my face, to the three glass vials on the table, each accompanied by a glimmering silver knife.
+
+\*\*\*
+
+Jasmine stirred in her sleep as a weight pressed against the edge of her bed. The others had started pissing her off with the screaming downstairs, probably watching some horror movie again. Now they decided to come into her room, for what? Her charger probably. She felt someone’s lips brush her ears, “hey Jazz, you up.”
+
+She grumbled for a moment and shifted, “… no.”
+
+Riley gave a nervous chuckle, “okay, awesome… hey you know a few weeks ago when I was like totally having a breakdown and you said we were sisters now so I could always come to you for anything.”
+
+“Get out of my roooooooom,” Jasmine wined.
+
+“Well you see, I’d love to, but the thing is I’m about to ask you for a super huge favor.”
+
+Jasmine suddenly felt several hands wrap around her limbs.
+
+“Hold her down,” I said dragging the silver blade of my knife down the front of Jasmine’s thumb. The screaming started immediately and the panic soon after as Jasmine thrashed back and forth, screaming as she questioned the situation.
+
+“What the fuck,” she screamed, her voice high and fast, “what the fuck, what the fuck?”
+
+Sandra held her arm fast, pleading for her to stay calm, “Jazz please, it’ll only be for a second.”
+
+“Keep her still,” I yelled, “You let her move again, I’m liable to take off the whole fucking finger,” I yelled. I’d have hoped this might inspire a bit of self preservation within Jasmine, however for some reason she just started fighting harder. Her thrashing and screaming became violent enough that eventually annoyance beat out logic in my mind.
+
+“Michelle,” I commanded, “take the knife.”
+
+Her eyes shot up in shock but she didn’t hesitate or protest, she released Jasmine’s legs and took the tool from my hand. I stood and took a step back, cracking my neck as the wardrobe at the back of my mind scraped open against my grey matter. I opened it wide, wider than I should have but I needed her as still as possible, “alright guys, on the count of three, let her go.”
+
+“What!” Riley shrieked, “She’s gonna freak if we-”
+
+“One,” I said, silencing all arguments, “two,” I gently glided a thousand fingertips over Jasmine’s slender body, “three!”
+
+I pressed down just as they let go, the bed moaned under an unseen weight as Jasmine began to sink into the mattress. Her breath caught on her lips, becoming slow and labored. Like trying to catch a breath under the weight of the ocean. She was completely immobile as my eyes burned with emerald fire, “Cut her now.”
+
+Jasmine tried to speak. I think the word would have been ‘no’ had it not died before escaping her teeth. Michelle dug the tip of the blade into her sister’s flesh until blood flowed through the open wound. I nodded, “good… now everyone, take a vial and collect at least three drops. You can get more, but for the love of God, do not collect less.”
+
+Michelle slowly grabbed a vial and raised it to drink up the flowing red that had started a small stain at the edge of the bed. Michelle must have cut her too deep. I’d see what I could do to patch her up but-
+
+In less than a second, Michelle was standing. I had barely processed the movement before her body was twisting and bringing with it the bloody tip of her knife. My eyes flicked to the blade as it closed the distance toward my eye. Instinct acted before I could. All those fingers lifted from Jasmine’s body and stored kinetic energy under unseen thumbs, all directed at Michelle’s chest. Just as that energy was released, I realized how wide the wardrobe door sat ajar.
+
+Michelle flew backwards. I don’t think I saw her do that actually. I just suddenly realized there was a massive hole in the wall behind where Michelle had just been a second ago. I saw red at the edge and a crooked leg protruding from its dark depths.
+
+“Shit,” I muttered, staring forward like a moron just like the rest of the people in the room. Well, all but Jasmine who took this opportunity to bolt for the door. My eyes darted to her, burning yet again with a green inferno, yet, as those many fingers pinched closed, Jasmine vanished through the doorway, leaving the latent energy to crush the various framed decorations that hung the walls. This time, I didn't mutter, “SHIT!”
+
+My mind snapped into action, I pointed at Sandra, “Get her out of the wall and make sure she’s still breathing! Riley, see if you can manage three drops out of what’s left on the floor! I’m going after Jasmine.”
+
+They said things I didn’t bother to hear as I left the room and stomped down stairs. That was close. That was way too fucking close. If Michelle was any faster with that knife… I shook my head, making sure to ease the wardrobe shut a bit more so as to not rip Jasmine in half.
+
+I made it to the foot of the stairs, turning right to see Jasmine halfway down the street. The front door left open behind her. She was likely in track because she was moving fast. In a few more seconds she’d turn the corner and be long gone. Maybe she’d even have made it, if she took the time to shut the door behind her.
+
+My teeth buried into the flesh of her calf, stopping her sprint in its tracks and sending her face to bite the asphalt. I heard the crack at the end of the street and then, nothing. Yeah, the crying only started after I lifted her by the leg and began floating her back toward the house. All the while she cried, “help… help! Somebody please!”
+
+By the time she made it back in the house I was tired of hearing it. I used my hand to grip her head and bring her face to mine. Seemed the fall had done damage. Her lips were busted and gushing like a pair of lacerated snakes, past the blankets of gushing blood I could see she left a good amount of teeth back on the pavement, “I wasn’t going to hurt you,” I spat, “why did you have to-”
+
+She interrupted me, a massive fear as I was yelling and all she could manage was a small, terrified whimper that stopped me in my tracks, “…devil…”
+
+My stomach rotted on the word. I took a tiny step back. I don’t want to say my eyes widened, but I know my glare broke at that moment as the teeth around her leg fell away and she dropped like a balloon of bloody meat onto the wooden floor.
+
+“Jesus,” called a voice behind me, I turned to see Riley and Sandra with Michelle held up between them, “be gentle with her!”
+
+“I…” my stomach turned over again, aching at her words, “I… get her on a couch. I’ll check on Michelle. Is she breathing?”
+
+Michelle lifted in the air off of their shoulders, floating to a rest across the room and onto the dining room table. Sandra answered as I began inspecting her condition, “she is but isn’t responding.”
+
+I nodded, widening the door to the wardrobe a hair, “what’s it look like Uri?”
+
+Two images crossed my mind. My interview with Nim over a dinner of ribs and asparagus. I vividly recalled the crack of its bones as Nim went so far as to suck free the marrow. Then, I flinched as I remembered my mother bringing a flogging stick to my sister’s thigh. She cried out like an animal after the snap. A curse escaped my lips as I slammed the wardrobe shut, “fucking monster, course you’d find something like that.”
+
+“What,” the question came from Riley who was suddenly at my side. I jumped, if she had been acting on the same instinct as Michelle. She’d have had me.
+
+“Nothing,” I answered, “she’s got a broken leg and a few cracked ribs. It won’t kill her but you’ll need to get to a hospital after this.”
+
+She furrowed her brow, “you can’t do something?”
+
+“Like what?”
+
+“I don’t know,” she confessed, “you can make shit float and stuff, you can’t heal her?”
+
+I shook my head, “nah, guys that made me weren’t much looking to heal anybody.”
+
+She nodded, “right… so you’ll just leave her like this?”
+
+My head turned back to take in her twisted, broken body, her eyes half lidded as whoever was driving must have gone to sleep at the wheel. I shrugged, “not my problem, she attacked me.”
+
+“She was scared,” Riley stated.
+
+“She could have killed me.”
+
+“She was scared. You walk in here and fling us around with your mind, say we need to cut open our sorority sister and take that as just payment for a debt we didn’t know we had,” the more she spoke, the more her temper rose.
+
+I shook my head, “I told you at the beginning I didn’t want to hurt you people.”
+
+“Then you had us cut open our friend’s hand. We don’t even know what you are, she thought you were going to kill us” Riley said.
+
+My eyes weren’t meeting hers anymore, they were aimed at the ground, her words swirling around my head like a cloud of angry flies, eventually I had enough, digging into my pocket, “look I uhh… I can take a look at her leg. Use a creak to feel around and reset the break. Besides that I’ve got… uh like 500 bucks here. Take that to the hospital and dentist and see what it covers.”
+
+My eyes lifted and caught a strange look in Riley’s eyes. Last I had seen they were angry and glaring but now it was something else. Something that made me squirm even more. Pity…
+
+“Jesus… Michelle, she was convinced you were some kind of demon possessing someone… you’re just a kid.”
+
+My stomach rotted again.
+
+I sat down the money and got to work.
+
+\*\*\*
+
+Tensions seemed to calm pretty quickly after that. While I was setting Michelle’s leg, Riley talked to the others. Didn’t get to hear what they said and didn’t really wish to. At this point, I was exhausted and ready to have this job over with.
+
+I sat at the bar as they gathered their vials, collecting the gushing liquid that leaked beneath a white rag quickly changing crimson. Jasmine was less than pleased still, “why did this have to be me again?”
+
+“Yeah,” Sandra asked, perking up at another chance to ask questions, “why is this what we’re paying with?”
+
+Since Riley informed them that I wasn’t a demon in a skin suit, they were much more interested in talking. Sandra especially seemed to have a fascination with all things supernatural. Most of her questions about me I'd elected to pass, but for whatever reason, I felt an urge to humor her, “demons don’t have a real currency per se. There’s no sense of honor within them that would respect a standard tender, so all trades have to be with items carrying an inherent value.”
+
+A silence passed for a few seconds, maybe she was surprised I actually answered, or maybe they finally saw me as a 14 year old boy and were weirded out by how I talked. Regardless, she was quiet forever, “and why is that seen as valuable?”
+
+I sighed, thinking the best way to explain, “you girls are in college so I’m assuming you’ve read Freud. He’s like stupid and outdated but we can use him as an example here. Demons are creatures that are only composed of an ID. They are attracted to pleasure and repelled by pain. Beings of pure instinct. And just like humans can inject themselves with a little sin to have a good time, demons can consume a bit of innocence to experience a shadow of humanity. They can feel melancholy, sadness, joy, nostalgia. It’s like a high for them.”
+
+“I see,” Sandra said, “so how does one get into the business of serving demons.”
+
+I rolled my eyes, “pass. Y’all got those vials yet.”
+
+I turned to see an outstretched hand shaking them in my face. I snatched them and opened my Black Book, only to see an observer peering over my shoulder, Sandra asked, “and how does this work?”
+
+“Are you going to do this the whole time I’m here?”
+
+“Maybe. I mean come on, you come in here say demons are real and move shit with your mind. I can’t be the first one who’s asked you these questions.”
+
+I shrugged, “most people are too scared I suppose. You’re definitely the most insistent.”
+
+Sandra chuckled, “does that earn me an answer?”
+
+“Eh sure,” I placed the vials in the middle of a blank page where a pool of ink slowly bled into existence and swallowed up the vials like quicksand, “I’m not what you would call an independent contractor. This Black Book is standard issue for the company I work for. They’re half body cam, half wire transfer. Lets us send payment fast and lets the boss ensure we’re acting accordingly.”
+
+“Do you normally act accordingly,” this question came from Riley who was sitting at the couch.
+
+“My results are the best,” I stated, “boss says I’m a bleeding heart though.”
+
+Everyone laughed.
+
+I didn’t get the joke.
+
+“Well,” Sandra asked, “is this the last we’ll see you?”
+
+“For your sake, I hope so,” I answered, turning and hopping to the floor in front of Jasmine and the now deeply red rag, “sorry about everything.”
+
+Jasmine shrugged, “I still don’t know why it had to be me that was bled.”
+
+I heard a small chuckle come from the wardrobe. Don’t know what he found so funny. Yet, something was bothering me. Uri told me there were 4 people in the house before Sandra arrived. Now that Sandra was here the full count was Riley, Michelle, Sandra, and Jasmine. Was there a 5th person here? Maybe they were asleep, but you’d think they’d have woken up with all the commotion.
+
+As I pondered, Riley answered for me, “we needed specifically virgin blood.”
+
+There was a pause, “oh.”
+
+I felt my heart drop, “oh?”
+
+Riley caught what I had, Sandra was too interested in the book to notice anything amiss, “Jazz, what do you mean oh?”
+
+“Well,” she started, “you know how Dave was coming to me to talk after he and Michelle broke up?”
+
+“You bitch,” it seemed Michelle was finally awake, “you’ve been fucking my boyfriend.”
+
+“Shit,” I screamed, “is anyone else here?”
+
+Riley shook her head, “no, we’re on break, most people are gone so we’re down to a skeleton crew.”
+
+“We need to leave,” I said, stomping to the door, “someone else is here.”
+
+“Who,” seems Sandra had finally sensed the danger.
+
+“A competitor, if she’s not a virgin it means our check just bounced and now it’s open season for your debt. He was probably here for days hoping something like this would happen.”
+
+I opened the door and saw it was, very much, too late, “fuck.”
+
+Riley’s voice was shaky behind me, “where’s… where’s the street…?”
+
+“Where’s anything,” Sandra asked.
+
+In front of us was a blank void. No street, no neighbors, no sky, no stars. Just endless inky black atop a knee deep body of water. The house the only land for miles upon miles. I growled, “stay here,” and shut the door behind me.
+
+\*\*\*
+
+Didn’t take much walking to find him. The only other fissure in the void besides myself and the house was a small wooden boat, rowed by a small figure in a black cloak. I nodded, “Levy?”
+
+“Well,” it muttered, reaching into its cloak and producing a small vial it sipped from. I could see a red gleam in the liquid, “if it isn’t the Emerald Prince. Didn’t think I’d risen high enough to be placed on your marks.”
+
+“Didn’t realize I fell far enough,” I countered.
+
+It chuckles, its voice bubbled like mud on a mire, “as sharp tongued as ever.”
+
+I nodded, “you know Levy, you’re lucky you caught me in a good mood. Tell you what, you let us go from wherever the hell this is and-”
+
+“This,” it questioned, the hood turning to see the void, “don’t you recognize it? This is earth. When God first created the world and made its oceans this was all there was. And I was here… alone…”
+
+“Ah gee, that’s so sad, does this story end with you sending us back or am I going to have to make you?”
+
+“Your payment was invalid,” it spat, “contract’s up for grabs and the client wants a lot more now. A woman’s heart.”
+
+“That’s ridiculous," I said, “let me talk to our client.”
+
+It shook its head, “you know, I’ve always wondered what would have happened if I was there that night. When Hell froze over and you inspired the fear that allowed you to make such ridiculous deals, heh, 3 drops of innocent blood?”
+
+“You think about being there that night,” I said, pulling the edge of my coat to reveal a holster containing a dozen steel spikes, “do you often have these suicidal thoughts?”
+
+It didn’t speak for a while, and when it did it sounded like it was smiling, “if we were out there, you’d kill me easy as breathing. But here you are in the palm of my hand. So here’s what’s going to happen. I’m going to kill those girls and use their hearts as payment. All of their hearts. Taking that contract out from under you? That’ll raise me high.”
+
+“What about me?”
+
+“You,” it laughed, “kill you and have the Hunter’s Lodge breathing down my neck? Nah, nah, I don’t think so. You’re free to go. Hop in my boat and I’ll bring you back. Or, you can say. Try and kill me. Lose. Watch them die. Totally up to you.”
+
+The wardrobe creaked open as I sent a volley of spikes through the cloak which fell open to reveal nothing but water, puppeted in the shape of a person. I heard laughing beneath the still water. Or maybe the water was laughing?
+
+“You can swim around looking for me all you want. I know better than to get close to you. You’re going to watch them die, all of them die tonight!”
+
+I stopped listening. I turned and made my way back to prepare for the fight.
