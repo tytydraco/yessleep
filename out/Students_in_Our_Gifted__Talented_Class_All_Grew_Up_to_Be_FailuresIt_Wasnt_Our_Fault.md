@@ -74,7 +74,7 @@ I tried to politely humour her, but couldn’t keep my skepticism from my respon
 
 Mona’s eager, optimistic face instantly fell. I could tell she was mad at my blunt words, but she did a good job holding it in.
 
-My words were harsh but I believed them. Like so many other gifted students in the world, I’d let it get to my head too young. Gotten too complacent, only for hormonal changes and harder coursework to upend my status quo. I saw so many others online lament the trend—the cliché  of the gifted burnout.
+My words were harsh but I believed them. Like so many other gifted students in the world, I’d let it get to my head too young. Gotten too complacent, only for hormonal changes and harder coursework to upend my status quo. I saw so many others online lament the trend—the cliché of the gifted burnout.
 
 “I’ve looked *into* this, Jared,” Mona insisted. “There are others like us—every other student in that class. Most of them are dropouts, a good deal of them are homeless, but every single one has been affected too. I’m giving you the chance to get justice for them—and for you.”
 
@@ -94,7 +94,7 @@ With that directive, I bid Mona luck and crept out of the elevator into the maze
 
 Unable to bear the mystery any longer, I stealthily pushed my head through one of the unlocked doors on the level. Instead of finding data evidence, I saw something far, far worse.
 
-There was a test classroom with desks inside. I had expected there might be. But I hadn’t expected the room’s rows and rows of children—with shiny, chrome, encircling machinery clasped to their heads. From the corridor I watched the transfixed children' s eyes flicker in pain as the machines interfaced with their brains. I knew instantly what those devices—towering over the kids’ heads like whirring salon heat lamps—were doing.
+There was a test classroom with desks inside. I had expected there might be. But I hadn’t expected the room’s rows and rows of children—with shiny, chrome, encircling machinery clasped to their heads. From the corridor I watched the transfixed children's eyes flicker in pain as the machines interfaced with their brains. I knew instantly what those devices—towering over the kids’ heads like whirring salon heat lamps—were doing.
 
 I knew because they’d inflicted the same thing on me.
 

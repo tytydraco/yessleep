@@ -1,0 +1,77 @@
+I feel the darkness closing in on me, the book pages come alive and the tentacles of the creature slowly crawl out and start beating against my reading table as I push the chair back, but then it’s all gone and I’m alone again, I realize that those were just my thoughts again. 
+
+ 
+
+ 
+
+How do these thoughts get inside my head? How do any thoughts get inside anyone’s head? Are we connected to something greater? Do they come from the soul? Then why are my thoughts so dark? Must I fix my soul?
+
+ 
+
+Every morning I used to go to the library, since I was young. For many years I prioritized books over everything else, even neglecting my basic needs. This library by the sea was special to me, its magic drew me in and whenever I left, the feeling of longing for it began. I always read the books inside of it and didn’t bring them home.
+
+ 
+
+When I was old enough to work, I asked the librarians to let me work there, they said I lacked experience, but I offered to work for free. I cleaned, stacked books, put things and books in order, assisted people who came in. Impressed by my work the oldest librarian gave me her spot when she retired and my dream came true.
+
+ 
+
+I had the keys to the library and now I could read at night inside of it, with no one around to bother me.
+
+ 
+
+Some nights after work I used a candle, others, a small lamp. It was exciting and enchanting, but in recent times I began to have a feeling that someone was watching me through the windows and I couldn’t shake this eerie feeling.
+
+ 
+
+One day a man dressed in black came in, his face was long and pale, he came up to me and handed over a book. He said it was a donation and walked out. This book’s binding and sheets were nothing like I’ve seen or felt before. The cover had no name and looked like it was put together with several types of leather. I hid the book from others under my reading desk and waited till night time when I closed the library. 
+
+ 
+
+As I sat down and lit a candle I felt that someone was standing at the window, I quickly turned my head, but there was no one.
+
+ 
+
+I opened the book and on the very first page there was an image of a disturbing face of a creature, a mix of a shark with a bat. I continued and flipped to the next page. On it were strange letters and sentence formulations, but they were written in english letters so I could read them. Upon finishing the first page, before flipping to the next, I heard a loud creak of the floor in the back of the library. My heart began pounding as I set there motionless, staring into the dark outlines of book shelves. The sound happened again, but closer. I froze, my mind went into panic mode, but I couldn’t move. I had one hand on the book and other on the table. I didn’t have a gun, or any weapon, I had no tricks up my sleeve, I had no idea what to do. Again and again, the last sound came from behind the closest book shelf. I finally moved my hand and closed the book. Shacking I raised my candle and stood up. I slowly shuffled my feet to the wall where the light switch was located, not taking my eyes of that one tall book shelf.
+
+ 
+
+My thin finger flipped the switch and my eyes got big, but there was no one there! I went around it. No one. I looked everywhere and still I found no traces of anyone else being there that night.
+
+ 
+
+I hid the book again, turned of the light and hurried outside. Usually walking back to my small apartment at night felt safe, it was a crime free neighborhood, but that night my feet were tangling and I kept looking over my shoulder. Even when I was finally in bed I felt that someone was standing right behind my door, I was shaking as It took me hours to fall asleep.
+
+ 
+
+In my dreams I was swimming in an ancient underwater city, and then I saw the creature from the book, he sat there on his underwater black giant throne, calmly looking at me with his large black eyes and then I heard a whisper, something about page sixty.
+
+ 
+
+I woke up as terrified as when I went to sleep, that day I welcomed sunshine on my way to work. For the next few weeks I asked another librarian to take the night shifts. I did not touch the book, but every night the dreams about the sunken ancient city and the book continued.
+
+ 
+
+Finally I went back to my old schedule. One night as I closed the doors I decided to stay. I put a lamp on the table and took out the book. I hesitantly opened it and listened around me, there was nothing. I proceeded to page sixty and read the lines that talked about one becoming many and on the bottom there were writings I could not understand. As I finished, suddenly all of the book shelves began shacking, the book themselves were moving. I lifted my lamp and stood up. There were screams, people speaking in other languages, songs and chants, all coming from various books. Then a book close to me on one of the shelves flipped open and a black arm stretched out of it, it’s thin dry fingers grabbed unto side of furniture, in horror I dropped my lamp and ran.
+
+ 
+
+I was running through the streets, but without paying attention to which direction, my head was so taken by fear that my reason and awareness were completely clouded.
+
+ 
+
+In the morning I woke up on a bench in a park, I could see the waves of the ocean and the birds were signing. In the distance I could hear cars and commotion in the town. I walked towards the sounds and saw firetrucks next to the library, it was burnt down. I saw librarians notice me and point me out to police.
+
+ 
+
+I did not run and straight away admitted to dropping the lamp, I was too tired of it all. Once questioned by a detective on what happened and telling him all the details I was left alone in a room. He called in some men and they took me to a place where they said I’d get help.
+
+ 
+
+Since then I’ve been living in an asylum and kind doctor Albion has given me papers and pen to write down my thoughts and even books to read.
+
+ 
+
+ 
+
+I’m not so sure that it was a good idea.

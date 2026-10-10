@@ -1,0 +1,55 @@
+Have you ever wondered where people go when they die "of unknown causes"?
+
+​If the lights in your room go out while you’re reading this, please don’t turn on your phone’s flashlight. Just read until the end.
+
+​My name is Mark. Until last month, I didn’t believe in urban legends, curses, or internet horror stories. I was living in Tokyo, renting a cramped two-bedroom apartment on the outskirts of Shibuya, completely consumed by midterms and trying to scrape together enough money for rent. My roommate was Sid Harris—a quiet, unremarkable guy from the US who had moved to Japan on a language exchange program.
+
+​Sid was the kind of person you barely notice even when you’re standing in the same room. He always wore the same faded, oversized grey hoodie, perpetually looked exhausted, lived on cheap instant ramen, and worked late-night data entry jobs. He never complained about his health. The only thing I ever found slightly off about him was his shadow. Sometimes, when the desk lamp hit him at a certain angle, his shadow seemed to move with a fraction of a second's delay—as if it couldn't quite keep up with his body. I brushed it off as eye strain and bad lighting.
+
+​Then, three weeks ago, Sid died.
+
+​It happened on a Thursday night. The power went out across the entire block, plunging the district into an oppressive, suffocating darkness. I woke up because the silence felt too heavy—no street traffic, no hum from the refrigerator. I called out to Sid from my room, but got no response.
+
+​The next morning, I found him lying on his bedroom floor.
+
+​He was curled up in an unnatural posture. The autopsy left doctors and police completely baffled: a healthy 22-year-old heart had simply stopped beating in a fraction of a second. No signs of trauma, no poison, no underlying conditions. But what truly chilled me to the bone was his face. Sid’s face was frozen in a look of sheer, inhuman terror—eyes wide, bloodshot, and lips twisted in a silent, agonizing scream. It looked like he had seen something in the pitch-black darkness that instantly broke his sanity.
+
+​The funeral was brief. Shipping his body back to the States was too expensive, so his family agreed to cremation in Japan. I was left alone in the apartment.
+
+​And that’s when the real nightmare began.
+
+​Because Sid didn't die. He just stopped being human.
+
+​A week after the funeral, a student living in the neighboring dorm building vanished. He was a guy named Kenta, someone Sid used to occasionally bump into at the university library. The police inspected his room: doors and windows were locked from the inside. No signs of a break-in, no blood. But on the wallpaper right above Kenta's empty bed, police found deep, jagged gouges—as if carved by massive iron talons or charred metal. They formed a single sentence in English:
+
+​TENSEI WAS HERE
+
+​That was when an old conversation rushed back to me. A month prior, while browsing an obscure 2000s web archive, Sid had casually dropped the word Tensei (転生). He explained that in Japanese, it means "reincarnation." I laughed it off at the time, assuming he was just referencing some anime trope.
+
+​I was wrong.
+
+​Two days ago, a clerk at a local 24-hour convenience store went missing. A night-shift witness—a terrified, drunk office worker—told the police he saw a massive, elongated shadow rise from the corner of the dark backroom through the glass window. It was huge, with twisting black tentacles and broad, ragged shadow wings that seemed to tear through space. The shadow literally absorbed the girl, swallowing her without a sound. A second later, someone wearing Sid's grey hoodie walked out of the store. His movements were jagged, and his eyes burned with two blind, white glow-slits.
+
+​That was the moment I realized the horrific truth.
+
+​Sid Harris didn't die in the dark that night. His human shell simply cracked open, shedding the limitations of flesh to unleash an ancient anomaly. Tensei isn't a name. It’s a process. It's an entity that cannot truly be killed. It needs new bodies and new souls to sustain its endless cycle.
+
+​It has no physical weaknesses. It feels no pain, no fatigue. The laws of physics are irrelevant to it—it can teleport through any shadow, walk across ceilings, and paralyze human minds with hypnosis. Every soul it consumes becomes another life in its reserve. If you try to destroy it, it simply burns one of its stored souls and reincarnates instantly, marking you as its next vessel. Attempting to fight back is useless; you automatically become its next host.
+
+​And the writing on the wall... That's its signature. A mark left behind to show that the old vessel has been burned and discarded, and Tensei has moved on.
+
+​It’s 3:15 AM right now.
+
+​Five minutes ago, the power in my building cut out again.
+
+​I'm sitting on the hallway floor with my back pressed against the front door, typing this on my phone. The screen dimly illuminates my shaking hands. From inside my old bedroom—where Sid used to sleep—I can hear a sickening, hollow snapping sound. Like dry branches being snapped in half, or joints being violently twisted out of place.
+
+​From underneath the door crack, a thick, ink-black shadow is slowly oozing out. It rises up the wall, stretching to nearly ten feet tall. Long, powerful tentacles sprout from its back, ragged black wings unfold, and from deep within the abyss, two blind, white eyes lock onto me.
+
+​I hear a voice. It’s Sid’s voice, but layered with dozens of overlapping, guttural whispers:
+
+​—Mark... I need a new vessel...
+
+​I know there's nowhere left to run. If you're reading this, remember one thing: if the lights flicker in your room tonight, or if the silence suddenly becomes too heavy... Don’t look for a flashlight. Don’t try to call for help.
+
+​Just look at the nearest wall. If there's a charred sentence creeping across the paint—Tensei has already found you.
