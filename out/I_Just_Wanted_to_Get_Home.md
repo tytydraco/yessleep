@@ -1,0 +1,123 @@
+I was finally driving home after a week away on a business trip. The road was empty, and my GPS said I was only an hour away from my destination. I couldn't wait to get home. The radio host was cheerfully announcing the songs he would be playing that evening, cracking one joke after another.
+
+I passed an 80 sign. My GPS started acting up.
+
+“Turn… Drive… Left… Right…”
+
+What the hell?
+
+I looked at my phone and refreshed the page.
+
+Another sign stood ahead of me. 70. I looked around, trying to remember the last time I'd seen another car. All I could see was the road and the trees. Nothing else. Nobody anywhere.
+
+Another sign. 60.
+
+I looked at my GPS again. The screen refreshed, and I froze. Time to destination: 10 hours, 20 hours, 30 hours…
+
+“Turn into… Watch out for…”
+
+Then my phone shut off.
+
+I plugged it into the charger. The screen flashed a few times, then went dead. It wouldn't turn back on. Meanwhile, I noticed another sign passing by. 50. Where the hell was I, and why was the speed limit getting lower and lower?
+
+A burst of static pulled me out of my thoughts, followed by the radio host's voice. He no longer sounded funny and friendly. Instead, there was something sinister about him.
+
+“When you reach your destination, stop and don't get out of the car. Until then, keep driving and watch the road.”
+
+I had no idea what he was talking about. I'd been listening to this station for years, and the host had never said anything like that before. Maybe I should pull over and figure out where I was.
+
+A 40 sign. More static.
+
+“Samuel, don't stop until you reach your destination.”
+
+Static.
+
+“Danger… Watch out… Don't…”
+
+Then the radio shut off.
+
+Samuel? Was he talking to me?
+
+I slowed down again when a tall man wearing a black hat stepped in front of my car.
+
+I hit the brakes, but since I was already driving so slowly, it didn't take much effort to stop. I was glad to finally see another person. I wanted to get out, but then I remembered what the radio host had said. Instead, I rolled down my window.
+
+“Hello. I think I'm lost. Do you know where I am? My GPS isn't working, and my radio is acting weird, and…”
+
+The man cut me off.
+
+“Get out of the car.”
+
+He sounded angry and urgent. I gripped the steering wheel tightly, knowing there was no way in hell I was getting out.
+
+The man approached my window. I only vaguely remember a fist striking my face, his hand opening the car door, and him dragging me out. My head spun. Another blow, and everything went black.
+
+I woke up with the taste of metal in my mouth. I looked around, trying to figure out where I was, but I couldn't tell. It felt as though I was behind some enormous rocks.
+
+The man was crouching beside me. He held a finger to his lips, signaling me to stay quiet. I looked to the side, past the rock blocking my view, and saw a sign a short distance away. It had a zero on it.
+
+Trees surrounded us, and an awful silence hung in the air. Then the sound of a car broke it.
+
+A white BMW stopped right in front of the zero sign. I stared at it for a while. Nobody got out. I remembered the radio host's voice.
+
+Don't get out of the car.
+
+I couldn't take my eyes off the BMW. Then four police officers emerged from between the trees. They wore ordinary police uniforms and looked completely normal.
+
+One stood in front of the car, two positioned themselves on either side, and the last one stood behind it. They surrounded the BMW from every direction. The woman inside looked around and shouted something at them, but I couldn't make out her words from where I was hiding.
+
+The officers didn't answer. They just stared at her.
+
+Then, all at once, they opened their mouths.
+
+Long, pinkish tongues shot out of their throats. They moved so fast that I could barely process what I was seeing. Their tips struck the car windows and stuck firmly to the glass. The officers jerked their heads backward, and their tongues stretched taut.
+
+A loud crack rang out.
+
+A web of fractures spread across one of the side windows. Another tug, and the glass shattered inward. The woman began screaming and tried to move to the other side of the car, but the officers were already pushing their tongues through the openings, widening them. One of them reached inside and unlocked the door.
+
+All four of them lunged at her.
+
+I tried to look away, but I couldn't. Screams, blows, and sounds I couldn't explain came from inside the car. It lasted only a few moments. Then everything fell silent.
+
+The officers gradually emerged from the BMW.
+
+Each of them was holding a piece of a human body. One held a woman's leg, another an arm, and the third a piece of her torso. The last one stood apart, holding the woman's head by her long blonde hair. Blood ran down her face, and her eyes remained open.
+
+They were all still wearing their uniforms. One of the officers even adjusted his sleeve while the others headed into the woods.
+
+The one carrying the piece of torso stopped and looked in my direction. Our eyes met, and a terrible fear shot through me. I ducked behind the rock and prayed that the officer would turn away and leave me alone.
+
+But I heard footsteps getting closer and closer.
+
+I looked up and saw him standing right in front of me. He opened his mouth, and his tongue shot straight toward my hand, piercing it clean through.
+
+Just before I lost consciousness, I heard the man in the black hat shout, “NO! You've already got your prey for tonight!”
+
+I felt the tongue withdraw from my flesh.
+
+Then nothing.
+
+Darkness.
+
+I woke up in a hospital. The first thing I felt was terrible pain in my hand. When the medical staff came over, they told me what had happened. Apparently, a woman had found me beaten and unconscious.
+
+The police came to question me, too.
+
+I didn't know what to tell them, so I simply said I couldn't remember anything.
+
+I was discharged from the hospital later that same day. I was sitting at home watching TV when a breaking news report came on.
+
+“A woman, a mother of three, went missing last night. She was on her way to visit a friend but never arrived. She was driving a white BMW. The car has also not been found.”
+
+Then they showed a photograph.
+
+I recognized her. Even though I'd seen her in such a horrific state, I knew she was the woman from the previous night.
+
+They never found her.
+
+I can't tell anyone what happened. Nobody would believe me. Ever since that night, I've been having nightmares, and I can't stop thinking about what I saw.
+
+I'm starting to feel like I'm going insane.
+
+Please tell me something like this has happened to someone else. I need to know I wasn't alone.
