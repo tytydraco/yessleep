@@ -1,0 +1,439 @@
+It had been six months since she died.
+
+It was a normal day, or as normal as a day can be during this new phase of my life.
+
+It was a Saturday morning with no plans on the calendar, which was how most of my Saturdays looked during that season. At around 10 a.m., having just woken up a few minutes earlier, I was slouched on the couch, coffee in hand, staring at the wall, not thinking about much because there wasn’t much worth thinking about.
+
+Then, to my surprise, given how few people I see these days, there was a knock at the door. Figuring that it was another door-to-door salesman, I simply ignored it until I heard the knock again.
+
+Opening up my Ring app to see who it was, I was surprised to see that it was neither a salesman nor a Mormon. It was an older woman. I’d peg her somewhere in her mid to late 60s, carrying some type of dish in her arms. I got up, grabbed my coffee, and walked to the door.
+
+As I walked towards the door, she must have decided that I wasn’t going to answer and started walking down the driveway, but as I opened the door she turned, greeted me with a warm smile, and made her way back over to me.
+
+“Good morning,” she said brightly. “I don’t think we’ve met before, but my name is Cindy. I live just a couple streets down. I’ve been meaning to come over and introduce myself, but I keep talking myself out of it.” I immediately knew where this was headed. “It broke my heart to hear about the loss of your wife earlier this year, and I wasn’t sure if a visit like this would make things better or worse, but I just wanted to tell you that me and my husband have been thinking about you and that we’re here to help in any way we can.”
+
+I smiled and thanked her for visiting, for making the introduction, and for offering her help. In my experience, when people say that they’re there to help, they don’t actually mean it. It’s just something people say to feel better about themselves. But for some reason the words seemed more genuine from Cindy. Sure, her words came later than those from my friends and family, but in a way that felt like proof that the event had truly impacted her and that she was actually seeking to help, even though help was not something I was seeking.
+
+After a little more chitchat, we shook hands, exchanged pleasantries, and said goodbye, but as she started to walk away she stopped herself, chuckled, and remembered the dish she had been holding in her arms the whole time.
+
+“Silly me,” she said in a quirky voice. “I completely forgot. Here. I baked you a casserole. If you’re anything like the other young men I know, you probably haven’t had a good home-cooked meal in months.” She was right.
+
+She handed me the casserole dish, covered in foil, said goodbye again, and began to walk away.
+
+I’d never met Cindy before, but somehow she looked familiar. I couldn’t quite place it. I did feel like I had seen her before, but more so she just had a lot of those common characteristics of the sweet older women you meet through the course of your life.
+
+She was a pudgy woman, but not quite fat. She had short, curly hair that was clearly dyed, and a floral shirt to match her heavily applied floral perfume. But what stood out most about her was her warm, toothy smile and comforting presence. The same warmth you might get from your favorite aunt or grandma who would always bring you a present whenever she visited you growing up.
+
+Once she reached about halfway down the driveway, I went back inside and closed the door. Walking into the kitchen, I set down the dish and peeked under the foil to see what was inside.
+
+As with most casseroles, it was hard to know exactly what was in it. Clearly there was a cream-of-something soup mixed in with some type of white meat, and at least one of the vegetables was broccoli. Whatever it was, it smelled great.
+
+I crimped the foil back over the top, put the casserole in the fridge, poured another cup of coffee, and sat back down on the couch.
+
+Six months ago, my wife had died. It wasn’t anything that could have been avoided. I love the outdoors, and I had gone out of town for a three-day hike through a nature preserve a few hours from our home, a trip I try to do at least a couple of times a year. Julie liked to hike too, but she never enjoyed roughing it in the wilderness quite as much as I did, so it was a trip that I would typically take by myself, or sometimes with a friend.
+
+To keep from feeling too lonely or afraid while I was away, she would usually host at least one girls’ night while I was on my trip. When she died, she had just finished hosting one of these girls’ nights, and the combination of the dark house, the steep stairs, and the wine caused her to stumble over the steps and fall to the bottom of the stairs. Any number of the injuries she sustained could have killed her, but the autopsy listed internal hemorrhaging as the official cause of death.
+
+She was an amazing woman that I loved deeply who left behind an endless number of people mourning her loss.
+
+She had been a devout Christian since I first met her. Even though I myself had always been less convinced, it did bring me some comfort knowing that if there’s such a place as heaven, she made the cut. Still, I couldn’t honestly say that her death brought me any closer to my own spiritual enlightenment.
+
+The encounter I had that day with the older woman was not unique, though it did come much later than the similar encounters that had taken place immediately after the tragedy.
+
+As you might expect, there was a barrage of cards, flowers, meals, and text messages, sharing love for both me and my late wife, with constant offers to help in any way possible.
+
+But in the four or five months since, it had just been me. By myself. Living in the house that we had bought together just a year before she passed.
+
+The house was the same as it was before she died. Only dustier, and without the feeling of life that turns a house into a home.
+
+About a week had passed since I met Cindy, and I had nearly forgotten about her until, on a Sunday morning, I was again sitting by myself in the living room when there was another knock on my door.
+
+Like the week before, I figured it was either a salesman or a Mormon, both of which seem to love my neighborhood, so I didn’t bother to answer. But after I heard a second knock, I immediately remembered my conversation with Cindy. I quickly got up, walked to the door, and sure enough, there she was.
+
+“Hey, George,” she said. “How are you doing?”
+
+“Hey, Cindy. I’m doing all right. How are you?”
+
+“I’m good. How was the casserole?” she asked.
+
+“It was delicious,” I replied with a genuine but soft smile. “That’s actually been my dinner for the past three nights now.”
+
+Cindy chuckled.
+
+“I’m glad you liked it,” she said. “I brought you some more treats,” she added, eyeing the foil-covered plate in her hand. “And I also have a favor to ask. Would you mind giving me back that casserole dish I gave you?”
+
+“Oh, of course,” I told her. “Let me go get it for you. Please, come in,” I said as I hurried to the kitchen so as not to waste her time.
+
+The casserole dish was buried in the sink under a pile of other dishes I had gone through: a few coffee cups, a few forks and spoons, and the pan I had used for frying eggs. I used a lot more paper plates those days, so rarely would one show up in the sink.
+
+As Cindy set the plate of treats down on the island, she walked up next to me and said, “Please, let me do that.”
+
+Of course, I initially refused to let my neighbor and guest wash the dish she had lent me, but she was insistent, playfully pushing me out of the way so that she could take over.
+
+“While I’m here, just let me do the rest of the dishes,” she offered.
+
+“Please, please, no,” I told her. “You’re very kind, but you don’t need to do that.”
+
+“Oh, nonsense,” she replied. “It won’t take me but a second.”
+
+She started by scraping out and hand-washing her casserole dish, then moved on to rinsing the rest and loading the dishwasher. As she was finishing up the last few dishes, one of the mugs slipped out of her hand and shattered at her feet.
+
+“Oh my gosh!” she exclaimed. “I’m so sorry!” She immediately dropped to her knees and began to pick up the pieces. “Please, let me get it,” I told her as I went to find a broom but she didn’t listen, and by the time I returned, she was still on her knees, looking for more of the big pieces. I took the larger pieces from her hand. She also handed me a small pill bottle. “I found this under the dishwasher too. Blood thinners?” she asked.
+
+Quickly, I snatched them from her. “Yeah.” I hesitated for just a moment. “My mom has a heart condition. She must have forgotten them the last time she was here.”
+
+Cindy studied my face for just a moment but didn’t ask any follow-up questions. She just took the broom from my hand and, despite my protests, finished sweeping up the broken mug, continuing to apologize while she cleaned.
+
+She finished loading the dishwasher and asked, “Is there anything else I can do to help you?”
+
+“No, no, you’ve done so much. Thank you again. I promise I would have gotten to those dishes eventually,” I said lightly.
+
+She chuckled again.
+
+“Well, I’m glad you enjoyed the casserole, and I hope you enjoy the treats.” She stared at me for a moment, studying my face. “You should get some sleep,” she said. “You look tired.”
+
+I walked her down the hallway and out through the front door. I smiled, told her goodbye, and said that it was great to see her again. She said the same, and when she was about halfway down the driveway again, I closed the door.
+
+I woke up early Monday morning and got ready to start my day.
+
+I worked for a small company that doesn’t have a formal office, so all the employees work from home. For most people that would be a dream, and it was a dream for me until Julie died. What it means in practice is that I hardly ever have a reason to leave the house or talk with other people about anything other than work.
+
+I brushed my teeth, got dressed, and poured myself a cup of coffee.
+
+Right after I started working, somewhere around 8:30, I realized that I had to make a work purchase. I looked around for my wallet to find my corporate card before remembering that I had left my wallet in the car.
+
+I quickly made my way to the car, opened the door, and found my wallet. But as I turned to head back to the house, I jumped. There, in my poorly kept flower bed, was Cindy, wearing an old pair of jeans, a T-shirt, and gloves.
+
+“Hi, Cindy,” I said hesitantly. “What are you doing?”
+
+“Well, I noticed yesterday when I dropped off the treats that you had some weeds growing in your flower bed. I just wanted to take an hour or so and take care of it for you. I don’t know if I mentioned it, but I’m retired, so most days I don’t have too much to do.”
+
+“Oh, Cindy, you really don’t have to do that,” I told her.
+
+“Nonsense. It’s my pleasure,” she quickly responded.
+
+“Well, can I get you anything?” I asked.
+
+“No, I’m fine. Thank you.” Her response came with the same warmth I’d come to expect from all of her responses.
+
+“Well, thank you, Cindy,” I told her, trying to mask my bewilderment. “Please let me know if there’s anything I can get for you. I really appreciate all that you’ve been doing to help me these past couple of weeks.”
+
+I walked inside and locked the door behind me.
+
+“Strange. That was strange,” I thought to myself.
+
+The casserole and the cookies were very welcome. And doing the dishes, while a little uncomfortable, was also a sweet gesture. I knew she meant well by doing all these things, but it was odd for her to show up uninvited and take it upon herself to work on my flower bed.
+
+“Whatever,” I thought. I didn’t give it much thought after that. I had a busy day of work ahead of me, and to be honest, that flower bed was getting unruly and there was next to no chance that I would ever have gotten to it myself.
+
+As usual, I made my way to the back room on the first floor, my converted home office, put on my headphones, and got to work.
+
+It was a productive morning, more productive than usual, and I was heads-down until lunchtime.
+
+Around 11:30, I took out my AirPods, put them back in their case to charge, and headed to the kitchen for a snack, which those days looked something like a protein bar and a few potato chips.
+
+Passing through the living room on the way to the kitchen, however, I noticed that the coffee table was completely covered in folded clothes.
+
+“Cindy?” I called, loud enough to be heard throughout our modestly sized house. “Cindy, are you here?”
+
+A moment later, I heard the guest bathroom toilet flush, the sink turn on and then off again, and then the door open.
+
+When I turned out of the kitchen to look down the long hallway leading to the front door and the guest bathroom, I saw her. Standing at the end, silhouetted against the natural light from the front door behind her, was Cindy.
+
+“Cindy, what are you doing here?” I asked her. I was clearly upset with her and a bit freaked out, but I tried to cover those emotions with a mask of inquiry.
+
+“Well, I knocked on the door, but you weren’t answering. I needed to tell you that I hit one of your sprinkler lines while I was digging in the flower bed. I called my husband, and he offered to fix it tomorrow, but I just wanted to let you know now.”
+
+“What the fuck is wrong with you?” I thought to myself.
+
+“Cindy…” I said, rubbing my forehead and still reeling from the situation. “How did you get in? I locked the door after I came in.”
+
+“No, you didn’t,” she retorted with a puzzled look on her face. “It wasn’t even closed all the way when I first came to knock.” I could’ve sworn I had locked the door when I came in that morning, but just like when you leave for a long trip, I couldn’t remember for sure.
+
+Before I could think of another question, she continued. “I called your name from the doorway, but you didn’t respond. Given the urgency of the sprinkler, I walked in to find you, but you seemed really focused, so I didn’t want to disturb you.” After a short pause, she went on. “I found your sprinkler box in the garage and turned off the water there, and look, I left you a note.” She gestured towards the kitchen island. “But then I saw that your laundry had piled up, and I know how much you must be going through, so I figured the least I could do for breaking your sprinkler line was fold some of this laundry. I promised myself that after I folded it, I would use the restroom and leave, but then you came out.”
+
+I was still floored by the situation, but by this point most of the fear had subsided. I didn’t know if it was some sort of generational difference between us or if Cindy just wasn’t quite right in the head. But in any case, the idea of someone who was practically a stranger walking into your house, folding your laundry, and using the restroom, all uninvited, was beyond comprehension.
+
+“Cindy, I appreciate the help,” I told her, “but please do not enter my house uninvited again.”
+
+“I was just trying to help,” she responded shyly.
+
+“I get that, but please, this is a serious violation of my privacy.”
+
+Cindy was clearly saddened by the remark, and though she hid it, I could also tell she was upset with me, that I wasn’t appreciating what she was trying to do to help.
+
+“Fine. If you don’t want my help, then I’ll just leave now,” she said.
+
+“Cindy, I really appreciate you trying to help. Please just…” I paused, not quite sure what to say.
+
+“I understand. Goodbye, George. I’ll talk to you later.”
+
+And then she let herself out and walked away.
+
+A few days went by, and I couldn’t stop thinking about that encounter with Cindy, playing the whole scene over and over in my head. Looking back, I probably could have handled the situation better. It’s not that any of the things she did were bad; they just implied a level of familiarity that I didn’t have with her. Had a relative of mine, or even just a good friend, tended to my flowers or folded my laundry, I wouldn’t have considered it a violation, I would have been very appreciative. Even if they had walked in unannounced, sure, I would have been caught off guard, but it wouldn’t have immediately raised red flags.
+
+Sure, she wasn’t a family member or a close friend, but her actions were only out of bounds because they were out of my bounds. Maybe she was just that nurturing of a person? I kept remembering the look she gave me after I snapped at her. How genuinely hurt she looked that I was upset at the things she had done for me.
+
+“You clearly need to set your boundaries,” I told myself, “but you should reach out and try to make amends.”
+
+On the note she had left on the counter after folding my laundry, she had written her phone number, so on Friday morning I called, apologized, and asked if she and her husband would like to come over that evening for drinks and dinner. I would order in, and it would all be on me.
+
+“That sounds nice,” she told me, in a tone that sounded more like “I accept your apology” than “I’m sorry too.”
+
+While I would have liked to get an “I’m sorry” from her too, I was at least glad that she wasn’t mad at me. I told her goodbye and that I was looking forward to seeing them that evening. “See you at six!” she said enthusiastically.
+
+The workday passed as quickly as any other, but to my surprise, at 4:45, I heard a knock at the door.
+
+I was confused about who it could be. I thought it might be Cindy, but I figured it couldn’t be, given how early it was.
+
+Sure enough, I checked the Ring doorbell, and there she was, by herself, carrying a bottle of wine and a casserole dish.
+
+I got up quickly, went to the door, and let her in.
+
+“Hi, Cindy… you’re early,” I told her, telegraphing my confusion without trying to sound upset.
+
+“I am?” she asked. “I thought you said to be here at five.”
+
+“Oh. Well, I had said six, but this works too,” I told her. “Here, come on in, make yourself at home, and give me just a few minutes to close down my computer for the weekend.”
+
+She came in, set down her dish, and walked around the house, studying the sparse pieces of art and photos that were still on the walls, pieces that Julie had hung within the first two weeks of moving into our new home.
+
+I fired off the last few emails I had to send before the week was done, shut down my computer, and went back into the living room.
+
+“So where’s your husband?” I asked.
+
+“Oh, he’s not going to be able to make it. He’s not feeling too great. It’s a shame, too. He really was looking forward to meeting you.”
+
+I smiled.
+
+“Well, please take a seat. Let me pour you a glass of wine,” I told her. “Dinner isn’t expected to be here until 6:30.” I meant to continue my train of thought, but Cindy cut me off.
+
+“Why don’t you cancel that delivery?” she asked. “I brought over that casserole you liked so much.”
+
+“Are you sure, Cindy?” I asked, rubbing my neck. “I was really wanting to treat you guys to dinner tonight and be a good host.”
+
+“I’m sure,” she said flatly. “And besides, this is my favorite meal too.”
+
+I never told her that it was my favorite meal, just that I enjoyed it, but I didn’t fight the point. This was getting awkward enough as it was. I promptly called the restaurant and canceled the order.
+
+“How about some wine?” I asked her after hanging up the phone.
+
+“I would love some,” she said with a smile, giving me the first glimpse of warmth I had seen of Cindy since the last time she was here.
+
+I uncorked the bottle. It was a dreadfully sweet wine that smelled like a floral hangover waiting to happen. “That’s funny,” I said quietly. “I think this is the wine that Julie liked to drink.”
+
+Cindy replied with a staccato “Hm.” I poured her a glass and then poured one for myself.
+
+While we waited for the casserole to heat up in the oven, we stepped out onto the patio to chat. The conversation was a bit forced at first, but after that first glass of wine it started flowing more smoothly.
+
+She told me all about her life, which I knew very little about. She talked about her interests, her career as a nurse, and her family. She deliberately chose not to linger on the topic, but she briefly mentioned that she’d had a son who died in his early adulthood a couple of years ago and that it was still hard for her to come to grips with. “Maybe this is why she’s been so kind to me,” I thought to myself. “Maybe caring for me is part of her healing process.” I felt myself starting to let my guard down.
+
+I talked about my job as a mid-level analyst, how the work was boring but the money was decent. I talked about where I’m from and where I went to school, and, of course, we talked about Julie.
+
+“What was she like?” Cindy asked inquisitively.
+
+I paused for a moment. “She was amazing,” I replied. “It’s weird to say, but I miss her even more now than I did when she first left us.”
+
+Cindy gave a knowing smile. “Besides amazing,” she followed up, “what was she like? Tell me about her.”
+
+“She was very devout in her faith,” I said. “I never quite understood why she wanted to marry a skeptic like me. From what I understand, Christians frown upon relationships like that.”
+
+“You don’t believe in God?” Cindy asked.
+
+“I don’t know what I believe,” I told her. “It’s the heaven and hell thing that I find hardest to wrap my head around.”
+
+“Yeah?” Cindy asked. “I think there’s pretty good proof for both, and it doesn’t take a whole lot of searching to find out which direction we’re each headed.”
+
+I rolled my eyes and changed the subject. I could feel a come-to-Jesus talk coming on, and I wasn’t interested.
+
+I suggested that we eat outside, and so we did, and continued on with our conversations.
+
+Before I realized it, we had been chatting for hours in the backyard, and I hadn’t realized how much Cindy had been drinking.
+
+I drank only enough of the syrupy wine so as not to seem rude, but she had drunk the whole rest of the bottle.
+
+And when I, to be polite, asked if I could get her anything, she quickly responded that she would love a martini if I knew how to make one.
+
+That was another weird thing that caught me off guard. Not only would it be weird to expect a Gen Z’er to know how to make a martini, but what’s stranger is that I’m one of only a handful who do. It’s my mother’s favorite drink and one that I make for her every time she comes over, including when she last visited right after Julie died.
+
+“Sure,” I told Cindy, trying to hide my perplexity. “Dirty?”
+
+“Just a little,” she told me coolly.
+
+I made Cindy her martini, and one for myself, even though I’ve never been much of a fan.
+
+We toasted to our new friendship and finished our drinks.
+
+As we headed inside, Cindy couldn’t walk straight.
+
+I felt bad getting this kind neighbor of mine so drunk, but to be fair she was the one who drank the whole bottle of wine.
+
+Holding her hand, I walked her inside and told her to sit down on the couch while I made her a cup of coffee.
+
+I offered to walk her home, but she declined, telling me that she just needed to sit and rest for a bit and that a cup of coffee would be just great. I set her on the couch, walked to the kitchen, made her a cup, and brought it back to her, but by the time I got back to the couch, she had already passed out.
+
+Feeling like it was my fault, I didn’t try to wake her. Instead, I draped a blanket over her lap, set out a couple of Advil for when she woke up in the morning, and went to bed myself.
+
+I never sleep very well after drinking. The room always feels too hot, and I toss and turn all night. I woke up at three and couldn’t make myself go back to sleep. I got up and walked to the kitchen to get myself a glass of water and made sure that Cindy was okay.
+
+But when I got to the living room, Cindy wasn’t there. I breathed a sigh of relief, figuring that she must have woken up, slept off the worst of it, and made it home safe.
+
+She did say that she lived only a few streets over.
+
+I got my water, went back to bed, and finally fell back asleep.
+
+Just a couple of hours later, I woke up to the sound of pots and pans clanging in the kitchen.
+
+Confused and a little freaked out, I got up and went to the kitchen, and there I saw her.
+
+Cindy, making a full breakfast of bacon, eggs, pancakes, toast, orange juice, coffee, the whole nine yards.
+
+“Good morning,” she said cheerfully. “How’d you sleep?”
+
+“Hi, Cindy. I thought you went home,” I told her.
+
+“No, I woke up on your couch, and it’s a nice couch, but it wasn’t very comfortable. I remembered from the last time I was here that you have a guest room, so I went and slept there. When I woke up, I wanted to say thank you for letting me stay by making you breakfast.”
+
+“That’s sweet,” I told her. “Would you mind if I got ready for the day? Would you like a toothbrush? I have a few extras.”
+
+“Go right ahead,” she told me. “But don’t worry about the toothbrush. I keep one in my purse.”
+
+Seeing Cindy in my house the first time had undoubtedly freaked me out, but given the friendship we’d been cultivating, and the fact that she had actually been invited this time, it actually felt kind of nice to see her.
+
+I quickly brushed my teeth, combed my hair, and shaved. “Tss!” I inhaled sharply. I had nicked my neck. I put a small Band-Aid on it and made my way back to the kitchen.
+
+Once the meal was ready, we sat down, ate our breakfast, and had a laugh about the night before.
+
+“You’re bleeding, by the way,” she told me, touching her own neck to point out the cut from earlier. I had bled through the Band-Aid. “Oh, dammit,” I whispered to myself. “That happens sometimes,” I said, a bit louder. I hurried back to the bathroom, replaced the small bandage with a larger one, and returned to the kitchen.
+
+The first hour of the morning was great, but around hour two I was starting to drop hints that it was time for us to start wrapping things up.
+
+Hints like “Don’t worry about the dishes, I’ll take care of it,” and “What else do you have planned for the rest of the day?”
+
+Not that I had anything going on that day myself, but I was ready for a little peace and quiet.
+
+But every hint I dropped seemed to go unnoticed by Cindy, or flat-out ignored, as became obvious with the dishes, which she promptly began doing once it was clear that we were both done eating.
+
+“Here, let me at least help you,” I said, smiling as I stood up from my chair.
+
+“Sit down,” she said sternly.
+
+As if by involuntary reflex, I immediately fell back into my chair. It was a feeling I hadn’t felt since childhood. A feeling that made you shrivel up inside, like when your mother would tell you she wasn’t mad, just disappointed.
+
+I sat back in my chair and watched while she made short work of the stack of dishes we had created, setting the dishwasher to run before briefly joining me back at the table.
+
+Timidly, I thanked her for all that she had done and for the great time the night before, and told her that there were a few things I needed to get done that day.
+
+She just sat there. Expressionless. Then, as if a switch had flipped, she smiled warmly again and suggested that she just help pick up around the house before she left. If I thought it would have mattered, I would have told her not to worry about it.
+
+Throughout the course of that Saturday, she went from cleaning the kitchen to the living room to the bathrooms to the floors.
+
+As we got into the early afternoon and she was still there, I asked if there was anything I could get her.
+
+“Well, a little help would be nice,” she told me sharply.
+
+I stared back blankly, taken aback by what she just said to me.
+
+“I’m sorry,” she said immediately after.
+
+“It’s clear that I’ve overstayed my welcome, and I apologize. Let me just text my husband. He’ll come and pick me up shortly.”
+
+“Your husband?” I thought. She had told me that she walked here and on more than one occasion she had mentioned that she lived just a few streets over. Why would she need a ride home?
+
+“Whatever,” I thought to myself. “Her husband is coming, which means I’ll have the house to myself again soon.”
+
+“How about a cup of tea while we wait?” Cindy offered.
+
+“I’m okay, Cindy,” I told her. “I’m really okay.”
+
+Cindy seemed visibly hurt by this, like she couldn’t believe that I would refuse an offer as generous as a cup of my own tea.
+
+“Are you sure?” she said.
+
+“Yes, Cindy. I’m not even sure that I have tea.”
+
+“You do,” she quickly told me. “I saw it in your cabinets.”
+
+There was a brief, awkward pause.
+
+“Coffee, then,” she offered.
+
+“Sure,” I told her unenthusiastically.
+
+She perked up a little, and I made my way to the kitchen to make the coffee.
+
+“No, please, let me,” she said. “We have a machine just like this at home. Why don’t you take a seat outside, and I’ll bring it to you while we wait for my husband? Any chance we can drink it on the upstairs patio?” I knew a polite refusal wouldn’t be any use.
+
+“Sure, Cindy.”
+
+Too nervous about what she might do in the house if I left her there alone, though still wanting to give her some space, I waited for her at the bottom of the stairs.
+
+After she rounded the corner from the kitchen, two cups in hand, we climbed the stairs together and sat down on the terrace. She sat there next to me with a warm smile on her face, while I sat next to her, smiling awkwardly, just waiting for her husband to arrive.
+
+As the coffee cooled, I took a sip. And then another. And then another.
+
+It was mid-afternoon by then, somewhere around three or four, and I started to feel a little drowsy.
+
+“So,” I asked slowly, fighting to keep my eyes open, “how far away is your husband?”
+
+“Well,” she began, staring at her phone, “his location says he’s still at home.” Putting her phone away and turning her attention to me, she continued. “You know, sometimes, when he wants me to think he’s home, he’ll leave his phone there and go out and do something else.” She smiled at me, waiting for my reaction, which was that of a wide-eyed statue. “As if anybody with a brain would actually fall for that.”
+
+Not yet fully aware of what was happening, but sensing the predatory edge in her tone, I slammed the rest of the coffee, trying to perk myself back up, but soon after I did, the drowsiness grew. My speech slurred, and my vision blurred. Realizing now the gravity of the situation I was in, I anxiously felt around my pockets for my phone to call the police, but it wasn’t there.
+
+“You don’t look so good,” said Cindy, now chillingly back to her warm and comforting self. “Here, let’s go inside.”
+
+I didn’t want to follow her, but at that point I was like a zombie, moving slowly and clumsily in whatever direction she pulled me. She led me through the upstairs hallway and down the stairs, but as we reached the landing halfway to the first floor, she turned me around. Barely conscious at this point, I looked at her, and for the last time she gave me her warm, toothy smile, locked eyes with me for a second, and then, with more force than you would expect from a woman of her size and age, shoved me down the last twelve steps of the staircase.
+
+“Sorry, George,” she told me, with a chilling level of what would normally be seen as genuine empathy, “but it wasn’t anything that could have been avoided. Especially with the combination of the dark house, the steep stairs, and the coffee that caused you to stumble.”
+
+Still awake but unable to move, I watched her short, pudgy frame walk down the last few stairs before she sat down on the second-to-last step.
+
+“You know,” she started, before giving me a brief smirk. “Of course you know. Most blood thinners don’t show up on a standard tox screen, and with no evidence of foul play, there typically aren’t too many requests for follow-up blood work.” She looked at me briefly and then up at the wall. “But falling down the stairs is suspicious enough by itself, at least to me, so I did a little research of my own. I have to say, the blood thinners were a smart addition. Besides the fact that, you know, they’re how I caught you.”
+
+She continued. “The whole point was to act as an insurance policy, right? If breaking her neck didn’t kill her, at least the internal hemorrhaging would?” She didn’t go into any further detail. We both knew there was nothing left to hide.
+
+It wasn’t until that moment that I remembered why she looked familiar to me when I met her. When they first found Julie the next day, she was still alive and rushed to the hospital, though she died shortly after arriving. When I finally made it to the hospital one of the first things I saw was a nurse, Cindy, consoling Julie’s parents.
+
+“But what I’m still not sure about is the why,” she told me.
+
+By then I was fading in and out.
+
+Picking up her foot and setting it on my arm, which I now realized was horribly broken, she began to press down. As I started to scream, she lifted her foot and told me coldly, “That was your cue to start talking.”
+
+I tried to speak, but even with the threat of more pain, I couldn’t form a coherent sentence.
+
+“Hmm,” she said, disappointed. “I guess that last cup of coffee was pretty strong. Oh well, I feel like I have a pretty good idea, and at this point I guess the specific motive doesn’t matter much anyway.”
+
+“What… now…?” I muttered with all the strength I had left.
+
+“What do you mean? Oh, like, what am I going to do with you?” she asked. “Nothing. I’m going to leave you the same way you left her. Lying in agonizing pain until you die.”
+
+“And don’t worry about other people finding you, at least not for a couple of weeks. You’ve done a great job of insulating yourself from the world. That’s why you killed her, right? You missed your privacy? Your time alone? Your independence? Your bachelor days? Hm.” She stopped for a moment to look around the house. “Some life. As for the few loose ends, I sent an email to your boss last night telling him about a family emergency that will pull you away all next week. And your mother? Well, you don’t talk to her much anyways.”
+
+She rolled slightly backwards and then forward to lift her pudgy frame off the floor so she could stand up.
+
+“Do you remember at dinner last night, when I told you that there’s good proof for both heaven and hell, and it doesn’t take a whole lot of searching to find out which direction we’re each headed?” The question was rhetorical. “You and I are both headed to hell. You’re just going to get there a lot sooner.”
+
+She then gave me one more warm smile and started walking away.
+
+The real intention of that full day of cleaning must have been to clear any evidence tying her to my death, though from the corner of my eye I saw her place two items on the kitchen counter: a small pill bottle and an unsealed envelope. “A more comprehensive blood report on your wife,” she told me flippantly, “and of course the pills that they’ll tie first to your death, and then to hers.” She walked over and stared at me one last time, brandishing a cheeky, satisfied smile. “It was great to meet you, George.”
+
+Without another word, she walked down the long hallway, let herself out through the front door, and locked it from the outside.
+
+I don’t know how much time passed, but eventually I regained consciousness. The peak of whatever sedative she had given me must have passed. I was lying in blood and writhing in pain. It felt like I had broken some ribs, but I could tell that I wasn’t paralyzed. With my good arm, I clawed my way towards the kitchen. Reaching up and fighting through the pain, I pulled the envelope and the pills off of the counter and clawed my way to my office. She had taken my phone, but I was eventually able to open my computer and make a WhatsApp call to my mom, who sent the paramedics to my house. While I waited for them to get there, I threw the pills into the office closet and then ripped up and swallowed the one-page blood report.
+
+I clung to life until I heard the paramedics break down my door. That’s when I knew I was going to make it. It would be easy enough for them to find me. They just needed to follow the blood.
+
+I had to spend a few weeks in the hospital, but eventually I was released. Blood thinners don’t show up on a standard tox screen, and between the insistence that I simply tripped and the fact that there was no evidence of foul play, the scene was never investigated as anything other than another freak accident.
+
+My mom decided to live with me until I was strong enough to look after myself, something that I was very appreciative of. As the first couple of months passed I was almost able to walk without any assistance. I certainly hadn’t forgotten about Cindy, but after the first few weeks I stopped constantly thinking that she was about to come and finish the job.
+
+One Saturday morning, the two of us were sitting in the living room, drinking our coffee like normal, when there was a knock at the door. My mom got up to answer it while I checked my phone to see who it was.
+
+I didn’t see anybody at the door. My mom opened it, closed it again shortly after, and came back.
+
+“Look, George,” she said excitedly. “Somebody left you a casserole.”
+
+My face immediately flushed, and my stomach sank.
+
+“And look,” she continued, opening up the unsealed envelope, “they wrote you a note.”

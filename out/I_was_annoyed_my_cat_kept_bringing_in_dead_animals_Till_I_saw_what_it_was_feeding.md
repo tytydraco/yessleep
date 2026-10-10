@@ -1,0 +1,199 @@
+Mad-eye (uncreatively named for the black spot over his left eye) had always been a freakishly well-behaved cat. When me and my girlfriend at the time had first gotten him, she had tried to convince me to get him neutered but I managed to convince her to wait a week to see how he got on before making a decision; the week passed and the subject was never brought up again. After that relationship imploded in catastrophic fashion, Mad-eye had stayed with me. Through those dark lonely nights, he had kept me such great company and I grew to love him more than any pet I had ever had growing up (sorry Max). All this to say that Mad-eye’s sudden bloodlust completely blindsided me this January.
+
+ 
+
+
+
+I had just returned from visiting my family over the holidays (leaving Christmas eve and returning January 2nd). A neighbour of mine, a kind elderly woman named Margaret, had been given the task of checking in on and feeding Mad-eye over that time and reported that he had gotten on well-enough but seemed to miss me dearly. She recalled on a few occasions finding him solemnly hiding under the couch in the living room, only emerging when coaxed out with a tin of tuna fish. After hearing her relay all this to me, over the phone before my arrival, I had imagined I would be greeted with much adulation by my loyal companion on my return – this was furthest from the case.
+
+ 
+
+ 
+
+When I returned that morning, Mad-eye was not at the door waiting for me as I had expected. Neither was he hiding under the sofa in the front room. Not even after I had brought in all my bags from the car and scanned all the rooms in the house could I seem to find him. It was only when returning from my room upstairs did I notice where had gotten off to. In the main hallway, the basement door was slightly ajar. After moving in I had neglected to enter the basement much, using it to only store old crap that my mother had insisted I bring from hers and my ex-girlfriends stuff she had neglected to take with her when she left. So, it was not strange that I had neglected to consider it when I had made my hunt for the missing Mad-eye. Having used it so sparingly, I had not considered that I had left the door open and Mad-eye had made a home there while I was gone.
+
+ 
+
+ 
+
+Descending now into the basement, the first thing that struck me is how cold it was down there. I had not remembered it having been this cold before but now there seemed to be a quite constant chill bellowing from somewhere. Reaching for the light and pulling it on, I recall having jumped slightly in fright at the sudden flush of light, as if the cold air had brought upon a spectral quality to the place and I had imagined being faced with a spirit of some kind when the light came on. There was no such spectre however, just Mad-eye cleaning himself in the centre of the room. I swiftly moved to clutch him in order to take him upstairs and playfully reprimand him for giving me such a fright; that’s when I noticed the first dead bird laid at his feet.
+
+ 
+
+ 
+
+I wall all-over dumbfounded by this discovery. Mad-eye had never been a hunter of any sort. Only once had I found him chasing a mouse around the house, but even then, when he had the little thing trapped in the corner with nowhere to go, he had grown bored and let it live to be captured by me and thrown outside. Now there was a decapitated bird in my basement, with its tiny guts hanging out onto the floor. Now I did clutch Mad-eye, now to chuck him out the front to give me room to deal with his mess. He could always re-enter whenever he wanted through the cat flap attached to the same front door, but whenever he was thrown out he seemed to understand the sentiment and leave me alone a while before crawling back in. Grabbing a bin bag from the kitchen and going down once more to the basement, I finally noticed from where the cold draft had been coming. In the small cellar window was now a jagged hole like a golf ball had been sent through it.
+
+ 
+
+ 
+
+Two weeks followed with no incident. I paid someone to fix that hole in the window and Mad-eye seemed to have returned to his regular self - with no more “gifts” of any kind. It was such that I had not returned down to the basement in some time. That night, I was sitting in the living room enjoying a solitary night in with a beer, when Mad-eye came back in through his cat-flap. He did not turn into living room to lay upon my lap as he often did when returning at this time at night. Instead, he passed the living room with not even a glance. I remember finding this odd but quickly forgot it and returned to my drinking; that was until I heard Mad-eye scratching at something out in the hall. Coming out of the living room, I saw Mad-eye standing on his hind legs furiously scratching at the basement door. Standing closer, I could see that his mouth was coated in dried blood and once more at his feet was a decapitated dead bird. Confused, I decided to open the basement door to see what he was planning with his new friend. Lightly bouncing down the basement stairs, he descended ahead of me into the darkness and when I pulled the light on, he was once more sitting in the centre of the room with the bird at his feet. Just as he had before, he began cleaning himself there, licking the blood from his mouth and claws. I stayed a while, thinking he may begin feasting on his prize, but instead, once clean, he merely returned back up the stairs from whence he came.
+
+ 
+
+
+
+I did not follow him, it was not my confusion at his behaviour which kept me there, rather there was now a undeniable smell about the place. Perhaps it had been here before but only now that the draft was gone was it noticeable. Slowly creeping around the room, I tried to ascertain where exactly the smell was coming from. I concluded that in the furthest right corner the smell was strongest, but still, I didn’t see anything. In the way was one of the biggest cardboard boxes, the thing was so large and heavy that only after placing my back against and pushing with all my might could I move it the slightest amount. It was enough, now peeking out from behind the box was the body of another bird, this one so decayed that chunks of the flesh gave way so that you could see the things skeleton. Craning my head as to see further around the box, I gazed upon Mad-eye’s great work. A pile about two feet high of butchered animal carcasses (a variety of birds, squirrels and the like) each in various states of decomposition. The smell was almost caustic, and I was forced to recoil. Returning upstairs, my nose covered with my shirt, I found Mad-eye laid where I had been sat. No visual change had he undergone, he had no evil glee of the butcher he was, instead he lay there as he always had. I took him to get neutered the following day.
+
+ 
+
+ 
+
+Having his balls snipped greatly decreased his movement and he no longer spent much time outside of the house. For the following month, I even managed to convince myself that the whole business had been dealt with. It was about 2 in the morning when I heard the crash from downstairs. So loud that it at once startled me out of bed and to my feet. I knew instantly, he was in that god damn basement again. Even after all this time, I couldn’t figure out how he was getting down there on his own. I bounded down the stairs just in time to catch him coming up the basement steps into the hall. Grabbing a shoe from the bottom step, I tried to swing at the little devil as he passed, but I missed and he fled back outside. I decided then that I would be getting rid of that bloody cat-flap. Hell, I’d even get a lock for the basement, anything to put this to an end. I had just been considering this when from the basement came another crash. Impossible, I had just seen Mad-eye bound outside. Probably one of those critters he had brought in wasn’t entirely dead and had caused all the ruckus. I descended the steps.
+
+ 
+
+
+
+Entering the basement and pulling on the light, everything seemed to be as it had been before. Quickly, I spun around the room, holding the shoe high above my head looking to chase out whatever fiend was down here. But I didn’t find any pest, all I found in my frantic hunt was one of my ex’s old vases smashed to bits and next to it a picture of the two of us - the frame also smashed. I had thought all this stuff was packed in boxes. What was it doing out here? I installed that lock on the basement the next day.
+
+ 
+
+ 
+
+For a few days after, Mad-eye would still bring in his treasures and claw at the door as he had done, but soon he seemed to get the idea, and he stopped bringing them in. I would’ve liked to revel in my victory, a weight had been lifted from my mind, and my loyal companion was back as he had been. However, the noises from the basement kept me from such revelry. Almost every night, I would wake in the night to scratching or the shuffling of feet coming from the basement. Whatever had been down there that night had managed to evade me and now the lock had been installed was now trapped. I wondered if I could go my whole life without going back in that basement. That fantasy came crashing down about a week and a half after I had installed the lock.
+
+ 
+
+ 
+
+As had become habit lately, I was awoken in the middle of the night to scratching at the basement door. Being used to this now I tried to ignore it, roll over and get back to sleep, I had a busy day tomorrow after all. This became impossible when another loud crash came from the basement. Fuck it! What kind of man was I hiding up here from some rat or something, scaring myself with my own imaginings like a child. I stormed down the steps and seized a frying pan from the kitchen. I was just about to reach for the lock when something banged against the other side of the door. Whatever was down there must now have been throwing its whole weight against the door, one desperate attempt to escape its tomb. But even then, what could be heavy enough to knock on the door with this much force, the whole thing was now warping with the force. Maybe, I had been wrong, whatever this was Mad-eye hadn’t brought in. I had just been thinking that perhaps a dog had come in from the cat-flap, when from behind the basement door came a voice; no more than a pained whisper.
+
+ 
+
+“Help me please... I’m sorry…”
+
+ 
+
+  
+
+
+I fell backwards onto the floor. Such terror filled me now that I felt I might crack my teeth open from how tightly I clenched them. Without rising I shuffled backwards into the living room, all the while watching as the door bent and strained, soon it would burst open, the lock was only a small thing after all. My phone laid on the coffee table. I grabbed it and tried to clench it tight, but in my fear all I could seemingly muster was a limp hold - I thought I might pass out. I had to take a moment to will my fingers to stop shaking before I could manage to unlcok the phone and call the police.
+
+ 
+
+ 
+
+It took half an hour before an officer arrived. All the while the voice continued from the other side of the door.
+
+ 
+
+“Pleeeeaaassee… Heeeelp…..”
+
+ 
+
+I only rose from the floor when I heard the sirens outside. Jumping to my feet, I ran to the door and waved the officer inside. A rotund man of about 40 emerged from the police car and once he had followed me inside, I tried desperately to detail what had happened.
+
+ 
+
+“A man! A man in my basement! He’s trying to get out! He’s banging on the door!”
+
+ 
+
+  
+
+
+But there was no banging now. Whatever it was had slipped back down into the basement - it was hiding. I led the officer to the basement and unlocked it. He paused for a moment and called out.
+
+ 
+
+“Whoever’s down there! This is the police, come up now with your hands behind your head!”
+
+ 
+
+No reply. The officer shot me a look as if to say, “after you”, he really didn’t have much of a saviour about him. Seeing that I was quite happy to stay exactly where I was, he unholstered his gun and descended. Peering down from the door, I observed as he tentatively took the stairs and upon reaching the bottom pulled on the light. I winded back and tensed, I had never seen someone shoot a person before and braced for the cacophony of blood and bullets. However, nothing like that came. Reluctantly, I returned my gaze to the bottom of the steps. Seeing the officer still standing at the bottom of the stairs I sent a rushed whisper.
+
+ 
+
+“Do you see him?”
+
+“No, but god… the smell.” He was tightly covering his nose and mouth with the crease of his right arm and holding the gun out with his left.
+
+ 
+
+
+
+Hesitantly, I descended a few steps; just enough so as, when crouching, I could see into the now lit basement. He was right, there was no one down there but even up here the smell was overpowering, more so than it had ever been with the birds.
+
+ 
+
+“He’s hiding. He did it before.”
+
+ 
+
+The officer carefully crept further into the room.
+
+ 
+
+“What’s that?”
+
+ 
+
+His weapon was now trained on a box in the furthest corner – the same box that had been obscuring the pile of dead carcasses. At the bottom of the box was now entirely damp and leaking. Next to it, where there had been the smashed vase and portrait, were now a whole host of trinkets. The box had been emptied.
+
+ 
+
+
+
+“In there he’s in there!”
+
+ 
+
+I pleaded from the top of the stairs as the officer approached the box. He stood before it a while, weapon trained, before in one smooth motion, he tore open the lid. This time I didn’t look away, now I needed to see, to know it was over. But again, I was left wanting. The officer was now peering down into the box.
+
+ 
+
+“What the fuck?”
+
+ 
+
+“What is it? Is it him?”
+
+ 
+
+Wildly, the officer spun to face me, gun still raised, focusing it on me.
+
+ 
+
+“What the hell are you-“
+
+ 
+
+Something slowly raised from the box. From over the lip of the cardboard box eyes stared into me. A child’s eyes. The officer began to yell.
+
+ 
+
+“Stay right there you freak! I’m calling this in!”
+
+ 
+
+
+
+The officer reached for the radio attached to his chest and began bellowing into it. I didn’t pay much notice to what he was saying, I was still staring at the boy. He was so skinny, bones poked out from all over his small frame. And he was so pale, almost translucent, like he had never seen the sun.
+
+ 
+
+“Listen, I want you to walk over to me – slowly!”
+
+ 
+
+I stayed fixed in place at the top of the stairs. I didn’t care about the officer; there was something up with this boy. He was now smiling at me, a large toothy grin, like he was taking humour in the officer commanding me. It looked like there were feathers in his teeth.
+
+ 
+
+“Are you death! I said-“
+
+ 
+
+It all happened so fast. Swiftly leaping from the box, the boy had latched himself onto the officer, holding around the officers face for grip. The officer writhed for a while trying to throw the boy off; the boy had begun burrowing his fingers into the officers’ eyes. They struggled like that for a while, with the officer screaming curses in agony. Until, in one swift movement, the boy simply leant back - taking the officers head with him like he was deshelling a prawn.
+
+ 
+
+ 
+
+Without another thought, I fled for the front door. I had barely made it out into the hall before it was on me. It was just so fast. It hit me to the ground so hard I broke my nose. In that moment I knew it was over, but what was I to do? I just held my now bleeding nose and curled into a ball, as small and tight as I could. It took me a minute to realise I wasn’t dead. Ahead of me the front door was now open, torn from its hinges, a trail of blood in the things wake. It had eaten and now it was free.
+
+ 
+
+ 
