@@ -421,3 +421,5 @@ Then she hung up.
 Now you might think I’m crazy for continuing to work here but what choice did I have? I was already used to it and Emilio helped by going in sometimes as well. Besides, a thousand dollars is a thousand dollars and I started getting that every week after we went in there.
 
 Pretty soon we hired a new guy. He’s not ready for 1001 yet but one day he will be and I won’t let him get fed to her. It might not have been right to not tell him about it before he started the job but what could I have even told him? Besides, he’ll probably take the bonuses just like I did.
+
+[https://www.reddit.com/r/nosleep/comments/1x23zbr/im\_an\_apartment\_maintenance\_technician\_i\_get/](https://www.reddit.com/r/nosleep/comments/1x23zbr/im_an_apartment_maintenance_technician_i_get/)
