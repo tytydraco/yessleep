@@ -60,7 +60,7 @@ And chuckled, then chortled, and coughed and hacked in raucous enthusiasm; he lo
 
 "You've finally done it! Oh, didn't you read the fine print? Was that all I ever had to do to get you? That was so simple, so simple. I knew I'd get you!" he screeched, his voice grating and high-pitched. He looked monstrous now, as the sun set, his features garbled beyond recognition. He grew warty and wrinkled and hairy – he was pulsing with a foul aura, like a wound oozing a sickly puss. 
 
-"It's me, me, the List Man! And I've got you, finally, finally I have you! Now I've done it proper!" 
+"It's me, *me*, the List Man! And I've got you, finally, finally I have you! Now I've done it proper!" 
 
 "What are the rules?" 
 
@@ -72,10 +72,10 @@ And chuckled, then chortled, and coughed and hacked in raucous enthusiasm; he lo
 
 "I said: You're a dolt. You're not smart at all." 
 
-"Hah, you say, but when day comes, what'll you do, boy? I've got you!" 
+"*Hah*, you say, but when day comes, what'll you do, boy? I've got you!" 
 
 "You haven't read it." 
 
 His movements stopped abruptly. His grip on the clipboard tightened; I heard his long nails squeak against the plastic backing. He read, and his eyes filled with horror, and he could not lift them from the page as I brought that red rubber mallet down on his head. One time, two times, three, four, one time for every time anyone had every said to me there are some rules and then some more. I bashed him until he was not more than a pile red sludge and I washed him off my porch with a garden hose.  
 
-All I'd done was sign John Smith, because really, I was too afraid to fork over a full five-hundred bucks of my hard-earned cash; I'd thought maybe I'd go back later, and make a fifty donation, while apologising for the mix-up. The List Man hasn't pestered me since, and nor should he pester anyone else ever again. 
+All I'd done was sign John Smith, because really, I was too afraid to fork over a full five-hundred bucks of my hard-earned cash; I'd thought maybe I'd go back later, and make a fifty dollar donation, while apologising for the mix-up. The List Man hasn't pestered me since, and nor should he pester anyone else ever again. 

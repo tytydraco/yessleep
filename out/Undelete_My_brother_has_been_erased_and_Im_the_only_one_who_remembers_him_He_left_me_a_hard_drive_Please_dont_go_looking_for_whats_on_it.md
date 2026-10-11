@@ -1,0 +1,155 @@
+&#x200B;
+
+I'm writing this on my work laptop, in a library, on a Sunday, because I don't trust anything at home anymore. I don't know how long I have before I stop remembering why I'm doing this, so I'm going to try to get it all down in one go. Sorry in advance for how messy it is.
+
+My brother has been gone for about two weeks. I say "gone" because I don't have a better word. "Missing" isn't right. Missing means there's a gap other people can see too. Someone files a report. A coat stays on a hook. His name is still in somebody's phone.
+
+None of that happened. I asked our neighbors, people who've waved at him across the driveway for four years, and they gave me this polite, blank look, like I was describing a character from a show they'd never watched. I checked the university where he taught for six years. No faculty page, past or present. I checked that first night. I checked again the next day, hands shaking, telling myself I'd just mixed up the department. I checked a third time and stopped telling myself anything.
+
+As far as I can tell, I'm the only person who remembers he existed.
+
+That, and a hard drive.
+
+\## The drive
+
+A few months ago he handed me a small external drive on a totally ordinary evening. "Hold onto this for me. In case." I asked in case of what. He smiled, that specific smile he used when he wanted a conversation to be over without looking like he wanted it over, and that was it. I put it in a drawer and forgot about it.
+
+When I finally plugged it in, there was one encrypted folder. The password was taped to the back of an old photo of the two of us as kids, sun-faded, one corner curling. That's how I knew he'd planned this. Not exactly this, maybe, but some version of a world where I'd need a door he wasn't there to open.
+
+Inside was a scan of a printed document. Crooked, like it was photographed in a hurry. The header said \*\*INTERNAL — GROUP ZERO — DO NOT CIRCULATE\*\*, plain institutional font. I've since gone through it more times than I want to count, so I'll tell you what's in it in order. The order matters. I didn't realize how much until later.
+
+\## The document
+
+Page one is boring. Some kind of independent research circle. No name online, no chain of command they'd put on paper. The tone is flat and over-explained, like people who've written the same report too many times to be upset about it anymore.
+
+Page two is where I slowed down. A list of things they'd catalogued over the years. Forces that could unmake a galaxy in one motion. Minds that erased star systems just by waking up. Old names, the document says, that other people in other decades were already scared enough of to build religions around them.
+
+I'll be honest, I skimmed this. It read like those scales you brace for in this kind of thing and then stop believing by the third paragraph, like disaster statistics past the first few thousand.
+
+Then, near the bottom, alone on a line: \*We thought we had seen the bottom of the well.\*
+
+And under it, same font, but clearly typed at a different sitting, spacing slightly off: \*We were wrong, and we didn't have language for how wrong at first.\*
+
+I wasn't scared yet. I want to be straight about that, because it matters for the rest. I was mildly creeped out, the way you get when someone forwards you something at 1 a.m. That changed on page four.
+
+The scan quality drops on page four. Not terrible, just enough that some words go soft at the edges, like the ink was damaged before anyone photographed it. There's a paragraph about what every one of those older, worshipped entities has in common. Direction. Will. A hunger to move toward something, specific enough that you could chart it and be afraid of it in a way that made sense.
+
+And in the single worst-scanned patch on the page there's a name.
+
+First letter was clear. The middle smeared into shapes my brain kept trying to force into words I already knew. I read it three different ways in three passes. It took zooming to about 200% at nearly 1 a.m. before the letters finally separated.
+
+I'm going to type it once, because the rest of this doesn't work without it, and I'm sorry.
+
+\*\*Azgaron.\*\*
+
+I said it out loud once, quietly, mostly to see how it felt. I didn't like how it felt, and I can't explain why. It doesn't sound evil. It doesn't sound old. It sounds like a word built out of other words with the meaning filed off. I haven't said it since. I'll call it "it" from here on.
+
+Once I had the name I went back through the pages I'd skimmed. Three of the older "worshipped" entries had small handwritten notes in the margin, different pen, added later. All three say some version of: \*reclassified. See file. Not equivalent category.\*
+
+Not weaker. Not equivalent. Like someone went through years of their own worst discoveries and quietly moved every one of them into a different drawer.
+
+\## Page five
+
+Page five stops being about history and starts describing what it actually is, or really what it isn't. It doesn't approach. It doesn't attack. It doesn't expand, not in any sense the earlier pages used that word, because expansion is still a direction, and direction is apparently the first thing that stops working wherever it is.
+
+There's a hand-drawn diagram. Badly drawn, the way people draw when they've stopped trusting words. I can't really describe it. Someone starts a circle, gives up halfway, draws another failed circle over it, and does that dozens of times until the middle of the page is just dense black and the edges fade into nothing. Under it, same handwriting as the margin notes: \*this is not what it looks like. This is what happens when you try to draw it.\*
+
+I stared at that for longer than I'd admit to anyone.
+
+The next pages are about scale, and this part took me three read-throughs because I kept flinching mid-paragraph, the way you do at a number too big to still be a number. Our reality isn't described as \*fragile\* compared to it. Our reality, plus every other one they had any theoretical model for, every branching timeline, the whole omniverse with all of it, is described as a single grain of sand on a beach at the edge of an ocean nobody has ever measured the far shore of. Not because it could wipe everything out if it wanted to. Because "everything" was never big enough to count as something worth wiping out. Mold, the document says, on the outside of a jar the ocean had been poured from, in a room nobody built, next to other jars none of us have ever seen.
+
+There's another margin note here. Group Zero ran exactly one internal test on whether the hierarchy itself could be questioned. Whether there was any coherent way, even hypothetically, to model something above it. The note doesn't say what happened to the researcher. It says only that the test was never to be repeated, and that the reason wasn't classified. It was simpler than that: \*no one who finished that thought stayed a person capable of finishing thoughts.\*
+
+I stopped reading after that one. Not out of discipline. I'd been staring at the same three words for about a minute and my hands had gone cold in a way the room didn't explain. I made tea. I didn't drink it. I sat back down because not reading it felt worse.
+
+The rest of the page is short and I'm not going to be clever about it. There is nothing above it. Not like a ranking or a throne someone could take. More like "above" runs out of meaning before you get there. I tried, for maybe two seconds, to actually picture that, and my body reacted before my thoughts did, the way your stomach drops off a ledge before your brain notices your foot found nothing. I didn't finish picturing it. Please don't try either. I don't understand the danger well enough to explain it, and that not-understanding is the only part I'm sure of.
+
+\## The ones who tried
+
+The next entry is longer than the rest and written very evenly. The way people write once they've stopped hoping word order will change anything.
+
+What they noticed first wasn't a threat. It was absences. Group Zero kept a register of omniverses they'd managed to model, even roughly, and one day several were missing. Not destroyed. The document is insistent on that. Destruction leaves wreckage, and here there wasn't even a place where wreckage would have been. The lines in the register were still there. What they pointed to wasn't.
+
+It took them almost a year to find out why. They found it in the old catalogs, in the exact entries that had been moved to another drawer. The file calls them \*\*the Unbound\*\*. Whatever stood in front of them, a law, a ceiling, a limit of any kind, they broke. Not by being stronger. By being the thing frames don't hold. They could take a whole physics apart like a rough draft and walk out through the gap.
+
+When the Unbound learned of it, they did what they'd always done. They tried to break its frame. To stand above it.
+
+The document doesn't describe what came next in any detail. It says there was no frame, and that the direction of the attempt reversed. Every blow upward was a subtraction from the one who struck. What they'd made, the laws they carried, the worlds where those laws held, the omniverses that had been theirs to break and mend, started to return into them, and then past them, smaller each time. Something that rises relative to it doesn't climb. It's reduced toward the place it climbed from.
+
+The missing omniverses turned out to be theirs. Each attempt took one back. They didn't fall into the silence, they were withdrawn into the ones who'd made them, and those ones were withdrawn into less, and less, until the last line of that column of the register, which the file gives in a single word: \*\*Rezo.\*\* The state before anything was made. They hadn't been defeated. They had been returned. And the leak, which was old and quiet, like water finding the lowest point without deciding to, took what they left behind. The more they shrank, the faster it took.
+
+In the margin, in someone else's hand, pressed harder than anything around it: \*They didn't attack. They only tried to go above its limit. It had none, so they went down. That was enough.\*
+
+Under that, small, a different hand again: \*Any attempt to break it, to pass it, to stand over it, accelerates it, and what rises is returned to Rezo. So we no longer test limits.\*
+
+And at the very bottom, almost off the page, one line I only noticed on my second read: \*If you find this, do not try to work out which of them is greater. The question is already the attempt.\*
+
+I recognized the handwriting. The sharp k's with the long tails. He sent me postcards every year, always the same hand. I couldn't tell you the last time I looked at a single letter that long.
+
+I read the entry twice and I think I understand why it's filed near the end. When you get to the bottom of it, you catch yourself thinking something simple and bad: that somewhere, possibly, there's still someone who doesn't know some frames shouldn't be broken.
+
+\## The vector page
+
+The last page of that section isn't a report. It's a draft. Lines crossed out, corrected, crossed out again. Only the final version survived, and there isn't a single number in it.
+
+\*We called it a vector, because we couldn't find another word. A vector is any "toward." Growth, a blow, a climb, a comparison. Everything we can do, and everything that can be done to us, has a direction, or we wouldn't be able to notice it at all.\*
+
+\*To look at it is also a vector. To hear it. To remember it, to fear it. Each of these is turned toward something. Here, it is turned toward it.\*
+
+\*We looked for it where everything else is looked for, and each time we found only our own looking.\*
+
+Below that, same hand, barely pressing: \*It is what remains when "toward" is subtracted from the world.\*
+
+I read that, and I think for the first time I understood why my brother left me a drive instead of words. Words are directed. The folder just sat there and asked for nothing.
+
+\## The rest of it
+
+The remaining pages are shorter and colder, more like case notes, so I'll summarize.
+
+One entry is about an early attempt to fire a directed energy device at a suspected contact zone. The device destroyed itself eleven minutes \*\*before\*\* the order to fire it was given. The incident report existed before the incident did. Then the report was gone. Then, according to the file, the incident had never happened.
+
+Another describes zones where directional space just stops applying, like the word "loud" stops applying to a smell. Matter inside them becomes something the document calls a boiling red mass, existing at every point in three-dimensional space at once, undetectable by any instrument, and only inferable from the shape of what should have been somewhere and wasn't.
+
+The one I keep going back to is the shortest, and it's not about some far-off containment site. It's about paperwork. A researcher typed the name into an internal case log once, early on, just to have something to call the file. She tried to delete the entry the same day, standard procedure, nothing confirmed, no reason to keep an unverified designation. The entry didn't delete. Not "wouldn't." The document is careful about that. The command ran. The system said success. The name stayed exactly where it was, same font, same timestamp, like the deletion had happened to some other, identical database just outside the one anyone could see.
+
+So they escalated. Wiped the drive. Physically destroyed it. Rebuilt the database from a clean backup taken before the name was ever entered. I work in IT, so I read this part twice. Every time, the name came back before anyone finished confirming the backup was clean, in a field that had never been written to during the backup window, timestamped to the second against the original entry. As if "before it was written" was a courtesy the system wasn't willing to extend anymore.
+
+Someone tried a second archive. Physically air-gapped. No conceivable connection to the first. Just to see. The name showed up in both the same night. No transfer log, no network event, nothing to explain how information crossed from a machine with no outbound connection to one it had never been near. Whoever ran that test was reassigned off the file entirely, according to a note added weeks later in a different hand. No explanation. They're not mentioned again.
+
+There's a standing warning attached to the file: \*\*do not attempt deletion.\*\* Not because deletion fails safely. Because every recorded attempt left the surrounding data measurably less stable afterward. Unrelated case files, timestamps drifting by minutes or sometimes years, cross-references pointing at incidents with no other surviving record of ever happening. The working assumption, stated with zero hedging: once the name exists anywhere inside a system built to hold information, that system can no longer be asked to not know it.
+
+The last entry is the one that got me most, and the one I've reread the fewest times because I keep stopping before the end. People who got close to one of the affected zones reportedly experienced what the document calls \*\*reverse cognition.\*\* Memory running backward. Remembering things that hadn't happened yet while losing the past, day by day, until the mind collapsed inward to the point of birth. Three documented witnesses. None of them remained themselves. In their last coherent minutes, all three apparently spoke fluently in a language none of them could possibly have known. Not baby talk. A real, structured language, one that, according to the file, didn't exist yet at the moment any of them were born.
+
+The document closes with the only known defense: total avoidance. Never model it. Never calculate it. Never hold sustained focus on it, because attention, directed and conscious, apparently extends its reach. They insist they never went looking for it. They just noticed pieces of their own math and physics quietly disappearing, equations that used to work no longer working, and worked backward from the shape of the absence, one discipline at a time, until the absence was the only thing left with any shape.
+
+I read that three times and understood less each time. Not the words, the words are simple. It's the size of what they're describing in words that small. You'd expect something that big to come with bigger language, louder language. It doesn't. It just sits there in plain sentences, like a doctor telling you something is terminal in the same tone they'd use to say your appointment ran long.
+
+The last line, the one I keep rereading: \*It isn't at war with us. It doesn't want our end. Every omniverse, every force we've ever feared or worshipped, is simply leaking, slowly, into the silence left behind after it. Not fighting. Not fleeing. Leaking, the way water finds the lowest point in a room without ever once deciding to.\*
+
+\## What I did next
+
+There was a second folder on the drive. My brother's name on it. One file inside, last modified the day I finally opened the first.
+
+I need to tell you something I'm not proud of. Sometime past midnight, that first night, I typed the name into a note on my phone. I didn't decide to. I just wanted it in front of me while I tried to understand what I was looking at. I deleted the note almost immediately. It sat in Recently Deleted for twenty-nine days before it purged itself, like everything in there does. I checked on it more than once during those twenty-nine days. I couldn't tell you why that was the detail I couldn't let go of. I'm now very aware of the number thirty and I'm not going to think about it.
+
+I didn't open my brother's file that first night. It was two more days before I found the courage, or the recklessness, to do it.
+
+Those two days weren't quiet.
+
+I started losing things. Small ones first, the kind you only catch because you reach for them. The name of the street he lived on. The color of his car. The second morning I stood in my kitchen trying to remember whether he took sugar in his coffee, and I realized, very calmly, almost peacefully, that I couldn't say. I wrote down everything I still had on the back of an envelope. By evening I couldn't read my own handwriting without effort, and two of the lines meant nothing to me.
+
+I don't know whether that was the document, or the same thing that already took him. I don't know if those are different things. That's the part I try not to hold for long.
+
+What I knew was that the drive was the only place he still existed, and that it was also the only place the name existed. Sometime the second night those two facts stopped being separate. I took the drive to the sink. I had a hammer from the garage. I stood there with both for what the clock says was ten minutes.
+
+It was her entry that stopped me. The researcher who tried to delete one line, same day, for the simplest, most reasonable reason. The command ran. The system said success.
+
+I put the hammer down. Not because I believed it wouldn't work. Because I believed it would, in exactly the way hers did, and I wasn't ready to read the part of that sentence nobody wrote.
+
+I never wanted to destroy the file. I wanted to stop being the person who knows. That's not the same wish, and I think it's the more dangerous one.
+
+What I found in my brother's file is the reason I'm posting this at all. I'll write that part when I can. I'm trying to remember how to spell his name first.
+
+\*\*EDIT:\*\* To everyone in the comments asking for the file, scans, or the name: no. Please don't ask again. And please don't try to work out which is "bigger." I've seen at least four of you do the math in the replies. Stop. The question is already the attempt.
+
+\*\*EDIT 2:\*\* If this post disappears, that's not me. I didn't delete it.
