@@ -1,0 +1,266 @@
+I want to put something on the record, I’m no supporter of the President. I've been against him and his policies since day one of his administration. He was always a fascist in sheep's clothing and I’m tired of being gaslit by the people around me to think otherwise. When he signed the executive order, I thought that be it, the moment everyone would realize the kind of monster we made into the most powerful man on earth, but instead his sheepshit supporters cheered it on like they do every awful thing that he does.
+
+In case anyone reading this has somehow managed to avoid it and it seems a lot of you here don’t follow politics, in March, the President signed an executive order. The official title is something like the Correctional Burden and Public Accountability Order, but everyone just calls it the Battle Royale Order. It lets the federal government "reassign" certain inmates, the worst ones, the ones serving life with no chance of parole, to what the order called a "public accountability program."
+
+Nobody knew what that meant until he went on TV and explained it. He was smiling. There was a little laugh in his voice, like he was announcing a new national holiday. 
+
+There were lawsuits, obviously. Two dozen states and about every civil liberties group you've heard of sued. A federal judge in Oregon blocked it for nine days. Then an appeals court unblocked it, and the Supreme Court declined to hear the emergency application. Six to three, no written opinion. That was two weeks ago.
+
+So tonight it's happening. Every network is carrying it because the media has always been complicit  and I'm sure the FCC threatened them too. 
+
+Nobody knows who's in it. The roster has been sealed "to preserve the integrity of the competition." That is a real sentence that a real press secretary said out loud at a podium. All we've been told is that it's fifty federal inmates, one from each state, all serving life without parole, all convicted of "violent crimes against the American public."
+
+I keep thinking about Ancient Rome and the gladiator fights they had. We were supposed to be way past that sort of savagery and yet here we are. Whatever those men did, however bad, the government dropping them in a pit to kill each other and asking the rest of us to watch is something even worse.
+
+My daughter Nora would have hated this. She was the kind of kid who carried spiders outside in a cup instead of squashing them. She's been gone nine years this December.
+
+There was no music or logo once the broadcast had started. The screen just cut suddenly to a room.
+
+There were concrete walls, hard white lights, and a large circle of men in orange jumpsuits chained to posts by bulky metal collars. Each was slumped over asleep and in the center of the room were lots of mannequins in full tactical gear. They had helmets, bulletproof vests, rifles clamped in their hands, and grenades hanging off them like fruit.
+
+The first thing I notice is how young the men were. Most of them look like they were barely in their twenties. Most weren’t even very intimidating looking for so-called hardened criminals. They were skinny with patchy looking beards, sunken, tired eyes and pretty much all of them were white. I don't know what I expected, but these little boys were not it.
+
+One of them stirred and groaned as his collar lit up green and chirped a bright happy little sound, like a phone connecting to a bluetooth speaker.
+
+"Player 1 online."
+
+He lifted his head and looked around in confusion, "What the f---k?"
+
+The network actually bleeped the F word. That pissed me off more than it should.  Televised   bloodsports were fine, but profanity was somehow a bridge too far. 
+
+They all began waking up, one after another, with each collar counting them off. 
+
+"Player 9 online. Player 10 online. Player 11 online. Player 12 online." It takes almost a full minute to get to fifty. One guy keeps yanking at his chain, screaming "Where am I? *Where am I?*" over and over, like the answer will come if he's loud enough.
+
+At fifty, the counting stops, and the President's face lights up across the wall behind them.
+
+The men have to twist around and crane their necks to look up at him. He doesn't look at them. He looks straight past them, right into the camera.
+
+Right into my living room.
+
+"My fellow Americans."
+
+I've heard him give maybe a hundred speeches, but I’ve never heard him give one quite like this.
+
+“Today, I stand before you with a heavy heart and a solemn duty. We find ourselves in unprecedented times, facing challenges that test not only our resolve as a nation but also our humanity. As your President, it is my duty to lead this great country with courage and conviction, even in its darkest of hours…”
+
+The men are screaming at him. Cursing and jeering at his massive visage. One of them even yells, "Hey, I voted for you! Let me out!" I almost wanted to laugh at the absurdity.
+
+The President continued, “We stand on the brink of a battle unlike any other. A battle that will test not only physical strength but also inner resolve. In the arena before you lies a lesson…and several students in desperate need of it.”
+
+The inmates began to look around frantically as the President’s expression turned from solemn to sinister.
+
+“Let me be clear: while you may be criminals, you are still Americans. You are still citizens of this great nation, and you still deserve to be treated with dignity. That is why, despite the circumstances that have brought us here today, I stand before you not as your warden, but as your Commander-in-Chief.”
+
+“F--k You!” More inmates cussed out the projection like it made any difference.
+
+The President grimaced, almost as if he could hear them, “I know that many of you may feel fear, uncertainty, and perhaps even anger at the situation you find yourselves in. And I understand that. But I urge you to channel those emotions into something greater. Into courage. Into determination. Into the unyielding spirit of the American people.” 
+
+I wanted to vomit at the President’s words, which isn’t unusual for me, but tonight was the first time it wasn’t just me being hyperbolic.
+
+“For in this arena, you are not just fighting for yourselves. You are fighting for your fellow Americans who hate you. You are fighting for the families you have taken from and you are fighting for the country that is tired of feeding and housing you despite knowing exactly what you are. So, as you step into that arena, remember who you are. Remember what you stand for. And remember that no matter what happens, you are not alone. The counter over my head indicates just how many hostiles are left. The doors of the bunker you are all in will not open until the counter hits zero. You people know what to do…”
+
+The President leaned forward and so did I.
+
+“What you do best.”
+
+Then the chains were released. All fifty at once in a single metallic clack.
+
+"We are with you," The President said with a self-satisfied smile, “The entire nation is with you. And together, we will sit back and watch as we commence the first ever All-Real Battle Royale. May God bless you, and may God bless the United States of America." The first shot went off before he was even finished.
+
+I didn't see who fired first. There was just a flash at the edge of the frame and a spray of red across the President's projected face, and then everybody was running.
+
+The camera pulled back, way back, like it was on some sort of ceiling rig or something, and for the first time I could see the whole arena they were put in.
+
+It wasn’t just a room. They built an entire building inside that bunker.
+
+There were food courts, kiosks selling sunglasses, and plenty of empty store fronts. I’d say they were supposed to be in a mall, but past that, there were long hallways lined with lockers, glass trophy cases, and a hand-painted banner for a pep rally. The school arena would then give way to a grocery store with a row of checkout lanes, a corral of shopping carts, and a produce section full of fake fruits.
+
+The arena was a mall, a school, and a grocery store all stitched together into something out of a nightmare.
+
+I understand what these men were in for prison about half a second before my body did. 
+
+“What you do best, huh?” I repeated to myself as the bloodbath began.
+
+They were mass shooters. All fifty of them. Every man in that bunker walked into a place like that with a gun and started firing at innocent people. And the government built them arenas just like those places for what? So the bastards would feel more at home.
+
+I stood up. I really was going to turn it off, but then I thought about Nora.
+
+I'm going to be honest about the next part, because nobody will ever know if I'm not. For a second, I stood there scanning the faces running across my TV. Looking for him…
+
+I had seen his picture only once, the day after he had done it. It was a school photo of the boy. He was in front of a drab blue backdrop wearing a collared shirt his mother probably made him put on. I looked at it for maybe two seconds and then never again. My wife, now ex-wife, told me I should look. She said it would take away his power. I told her he didn't get to have a name or a face as he wasn't human anymore.
+
+All I really remember is that he looked like nobody and that was the worst part. He looked like any other kid in that school. The only clue of what he was capable of were in his cold, dead eyes…
+
+As much as I wanted to see him among them, there have been so many school shootings since the odds that he's in there were basically nothing. But even the smallest chance he was there caused me to sit back down and continue to watch. 
+
+The counter over the doors said 47…Then 46… Then 33 all in the span of a few seconds. They were dropping like flies.
+
+What surprises me is how calm they were at first. The ones who got rifles move like they've practiced for this very moment and maybe they did. Maybe some of them spent years practicing before they did it. Maybe the government trained them so they’d put on more of a show.
+
+It's when they get close to each other that the killer facade fell apart.
+
+Two of them crashed into each other by the lockers and both their guns went skittering across the floor. Without them, they fought like third graders. Hair pulling, groin kicks, biting, there was no technique. With the guns gone, they stopped being physical threats.
+
+It was pathetic. That's the word that comes to mind, and I didn't expect it. I thought watching men die would be horrific and some of it certainly was, but my contempt for them made me immune to their misery.
+
+Two others come around the same corner at the same moment and freeze, rifles pointed at each other's faces. There was a long pause as the camera zoomed in slowly.
+
+"Truce?" one of them said.
+
+The other one nodded. "Truce."
+
+They then both fired at the exact same instant and killed each other. No one in that arena could be trusted and they all knew it. 
+
+There was a kid running through the school section, he couldn’t have been older than twenty-two, grinning ear to ear, as he shot at everything that moved. "Get some, motherf----s! Yeah! You little b-----s can't kill me! I'm unkillable!"
+
+Then someone hit him. It was either in the shoulder or side, I couldn’t tell. He ran and the camera followed him, because of course it did. He made it maybe forty feet before his legs just stopped working and he folded onto the floor of a fake classroom, under a poster that mockingly said, ‘Kindness Is Cool.’
+
+And his face changed. It was like he finally realized that this was real.
+
+"No, no, no. Oh god. Oh god, oh god. I can't. I can't, I can't, I can't. Stop. Stop. I'll make it stop."
+
+The camera held on him. The whole time, it held on him as he put the barrel under his chin.
+
+I looked away and when I looked back, the counter now said 25.
+
+"You patriots are halfway there. Keep it up." The President’s voice chimed in like he was a fucking game show host.
+
+The President's projection was then riddled with bullet holes. The maniacs all stopped shooting at each other and shot at him the second he appeared. 
+
+My phone kept buzzing. It was my brother trying to check up on me. I ignored his calls and continued to watch.
+
+There was a man on the floor of the cereal aisle, holding his stomach, blood pooling out from under him. Another man was standing over him with a pistol at his head.
+
+"Please?" the one on the floor screamed. "Don’t do it!"
+
+The one with the pistol just laughed. Not a big, hearty laugh, but a small snicker, like somebody told him a mediocre joke.
+
+"Please!"
+
+I remember thinking, this is the part where I'm supposed to feel sorry for the one on the floor, but I didn’t. All I could think about was how he now knows what it's like to beg someone for your life who had already decided on taking it. Karma’s a just bitch.
+
+The feed cut away, and when it came back, both of those men were dead, and so were a lot of others.
+
+The hallways were full of bodies now. Tables were flipped over in the food court. The misters in the produce section were still running on their timers, spraying fine, cheerful fog over the fake food and deadmen.
+
+The counter was in single digits now. There were only 4 left.
+
+The screen split into four boxes, like a security monitor.
+
+In the first box, a guy is wedged into the corner of the grocery store's back stockroom, knees pulled to his chest, rifle pointed at the doorway. He was shaking like a leaf on a tree.
+
+In the second box, a guy was lying among the bodies in the food court, playing dead. Except he kept adjusting himself. One second his arm was over his face. Then the next it was under his body. Then finally he flung out to the side. It was like he couldn't figure out what the most comfortable way to play dead was, so he was trying out different positions. In any other context, it would have been funny.
+
+In the third box, a guy is walking slowly down the school hallway, checking every doorway. He was calm and methodical. 
+
+In the fourth box, a guy was standing in the main entrance with his rifle hanging from its strap, staring up at the counter over the doors. It said 4.
+
+He stared at it for a long time and I watched him count something on his fingers.
+
+"Wait," he says. "That doesn't make sense."
+
+I leaned forward, because I don't get it either, not yet, and then the guy from the hallway shot him from forty feet away.
+
+The counter dropped to 3.
+
+The President then appeared. "Three players left. We're in the homestretch now, America."
+
+All three remaining collars start beeping. Loud and even, like a smoke detector with a dying battery.
+
+The guy playing dead in the food court was outed immediately. The methodical one shot him from across the food court without breaking stride.
+
+2 now left. 
+
+The methodical one headed towards the stockroom where the other one was camped out.
+
+The screen collapsed to two boxes. The hunter's and the camper's, and as the hunter got closer the two’s collars chirping began to overlap. The guy in the corner was now shaking so hard his rifle rattled against the shelving. He's whispering something to himself that I couldn’'t make out.
+
+The hunter stopped just outside the door.
+
+"Come on, man. I know you're there. Come out."
+
+"F--k you!"
+
+"Don't be a p---y. Come out."
+
+"F--k you! Make me!"
+
+"Okay."
+
+The hunter pulled a grenade off his vest and tossed it through the doorway. 
+
+I watched a dark stain spread down the leg of the camper's orange jumpsuit one second before the screen flashed white.
+
+The hunter walked back to the main entrance with his rifle over his head, screaming and whooping, and firing into the ceiling. He was acting like he had just won the Super Bowl. 
+
+He got to the bunker doors and stood there, waiting.
+
+But they wouldn’t open.
+
+The counter above still had 1 hostile detected.
+
+I watched him look up at it and try to figure out who he missed.
+
+"What the hell? Who's left? I killed them all! Who's f--king left? I'll find them and I'll kill them! *Who's left?*"
+
+He shot at the counter and cracked it, but the number still didn't change.
+
+"*WHO'S LEFT?*"
+
+Then he just came apart. He fired into the bodies. Into the mannequins. He emptied a magazine into a dead man's back, reloaded, emptied another into the checkout lanes, the sunglasses kiosk, the trophy case, he shot until the gun clicked empty and he threw it and pulled another one off a corpse and kept going. 
+
+It took a long time. The broadcast didn't cut away. There were no commercials. Just an hour, maybe more, of this guy losing his shit. 
+
+Eventually he ran out of bullets. He slid down and sat on the floor under the doors, back against the wall, a pistol resting loose in his lap, staring up at the number. A shutter in the bunker door suddenly slid open and a single bullet was tossed inside the arena by an unseen hand. They slammed the shutter hard and you could hear a locking mechanism engage. They weren’t opening it back up again. This was it.
+
+The camera started pushing in slowly. They were waiting for this moment.
+
+His face filled my whole TV. He looked.. familiar. He was in mid-twenties, maybe, with a thin face, buzzed hair, and a scar running through one of his eyebrows.
+
+His dead eyes were how I finally recognized him. 
+
+I've seen them before, for two seconds, nine years ago. Over a collared shirt, against a blue school-photo backdrop. I never could have told you what his face looked like. But I remembered those eyes. 
+
+I say her name. Out loud, to the TV. "Nora." I don't know why.
+
+I'm on my feet. I'm standing maybe two feet from the screen. And what I feel isn't horror. It isn't grief. It's just two words, over and over, so loud in my head I think I might be saying them too.
+
+Do it
+
+He lifted the pistol and this time, I didn't look away.
+
+The counter hit zero, and the whole arena lit up. Colored lights sweep across the ceiling. The bunker doors grind open onto nothing, just darkness. A spotlight drops straight down onto him where he's slumped against the wall.
+
+The President's face fills the screen above him, bullet holes and all, a streak of someone's blood across his chin.
+
+"We have a winner, America! Player 9, the perpetrator of the Clark High School massacre, is the victor of the very first All-Real Battle Royale!"
+
+Canned applause began to play along with cheering. It goes on and on as the camera holds on his body.
+
+The feeling I had in my chest was like getting that phone call all over again, except this time it didn't knock me down. This time I'm the one standing.
+
+"Aren't we happy for him, folks?" the President cheered. "Aren't we happy for them all? What a great game. What a great *first* game. And we've got more coming."
+
+The camera drifts away from the spotlight and down the school hallway. Lockers. Bodies. His voice echoes over all of it.
+
+"America's got plenty of criminals like these ones, so we'll have plenty of use for games like these. Thank you for watching the first ever All-Real Battle Royale, and God bless America."
+
+I turned it off.
+
+It's almost two in the morning now. I've been sitting here in the dark for a couple of hours.
+
+Nora was sixteen. She was in the band room when he came in through the east doors. She wanted to be a vet. She carried spiders outside in a cup.
+
+For nine years there's been something in my chest like a fist that never unclenched. The trial didn't touch it. The sentence didn't touch it. Life without parole. Everyone told me that was justice. The prosecutor shook my hand on the courthouse steps and it didn't touch it at all.
+
+It's not gone now. But it's open. I can breathe all the way down to the bottom of my lungs for the first time since that December.
+
+And it wasn't the gun that did it. It was watching him slowly understand that he was never getting out, that it had all been for nothing, and watching him sit there under that number with nowhere to go. I needed to see that. I didn't know I needed it until I saw it.
+
+When I finally turned my phone back on, every news app had sent the same push alert. The second All-Real Battle Royale is scheduled for November, just before election day. The roster is sealed.
+
+There were forty-nine other men in there tonight. Forty-nine other names. Somewhere out there, there are forty-nine other families who sat in the dark like I did. I wonder how many of them turned it off. I wonder how many of them didn't.
+
+None of the men in November will be the ones who took my daughter from me, but I'm still gonna watch. 
+
