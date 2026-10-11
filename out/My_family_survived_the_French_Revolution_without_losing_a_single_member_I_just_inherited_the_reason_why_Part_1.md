@@ -1,3 +1,5 @@
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1x3eb0a/my_family_survived_the_french_revolution_without/)
+
 *Devant le Roi.*
 
 That's my family's motto. It's carved over the front door of the house I now own, cut into the face of the signet ring that arrived in a padded envelope six weeks ago, and painted in flaking gold leaf over the doorways of the east wing. It means *before the King*, in the old sense. In his presence. In the room.
@@ -158,6 +160,6 @@ I'm writing this in the kitchen with every lamp on and my back against the wall.
 
 I always pictured my family standing beside the King, at the King's elbow, handing him his shirt. The motto doesn't say beside. It says before. In front of.
 
-On your knees, facing him, when he rises. 
+On your knees, facing him, when he rises.
 
 I'll post again when I get the chance.
