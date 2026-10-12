@@ -270,8 +270,8 @@ I kept flipping between the early photographs and the garage doorway.
 
 Priest answered this time.
 
-“Mostly Series Three and Four. The cassette is probably Two. The dresser is Four. The radio...”  
-  
+“Mostly Series Three and Four. The cassette is probably Two. The dresser is Four. The radio...”
+
 Priest hesitated over the page.
 
 “Five?”
@@ -308,9 +308,9 @@ Marshall rested both hands on the folder. 
 
 Marshall offered an apologetic smile, clearly aware those were not the answers I had expected. 
 
-“I’d like to be very clear about how little we still understand about this phenomenon. We’ve never successfully explored the other side. We can’t summon one nor communicate with one of these manifestations. As far as I’m aware, nobody has ever gone through an active interface and come back in a condition that gave us anything useful to work with. We tried early on, but we lost people as a result.” 
+“I’d like to be very clear about how little we still understand about this phenomenon. We’ve never successfully explored the other side. We can’t summon one nor communicate with one of these manifestations. As far as I’m aware, nobody has ever gone through an active interface and come back in a condition that gave us anything useful to work with. We tried early on, but we lost people as a result.”
 
-A pause. 
+A pause.
 
 “What we have is what they leave behind. Objects. Witness testimony, most of it retracted. Residue analysis, in some cases. That is the entire body of our evidence, and every theory we hold is built on it.”
 
@@ -599,7 +599,7 @@ Underneath, in smaller print:
 
 “You will feel compelled to.” He said it kindly. “Please don’t, for the sake of your own well-being.”
 
-I asked what happened to the stuff afterward. He said it went into a storage facility, along with decades of other things, and that the small archive they kept was more careful than it sounded. He said they had a handful of regional investigators, that he was one of them, and that they worked closely with two university labs and a couple of hospitals. He said it was a small organization, which was why they were careful with revealing sensitive information to outsiders.
+I asked what happened to the stuff afterward. He said it went into a storage facility, along with decades of other things, and that the small archive they kept was more careful than it sounded. He also said that it was a small organization, which was why they were careful with revealing sensitive information to outsiders.
 
 “What’s your role in all this, exactly?” I asked.
 
@@ -676,31 +676,3 @@ The envelope is sitting beside me while I write this. For months, four thousand 
 Now I have it.
 
 I’m attending my son’s custody hearing this Saturday. I’ve spent six months trying to prove I deserve more time with Toby. After today, I’m not sure what scares me more: losing that chance, or getting exactly what I asked [for.](https://www.reddit.com/r/AmoebaGold715/)
-
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  

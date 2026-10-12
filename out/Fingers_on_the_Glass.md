@@ -1,0 +1,303 @@
+I sat in the driver’s seat of my sedan for a long time listening to the sound of dying crickets. The world beyond my car was cold and unforgiving—perfect for a night spent reuniting with old friends. There weren’t many trick-or-treaters left out there, and those that remained would be long gone before I saw the inside of my vehicle again. I would end up totaling that car a few weeks later after crashing it into a tree. I still miss it to this day.
+
+I pulled the flask out of my hoodie pocket and instilled myself with some liquid courage before stepping out of my sedan and into the nighttime chill. Jake and Amber’s apartment rested at the top of a four-story, open-air stairwell, so I had plenty of time to think while I climbed it. I had time to think about the last time I had seen my friends, exactly five years earlier, which happened to have also been Tommy’s last night on Earth.
+
+I reached the top of the stairs and immediately considered turning around and going back to my car, but I was cold and I didn’t feel like dealing with those four stories again, so I knocked on the door instead. I silently hoped that nobody was home and that I had accidentally come on the wrong night, but that wouldn’t have been possible. There was no way I could have been mistaken. And besides, I could hear the soft hum of music coming from behind the door which told me the party had already begun. 
+
+The door came open and I was greeted by a face that up until that point I had only ever seen on social media. I could immediately tell what Jake liked about Amber. She fit his type to a T. She apparently knew who I was too, because she immediately greeted me with a hug as Jake came up behind her. 
+
+“There he is!” Jake said. He stepped past his fiancée and bumped into the jack-o-lantern sitting beside their door before taking me into an embrace of his own. “It’s good to see you, man.”
+
+“You too,” I said. “You haven’t aged a day.”
+
+“Still a bullshitter, I see. I guess some things never change.”
+
+Of course I had lied, but what else was I supposed to have said? That he had clearly put on twenty pounds and had lost the light in his eyes just like he had lost most of his hair? I would have been one to talk. I didn’t look much better.
+
+“Old habits die hard,” I said.
+
+Jake and Amber led me into the apartment and closed the door shut behind us. The music, which turned out to be creepy background ambience consisting mostly of creaking, groaning, and rattling chains, filled the little space. Sitting on the couch, each nursing a drink in their hands, were two more familiar faces. When they saw me, they shot to their feet and approached.
+
+“Look who made it!” Pete said.
+
+“Late like usual,” followed Brendan. “I guess some things never change.”
+
+“Old habits die hard,” I said again. I didn’t have the heart to tell him that I had been outside listening to the crickets sing their final songs for close to an hour because I thought it would be preferable to facing the three of them. I had been right.
+
+I exchanged hugs with Pete and Brendan, after which Jake spoke. “The boys are back in town. It’s been forever.”
+
+“Five years,” I said, trying to hide the dread in my voice but likely failing at it.
+
+“It feels like it’s been five days,” Brendan said. I couldn’t have agreed less.
+
+“And to think that Jake of all people has gotten engaged,” Pete said. “He’s the last one I would have expected to tie the knot.”
+
+“I guess some things *do* change,” Jake said. He paused. “Anyway, I appreciate you all showing up. It’s great to see you guys again.”
+
+“It’s just like old times,” Brendan said. “We used to love our Halloween parties before—”
+
+He trailed off.
+
+“Before five years ago,” I muttered.
+
+“Yeah,” Jake said. “Before five years ago.”
+
+Amber frowned. “Jake has told me all about Tommy. I wish I could have met him.”
+
+“We couldn’t have asked for a better friend,” Pete said.
+
+“Or a worse roommate,” Brendan added.
+
+“Well, tonight’s as much about honoring *him* as it is about celebrating Halloween,” Jake said. “So in Tommy’s honor, I say we party like we used to back in college.”
+
+“I don’t know,” Brendan said, “I don’t think I can handle the stuff we used to do. It’d probably kill me.”
+
+He quickly frowned, seeming to have immediately realized what he had said.
+
+“Well we can try our best, at least,” Pete said.
+
+We lapsed into a period of small talk that felt more awkward than I would have liked, but less than I would have expected. Soon the conversation became more bearable, and things even started to feel like the old times again. For the first time since getting into my car that night, I was actually glad that I agreed to go to this party. For a while I even thought that the worst of the evening was over, and that I was actually going to have a good time.
+
+But then Jake took the drinking glass out of the cabinet. He placed it upside down on the dining table, and suddenly my stomach dropped to the floor. It shattered the way the glass would have and scattered in a million pieces.
+
+“Who wants to play Fingers on the Glass?” he said.
+
+I frowned. “You can’t be serious, Jake.”
+
+“Yeah,” Pete said. “Isn’t that kind of in poor taste, considering the circumstances?”
+
+“That’s what I told him when he brought it up earlier today,” Amber said.
+
+“It’s tradition,” Jake said. “It’s not a Halloween party until we play Fingers on the Glass.”
+
+Pete shared in my frown. “Is it still a tradition if we haven’t played it in five years?”
+
+“We also haven’t had a Halloween party in five years,” Brendan said. “Tonight’s a night for reviving old traditions.”
+
+“Brendan gets it,” Jake said. “Tommy loved playing Fingers on the Glass, and tonight is about honoring him. Well what better way to honor him than by starting it up again?”
+
+I considered this for a moment before speaking. “I don’t know…”
+
+“It’s not like anything’ll happen anyway,” Jake said. “It’ll go just like it always does. We’ll move the glass around, freak ourselves out a bit, and be done with it.”
+
+We all remained silent for several seconds before Pete finally spoke. “Alright,” he said. “I’m in.”
+
+“I guess I’ll play too,” Amber said. “I *have* been wanting to try it ever since Jake told me about it.”
+
+All eyes turned to me. “Well?” Jake said. “You in?”
+
+I thought for another few moments before sighing. “Alright,” I said. “I’m in. But only for a few questions, alright?”
+
+Jake grinned. “I knew you’d come around!”
+
+He disappeared down the short hallway before returning with a single candle, which he placed onto the dining table next to the glass. We all gathered around the circular table while Jake pulled a lighter from his pocket and lit the candle. The table only had four chairs, so Jake had to pull a nearby office chair over so that he could also sit. At the same time Brendan grabbed a bar stool from the kitchen, which he placed between Jake and me.
+
+“We only have five people,” Amber said from Jake’s other side. “Why did you bring another chair over?”
+
+“We always need one extra chair just in case we get any visitors, ” Brendan said. He took his seat next to Pete, who had just finished scrawling the words “YES” and “NO” onto two pieces of looseleaf paper, which he then placed on opposite ends of the table.
+
+“Uh-huh,” Amber said as she tapped her phone screen to turn off the ambient noise, “and how often has *that* happened?”
+
+“Never,” Jake said, “but you never know.” He suddenly stood from his spot at the table and made his way to the nearby wall. “I almost forgot.”
+
+He threw the living room light switch, casting the space into a world of heavy shadow. He then did the same in the kitchen, thus throwing the entire apartment into a state of absolute dark. The only thing to guide him back to his chair was the glow of the lone candle flickering calmly in the middle of the table next to the glass. 
+
+Once we were all in our chairs and the darkness had been given some time to settle, the game could finally begin.
+
+“Who’s going to be our speaker?” Pete asked.
+
+“I can do it,” Amber said quickly. She looked a little embarrassed by her sudden outburst as she continued to speak. “If you guys don’t mind, I mean. I’ve just been excited to do this, is all.”
+
+Her eagerness to participate led me to believe that she hadn’t tried to steer Jake away from the game as adamantly as she had originally made it seem. Regardless of this, we all relented to her. Once our speaker was established, we all placed a single finger onto the glass, and the game was ready to commence.
+
+“We have gathered here with open hearts and minds to welcome any visitors to our table,” Amber began in a way that sounded very practiced for somebody who had not done this before. “If there are any spirits or energies present who would like to speak with us, now would be the time to make yourself known.”
+
+Her words were answered by silence. The candle in the middle of the table continued to burn passively.
+
+“Was something supposed to happen there?” Amber asked.
+
+“No,” Jake said. “All you’ve done is welcome spirits to the table. Now you need to start asking specific questions.”
+
+“Like what?” Amber said. If she had rehearsed this as much as I now suspected she had, then she must have allowed her nerves to get the better of her.
+
+“Start by asking if anybody is here with us,” Brendan suggested.
+
+“Okay,” Amber said. She returned her attention to the glass in the middle of the table. “Are there any spirits here who would like to speak with us?”
+
+The glass remained still for several seconds. Then, it slowly began to move toward the word “NO”, taking our fingers with it.
+
+Amber looked around the table with a sneer. “Very funny,” she said. “Which one of you did that?”
+
+“Not me,” Jake said. The rest of us proceeded to also deny involvement.
+
+“Then why would it say ‘no’ if there isn’t a spirit here?” Amber asked. “That doesn’t make sense.”
+
+“You didn’t ask if there was a spirit here,” Pete pointed out. “You asked if there was a spirit here who wanted to *speak* with us.”
+
+“So you’re saying the spirit is just being antisocial?”
+
+He shrugged with his free arm. “I guess so.”
+
+“Alright,” she said, “but I’m still not convinced.”
+
+We moved the glass back to the center of the table, and Amber spoke again. “Why don’t you want to speak with us, spirit?”
+
+The glass didn’t move.
+
+“That isn’t going to work,” Jake said. “We can only ask yes or no questions.”
+
+“Fine,” she said. “Is there somebody here who you don’t want to talk to?”
+
+*YES.*
+
+Amber frowned. “Is it me?”
+
+*NO.*
+
+She looked relieved. “Jake?”
+
+*NO*.
+
+“Pete?”
+
+*NO*.
+
+“Brendan?”
+
+*NO*.
+
+All eyes turned to me. My heart sank. After a moment of hesitation, Amber said my name.
+
+*NO*.
+
+She frowned again. “This doesn’t make any sense. I’ve named everybody here.” She looked around the table. “Seriously, which one of you is screwing with me?”
+
+None of us confessed to being her tormentor. After a few moments, Brendan spoke. “Maybe it’s not talking about any of us.”
+
+Amber seemed confused for a moment before realization flashed behind her eyes. She addressed the spirit again. “Do you not want to speak because of another presence here?”
+
+*YES.*
+
+She hesitated again. “Is the presence evil?”
+
+The glass moved with an agonizing sluggishness before reaching its destination. *YES*.
+
+Amber pulled her finger away from the glass. She recoiled from the table with such fervor that she almost knocked her chair over. “I’m done,” she said. “I can’t do this anymore. I don’t care if this is just you guys messing with me. I’m out.”
+
+“You can’t stop until you  close the connection,” Jake said.
+
+“One of you guys do it.”
+
+“You opened it,” he said, “so you have to be the one to close it.”
+
+Amber looked around at all of us with pleading eyes. When she realized that there was no way to back out of her self-imposed responsibility, she sighed. “Alright,” she said, slowly returning her finger to the glass. “I’ll do it.” After another deep breath, she went on. “Spirit, we thank you for taking the time to talk with us tonight, but I think it’s time for you to—”
+
+The empty chair positioned between Jake and me suddenly shot backwards nearly two feet. The sound of its legs scraping against the carpet caused me to recoil and lose my contact with the glass. Amber screamed, also pulling away from the glass, while Brendan and Pete behaved similarly. Jake was the only one of us to keep contact with the object on the table.
+
+“What the hell was *that*?” Brendan said, his eyes glued to the self-moving chair. It sat motionless between Jake and me, acting as though it had never even stirred at all.
+
+“I don’t know,” Jake said, “but you all just screwed up.”
+
+The four of us looked confused for a few moments before Brendan, Pete and I eventually realized our mistake and each returned our fingers to the glass. Only Amber continued to wear her bewilderment on her face.
+
+“What do you mean?” she asked.
+
+“We all have to keep our fingers on the glass until the game is over,” Jake explained.
+
+“You never told me that,” she said.
+
+“I could have sworn I did.”
+
+“You didn’t,” she insisted, “and why? What happens if we take our fingers off?”
+
+“At least one person needs to keep their finger on the glass,” Pete said, “or else—”
+
+When she saw that he did not intend to go on, Amber spoke again. “Or else what?”
+
+“Nothing,” Jake said. “It’s just a game. But you need to close the connection. *Now*.”
+
+“Well is it just a game or isn’t it?”
+
+“It is,” he insisted. “Just… just *please* close it off.”
+
+“Okay,” Amber said. “Okay. I will.”
+
+She took a few deep breaths in order to steel herself, then returned her finger to the glass. She winced as her hand came in contact with the clear surface. I suddenly noticed for the first time just how cold the glass had become. It felt as though I had dipped my finger in a cup of ice water, but I did not dare to pull my hand away now.
+
+“Spirit,” Amber said, “we command you to—”
+
+The empty chair rushed forward and slammed into the table. Amber screamed again, once more losing contact with the glass. The rest of us, remembering our earlier mistake, stayed in contact with it.
+
+“Just close it!” Jake said.
+
+“But how is it doing that?” Amber said. “How is it moving on its own?!”
+
+“It’s not,” Jake said. “One of us has to be moving it with their foot or something. Somebody here is taking this game a little too far.”
+
+“Who is it?” Amber said. “Who’s doing this?” None of us spoke for several long seconds, prompting her to push again. “Well? Which one of you did that?”
+
+“It was me,” Tommy said.
+
+“See?” Jake said. “It was—” He paused mid-sentence, his jaw going slack as his gaze floated around the table.
+
+“What’s wrong?” Amber said. Her eyes remained locked on the glass in the middle of the table. She seemed too afraid to look anywhere else. “Who just said that?”
+
+Jake and I both glanced at the chair next to us, then locked eyes with one another. We clearly shared the same thought, but only one of us was able to vocalize it. To this day, I don’t remember who it was. “Holy shit.”
+
+The candle sitting at the center of the table suddenly went out. Pure darkness overtook the apartment as we all immediately shouted our surprise.
+
+“Nobody move,” Jake said. “Keep your fingers on the glass.”
+
+“What’s going on?” Amber said. “What’s going on, Jake?”
+
+“Just hold on,” he said. “I need to light the candle again.”
+
+“Screw that!” Amber said. I felt the glass shake slightly as she clumsily thrust her finger forward. “We cast you away, spirit! The game is over!”
+
+“That’s not going to work unless the candle is lit,” Brendan said.
+
+“Then hurry up and light it, Jake!” Amber said.
+
+“I’m trying,” he said, “but I can’t find the lighter. I thought I had put it in my pocket, but I must have left it in the other room.”
+
+“You didn’t light the candle until you got to the table!” I said.
+
+“Then I must have dropped it on the floor!”
+
+“Somebody turn on their phone flashlight,” Amber said.
+
+“I already tried that,” Pete said. “My phone is dead.”
+
+“Mine too,” Brendan said.
+
+“Does anybody have a lighter?” Jake asked.
+
+“I do,” Tommy said.
+
+Everybody went completely still. Nobody dared to speak for what felt like eons, so overwhelmed were we by our terror. My body went so numb that I wasn’t even sure if my finger was still touching the glass.
+
+I heard the metallic sound of an opening lighter, followed by the flick of a flint wheel. A small, orange glow came to life between Jake and me. It floated toward the table where it touched the candle, immediately restoring its lost flame. The new glow vanished with the sound of a closing lighter, allowing the candle to once again serve as the only source of light in the room. What I saw sitting on the table made me wish that the candle had never been revived at all.
+
+The candle shined from within the clear confines of the drinking glass, which was now right side up. It rested atop the word “NO”, casting a heavy shadow onto the thin sheet of looseleaf. All of our fingers were in a circle at the center of the table. Nobody was touching the glass.
+
+“Oh my God,” I muttered.
+
+“What do we do?” Amber said. “What do we do?!”
+
+Nobody had the courage to answer her—nobody except for the one voice that none of us wanted to hear.
+
+“You pray,” Tommy said.
+
+The candle went out again, once more allowing the darkness to return. Its reign was ushered in by a chorus of terrified screams.
+
+\*\*\*
+
+The police had originally been called for a noise complaint. These were common on Halloween Night—expected, even. They certainly didn’t arrive expecting to find a corpse waiting for them, its leaking skull crushed against the cold pavement.
+
+The death was ruled an accident, as so many deaths on partying nights are. We didn’t tell them what we had been doing just minutes before they had arrived. We didn’t think they would have believed us if we had told them the truth. In the end, none of us were charged with anything, because none of us had been suspected of any wrongdoing. But now that the exact same thing had happened again, exactly five years later, I doubted if we would be given that same benefit of the doubt. And as it turned out, we weren’t—not all of us, anyway. Three of us were questioned, but we were ultimately allowed to go home that night. The two others weren’t so lucky—with one of them being the unluckiest of us all.
+
+It made sense that charges would actually get filed this time. Your roommate dying in some freak accident on Halloween Night could be explained away, but when the same thing happened to your fiancée on that same night five years later, well, that was much harder to justify.
+
+The rest of us could have gone to his defense. We could have told the police the truth. But we were afraid. I’m *still* afraid. I don’t think that’s ever going to go away. I doubt that anything would have changed if we had told them the truth, just like I doubted if the truth would have changed anything the first time around. Because what would we even have told them? Anything we could have come up with would have sounded absurd. We had only been playing a game, after all. 
+
+All we had done was place our fingers on the glass.
