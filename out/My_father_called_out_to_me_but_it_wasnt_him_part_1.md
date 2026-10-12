@@ -1,0 +1,33 @@
+I've been thinking about telling this story for a long time. I have been writing and deleting it more times than I can remember. I am still cautious about telling you, but I have to let it out.
+
+This happened a while ago in my hometown, a small village. When I say small, I mean houses scattered so far apart that you could walk for hours without seeing another house. There were stretches of farmland, dense forests, and narrow paths connecting the few places.
+
+There was no electricity in our part of the village. Once the sun went down, the darkness was absolute. On clear nights, the moonlight helped us find our way around. But when it was cloudy, you could barely see anything beyond the reach of the lanterns.
+
+I grew up in the city with my father, who moved to find work. We would occasionally return to our village to visit my grandmother, uncle, and a few other relatives, but those visits were usually short. Our village was particularly difficult to reach during the monsoons. Our houses were built on stilts, and travelling required us to take a boat. The only place not submerged was the main highway connecting the village to neighbouring towns. My father never took me there during the rains, partly due to the commune. 
+
+My grandmother used to tell me stories about something called a Baak. According to her, it loved fish, lived around water, and would mimic human voices. She said it wore the skin of the people who followed the voices. I believed it was just one of the countless other stories she told me and assumed it was tales to keep kids from wandering around and getting lost.
+
+However, I always remembered two things about the older people from our village. They always carried small bundles of mustard seeds and a little folding knife. Even the ones who laughed at the stories seemed reluctant to leave home without them, especially during the monsoon.
+
+I didn't understand why my father was so uncomfortable about taking me back to the village during the rains. My father had lost his job, and we had no choice but to move back in the middle of the monsoon. My father was anxious the whole journey, constantly looking out the bus window and hoping for the rain to stop. We got off on the main road near our village, where our uncle was waiting for us with his boat. The journey to our house was quiet and uncomfortable. We reached home, and I could tell neither my grandmother nor my uncle was happy to see us.
+
+I enjoyed the next few days despite the isolation. During the day, I would go fishing with my uncle. But as evening approached, my grandmother would lock every door and window. She would make sure we had enough firewood, food, and water inside the house so that we wouldn't have to leave. At night, she made me sleep beside her. She would keep the bundle of mustard seeds and knife under the pillow.
+
+She told me to never open my eyes if I heard someone calling my name in the darkness, no matter how familiar the voice sounded. I was to remain still and keep my eyes shut. 
+
+I was also to never open the door when she wasn't around. I remember thinking she had become unusually paranoid since our arrival. I was old enough to understand that people in the villages had their superstitions and didn't question them much. I followed her instructions because I didn't want to upset her.
+
+At this time, my father spent his days looking for work in nearby towns. Every morning, my uncle would take him by boat to the main road. My father would travel from there, while my uncle would come back home. Normally, my father would be back before nightfall. Just before sunset, he would call out to my uncle from the main road, and my uncle would take the boat to bring him back.
+
+That particular morning, my father had left for town and was expecting to stay overnight. My uncle dropped him off like usual and came back home. My grandmother had gone to visit a neighbour that afternoon and was supposed to return before dark.
+
+My uncle decided to take a nap since he didn't have to pick my father up that evening, and I also made myself busy. My grandmother had not come back, and the rain was relentless throughout the day. The rain had drowned out almost every other sound, just the raindrops hammering on the roof.
+
+I was beginning to feel sleepy when I heard someone calling from outside. It was my father's voice calling for the boat. I remember feeling confused more than anything. He called out again in the exact same voice and exact same tone, like a voice recorder playing the voice on a loop. When he called out again, something made the hair on my arm stand up. I hurried to the next room, where my uncle was sleeping. I was frightened and didn't want to be alone.
+
+My uncle was still half asleep. I watched him wake from his half-sleep, still disoriented, and turn towards the door. It was as if he heard my father's voice and instinctively responded without giving the matter a second thought. Before I could process what was happening, he unlatched the door and swung it open. 
+
+There was something at the door, right in front of my uncle. My uncle's body blocked half of it from my view. It was slightly taller than my uncle, its frame looming over him. I could not bring myself to see what it actually looked like. I couldn't move. I could only stare as that thing lunged forward and seized my uncle. And before I could register what had happened, they were gone, both of them.
+
+(To be continued in part 2)
