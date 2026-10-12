@@ -1,0 +1,75 @@
+A towel you step on after a shower is a wonderful thing. A brilliant idea. It makes you feel safe. Whoever first thought of stepping onto a towel after a shower must have been a very intelligent person. It gives you the same feeling as pulling a blanket over yourself in winter, making sure not a single part of your body is left uncovered. Drying yourself without stepping onto a towel first is like pulling a blanket over yourself and leaving your feet exposed. The same thing, the same feeling.
+
+A bath mat just doesn't give me the same feeling. I tried stepping onto a bath mat instead of a towel after a shower, but I couldn't feel that same sense of security. It has to be a towel. I need to feel it drying the soles of my feet.
+
+On Monday, October 12th—after taking a shower before meeting my friend Jason to go to the open-air cinema, while drying my hair with my feet on the towel—I saw this message faintly written on the fogged-up mirror: “Don’t go.”
+
+This wasn't the first time. I'd been seeing these messages for six months, and I'd gotten used to them by now. I had no idea who was writing them, why they were writing them, or what kind of entity was behind them, but I wasn't as frightened as I had been in the early days.
+
+Those first days were a nightmare. Especially the first time I noticed the writing. Just a simple “Hello.” And this entity even followed the rules of punctuation. Sometimes it swore and added an exclamation mark; other times, urging me to take part in the conversation, it would string question marks together: “Why won't you talk to me???”
+
+It was a bizarre predicament. Of course, no one had believed me—not my beloved math teacher, nor Jason, who was constantly coming over to my place. Besides, the writing disappeared as soon as I saw it. In other words, I needed someone to be in the shower with me so I could prove it to them. Taking a shower with my math teacher was out of the question.
+
+Yes, over time, I got used to it. I never communicated with it, and that was what frightened me the most. I felt like things would take a different turn if I did. But I had never been harmed by reading what it wrote. Other than that, it had no effect on my life. The entity never manifested itself through any sound or apparition at any other time. 
+
+That day, it had warned me for the first time. I had never received a message like that from it before. Sometimes it would comment on things that had happened to me: “You really put Jason in his place back there,” for example. Or, “Don’t forget to set your alarm. You were late for work yesterday, remember?” “Part your hair to the right. It suits you better.” “Your cat’s water bowl is empty.” It usually wrote things like that. One or two sentences at a time.
+
+There was no way I could miss it. They were going to screen one of my favorite films: *Uncle Boonmee Who Can Recall His Past Lives*. I’d watched it on my computer before. Watching it on a big screen would be a different kind of pleasure, and watching it alongside other people who loved the same film would be an even greater pleasure. The entity’s warning had startled me a little, but I was still going to go.
+
+When I stepped out of the shower, I heard its voice for the first time.
+
+“If you go, you’ll witness Jason’s death.”
+
+It was a charismatic woman's voice, slightly deep and husky. I had gotten used to the writing, but the voice shocked me. I could feel its presence. When it wrote to me, I never felt as though it was actually there. But hearing its voice made its presence feel even stronger, more than my mind could handle. I rushed outside immediately. I didn't want to stay indoors. I ran out the front door in my bathrobe.
+
+I’d gone outside barefoot. I must have stepped on something, because my heel hurt. My hand went to the pocket of my bathrobe, searching for my cigarette pack. I’d left my cigarettes inside. I was afraid to go back in and get them.
+
+“So you went outside. What did you think, that I couldn’t come out here? What kind of utterly pointless, instinctive reaction is that? I’d understand if you’d run away, put some distance between us, but what’s the point of standing right outside your front door, Albert?” 
+
+I sat down on the ground. A cigarette would have been really nice. I didn’t have the strength to run. I felt like I was going to die. I tried to swallow, but I couldn’t. Suddenly, there was too much saliva in my mouth. I couldn’t understand why my mouth was reacting like that.
+
+“He’s going to die either way. I just don’t want you to witness it.”
+
+“Why?” I shouted. In my mind, I’d meant to scream, “Just shut up already, enough!” But those were the words that came out of my mouth.
+
+My breathing had quickened, and I wasn’t feeling well. I tried to stand up. First attempt, second attempt, and third. It was as if I were having sleep paralysis, unable to move. I tried to get to my feet over and over again. It felt as though hours had passed while I sat there. The entity hadn’t said anything else.
+
+I couldn’t calm down. Amid everything that was happening, I found myself thinking that I was going to be late for the film. One last attempt, and I managed to stand up with great difficulty. I went straight into the bathroom and took a shower with ice-cold water. For some reason, I felt relieved knowing the mirror wouldn’t fog up.
+
+I stepped out of the bathroom naked and wet. Water was dripping off my body. I sat down on the couch. I thought I might get sick and have to miss the film. 
+
+“Get a grip, Albert,” I told myself. “You’re already used to paranormal activity. Pull yourself together. You need to go to that film. Stop overreacting. Get a grip.”
+
+I cautiously went back into the bathroom and dried myself off thoroughly. I checked the time on my phone, which I’d left on the bathroom shelf. I had half an hour before we were supposed to meet. 
+
+I was going to be late. I got dressed quickly. A black shirt and brown trousers; I’d decided what to wear the day before and had laid everything out accordingly.
+
+I’d never seen the entity, but my eyes were searching for it. As I walked toward the door to leave the house, I looked anxiously from side to side. I hadn’t heard a thing from it since I’d come back inside.
+
+I reached for the doorknob. The door wouldn’t open. 
+
+I thought I must have locked the door without realizing it, so I put the key in the lock and tried to turn it. The door wasn't locked; the key wouldn't turn to the left. I pulled at the door again. It wouldn't open. 
+
+I checked the time. I had twenty minutes left. I wasn’t going to make it. I kicked the door and felt a terrible pain shoot through my ankle. I sank to the floor in pain and clutched my ankle.
+
+When I checked the time again, I had fifteen minutes left. I got up and limped toward the couch. Once I sat down, I continued rubbing my ankle. The pain was gradually fading. It probably wasn't anything serious. 
+
+“Done,” the entity’s voice said. 
+
+It was a very brief moment. I couldn’t quite tell whether it had made a sound or whether I’d actually heard it.
+
+The pain in my ankle had gone away. I checked the time once more. I was supposed to meet Jason in ten minutes. The place where we were meeting was twenty minutes away. I called Jason to tell him I’d be late. He didn’t answer. I got up and walked toward the door. I took hold of the doorknob, closed my eyes, and turned it. The door opened. 
+
+I quickly put on my shoes and started walking briskly. My ankle hurt a little as I walked, but not enough to slow me down.
+
+I made it there in fifteen minutes. 
+
+I couldn’t take a shower for a whole month. Maybe it was because of depression, maybe fear. I don’t know; I can’t tell the difference. My body smelled, my hair was greasy, and every time I inhaled through my nose, the strong smell of my sweat stung the back of my throat. 
+
+A heart attack. 
+
+I remember it all vaguely. It’s been a year now. A crowd of people, me running toward them, an old man calling an ambulance, a cat that crossed my path as I ran, a man holding me back, Jason’s father opening the taxi door... I must have believed in the entity. Otherwise, why would I have run toward the crowd? 
+
+And I remember this clearly, and I will never forget it. After a month spent in filth, the message on my mirror, following the shower I finally took:
+
+“My task is complete. Goodbye, Albert. I love you.”

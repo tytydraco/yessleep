@@ -1,0 +1,39 @@
+A lonely child’s imagination is among the wildest of feats. I would know. Mine got out.
+
+It was never that I struggled to make friends or to talk with strangers. What I struggled with was keeping things. As a child, my memory was never fortified to my possessions, and I often found myself at a loss. I would lose toys, my directions, and trains of thought, and I could never hold onto friends for too long, as I’d often lose them too. Everyone said I was careless, but that couldn’t be further from the truth. I cared a lot, but that didn’t stop me from believing them.
+
+It started the summer that I had turned seven. I don’t believe I was different from most children, as I feared the things that lived under my bed, made noises in my room, and projected shadows across the walls.
+
+What was likely a settling house, I would hear as a creaking, bent monster lurking across the floorboards. What I would see as a dark, shadowy figure was more than likely a streetlight catching branches before casting them on my walls. When I breathed throughout the night, I’d hear it reverberate around the room in a shallow, raspy howl. I was too little to know that it was the echo of my asthmatic lungs.
+
+I told my mother more than a few times about the monsters, but she grew tired of proving my imagination wrong. “It’s only in your head. Now go back to bed, my prince.” She repeated herself time and time again, like an uncomfortable lullaby, and etched a kiss on top of my crown. Sometimes it was the things in my head that I feared the most.
+
+When school started, my fear had grown. I could never sleep and was always exhausted and slow, carrying heavy bags under my eyes. Danny was the first of them to start the teasing. He was a collector of sorts. He was the kind who collected bruises, glasses, lunch money, and names. He had stolen mine, and by October, everyone had been calling me Mouse.
+
+I can vividly remember one afternoon when he must have been feeling extravagantly brave. I was waiting for the bus, already short on my lunch money, when he decided to give my face a makeover against the red brick fencing along the drive. My glasses had broken, and my head felt dull, as if all the color in the world went bright and then fell to gray. He told me I’d better have more money tomorrow, or things would be much worse.
+
+That night, I could hear the TV muttering from downstairs, and my mother must have been watching something scary like “Unsolved Mysteries” before leaving for her night shift. When the A/C kicked on, it had to have blown a draft through the house, causing my closet door to slam shut. My breathing accelerated, and the tree branches from outside danced across my walls in a harem of shadows.
+
+I could not run. I dared not scream. Nobody would come to tell me it was only in my head and kiss me in bed. So I shut my eyes, and I built something bigger than my fears could grow.
+
+I saw a large green smile with many teeth crawl across my lap. The smile stretched from corner to corner and reminded me of AstroTurf. He didn’t blink, but watched instead with a curiosity that sparked something less than life. Yet, when I looked at the edge of my mattress where he sat, I could see where the folds of his scales sank into my bed like murky marsh waters.
+
+“Don’t cry or shy from this croc-a-die.” His voice was sing-songy, like a mother’s lullaby. “No loco gets past the jaws of Mister Cocoa!” He snapped the promise shut like a lock on a chain. A lock that took me thirty years to understand.
+
+The cold had let go of my ankle, and I smiled back at the friend, with no regard for the monster under my bed, for the first time in months. The wolf I feared had fled, and never once did I question what from.
+
+I wasn’t finished, as I was a thorough child and wanted to conquer all my fears.
+
+Mister Cocoa had chased away the beast; still, the shadows had not ceased. I made Lulu for the dark, so soft and warm and full of heart. A little light shone on her head, cascading rainbows and killing dread. Now Mister Wuffles was a tamed beast, and upon my bullies I set him to feast. Vivi was smooth, and even more so with her voice. She’d sing into my ear soft word choice. Last came Itsy, a small, silky spider who found all my possessions and made lost things destined. She’d weave her web like Charlotte with diction, and never did my thanks have to be mentioned.
+
+They crowded around my bed, giving me warm greetings, filling my room with colors I had created. The colors were blindingly bright and reminded me of the confetti of birthdays I’d never been invited to. It might be crazy to say, but in that moment, I smelled the sweetness of cake and the scent of birthday candles being blown out. It was my wish granted.
+
+“What do you need?” Mister Cocoa asked.
+
+“I need nothing to hurt me,” I said, thinking of Danny. “Ever.”
+
+“Ever?” Itsy asked.
+
+I nodded my head, and they all began to titter in laughter. Mister Cocoa’s smile engulfed the room as Mister Wuffles spoke. “Sleep. We’ll keep watch.” And I did.
+
+I slept for eight hours that night without a nightmare haunting me. I’ve been chasing that kind of sleep ever since. When I woke up, the closet door was shut, sealed across its seam with silk as fine as hair. My room was still, and I swear my breathing felt normal. I felt safe for the first time that I could remember. I believed that safety was a place where I would remain.

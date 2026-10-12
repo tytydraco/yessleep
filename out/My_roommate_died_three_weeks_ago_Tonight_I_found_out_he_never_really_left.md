@@ -52,4 +52,4 @@ Have you ever wondered where people go when they die "of unknown causes"?
 
 ​I know there's nowhere left to run. If you're reading this, remember one thing: if the lights flicker in your room tonight, or if the silence suddenly becomes too heavy... Don’t look for a flashlight. Don’t try to call for help.
 
-​Just look at the nearest wall. If there's a charred sentence creeping across the paint—Tensei has already found you.
+​I don't know what to do. I can hear something scratching on the other side of my bedroom wall. God help me.

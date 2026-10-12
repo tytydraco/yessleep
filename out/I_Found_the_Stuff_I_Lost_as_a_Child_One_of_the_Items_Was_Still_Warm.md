@@ -1,0 +1,375 @@
+I found the box in my mother's attic three weeks after her funeral.
+
+It was an old shoebox, the kind with faded pictures of running shoes on the lid. There was no dust on it, even though everything around it was covered in a thick gray layer. Someone had written my name across the top in black marker.
+
+Not my full name. Just Danny.
+
+Nobody had called me that since I was 12.
+
+Inside were the things I'd lost as a child.
+
+My red plastic watch, which disappeared during a family camping trip when I was seven.
+
+A little green dinosaur I'd carried everywhere until it vanished from my bedroom one night. 
+
+Three marbles, a silver coin, and a photograph of my father standing beside our old house.
+
+I remembered every single one of them.
+
+My mother had always told me that lost things eventually turned up somewhere. She said it whenever I cried over a missing toy or spent an entire afternoon searching for something I'd misplaced.
+
+"Things don't disappear, Danny," she'd say. "They just go somewhere you can't see."
+
+I'd assumed it was something parents said to make children feel better.
+
+Then I picked up the watch.
+
+The hands were moving.
+
+It had stopped working when I was 7. I remembered because I'd thrown a tantrum about it, insisting that my father fix it. He'd opened the back, poked at the battery, and told me it was dead.
+
+But there it was, ticking steadily in my palm.
+
+The time displayed was 3:17.
+
+I put it down and examined the rest of the contents. The dinosaur had a crack along its tail that I remembered making with my teeth. The marbles were cloudy with age. The photograph was creased down the middle.
+
+I turned it over.
+
+On the back, in my mother's handwriting, were four words.
+
+HE CAME BACK WRONG.
+
+I stared at the message for a long time.
+
+The photograph showed my father outside our childhood home, smiling with one hand resting on my shoulder. I was 6 in the picture. My father had been dead for almost 20 years.
+
+I flipped it over again.
+
+Then I noticed something I hadn't seen before.
+
+My father's shadow fell to the left.
+
+Mine fell to the right.
+
+I dropped the photograph.
+
+It landed face-up on the attic floor.
+
+For several seconds, I couldn't move. I knew it was probably an optical illusion, some trick of the old camera or the angle of the afternoon sun. There were explanations for things like this. **There always were**.
+
+I put everything back in the box except the watch.
+
+I don't know why I kept it, maybe because it was ticking.
+
+Maybe because, for the first time since my mother's death, I felt like she'd left me something that was actually meant for me.
+
+That night, I slept with the watch on my bedside table.
+
+At 3:17 a.m., I woke to the sound of someone winding it.
+
+A small metallic clicking came from the dark.
+
+Click.
+
+Click.
+
+Click.
+
+I turned on my lamp.
+
+The watch lay where I'd left it. Its hands were moving backward.
+
+Then I heard a man's voice from the hallway.
+
+"Danny?"
+
+I stopped breathing.
+
+My father had a distinctive voice. Deep, a little raspy, with a slight whistle whenever he said my name. I hadn't heard it in 20 years, but grief has a way of keeping useless details perfectly preserved.
+
+"Danny, buddy?"
+
+The voice came again.
+
+It sounded **exactly like him**.
+
+I stayed in bed until sunrise.
+
+In the morning, I searched the house. Every room was empty. The front door was locked. The windows were shut.
+
+I took the watch downstairs and threw it into the kitchen trash.
+
+Then I drove to work.
+
+By the time I got home that evening, the watch was sitting in the middle of my bed.
+
+I hadn't told anyone about it. I hadn't even mentioned the box to my friends. I'd left the shoebox in the attic and made a deliberate effort not to think about it.
+
+I picked up the watch with a dish towel and carried it outside. I dropped it into a public trash bin three blocks away.
+
+I watched a garbage truck empty the bin the next morning.
+
+That night, I heard the clicking again.
+
+This time, it came from inside my bedroom wall.
+
+I didn't sleep.
+
+The next day, I went through the box properly.
+
+I found a folded sheet of paper beneath the photograph. It was a page torn from one of my mother's old notebooks, covered in dates and short descriptions.
+
+June 14, 1998 — Danny's watch returned.
+
+August 2, 1999 — Green dinosaur returned.
+
+November 19, 2000 — Father's coin returned.
+
+The dates continued for nearly a decade. Some entries were crossed out. Others had question marks beside them.
+
+Then, near the bottom, I found a sentence written so hard that the pen had torn the paper.
+
+September 6, 2006 — Danny came back.
+
+I read it 3 times.
+
+September 6, 2006, was the day I disappeared.
+
+Not permanently. Not in the way people usually mean when they talk about missing children.
+
+I'd been 8 years old. My mother had sent me to the corner shop for milk, and I'd failed to come home for almost 4 hours. The police searched the neighborhood. My father walked the streets calling my name until his voice gave out.
+
+I remembered leaving the shop.
+
+I remembered walking down our street.
+
+Then I remembered standing outside our house, crying, while my mother held me so tightly I could barely breathe.
+
+She'd told everyone I had gotten lost and wandered into a neighbor's garage. The neighbor had been away, and I'd somehow become trapped inside.
+
+It was a story that never made sense to me.
+
+There was no garage on our street that I could remember.
+
+I looked at the notebook again.
+
+Beneath the entry was another sentence.
+
+He knows what happened. Do not let him remember.
+
+My hands had started shaking.
+
+I went back upstairs and opened the box.
+
+At the very bottom, beneath the paper, was a small black object wrapped in newspaper.
+
+It was a child's shoe.
+
+A white sneaker with a blue stripe, the exact brand I'd worn when I was eight.
+
+The sole was covered in mud.
+
+I picked it up.
+
+Something inside the shoe shifted.
+
+I turned it over and shook it gently.
+
+A small, folded piece of paper slid out.
+
+On it, in a child's handwriting, were five words.
+
+DON'T LET HIM IN AGAIN**!**
+
+I sat on the attic floor until the light faded.
+
+Then I heard my mother's voice coming from downstairs.
+
+"Danny?"
+
+I nearly answered.
+
+It sounded exactly like her, tired and gentle, the way she used to call me in for dinner.
+
+"Danny, sweetheart. Come downstairs."
+
+I walked to the attic door.
+
+The house was dark below me.
+
+"Danny, please," she said. "It's cold out here."
+
+I stopped.
+
+Out here?
+
+The voice came from the front door.
+
+I crept down the stairs, keeping one hand on the railing. The hallway was empty, but a thin line of pale light showed beneath the front door.
+
+Someone stood on the porch.
+
+I knew it was impossible. My mother was dead. I'd watched them lower her coffin into the ground.
+
+But I could hear her breathing through the wood.
+
+"Open the door, Danny."
+
+I looked through the peephole.
+
+My mother stood on the porch in the clothes she'd been buried in. Her face was pale, and her eyes were fixed on the door. Her hair hung in damp strands around her cheeks.
+
+She looked exactly as she had in the coffin.
+
+Then she *smiled*.
+
+Not the small, familiar smile I'd seen a thousand times.
+
+A wide, strained smile that pulled too far at the corners of her mouth.
+
+"Please," she whispered. "I've been looking for you."
+
+I backed away.
+
+The watch began ticking in my pocket.
+
+I hadn't put it there.
+
+The hands were moving backward, and I could feel the tiny mechanism vibrating against my leg.
+
+My mother's expression changed.
+
+The smile disappeared.
+
+She leaned close to the peephole.
+
+"He's got your watch," she said.
+
+I heard something move behind me.
+
+A floorboard creaked at the top of the stairs.
+
+Then my father's voice spoke from the darkness.
+
+"That's all right, sweetheart."
+
+I couldn't turn around.
+
+"I've got another one."
+
+The front door shook once, hard enough to rattle the frame.
+
+My father's voice came closer.
+
+"Danny, buddy. Turn around."
+
+I ran.
+
+I don't remember getting out of the house. I remember waking up in my car the next morning, parked outside a gas station 20 miles away. My phone was dead. My hands were filthy with dirt, and my fingernails were broken.
+
+I haven't gone back to the house.
+
+I told the police someone had been trying to break in. I told my father's old friends I couldn't bear to keep the property. I sold it through an agent who never asked why I refused to enter it again.
+
+I threw away the shoebox, burned the notebook and destroyed every photograph I had of my parents.
+
+And for a while, I believed that was enough.
+
+Then, yesterday morning, a package arrived at my apartment.
+
+No return address.
+
+Just my name written across the top in black marker.
+
+Not my full name.
+
+Just Danny.
+
+Inside was a new shoebox.
+
+It contained a photograph of me sitting at my kitchen table, taken from outside my apartment window.
+
+On the back, in my mother's handwriting, were six words.
+
+YOU LEFT SOMETHING BEHIND, SWEETHEART.
+
+I checked the apartment.
+
+Every window was locked. The front door was bolted. Nobody was inside.
+
+I put the photograph in the trash and went to work.
+
+When I came home, it was back on the table.
+
+There was something else in the box, too.
+
+A small plastic dinosaur.
+
+Green, with a crack along its tail.
+
+And beneath it was a watch.
+
+This one was digital. Cheap, with a black rubber strap.
+
+I'd never owned it before.
+
+I pressed the button.
+
+The screen lit up.
+
+3:17
+
+Then the numbers changed.
+
+3:18
+
+I heard a soft knock at my bedroom door.
+
+I live alone.
+
+"Danny?" a little boy asked.
+
+My own voice. My voice at 8 years old.
+
+"Can you let me out?"
+
+I haven't moved.
+
+I haven't answered.
+
+It's been knocking for 20 minutes now.
+
+And the worst part isn't the knocking.
+
+It's that every time I look at the photograph on my table, I notice something different about the window behind me.
+
+Last night, there was only darkness outside.
+
+This morning, there was a hand pressed against the glass.
+
+Now there's a face.
+
+It's mine.
+
+I'm 8 years old in the photograph, and I'm smiling.
+
+I don't remember taking it.
+
+I don't remember the boy in the room.
+
+But I know what my mother meant when she wrote that I came back wrong.
+
+Because the boy outside my window just lifted his hand.
+
+And I lifted mine, too.
+
+I didn't mean to.
+
+I couldn't stop myself.
+
+The knocking at my bedroom door has stopped.
+
+Something on the other side is laughing.
+
+And my watch says it's 3:17 again.

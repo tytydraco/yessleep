@@ -1,0 +1,58 @@
+I moved down to Terrebonne Parish four months ago after I inherited my late grandfather’s cabin. He spent nearly fifty years out here on the edge of the brackish swamp, three miles past where the paved road ends. The locals called him an eccentric old Cajun hermit. They said he was paranoid.
+
+When I cleaned out his place after the funeral, I found bizarre modifications all over the property. Heavy iron chains wrapped around the cypress porch posts. Heavy wooden shutters reinforced with forged steel bolts. And scattered across every windowsill, doorstep, and floorboard transition were small, neat piles of exactly thirteen pebbles or coins.
+
+At first, I thought it was just the cognitive decline of an isolated old man. I swept the pennies into a jar and unlocked the heavy shutters to let the bayou sunlight in.
+
+I was wrong.
+
+Three weeks ago, during the first week of Lent, the night noises changed.
+
+If you’ve ever spent a night in the deep Louisiana marsh, you know the chorus bullfrogs, cicadas, the low rumble of alligators, and the slow, wet slap of black water against the stilts. But then came something else. A heavy, bipedal splashing movement slowly through the knees of the cypress trees.
+
+It wasn't an alligator. Alligators don't snap three inch thick hickory branches underfoot. They certainly don't breathe with a ragged, wet rasp that sounds like a drowning man trying to clear phlegm from his throat.
+
+Last night, the fog rolled off the Gulf, thick and suffocating. Around 2:00 AM, my generator sputtered and died. The cabin plunged into pitch blackness, save for the pale moonlight filtering through the moss draping the windows.
+
+Then the iron chains on the porch rattled.
+
+Something massive stepped onto the cypress planks. The floorboards groaned under the immense weight. I froze in my bed, my hand tightening around my shotgun, cold sweat dripping down my neck.  
+Through the narrow gap in the blinds, I saw it.
+
+It stood nearly eight feet tall, its frame gaunt and terrifyingly human, spiny vertebrae protruding against tight, dark skin, matted with coarse grey hair. But its head was wrong. It was the long, narrow skull of a hound, its snout glistening red in the moonlight. Below that canine jaw, its arms ended in elongated human hands tipped with yellow, overgrown nails.
+
+And its eyes. They didn't reflect light like a wild animal's. They glowed with an active, burning crimson intelligence.
+
+It stepped toward my front door, raising one of those agonizingly human hands toward the latch. I raised the barrel of the shotgun, my finger trembling on the trigger, knowing standard buckshot wouldn't mean a damn thing if the old swamp stories were true.
+
+Just as the door latch creaked, the beast stopped dead in its tracks.
+
+Its red eyes dropped to the floorboards right outside the threshold. There, spilling out of a rotted seam in the wood, was a small, dusty pile of thirteen pennies my grandfather had dropped decades ago—pennies I had missed when sweeping up.
+
+The creature lowered its head. It exhaled a shuddering, agonized whine that sounded sickeningly like a human sobbing.
+
+Then it crouched down. With clawed fingers that trembled, it began to move the coins, one by one.
+
+*“One. Two. Three. Four...”*
+
+It moved with a desperate, agonizing compulsion. It couldn't look away. It couldn't touch the door handle. It was entirely trapped by the arithmetic.
+
+It reached twelve. It picked up the thirteenth penny. It paused, shook its massive head in confusion, swept all thirteen back into a single pile, and started over.
+
+*“One. Two. Three...”*
+
+I stood behind that door for three hours, listening to a bloodthirsty legend count copper coins on my porch while weeping like a broken man.
+
+When the first pale gray light of dawn broke over the tree line, the creature stiffened. It let out a guttural howl that rattled the glass in my window frames, turned, and leaped off the porch into the black water below. The splash echoed through the trees, and then it was gone.
+
+This morning, I walked out onto the porch. The thirteen pennies were scattered across the cypress planks, smeared with black, foul-smelling grease.
+
+I didn't pack a bag. I drove straight into town to the general store and bought every box of pennies, washers, and small brass tacks they had on the shelf.
+
+The locals know. When I bought the copper, the old man behind the register didn't smile. He just nodded slowly and said, *"Gardez donc. Make sure you count 'em before sunset, son."*
+
+It's 5:30 PM now. The sun is dipping below the cypress canopy, and the swamp fog is already starting to crawl up the stilts.
+
+I'm sitting on my porch floor with four hundred pennies. I'm arranging them in neat piles of thirteen along every single step, window ledge, and door frame.
+
+Because tonight, I know it's coming back. And God forbid I leave a pile with only twelve.
