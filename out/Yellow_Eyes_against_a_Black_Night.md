@@ -28,7 +28,7 @@ He seemed so dejected and shyly looked down at his desk. I grinned.
 
 “Really?” he beamed.
 
-We became our teachers’ worst nightmare. We became best of friends.
+We became our teachers’ worst nightmare. We became the best of friends.
 
 Two years later, Eli and I heard the screams coming from the woods. It was one of the first days of autumn that were no longer quite so warm. Eli’s house and mine stood on opposite edges of a small wooded area near the city. Yet the two corners of our little town could hardly have been more different. My parents lived in a pretty little place near our school. Parks, terraced houses, and elderly gentlemen walking ugly purebred dogs were part of everyday life. But if you followed the little path along the edge of the woods, you would reach the other side of our town. Apartment buildings and unrenovated houses from another era stood crookedly side by side. Only a few families still lived in this part of town, and those who did usually had no other choice. Eli’s father was one of them.
 

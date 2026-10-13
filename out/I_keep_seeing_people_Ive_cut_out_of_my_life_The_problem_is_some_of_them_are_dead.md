@@ -1,0 +1,437 @@
+I used to think estrangement was a kind of death.
+
+You stop answering calls. You delete old messages. You throw away photographs until the only evidence that someone existed in your life is a vague memory of their voice.
+
+Eventually, you forget the little things.
+
+The way they cleared their throat before lying. The way they stood in doorways instead of entering a room. The exact expression they wore when they realized you were never going to forgive them.
+
+And if you’re lucky, you forget their faces.
+
+I thought I was lucky.
+
+Three weeks ago, I saw my older brother standing across the street from my apartment.
+
+I hadn’t spoken to Daniel in 11 years.
+
+We’d had a falling-out after our mother’s funeral. I won’t get into the details, but it was bad enough that I changed my number, moved to another city, and made a deliberate effort to erase every mutual friend we had.
+
+Daniel was the sort of person who could make you feel guilty for things he’d done to you.
+
+For years, I had nightmares about him knocking on my door.
+
+So when I saw him across the street that Tuesday evening, I knew immediately that it was him.
+
+Same narrow shoulders. Same dark coat. Same habit of standing perfectly still with his hands buried in his pockets.
+
+He was looking directly at my window.
+
+I ducked behind the curtains.
+
+When I looked again, he was gone.
+
+I spent the rest of the night convincing myself it had been someone else. A stranger with the same haircut. A trick of the light. 11 years is a long time, and memories are unreliable things.
+
+Then, on Thursday, I saw my father.
+
+He was sitting in the back of a bus I passed on my way to work.
+
+My father had been dead for 6 years.
+
+I watched the bus pull away from the curb. Through the rain-streaked windows, I could see the side of his face, the silver hair, the small scar above his left ear.
+
+I remembered that scar from when I was a child. He'd gotten it falling off a ladder in our backyard.
+
+The bus stopped at a red light.
+
+My father turned his head.
+
+Even through the glass, even from the opposite side of the road, I knew he was looking at me.
+
+His expression wasn't angry.
+
+It was disappointed.
+
+The light changed. The bus drove away.
+
+I called in sick that afternoon and spent hours searching through old family photographs. I needed proof that my mind was playing tricks on me.
+
+I found a photograph of my father sitting on that same bus.
+
+Not the actual bus, obviously. It was an old photograph taken years before his death. He was wearing the same dark coat, sitting in the same position, with his hands folded over his stomach.
+
+I deleted the photograph.
+
+That night, I dreamed about my childhood home.
+
+My mother was standing in the kitchen, washing dishes. Daniel was sitting at the table. My father was reading a newspaper in his armchair.
+
+Nobody spoke to me.
+
+I stood in the doorway, waiting for someone to acknowledge me.
+
+Finally, my mother looked up.
+
+She smiled the way she used to when I came home late.
+
+Then she said, “You took your time.”
+
+I woke up before I could ask what she meant.
+
+My mother is still alive.
+
+We haven't spoken in 9 years.
+
+After that dream, I started noticing other people.
+
+An old friend from university, standing at the far end of a supermarket aisle. A former girlfriend reflected in the dark screen of my television. My childhood neighbor sitting on a bench outside the building where I work.
+
+Every one of them was someone I had deliberately removed from my life.
+
+And every one of them behaved the same way.
+
+They never approached me.
+
+They never spoke.
+
+They simply appeared somewhere I would eventually notice them, watched me for a while, and disappeared when I looked away.
+
+I started keeping a list.
+
+There were seven names on it by the end of the second week.
+
+On Friday, I saw the eighth.
+
+It was a woman named Rachel.
+
+Rachel and I had been engaged once. We broke up five years ago after I found out she’d been lying to me about something important. I won't pretend I handled the breakup well. I said things I regretted, and I left without giving her the chance to respond.
+
+I'd blocked her everywhere.
+
+As far as I knew, she had moved overseas.
+
+I saw her standing outside my office building at 6:15 p.m.
+
+She looked exactly as I remembered her, right down to the small silver earrings she always wore.
+
+I stopped walking.
+
+She smiled.
+
+Then she raised one hand and pointed at me.
+
+Not a wave.
+
+A deliberate, accusatory point.
+
+I stepped toward her.
+
+She turned and walked into the building.
+
+I followed.
+
+The lobby was empty. The security guard said nobody had entered behind me. I checked the elevators, the stairwell, even the bathrooms.
+
+Nothing.
+
+When I returned home, I found a message request from an account I didn't recognize.
+
+There was no profile picture, no name, and no previous conversation.
+
+The message contained 6 words.
+
+You need to call your mother.
+
+I stared at the screen until it went dark.
+
+Then I called her.
+
+She answered on the fourth ring.
+
+For several seconds, neither of us spoke. I had rehearsed dozens of conversations with her over the years, but none of them prepared me for hearing her voice again.
+
+Finally, she said, “I wondered when you'd call.”
+
+I asked her what was happening.
+
+She went quiet.
+
+Then she asked me a question that made my stomach tighten.
+
+“Have you been seeing people?”
+
+I couldn't answer.
+
+She started crying.
+
+She told me that, for the past month, she had been seeing my brother outside her house. Sometimes he stood at the end of the driveway. Sometimes he appeared across the street, staring through her windows.
+
+She said she'd called Daniel's old number.
+
+Someone answered.
+
+But it wasn't Daniel.
+
+It was a woman who claimed she had owned that number for years and had never heard of him.
+
+Then my mother told me something I hadn't known.
+
+Daniel had died 11 months ago.
+
+A car accident. Late at night. No other passengers.
+
+I sat on my kitchen floor with the phone pressed against my ear.
+
+I wanted to ask why she hadn't told me.
+
+Instead, I asked her what Daniel had been doing outside her house.
+
+“I don't know,” she whispered. “But last night, he came to the front door.”
+
+I heard something in the background.
+
+Three slow knocks.
+
+My mother stopped speaking.
+
+I heard her breathing change.
+
+Then she whispered, “He's here again.”
+
+I told her to lock the door and call the police.
+
+She didn't respond.
+
+I heard the three knocks again.
+
+Then my mother said something so quietly I almost missed it.
+
+“He looks just like you.”
+
+The call disconnected.
+
+I tried calling back. No answer.
+
+I called the police in her town and asked them to check on her. They said they would send someone.
+
+I didn't sleep that night.
+
+At seven the next morning, an officer called to tell me my mother was safe.
+
+She'd been found sitting in her kitchen.
+
+The front door was locked. There were no signs of forced entry. Nobody had been seen outside the property.
+
+When the officer asked her why she'd called for help, my mother said she hadn't.
+
+She claimed she'd been alone all night.
+
+I haven't spoken to her since.
+
+That should have been the end of it.
+
+Instead, the sightings became more frequent.
+
+People I hadn't thought about in years began appearing everywhere. On train platforms. In shopping centers. Outside my apartment.
+
+Some were people I'd hurt.
+
+Others were people who'd hurt me.
+
+A few were people I'd simply stopped speaking to because life had moved on.
+
+I started to understand something.
+
+These weren't ghosts.
+
+At least, I don't think they were.
+
+They were the people I'd left behind.
+
+And something was bringing them back.
+
+Three nights ago, I came home and found my apartment door unlocked.
+
+I live alone. I always lock it.
+
+Nothing was missing, but someone had left a photograph on my kitchen table.
+
+It was a picture of me as a child, standing between my parents in the backyard of our old house.
+
+Daniel stood behind us, his hands resting on my shoulders.
+
+I recognized the photograph immediately. It had disappeared from my mother's house years ago.
+
+Someone had written on the back.
+
+ONE MORE PERSON.
+
+I spent the next day trying to work out what it meant.
+
+Then, last night, I saw Rachel again.
+
+She was standing in the hallway outside my apartment.
+
+I watched her through the peephole for almost 20 minutes.
+
+She didn't move.
+
+Eventually, I unlocked the door and opened it.
+
+The hallway was empty.
+
+But there was a new message on my phone.
+
+It came from my mother.
+
+For the first time in nine years, she'd sent me a photograph.
+
+It showed her sitting in her living room, smiling weakly at the camera.
+
+Behind her, in the dark hallway, stood a man.
+
+Daniel.
+
+His face was pale, his eyes fixed on the camera.
+
+And beside him stood someone else.
+
+Me.
+
+Not the me in the photograph.
+
+The me standing in my apartment, holding my phone.
+
+Same clothes. Same expression. Same slight tilt of the head.
+
+I dropped the phone.
+
+It rang almost immediately.
+
+My mother's number.
+
+I answered.
+
+She was crying so hard I could barely understand her.
+
+“He's asking for you,” she said.
+
+I asked her who.
+
+She didn't answer.
+
+Then I heard Daniel's voice in the background.
+
+It sounded exactly as I remembered it.
+
+“Tell him I'm sorry.”
+
+My mother took a shaky breath.
+
+Then she said, “I think he wants you to forgive him.”
+
+For the first time in 11 years, I wanted to hear my brother speak.
+
+I wanted to know what he'd meant to say before we stopped talking. I wanted to know whether he'd regretted what happened between us.
+
+I wanted to open the door and see him standing there.
+
+I wanted it so badly that I almost forgot what had happened to everyone else.
+
+I almost forgot that none of the people I'd seen had spoken to me.
+
+I almost forgot that every single one of them had appeared after I started thinking about the past.
+
+Then my mother whispered something that made my blood turn cold.
+
+“There's someone else here now.”
+
+I asked her what she meant.
+
+She said she'd been looking through the old family photographs when she noticed something strange.
+
+In every picture, someone had been standing farther away than they should have been.
+
+A figure at the edge of the garden.
+
+A face reflected in a window.
+
+A person standing in the background of a photograph taken in an empty room.
+
+She said she'd gone through every photograph she owned.
+
+And in every single one, that person was getting closer.
+
+“Who is it?” I asked.
+
+My mother began to sob.
+
+“It's your father,” she said. “But he's not looking at us anymore.”
+
+I heard a floorboard creak on her end of the call.
+
+Then she whispered, “He's looking at the door.”
+
+The line went dead.
+
+I haven't left my apartment today.
+
+I haven't answered any calls.
+
+I covered the mirrors, pulled the curtains, and turned off every light.
+
+I keep telling myself that there's a rational explanation for all of this.
+
+Grief. Guilt. Sleep deprivation.
+
+Anything.
+
+But an hour ago, someone knocked on my door.
+
+Three times.
+
+I looked through the peephole.
+
+My brother was standing in the hallway.
+
+He looked exactly as he had 11 years ago, before everything went wrong.
+
+He was smiling.
+
+And for the first time since the sightings began, he spoke.
+
+“It's okay,” he said. “You can let me in.”
+
+I stepped away from the door.
+
+He didn't knock again.
+
+Instead, I heard him walk down the hallway.
+
+Slowly.
+
+One step at a time.
+
+Then I heard another set of footsteps behind him.
+
+And another.
+
+And another.
+
+I counted 12 sets of footsteps before they reached the stairwell.
+
+There are only 11 people on my list.
+
+I haven't opened the door.
+
+I don't know if they're still out there.
+
+But I've just received another message from my mother.
+
+It's a photograph of my front door.
+
+Taken from inside my apartment.
+
+And on the back, in handwriting I recognize as my own, are 5 words.
+
+**YOU FORGOT WHO YOU LEFT**.

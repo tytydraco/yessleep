@@ -174,7 +174,7 @@ I nibbled my lip and thought. I was still sceptical. I sucked in a breath and ch
 
 "Keeps away the bad shit," she waggled her fingers mystically, "also you know how I feel about air fresheners."
 
-"Air fresheners don't make people stupider!" I called to her, already out the door. "I've told you to stop reading that shit!"
+"Air fresheners don't make people dumber!" I called to her, already out the door. "I've told you to stop reading that shit!"
 
 She yelled something back, but I didn't hear. I was too busy stewing over the articles Robyn found.  That, and I had a dachshund to de-worm.
 

@@ -1,0 +1,37 @@
+I inherited my grandfather's house in upstate New York last autumn. It is a beautiful, isolated property surrounded by dense pine forests. Along with the house came all of his old furniture, including a massive, ancient grandfather clock that stood in the corner of the living room. It was made of dark oak, and the pendulum swung with a deep, echoing tick that could be heard throughout the entire house.
+
+  
+My grandfather was a quiet, meticulous man, but he was incredibly superstitious about this clock. In his will, he left me the house under one strict condition: "Keep the clock wound, and never, under any circumstances, open the back panel."
+
+  
+For the first few weeks, I respected his wishes. The ticking was soothing, a rhythmic reminder of his presence. But as the winter nights grew longer and colder, the house felt increasingly silent, save for that clock. One evening, around 2 AM, the clock abruptly stopped ticking. The silence in the room was sudden and heavy, almost suffocating.
+
+  
+I grabbed the winding key, opened the glass door, and wound the mechanism. Nothing happened. The pendulum remained still. I gave it a gentle push, but it swung a few times and stopped again. Frustrated, I remembered the back panel. I knew his rule, but I figured it was just an old mechanic's quirk. I shined my phone flashlight behind the clock.
+
+  
+The back panel was secured by a small brass latch, covered in dust. I hesitated, my grandfather's warning echoing in my mind. But curiosity won. I flicked the latch and pulled the wooden panel open.
+
+  
+Inside, there were no gears. No brass wheels, no springs, no clockwork mechanisms.
+
+  
+There was only a hollow space, lined with rotting black velvet. Resting inside the hollow was a human skull, wrapped in silver wire, with two polished pieces of obsidian placed in the eye sockets. Written in dried, dark ink along the jawbone were symbols I couldn't comprehend.
+
+  
+I stumbled back, dropping my phone. As the light hit the floor, the clock suddenly shivered. The pendulum began to swing on its own. \*Tick. Tock. Tick. Tock.\*
+
+  
+But the sound was different now. It wasn't the metallic click of oak and brass. It sounded like a wet, heavy heartbeat.
+
+  
+Terrified, I slammed the back panel shut, locked the latch, and pushed the clock back against the wall. I barely slept that night. Every tick felt like it was echoing inside my chest, matching the rhythm of my own heart.
+
+  
+The next morning, I decided I was going to get rid of the clock. I called a local antique dealer, but when he arrived and inspected it, he looked confused. "Son," he said, "this clock doesn't have a back panel. It's solid oak. Look."
+
+  
+He shined his light behind it. The back of the clock was a single, seamless sheet of wood. There was no latch, no seam, no panel.
+
+  
+Since that day, the clock has not stopped. But the heartbeat is getting louder. And last night, when the clock struck midnight, I didn't hear the usual chime. I heard a raspy, gasping breath come from inside the wood, whispering my name. I am sitting in my living room right now, staring at the solid wood back of the clock. I can hear the heartbeat. And I think whatever was locked inside that panel is clawing its way out from the inside.
