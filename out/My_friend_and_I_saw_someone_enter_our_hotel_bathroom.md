@@ -1,0 +1,17 @@
+This happened during a long layover in Milan, and it's still one of the creepiest things I've ever experienced. My friend and I had booked a hotel room near the airport because we had almost 15 hours between flights. We were exhausted from traveling and figured getting a proper night's sleep would be better than spending all that time sitting in the terminal.
+
+We checked in pretty late, took showers, and went straight to bed. The room was small, with two single beds and a bathroom near the entrance. I remember checking that the door was locked before going to sleep because I always do that in hotels. My friend was already half asleep by then, and within minutes I was out too.
+
+I have no idea what time it was when I opened my eyes. The room was dark except for a little light coming through the curtains, but I could clearly see the entrance door from my bed. And that's when I noticed someone walking into our room. It happened so casually that for a second my sleepy brain didn't even register how wrong it was. A person had just come through the door and was walking straight toward the bathroom.
+
+For some stupid reason, I didn't scream. I was afraid of waking my friend and causing a panic before I understood what was happening. I slowly turned my head toward her bed, and that's when I realized she was awake. She was lying completely still, staring at the bathroom doorway. Even in the darkness, I could see how pale her face was.
+
+I whispered, "Why aren't you sleeping?" She looked at me and asked, "Did you see that too?"
+
+I swear my stomach dropped. I asked her what she meant, even though I already knew. She told me she'd woken up because she thought she heard the door opening. Then she'd watched someone enter our room and walk into the bathroom. She described exactly what I'd seen, right down to the way the person had moved without looking at either of us.
+
+We sat there staring at the bathroom for what felt like forever. Neither of us wanted to get up, but eventually we turned on every light in the room and checked together. The bathroom was empty. The shower was empty. There was nobody behind the door, nowhere to hide, and the bathroom didn't even have a window. We checked the main door too. It was locked from the inside, exactly as I'd left it.
+
+We searched the entire room, including the wardrobe and under both beds. Nothing. My friend kept asking how someone could have entered without unlocking the door, and I had no answer. The worst part was that neither of us had heard the bathroom door open again. Whoever we'd seen had walked in, but we'd never seen them come out.
+
+We didn't even discuss staying there until morning. We threw our things into our bags, got dressed, and left.e went straight to the airport and spent the rest of the night sitting in the terminal, even though we'd already paid for the hotel.

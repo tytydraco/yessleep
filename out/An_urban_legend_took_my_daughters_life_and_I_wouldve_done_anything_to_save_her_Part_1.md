@@ -321,3 +321,5 @@ She believed every word she’d just said.
 I believed she was wrong.
 
 But suddenly I wasn’t as sure as I wanted to be.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/rqAx3OmD0F)

@@ -1,0 +1,165 @@
+The end of the world was odd.  It happened slowly and then all at once.  It started with strange weather patterns, wars overseas disturbing the global market’s, and variant diseases everyone wrote off as “just another flu.”  You’d hear people chatter about it in the supermarket like it was nothing.
+
+“Man, can you believe how much Potatoes are now?”
+
+“Yeah, I heard the crops were whipped out by that bacterial disease.”
+
+“That’s fake news man.”
+
+“Yeah?”
+
+“Yeah, it’s all biological warfare.  Some say it’s the Russians, but I think-“
+
+Everyone had different sources of information.  Your worldview all depended on what media you consumed.  I stayed out of it.  I thought that would save me.
+
+Shit really started hitting the fan when the  “asteroids” appeared.  At least that’s what some people called them.  Conspiracy theorists online were saying they were “the final chem-trails,” whatever that means. 
+
+I was on a walk through downtown one day, staring up at the strange sight above.  Thousands of smoke trails with nothing visible at the end.  A local TV station was playing in a nearby shop window.
+
+“Scientists say it’s a natural phenomenon.  Apparently, it hasn’t happened in over a thousand years!  Can you believe that Chris?”
+
+“Well Sheryl, we sure are lucky to be alive during such a historic-“
+
+“They’re lying!”  
+
+I jumped in surprise as a man ran up and began pounding against the glass.  He was disheveled.  I would have assumed he was homeless except his clothing was immaculate and he looked well fed.
+
+“It’s all a ploy!”
+
+The man turned his bloodshot eyes towards me.
+
+“They’re taking over! They’re-“
+
+Violently and without warning a woman appeared behind the man and pummeled the back of his head with a pipe.  He fell.  She was tiny and fragile looking, yet she viciously beat his skull in with the veracity of a wild animal.  I watched in utter shock as the man’s head became a puddle of blood and brain matter. 
+
+“Hey!”  I managed to pitifully squeak out after the shock had worn off.  
+
+Looking around I saw that no one else seemed to care or even notice.  Across the street a police officer stood, watching the whole thing unfold with his hands in his pockets.
+
+“Hey!”  I yelled a bit more forcefully this time, waving at the officer frantically. 
+
+The police officer looked up at me.  There was something strange in his eyes.  Glossy and uncaring.
+
+He smiled at me, nodded, then walked away, whistling as he disappeared down the street.  
+
+“I’m sorry about that.”
+
+The woman stood up.  She’d been on her knees, destroying what remained of the man’s skull.  Her curly blond hair was covered in blood and chunks of bone.  She smiled at me, her rich blue eyes strangely calm given what she had just done.
+
+“You’re cute.”   
+
+She ran up to me.  I closed my eyes, fully expecting to be her next victim.  Instead she placed her head against my chest.  My heart was beating so ferociously I expected it to pop out of my chest.  The woman giggled.  A sweet, sensitive giggle.
+
+“You don’t need to be scared.”
+
+She backed away slowly, her smile warm.
+
+“I’ll be seeing you around.”
+
+She gave me a peck on the cheek before turning away and skipping down the street.  I stood motionless for god knows how long.  When I finally came to the man’s blood had dried on the sidewalk.  
+
+I looked at the TV in the window.  The news anchors were silent, staring directly into the camera.  A chill shot down my spine.  I looked up.
+
+Have you ever seen something so strange your mind has trouble processing it?  I started laughing as I stared upwards.  It was a knee jerk reaction.
+
+In the sky, surrounded by the numerous trails of smoke, was a giant eye.  It blinked, its large lashes swaying as it did so.  Its black pupil dilated, shrinking then expanding its green iris. As quickly as it appeared, it disappeared.
+
+It was then I knew the end was coming.
+
+…
+
+How does one spend their days when they know the end is near?  Well, you do the same shit you’ve always done.  Work, home, sleep.  Except things get progressively weirder.  Some of your coworkers break under the pressure and are publicly executed in the break room.  There's donuts and Coffee while everyone laughs and cheers as Bob from finance is ritualistically murdered.  No one even bothers to clean up the body.  
+
+The lady I’d originally seen bashing the man’s skull in started following me.  I’d see her across the street, waving politely as I entered my apartment. When I looked out my window she'd be standing there, staring up at me with nothing but love in her blue eyes.  Maybe I should have been scared but at some point I'd stopped caring about anything at all. 
+
+I’d see the eye in the sky every now and then. It would pop in randomly before disappearing. The smoke trails stayed a continuous site. It's strange how quickly you adapt to the absurd.
+
+More and more people were breaking under the pressure and when they did, they were executed. Soon bodies were strewn about the streets like confetti, left to rote.  Eventually not enough people were left to keep things running.  The utilities went out.
+
+Those of us who remained acted as if everything was going according to plan. I simply followed along.  Sure, the smells were unbearable but you adapted.  The toilets no longer flushed but if you tried to go anywhere else but the bathroom you’d get your head caved in.  I started holding it for as long as I could.  A trip to the bathroom became a lovecraftian nightmare.  And I don't even want to talk about what we started eating.  Let's just say the bodies were put to good use.
+
+I think things went on that way for about a year?  Hard to tell really.  Time didn't really exist anymore.  Eventually, the girl with curly blond hair approached me.  I was just about to enter my apartment building when she stormed over.  She looked angry.  I thought maybe it was my turn to get my head bashed in.  Honestly I welcomed it.  Instead, she asked me a question, irritation in her voice.
+
+“Why haven’t you asked me out on a date yet?”
+
+A year ago the question would have caught me off guard .  Now, nothing surprised me.
+
+“How does a walk in the park sound?”
+
+My voice was monotone.  I hadn’t felt anything in a long time.  The woman smiled, hugging my arm.
+
+“My name's Clarissa, but you can call me Clare.”
+
+We walked through what was once a beautiful downtown park.  Now, it was overgrown.  Rotting corpses littered every square inch.  
+
+Clare was happy, holding onto me as if we’d been in love for decades.  I have to admit it felt nice.  Warmness returned to my body for the first time in what felt like a century.  
+
+Eventually we found our way to a park bench and sat down.  Vines were creeping up the side of the metal frame.  Clare snuggled closer to me till she was practically in my lap.  The eye in the sky was back.  It blinked at us.
+
+“Do you remember how things used to be?”  Clare’s voice was soft in the quiet night air. 
+
+“If I say yes will you bash my brains in?”  Part of me hoped the answer was yes.
+
+“Don’t be silly.”  
+
+She gripped even tighter to my jacket.  Butterflies filled my stomach.  I felt silly.  I sighed, deciding to answer honestly.  
+
+“It’s getting harder to remember anything.”
+
+“I know.”  Clare’s breath was mist in the cool air.  “It took me so early.  I don’t remember anything before.”
+
+“What is *it*?”  I asked tentatively.  
+
+Clare looked up.  For the first time I noticed that her eyes had changed.  They used to be blue.  Now they were green.  
+
+“It’s a breakdown in the simulation.”  Clare looked up at the eye that hung over us.  “At one point it might have been real.  But too many people stopped caring about what was real and what was fake.  That’s when it started breaking down.”
+
+Clare sat up.  She put her knees on either side of my lap.  Her deep green eyes gazed into mine.  Her hands reached behind my head, one caressing my hair while the other rested on my neck. 
+
+“I heard Mother’s voice when things began to break down.“  Clare’s warm breath hit my lips.  I saw the night sky in her eyes.  “She told me to come home.  She told me to bring you with me.”
+
+Clare leaned her lips closer to my ear as she whispered.  “She needs us.  For what comes after.”
+
+Clare pulled away from my ear, her lips meeting mine.  We kissed.  For the first time in what felt like eternity, I was alive.  
+
+I didn’t notice that the corpses were gone as Clare and I fell to the ground, our passion overtaking us.  I didn’t notice the eye in the sky watching keenly as I undressed Clare.  My animal instincts had taken over and I was happy to let them.
+
+The next morning we awoke in my bed.  I didn’t remember walking home.  Not that it mattered. 
+
+Things felt different.  Naked, I walked over to my apartment window.  Clare joined me, her hand caressing my back.
+
+“It’s almost over.”
+
+I somehow knew she was right.  The corpses were gone.  So were some of the buildings.  Things were stopping.  Everything was giving up.  
+
+The smoke trails in the sky were gone, replaced with thousands of eyes. 
+
+Green eyes. 
+
+Eyes like Clare’s.  
+
+On Clare’s orders, we went for a drive.  We left the city.   Clare held my hand as I drove us through the winding country roads.  Cornfields surrounded us.  Then they were gone, drifting into blackness.  Soon there was nothing left but the road and the sky.  
+
+Then the sky disappeared.  
+
+Then the road.  
+
+Only the eyes remained.  
+
+Clare looked at me.
+
+“Mother is going to love you.”
+
+If you’re reading this, I need you to know that Mother is waiting.  Whatever reality you’re in, things have already started breaking down.  You might have noticed.  Things don’t feel *real* anymore.  Like everyone's stopped caring.  Like no one can agree on what's real and what's not.
+
+Don’t panic. 
+
+Follow it all the way till the end. 
+
+If Mother chooses you, you’ll know.  If not… well, I’m sorry.  
+
+Her love is all that matters.  
+
+I hope I see you on the other side.  
+
+Goodbye. 

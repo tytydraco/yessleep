@@ -16,7 +16,7 @@ He said something under his breath, a prayer or a curse, and swung the car aroun
 
 He tried twice more. The second time he drove fast, gravel spraying off the tires and rattling against the trunks, and the house came up ahead of us anyway, patient and enormous. The third time, he stopped at the foot of the steps and sat with both hands on the wheel. In the mirror, his eyes went from the house to me, and back to the house, and back to me.
 
-"C’est vous." he said. *It’s* ***you****.*
+"C’est vous." he said. *It’s* ***you***\*.\*
 
 He got out, lifted my bag from the trunk, and set it down on the gravel. Then he opened my door and stood holding it, looking at the ground. I got out. He didn’t say goodbye. He drove off down the avenue at a crawl, and I stood on the steps and watched the taxi shrink between the limes until it rolled through the gates and turned onto the road. I heard it shift gears and speed up, the sound thinning away into the hills. Then nothing but leaves.
 

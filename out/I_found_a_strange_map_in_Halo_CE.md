@@ -1,0 +1,653 @@
+I found a map in my old copy of Halo CE that shouldn’t exist.
+
+I wish I could say that’s the strangest thing that happened.
+
+It isn’t.
+
+As a kid, Halo CE was one of my favorite games. My brother and I used to play it for hours at a time. Eventually, I gave my physical copies of the Halo games to a friend after I bought the Master Chief Collection.
+
+A few years later, I started missing the original versions.
+
+So I went to Game Exchange.
+
+I managed to find Halo 1, 2, and 3. They had Halo 4 too, but it was sitting in one of those generic replacement cases, so I left it behind.
+
+When I got home, I dug out my old Xbox 360 and booted up Halo CE.
+
+Everything looked normal.
+
+The case was standard, aside from the usual scratches and wear. The disc looked fine. Nothing seemed out of place.
+
+I started the campaign.
+
+Everything worked exactly as I remembered.      
+I played through it normally and finished the campaign.
+
+Before moving on to Halo 2, I decided to check the multiplayer.
+
+I knew the original multiplayer stayed the same, but I still wanted to look through the maps.
+
+Most of them were exactly what I expected.
+
+Then I saw one I didn’t recognize.
+
+\\\\\\\*\\\\\\\*Map 151103.\\\\\\\*\\\\\\\*
+
+I had never heard of it.
+
+At first, I was excited.
+
+I thought maybe I’d somehow found a rare developer build of the game. Something like that could probably be worth a lot of money.
+
+I loaded it.
+
+And it was boring.
+
+The map was small and looked vaguely like Blood Gulch, except there was only one base and the whole thing was much smaller.
+
+Orange dirt.
+
+A base.
+
+Nothing else.
+
+I walked around for a while and found nothing.      
+Inside the base was a single MA5B sitting on the floor.
+
+I climbed onto the roof.
+
+Nothing.
+
+There wasn’t even a teleporter.
+
+Eventually, I quit.
+
+That night, I searched for “Map 151103 Halo CE.”
+
+Nothing came up.
+
+No videos.
+
+No wiki pages.
+
+No forum posts specifically mentioning the map.
+
+I asked around on a few Halo forums, and the      
+general answer was that I probably had a modified copy of the game.
+
+That was disappointing.
+
+I thought I’d found something rare.
+
+Instead, I’d apparently just bought somebody’s weird mod.
+
+I ejected the disc.
+
+Then I stopped.
+
+I don’t know why, but something bothered me about it.
+
+So I put the disc back in.
+
+I loaded the map again.
+
+This time, I searched every inch of it.
+
+I walked around the outside until an invisible wall stopped me. I checked inside the base again. I climbed onto the roof.
+
+Nothing.
+
+I was about to give up when I noticed something in the corner of my screen.
+
+A teleporter.
+
+It was partially hidden behind a wall.
+
+I walked toward it.
+
+Then something happened that shouldn’t have happened.
+
+I walked straight through the wall.
+
+The teleporter activated.
+
+The screen went black.
+
+When it came back, I was standing in a completely different area.
+
+The room was dark and metallic, almost like the hallways from Two Betrayals.
+
+I walked forward.
+
+That’s when I saw the bodies.
+
+Four pedestals lined the hallway.
+
+There was an NPC on each one.      
+A Covenant.
+
+A UNSC soldier.
+
+A Flood form.
+
+And another Covenant.
+
+They were all dead.
+
+But their bodies were wrong.
+
+Halo CE has always had strange physics. If an NPC dies under certain circumstances, their bodies can stretch or deform.
+
+These looked like that.
+
+Except much worse.
+
+Their limbs were stretched across the pedestals, their bodies twisted into shapes that didn’t look possible.
+
+I started walking faster.
+
+I eventually reached a dead end.
+
+Then my motion tracker showed a red dot.      
+I spun around.
+
+A Flood combat form was standing behind me.      
+It was missing most of its limbs and couldn’t really attack me.
+
+I’d seen people in the Halo community jokingly call harmless Flood forms “friendly,” so that’s what I thought of it as.
+
+I raised my weapon.
+
+Then lowered it.
+
+I don’t know why.
+
+Maybe because it was the only other living thing in the entire map.
+
+I walked back the way I’d come.
+
+The Flood followed me.
+
+I found a doorway I’d missed earlier and went through it.
+
+It led to an elevator.
+
+I stepped inside.
+
+The Flood followed.
+
+The elevator began moving down.
+
+The walls were covered in dark red stains.
+
+When the elevator reached the bottom, I walked through the doorway.
+
+The Flood didn’t.
+
+It stayed inside.
+
+I tried pushing it forward.
+
+Nothing.
+
+I tried again.
+
+It backed away.
+
+It almost seemed afraid of whatever was beyond that door.
+
+I went forward alone.
+
+The hallway ahead was blocked by a huge hole.
+
+I couldn’t see the bottom.
+
+I jumped in.
+
+My character died instantly.
+
+I respawned near the elevator.
+
+Whatever was beyond that hole, I couldn’t reach it.      
+I went back to the elevator.
+
+I figured maybe I could somehow use the Flood to launch myself across the gap.
+
+But the Flood was dead.
+
+I hadn’t killed it.
+
+There wasn’t another player in the game.
+
+My motion tracker was empty.      
+I quit.
+
+I checked the campaign again.      
+Normal.
+
+I checked the other multiplayer maps.      
+Normal.
+
+Only Map 151103 was wrong.
+
+I called my older brother.
+
+I asked him to come over for the weekend.
+
+I told him about the Halo games I’d bought and said we could play together.
+
+I didn’t tell him everything.
+
+I wanted someone else there when I went back into that map.
+
+When he arrived, we tried playing split-screen.      
+It didn’t work.
+
+For some reason, Map 151103 wouldn’t allow two players on the same console.
+
+We tried everything.
+
+Eventually, we decided to set up a LAN game.      
+Even that was a pain.
+
+We ended up playing from separate rooms using the longest Ethernet cable we could find. My brother brought his own Xbox 360 and his copy of Halo CE.
+
+Eventually, we got it working.
+
+We loaded the map.
+
+He followed me through the same path.
+
+When we reached the hallway with the bodies, he was visibly uncomfortable.
+
+Then he accidentally killed the Flood form.      
+We kept going.
+
+Eventually, we reached the hole.
+
+I explained over the phone that I needed him to throw a grenade so I could grenade-jump across.
+
+He did.
+
+The jump worked.
+
+I landed on the other side.
+
+Then I looked behind me.
+
+My brother’s Spartan was standing there.
+
+I was confused.
+
+I asked him how he’d crossed.
+
+No answer.
+
+I called him again.
+
+Still nothing.
+
+Then I heard him through the phone.
+
+“Who are you talking to?”
+
+I froze.
+
+He told me he was still standing on the other side of the hole.
+
+He hadn’t crossed.
+
+He’d just been waiting for me.
+
+I looked at the Spartan.
+
+It was still standing there.
+
+Then it disappeared.
+
+A second later, my brother started swearing.
+
+He said something invisible was attacking him.
+
+An invisible Spartan.
+
+He shot at it.
+
+Nothing.
+
+He tried grenades.
+
+Nothing.
+
+The Spartan kept appearing long enough to kill him before disappearing again.
+
+Eventually, my brother quit.
+
+He went back to playing something else.
+
+I should have done the same.
+
+I didn’t.
+
+I continued down the hallway.
+
+At the dead end, I noticed something I’d never seen before.
+
+Bullet holes.
+
+They spelled a name.      
+\\\\\\\*\\\\\\\*MARZA\\\\\\\*\\\\\\\*
+
+I slowly read it aloud.
+
+The Spartan was standing beside the final letter.
+
+Then the game froze.
+
+I restarted the Xbox.
+
+When I returned to the multiplayer menu, Map 151103 was gone.
+
+It had been replaced by a map called:      
+\\\\\\\*\\\\\\\*MARZA\\\\\\\*\\\\\\\*
+
+I loaded it.
+
+The map was completely different.
+
+It looked like an area from the campaign.
+
+An outdoor area.
+
+There was even a picnic area.
+
+And standing there was something that made my stomach drop.
+
+A human-sized Cortana NPC.
+
+She just stood there.
+
+I had never seen anything like it in Halo CE.
+
+I walked around her.
+
+Nothing happened.
+
+Then the Spartan appeared.
+
+It looked at me.
+
+Then raised its MA5B.
+
+It aimed at Cortana.
+
+And fired.
+
+It emptied the entire magazine into her before disappearing.
+
+The next thing I knew, I was back in the original map.
+
+I had more questions than answers.
+
+Why Cortana?
+
+Why MARZA?
+
+What was that Spartan?
+
+A player?
+
+An NPC?
+
+Something else?
+
+I searched online.
+
+“Marza 151103.”
+
+“Marza Halo CE.”
+
+“Map 151103.”
+
+Nothing.
+
+I loaded the game again.
+
+The map was back to \\\\\\\*\\\\\\\*151103\\\\\\\*\\\\\\\*.
+
+The base was normal.
+
+The hidden teleporter was still there.
+
+The hallway was still there.
+
+The Flood was still there.
+
+But the Spartan was gone.
+
+MARZA was gone.
+
+Everything happened exactly like before.
+
+My brother reluctantly helped me again with the grenade jump.
+
+Nothing happened.
+
+We reached the dead end.
+
+No Spartan.
+
+No bullet holes.
+
+Nothing.
+
+Then I asked my brother if the name Marza meant anything to him.
+
+He went quiet.
+
+He dug through an old box and pulled out his high school yearbook.
+
+He flipped through the pages.
+
+Then stopped.
+
+There she was.
+
+\\\\\\\*\\\\\\\*Marza.\\\\\\\*\\\\\\\*
+
+She had been in his senior class.
+
+He remembered her.
+
+More importantly, he remembered what had happened to her.
+
+She had gone missing in November of 2003.
+
+She was never found.
+
+The police had investigated, but eventually the case went cold.
+
+I felt sick.
+
+Could this map be showing me what happened to her?
+
+Was that what the Spartan was trying to tell me?
+
+Then I looked at the map’s name again.
+
+\\\\\\\*\\\\\\\*151103.\\\\\\\*\\\\\\\*
+
+I started reading it as a date.      
+11/15/03.
+
+According to my brother, Marza had disappeared on November 12th.
+
+Three days earlier.
+
+I couldn’t prove it meant anything.
+
+But I couldn’t ignore it either.
+
+If the number really represented November 15th, then whoever created the map might have known something about what happened to her.
+
+I asked my brother if he knew anyone who might have been involved.
+
+He mentioned an old friend named Brandon.      
+Apparently, Brandon had been obsessed with Marza.
+
+But he’d never been charged.
+
+He’d had a clear alibi.
+
+I loaded the map again.
+
+This time, I paid attention to the only thing that connected it to the original version.
+
+The MA5B.
+
+I looked at where it was pointing.
+
+Straight at a wall.
+
+I walked through it.
+
+The screen went black.
+
+I appeared in another hallway.
+
+This one was even darker.
+
+There were more pedestals.
+
+And another distorted human NPC.
+
+I stared at it.
+
+It looked eerily similar to Marza from the yearbook.
+
+Then I saw the walls.
+
+Photographs.
+
+Digital photographs.
+
+They showed Marza with a man.
+
+The farther I walked, the worse the photographs became.
+
+Then I found one that made me stop.
+
+It showed Marza with the man.
+
+Underneath it was a message made from bullet holes:      
+\\\\\\\*\\\\\\\*BRANDON AND MARZA — FOREVER IN LOVE\\\\\\\*\\\\\\\*
+
+I quit the game.
+
+I took the Xbox, the disc, my notes, and everything else I’d collected to the police.
+
+I told them everything.
+
+I expected them to think I was wasting their time.      
+Instead, they focused on Marza.
+
+They confirmed that there really had been a missing-person case involving her.
+
+The game wasn’t treated as proof.
+
+It was treated as a lead.
+
+The detectives investigated the park shown in the strange version of the map.
+
+They compared it with the old case files.
+
+They discovered that part of the area hadn’t been searched as thoroughly as investigators had originally believed.
+
+So they searched it again.
+
+They found evidence connected to Marza’s disappearance.
+
+That caused them to reopen the investigation.      
+They also took another look at Brandon.
+
+Some of the information surrounding his old alibi no longer lined up with what investigators had uncovered.
+
+Additional evidence connected him to the case.
+
+Eventually, Brandon Thomas was arrested and charged in connection with Marza’s disappearance and death.
+
+The game hadn’t solved the case.
+
+It had simply pointed the detectives toward something they hadn’t found before.
+
+Afterward, the detectives contacted me about the Xbox and the copy of Halo CE.
+
+They had examined it.
+
+They confirmed that it was a modified copy.
+
+They couldn’t prove exactly who had modified it.
+
+But there was something else.
+
+They never saw the Spartan.
+
+Not once.
+
+They never saw a map called MARZA.
+
+They never saw the Cortana NPC.
+
+When they loaded the game, they only found \\\\\\\*\\\\\\\*Map 151103\\\\\\\*\\\\\\\*, along with the strange hidden areas and other oddities I’d described.
+
+I asked one of the detectives if he’d seen the Spartan.
+
+He looked confused.
+
+I explained what I meant.
+
+He understood.
+
+Then he shook his head.
+
+“No.”
+
+Nobody else had seen it.
+
+Nobody else had seen MARZA.
+
+Only me.
+
+The detectives returned my Xbox.
+
+I took it.
+
+But I left the copy of Halo CE with them.
+
+I told them I didn’t want it anymore.
+
+I haven’t played Halo CE since.
+
+Sometimes I still think about that number.
+
+\\\\\\\*\\\\\\\*151103.\\\\\\\*\\\\\\\*
+
+Maybe Brandon really did create the modified copy.      
+Maybe he hid clues inside it because he thought nobody would ever find them.
+
+Maybe the map was his way of telling someone what he’d done.
+
+Or maybe the map was something else entirely.      
+Because the detectives found Marza.
+
+They found evidence.
+
+They found Brandon.
+
+But they never found the Spartan.
+
+And they never saw \\\\\\\*\\\\\\\*MARZA\\\\\\\*\\\\\\\*.
+
+They only saw \\\\\\\*\\\\\\\*Map 151103\\\\\\\*\\\\\\\*.
+
+And sometimes I still wonder what happened on November 15, 2003.

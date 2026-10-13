@@ -1,0 +1,163 @@
+I’m writing this because I want to get it all down while it’s still kind of clear in my head. I don’t know if I’m just being paranoid or if there’s someone in the background of my pics who might be dangerous.
+
+My name is Jordyn Kahn. You might know me as JKReady, or JordFash, depending on which platform you follow me on. I used to make those stupid little “get ready with me” videos: skincare, outfits, that sort of thing. My best friend Kaylee (she's from Cali, but no hating!) and I share a flat in London, well, she has her own place somewhere but she's over at mine so much she's practically moved in. One night I was randomly filming and she took over. And once she started filming, things really took off.
+
+Kaylee’s beautiful, way more curvy than me, she was struggling to put stuff together on a night out and I just picked out this really nice combo for her and things just clicked. After that people were sending me pics of their wardrobe, I’d fire back my selection, bang! Quick edit of them on their best night out, share, like, subscribe. #wardrobeME! was trending and I got a big dopamine hit out of helping people out. Really positive stuff came through on the comments:
+
+**SkyeLine2005:** love it! stealing it!
+
+**Smiley\_Face:** perfection
+
+**AdonisBod:** you should be a model! Check your messages.
+
+(I didn’t)
+
+Kaylee brought out my sass. My inner Jordyn. Some people can put on an act for the camera, confessional types. I can't do that, but when Kaylee films me it's like it's just me and her. And everyone else is just watching.
+
+She films everything.
+
+Waking up with hair like a stray cat – posted.
+
+No makeup and spots – posted.
+
+Tripping like I don’t know how to walk as I stream – posted.
+
+Once I hit 10k followers I started getting PR stuff sent through the post. The first time it was like Christmas. De Raunché boxes and Perfumologie bags stacked at the door. I signed for them thinking it was a mistake, but my name was on everything. Did some try-on vids (avoiding the weird underwear in the unmarked box! WTF?). Then a whole bunch of Fiasco! makeup arrived. I'd never even heard of them. Then more stuff, more brands. And it was Christmas everyday.
+
+Once I hit 50k followers Marty dropped into my DMs.
+
+Marty Hedderfield. He said he loved my look, 'an exploitable niche' he'd called it. Brown English girls must have been trending that week. I talked with Kaylee for about 30 seconds before we messaged him back and agreed to try him out. I needed a manager, more and more offers were coming in and Kaylee said I needed to be careful about 'protecting my brand' whatever that was. It wasn't smart to just accept everything thrown at me, we needed to curate my wardrobe.
+
+We sat down for a face-to-face with Marty at a pretentious coffee shop, and he is… wow. Tanned skin, perfect hair, and… God, that smile. Good teeth too. Mid-forties and didn’t see no ring on that finger.
+
+He explained we were selling the background space in my walk and talks. Premium retail he called it. My quirky, ethnic, girl-next-door vibe was hitting all the right demos. Hotels, clubs and flights were opening up to us. I gave up my job at Spritz and Kaylee and I went flat hunting. Holiday hunting. Boy hunting!
+
+Kensington. Mum couldn't believe it. She came to visit once but never liked London, too busy, too much hate. But my new money cut through the busy, cut through the hate. Top floor in Rampling Court, I looked down on all of it now.
+
+Kaylee still worked part-time in Spritz. I told her she didn't have to, we had clothes, perfume, hair curlers, even wine was coming in weekly but she didn’t want to be dependent on me. My bank account had started to fill and I had actual savings! We thought we were killing it but it’s crazy how fast things can change.
+
+That morning started like any other. I was in full glam at 8 a.m., pretending it was effortless for the camera. Kaylee was running around half-dressed, shouting at me, “Back up! Unwanted filming!”
+
+“Over there is my best bitch for life, Kaylee, so follow me... and I’ll send you her nudes!” I howled into the camera. We were always like that: teasing, filming, posting. People loved it. And so did the sponsors.
+
+That night, I posted a night routine off a request, cleaning off my makeup then cleansing, talking softly into the lens with a towel wrapped around me. I thought it was harmless and the comments were normal: hearts, emojis, queen energy, the usual.
+
+I didn’t know someone had paused the video. Zoomed in.
+
+By morning, there was a photo going around, an AI ‘enhanced’ version with the towel pulled down to expose my chest. Then another one – my face masked into a drugs party. Then a faked chat transcript with a minor. Screenshots, captions, hashtags twisting everything into filth.
+
+\#JordynLikesToParty.
+
+\#JordynWhore.
+
+I found the account that started it all.
+
+JunkyGoblin.
+
+He posts about me every day. Fake screenshots. Photoshopped images. Stuff that made me feel physically sick. I tried reporting him, but nothing happened. I blocked, deleted, ignored, cried.
+
+Still, his followers climbed. Every time he posted, people came to my page to see if it was true.
+
+Last week, Kaylee and I were in Selfridges filming a story. We were laughing, showing off our outfits, pretending everything was fine, giggling into the phone like idiots, perfect banter.
+
+That night, it all blew up again.
+
+I woke up with my face half-buried under a jacket, mascara smeared, head pounding, great night out recovery. 100% no bones day. But Kaylee was already awake, hunched over her phone.
+
+“You’re trending,” she said.
+
+I smiled, until she added, “No, like, bad trending.”
+
+Someone, had posted a video of a girl dressed exactly like me, same dress, same hair, falling down the stairs in a nightclub, no underwear. You couldn’t see her face, but it looked like me. The caption was brutal and the comments were even worse. My heart dropped. I knew exactly who’d posted it before I checked.
+
+JunkyGoblin.
+
+Kaylee told me to ignore it, call my manager, Marty. He didn’t pick up. I posted a quick story saying, “That’s not me.” No one believed it. The hate spread like cancer.
+
+That’s when I saw the comment that started everything.
+
+Smiley Face: I don’t like when people make you sad. Want me to take care of it?
+
+Me: Wish someone would! :)
+
+I remember typing that and hitting send without thinking.
+
+It was sarcasm. A joke. God, I wish I’d never said it. I tried to pretend everything was normal. I told myself it was just a weird internet exchange, one of thousands that happen every second.
+
+So when Kaylee said we were going to Rascal’s for the grand opening on Saturday night, I threw on my favourite Dior dress and told myself to stop obsessing. The queue outside stretched halfway down the street, girls in stilettos shivering under coats, guys pretending to be important. We met Bella (she’s Australian - LOVE the accent) and Ash, air kisses, and went up past the queue. We never queued. That’s not arrogance, it’s just… the world we lived in now.
+
+Except tonight, the bouncer didn’t care who I was.
+
+“No code, back of the line,” he said, like I’d personally insulted him.
+
+I tried calling Marty, but of course he didn’t pick up. Probably snorting half of Soho with whatever intern he’s mentoring this week. Kaylee, as usual, decided to take charge. She took a selfie of us looking offended and posted it with:
+
+Was hoping to show you guys inside for the grand opening 2nite BUUUTTT denied & stuck outside? Any tips on where we should go instead???
+
+Three minutes later, the club manager came running out, apologising like his life depended on it. “So sorry, Jordyn, huge mistake, come right in!”
+
+The bouncer looked like he wanted to melt into the pavement. Naturally, I took a selfie with him before we went inside. Rascal’s had aesthetic, three floors of LED lighting, mirror tiles, and overpriced vodka. We got a velvet booth, two bottles of Grey Goose, and our own section like we were royalty.
+
+I did the usual content grab: ten seconds of slow pans, a tongue-out wink at the camera, hashtags for Dior, Guess, Grey Goose. Post.
+
+When Kaylee leaned in and said, “Did you see that picture that went up?”
+
+Instant stomach-drop.
+
+“My pet troll again?”
+
+But she turned her phone to me, and for once it wasn’t hate. It was me, or the girl from that fake drunk video JunkyGoblin posted, except someone had written over it:
+
+NOT JORDYN.
+
+Next to the faked image was a frame from the original undoctored video and it’s totally obvious it’s not me. The username that posted was just a yellow smiley emoji.
+
+Smiley Face.
+
+For a second, I felt… relief? Like someone out there had my back.
+
+Kaylee laughed. “Woah, someone did something nice on the internet?”
+
+I laughed too, but the feeling in my chest was like… being watched.
+
+We did shots. The DJ switched up to trance. Everything blurred together, strobe lights, perfume, laughter. When I filmed a clip for my story, I could barely see the screen through the flashing lights.
+
+That’s when Carter showed up. My boyfriend... or whatever he was calling himself that week. Bastard must have hit the gym before coming out because he was swoll as. I’m sure there used to be a personality in there behind all that meat somewhere. He had his usual lazy smirk draped across his face, it used to make me melt and now just makes me tired.
+
+“That bouncer was such a dick,” he said, sliding an arm around me. “Don’t know why you bothered coming here.”
+
+He said it like he hadn’t shown up an hour late with half of London’s female population. One of his goons, Martinique, was giving me evils with the rest of her coven.
+
+“I thought it was just the guys,” I said.
+
+“‘Guys’ is non-gendered now,” he replied. “You can’t hate my friends just because they’re girls. That’s sexist.”
+
+I leaned in for a selfie-kiss and we puckered for the shot - then back to indifference when Kaylee bounded over, blissfully oblivious, demanding shots and asking where her boyfriend, James, was. When she found him, she practically tackled him. I remember thinking they looked… real. Messy, but real.
+
+I filmed their messy love, I don’t know why. Maybe I wanted to prove to myself that I was still the one in control, see if I could still look happy and fun. I played back a vid and in the background Kaylee was wrapped around James, but wait, I zoomed in on his face... weird, might be the lights but it made it look like he was looking at me.
+
+I barely noticed Carter was droning on about how sales from his online and overpriced fashion outlet were soaring, not like he needed the cash, but loved having project clout. James handles the social side and has net skills, his ads were always popping up on my algorithm.
+
+That’s when it happened.
+
+Someone in a dark purple hoodie leaned over the velvet rope beside our booth. “Hey, Jordyn,” they said.
+
+I didn’t even look up, too loud, too many people. They said it again, louder this time. “Jordyn! I took care of that problem for you.” I turned, blinking against the strobes. A hood shadowed half their face. “I took care of that problem,” they said again.
+
+“Oh, yeah,” I laughed, pretending I understood. “We got in fine, thanks!”
+
+They didn’t laugh.
+
+Kaylee appeared beside me with two pink shots and whispered, “Who’s the creep?”
+
+When I turned back, they were gone. I downed both shots. One for Carter and one for the weirdo. I kept telling myself it was just some rando fan but there was something about the way they just stood there, like they were looking for a different answer to the one I gave. It’s probably nothing. I don’t usually post where I am till I’ve left, damn Kaylee with that hustle vid that got us in the door.
+
+But the weirdest thing?
+
+When I checked my notifications later, Smiley Face had been the first to like my new post. And no hate from my troll, JunkyGoblin.
+
+It’s just a coincidence, right?
+
+I checked back through my pics later and saw something over my shoulder, zoomed in, the figure in the purple hoodie… their face in shadow despite all the bright lights, almost like… no, forget it.
+
+I guess I just wanted to get a record of this, I mean, I’m not worried or anything… but just in case. Y’know. I’m going to try to find out more about this lurker, if anything else happens I’ll update more on Wednesday.

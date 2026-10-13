@@ -1,4 +1,4 @@
-[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1x3eb0a/my_family_survived_the_french_revolution_without/)
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1x3eb0a/my_family_survived_the_french_revolution_without/) 
 
 *Devant le Roi.*
 

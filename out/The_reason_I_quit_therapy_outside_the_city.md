@@ -1,0 +1,21 @@
+I don’t even know where to start honestly, since it has been years that this event happened to me. However, the last few nights I kept losing sleep over the incident. So I guess I’ll start with some background information.  
+In my early adolescence I suffered from a severe mental crisis - the details aren’t really relevant to this story. Just note that it lead me to having regular sessions with a therapist. Initially I hated the idea. Don’t get me wrong, I knew I needed help and I desperately wanted it… but having only started Highschool and having to travel alone for an hour far into the countryside to meet the therapist my mother had picked for me scared the shit out of me. I can’t even say why exactly. I mean I wasn’t a little kid anymore. If I’d had to guess; maybe it was growing up in an abusive household or the repeated warnings my mother gave me about stranger men.. or even simply being unwell. I only know that I hated the commute every damn time.
+
+During the winter I went to my sessions as usual but I was genuinely happy. I had bonded with my therapist quite a lot and I couldn’t wait to show him the sky blue oversized knitted sweater I got for Christmas. I thought that I looked really cute in it. And like the “rebellious” teen I was, I refused to wear a jacket and only went with the sweater because “It isn’t that cold mom”.  
+On the way to my therapist I saw an elderly drunken man on the train. I didn’t think much of it because that is quite a regular sight on the countryside. Even as he got of the train and walked with me towards the town square, although starting to get unnerved, I tried to keep myself calm. 
+
+*He’s just walking to the town square, there are all the stores and it’s the end of the work day. Don’t let the horror stories your mom told you get to your head. It makes sense that he needs to go there as well.*
+
+To be on the safe side, because paranoia started to get the best of me, I decided to take some smaller alleyways instead of the main road. Because it’s been months since I started seeing my therapist I was pretty good at finding my way around. However, with dusk already approaching and the shadows getting longer I couldn’t help myself but glance behind me every now and then.  
+… each time I did there was the man, always about 50m behind me. So I quickened my step, after all it wasn’t long until the office.
+
+During my therapy session I started to relax again. It was nice and warm and it was a pleasant talk. No idea what we talked about, most likely my mind map and tomatoes again (that would be a whole different story). Matter of fact is I felt good and completely forgot about my kinda creepy walk there. Before I noticed the session was over and it had gotten dark outside… so I braced myself for the long cold way home.
+
+It has gotten darker quicker than expected and being so far out the city I only had some lonesome lampposts occasionally at the road… so I couldn’t really see my surroundings. At first it didn’t matter to me because I was so familiar with the streets.
+
+Then I started to get the feeling like I was being watched. But when I turned around there was only a few people at the end of the road hastily going into a store before it would close. I couldn’t help myself but stare at them for some time because I felt like I recognised someone in the crowd. The longer I looked the more I rationed with myself I must have imagined it because no one that I knew would have any business in this town. So I decided to keep walking on because I didn’t want to miss my train. However I couldn’t fully shake the feeling of being watched.
+
+Upon entering the train I was relieved at the warmth and that the cart was empty. That meant I could daydream my entire way home without being interrupted by noisy passengers.  
+That feeling only lasted shortly though as I heard a person entering behind me. I didn’t turn around, because somehow I exactly knew who stood behind me as the stench of alcohol filled my nose and the whisper in my ear: “Let’s run off together, cutie”
+
+And in that moment I knew, my mother wasn’t exaggerating with her stories.
