@@ -1,6 +1,6 @@
-When I read the articles about him. I spent three weeks looking through my window. I was terrified by the thought of him being in the woods. 
+When I read the articles about him. I spent three weeks looking through my window. I was terrified by the thought of him being in the woods.
 
-I thought it was hunting me at first, trying to get me into a tragedy; it wanted me to suffer, but I was entirely wrong. I know, what a way to start, but I have been suffering from sudden explosive nosebleeds and migraines. 
+I thought it was hunting me at first, trying to get me into a tragedy; it wanted me to suffer, but I was entirely wrong. I know, what a way to start, but I have been suffering from sudden explosive nosebleeds and migraines.
 
 The devices in my house started to do this... piercing and rhythmic screeching noise, and no matter what I tried to do with it, nothing was fixed. It only started working when I got a repairman to check them out, but they turned out fine but stopped working.
 
@@ -10,17 +10,19 @@ Aside from that, I lived what anyone would consider to be a normal life aside fr
 
 During a rainy night was when I first discovered him.
 
-I was in the driveway with nothing to do but get my lawnmower, but I stopped and looked out of the driveway.
+I was sitting in my car in the driveway and letting the engine warm up until I heard it.
 
-I heard it before I saw it.
-
-A loud, piercing screech.
+I didn't see anything at first, but it was a loud, piercing screech.
 
 I was trying to see the source in the driveway, and I saw the outline of something that was seven feet tall. It was headless and had these giant wings, and then I saw them on its chest.
 
-With two massive eyes that were unblinking and were crimson red, I dropped the lawnmower and ran into the house as soon as possible before anything could happen, then locked my doors for the night.
+With two massive eyes that were unblinking and were crimson red, I got out and ran into the house as soon as possible before anything could happen, then locked my doors for the night.
 
-I went to take a bath, and when I soaked up for a good while, I got up, grabbed the towel, and wrapped it around me, then changed afterwards.
+My hands were shaking and then my nose was bleeding again. I sprinted upstairs to the bathroom and scrubbed the blood off my face.
+
+I sighed.
+
+I was feeling a little calm afterward, then proceeded to take a bath, and when I soaked up for a good while, I got up, grabbed the towel, and wrapped it around me, then changed afterwards.
 
 I took myself in for tonight and closed my eyes.
 
@@ -36,21 +38,21 @@ I lifted my arm out; I felt something grab it, which drove me into waking up.
 
 I checked the time.
 
-I had work for today and was feeling safe enough to go into the driveway. I unlocked the door and put my keys in, then started the engine, and I pulled out of the garage. 
+I had work for today and was feeling safe enough to go into the driveway. I unlocked the door and put my keys in, then started the engine, and I pulled out of the garage.
 
 I turned on the radio and listened to jams; it kept my mind at ease for the moment as I drove past the trees, the route signs, and the occasional cars, which I waved at, and then I tuned the radio to the news station.
 
-“Citizens have reported—(a screech is audible behind him)—something odd in the area. Witnesses report this—”
+“Citizens have reported a massive system-wide failure on local transit lines—”
 
 A panicked screech is heard before the station cuts off, and there was a train going off in the distance.
 
-I came back to it after a country song, and it said that an accident happened at the railroads of the area. I will spare the details; even the second reporter felt distressed describing what happened, but I think we know what happened.
+I came back to it after a country song, and it said that an accident happened at the railroads of the area. I would rather not describe it; even the second reporter felt distressed describing what happened.
 
-As a car was going nearly in front of me. I heard something land on the hood. 
+As a car was going nearly in front of me. I heard something land on the hood.
 
 I was scared to open my eyes.
 
-I did anyway... I saw what I saw previously, and I got a good look at its wings; they look avian-like. As he gave a loud screech, it beat its wings at the windshield, causing them to crack, and it drove me into slamming it in reverse. 
+I did anyway... I saw what I saw previously, and I got a good look at its wings; they look avian-like. As he gave a loud screech, it beat its wings at the windshield, causing them to crack, and it drove me into slamming it in reverse.
 
 I still saw it standing there where I was, and then I honked the horn, and it flew off. I got out of the car, closed the driveway and locked my doors, put the blinds up, and grabbed a favorite stuffed animal of mine I always had when I was a kid and held it close to me.
 
@@ -62,19 +64,21 @@ I DIDN’T WANT TO END UP AS PREY.
 
 I sobbed.
 
-But then I was interrupted by a phone call. I forgot to point this out earlier, but yes, while I noted that the technology was acting up around me, it does work when it wants to. As annoying as it was, I was grateful, and it gave me a chance to relax knowing that I didn’t have to sit there in silence.
+Then suddenly, my phone buzzed. Even though my electronics had been glitching all week, and of course it finally worked when it mattered most.
+
+As annoying as it was, I was grateful regardless, and it gave me a chance to relax knowing that I didn’t have to sit there in silence.
 
 My parents were contacting me and saying that they were coming to Mason County to visit me. I remember being happy to be aware of this as I felt comfortable. It has been a while since I had anyone close to me; most of my friends have moved on with their lives, and some live far away from this area while the rest I talk to are on Discord.
 
-Rambling aside, I was happy to hear this, but I told them, “Be careful and let me know if you guys need anything.” I was thinking about the thing I saw twice, and I didn’t want anything to happen or even bring it up to them, as I feared making myself sound insane.
+I was happy to hear this, but I told them, “Be careful and let me know if you guys need anything.” I was thinking about the thing I saw twice, and I didn’t want anything to happen or even bring it up to them, as I feared making myself sound insane.
 
 The call went pretty well; they asked me how I was doing after my recent high school graduation. I spoke about my plans of heading over to SCAD as an interest in animation.
 
-The conversation was nice, and then we hung up. However, I wanted to focus on something else, as the paranoia has been messing with me, so I wanted to simply not think of this place right now, so I got out and drove out to the bridge. 
+The conversation was nice, and then we hung up. However, I wanted to focus on something else, as the paranoia has been messing with me, so I wanted to simply not think of this place right now, so I got out and drove out to the bridge.
 
 I turned on the radio.
 
-There was a slightly sensitive part of the bridge, and it warned of that. Though, something felt buggy about the report, a screeching noise was being overlaid on the voice. A few people passed by, noticing the said sensitive area of the bridge. 
+There was a slightly sensitive part of the bridge, and it warned of that. Though, something felt buggy about the report, a screeching noise was being overlaid on the voice. A few people passed by, noticing the said sensitive area of the bridge.
 
 I tried moving past it.
 
@@ -88,7 +92,7 @@ The last sound I heard at that moment was a splash of the car... then I heard a 
 
 Beep. Beep... Beep…
 
-I looked around and saw the heart monitor and the nurse. “Oh... Oh thank God, it’s a miracle you are okay. We found you just lying on the ground, and your car, a Dodge Charger, in the river of the Silver Bridge. The bridge was repaired once the construction workers got to the scene, and we brought you.”
+I looked around and saw the heart monitor and the nurse. “Oh... Oh thank God, it’s a miracle you are okay. We found you just lying on the ground, and your car, a Dodge Charger, in the river of the Silver Bridge. The bridge area was completely cordoned off once emergency crews got to the scene, and we brought you straight here.”
 
 She looked at the notes as she continued, “You suffered some minor fractures around the ribcage and skull but not enough to be lethal. You were also found lying in pure shock with nosebleeds. We honestly don’t know how you ended up outside of the car. How are you feeling right now?”
 
@@ -96,7 +100,7 @@ At the moment, I feel groggy, but I am still feeling some pain. On the TV behind
 
 The nurse left me alone, saying she will check on me later.
 
-However, the room around me went cold, and a winged creature with red eyes on its torso entered via the window. 
+However, the room around me went cold, and a winged creature with red eyes on its torso entered via the window.
 
 I froze, but something inside me made me lift a trembling hand. I was testing to make sure it won’t rip my arm off and closed my eyes.
 

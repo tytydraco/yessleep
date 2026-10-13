@@ -1,0 +1,487 @@
+I manage facilities for a small accounting firm. Three floors, about
+forty employees, one of those converted industrial buildings where
+nothing is quite where you’d expect it to be.
+
+Part of my job is organizing fire drills. It’s boring. I send an email,
+people complain about standing in the parking lot, and we all go back
+inside fifteen minutes later.
+
+Last month we upgraded the building’s access control system. The new one
+tracks how many people enter and leave through the main doors using
+overhead sensors. It’s supposed to help us account for everyone during
+an evacuation.
+
+The first drill went fine, except the system reported 42 people in the
+building when we only had 41.
+
+I counted everyone manually. Nobody was missing.
+
+The system, however, insisted one person was still inside.
+
+The installer blamed the sensors. Apparently people walking too close
+together can confuse them. He recalibrated everything, ran a few tests,
+and told me it was fixed.
+
+The next drill, the same thing happened.
+
+41 people outside. 42 registered as having entered. One person still
+inside.
+
+This time I checked the access logs.
+
+The additional entry had been recorded at 3:17 a.m., when the building
+was closed.
+
+I figured it was the cleaning crew, except they finish around midnight,
+and the last cleaner had signed out at 12:08.
+
+I pulled up the security footage.
+
+At 3:17, the lobby was completely empty. The automatic doors were
+closed. Nobody walked past the sensors.
+
+But the little green occupancy number on the security monitor changed
+from 0 to 1.
+
+I watched it four times.
+
+No movement. No shadows. Nothing.
+
+Our security contractor came out the following afternoon. He was a
+fairly quiet guy named Dennis who’d been servicing the building for
+years.
+
+He looked at the footage, checked the sensor housing, and asked whether
+we’d been getting any false fire alarms.
+
+We hadn’t.
+
+He seemed relieved by that answer, which struck me as a strange
+reaction.
+
+Then he asked if I could pull up the entry records from the previous
+Friday.
+
+I did.
+
+3:17 a.m. One person entered.
+
+Thursday was 3:17 too.
+
+Wednesday, 3:17.
+
+Every weekday since the installation, the system had registered an entry
+at exactly 3:17 in the morning.
+
+There was never a corresponding exit.
+
+But the count always reset to zero by the time staff arrived.
+
+Dennis asked if he could borrow my phone to photograph the logs. I
+offered to email them instead, but he insisted on taking pictures.
+
+Then he asked me something that seemed completely unrelated.
+
+“Do you ever use the west stairwell?”
+
+I told him hardly anyone did. It was the emergency staircase behind the
+old records room, mostly used during drills.
+
+He nodded.
+
+“Keep it that way for now.”
+
+I asked what he meant.
+
+He said there might be a wiring issue and that he’d arrange another
+visit.
+
+He didn’t.
+
+Two days later, I found out he’d requested to be taken off our account.
+
+I called the contractor. They said Dennis was on leave and someone else
+would be assigned.
+
+I was annoyed more than frightened at this point. We’d spent a
+ridiculous amount of money on a system that couldn’t count forty people.
+
+Then came Friday.
+
+One of the cleaners, Marta, called me at 7:20 in the morning.
+
+She wanted to know whether anyone had been authorized to stay overnight.
+
+I said no.
+
+She told me she’d found a chair in the west stairwell.
+
+Not an office chair. One of the blue plastic visitor chairs from
+reception.
+
+Someone had carried it down to the landing between the first floor and
+the basement.
+
+It was positioned facing the fire door.
+
+Marta said there was a paper coffee cup on the floor beside it. The cup
+was still warm.
+
+I went downstairs to look.
+
+The chair was exactly where she’d described. Someone had dragged it into
+the corner so it wouldn’t block the stairs.
+
+The cup was from the coffee machine on the second floor.
+
+The machine shuts down automatically at 6 p.m.
+
+There was something else.
+
+A small rectangle of clear tape had been stuck to the wall above the
+chair. Under it was a handwritten note.
+
+“Please wait here until someone comes to get you.”
+
+I assumed somebody was playing a prank.
+
+I photographed everything, took the chair back upstairs, and put in a
+request for a camera in the stairwell.
+
+The request was approved on Monday.
+
+By Wednesday, we had footage.
+
+At 3:17 a.m. the camera recorded something.
+
+I need to explain the layout.
+
+The west stairwell has a fire door on each floor. The camera is mounted
+above the first-floor landing, looking down toward the basement.
+
+At 3:16, the staircase was empty.
+
+At 3:17, the fire door on the first floor moved.
+
+It didn’t open.
+
+It moved inward slightly, maybe half an inch, as though someone on the
+other side had leaned against it.
+
+Then it moved again.
+
+A little harder.
+
+The door has a panic bar on the stairwell side, meaning anyone inside
+the staircase can push it open into the first-floor corridor.
+
+Whoever was pushing was standing in the corridor, on the wrong side.
+
+The door moved a third time.
+
+Then a voice said, very quietly, “Is somebody there?”
+
+The camera has a microphone. I didn’t know that until I heard it.
+
+It sounded like an elderly woman.
+
+There was a pause.
+
+“Could you open this for me?”
+
+Nothing happened for nearly a minute.
+
+Then came the sound of someone sitting down.
+
+A small plastic creak.
+
+I looked at the empty landing.
+
+There was no chair.
+
+The voice spoke again.
+
+“I can wait.”
+
+I went to my boss, showed him the recording, and asked him to contact
+the police.
+
+He watched the whole thing.
+
+Then he asked whether I’d checked the other camera.
+
+I didn’t know what he meant.
+
+He pointed out that the first-floor corridor had its own security camera
+facing the same door.
+
+I opened that recording.
+
+At 3:17 a.m., the corridor was empty.
+
+The fire door stood perfectly still.
+
+But every time the woman spoke on the stairwell recording, the corridor
+camera picked up a faint knocking.
+
+Three gentle knocks.
+
+Coming from inside the stairwell.
+
+The same door. The same time. Two cameras recording somebody on opposite
+sides of it.
+
+I stopped the video.
+
+My boss didn’t say anything for a while.
+
+Then he asked me to lock the west staircase until the security
+contractor could investigate.
+
+We couldn’t legally block an emergency exit, so instead we put up signs
+asking staff to use the east stairs for non-emergency access and
+arranged for a technician to inspect the door.
+
+The technician found nothing.
+
+That should have been the end of it.
+
+Yesterday afternoon we had a real fire alarm.
+
+Not a drill.
+
+Someone had burned food in the second-floor break room, setting off a
+smoke detector.
+
+Everyone evacuated normally.
+
+I was outside with the attendance list when the occupancy system
+reported 42 people had entered and only 41 had left.
+
+One person remained inside.
+
+I counted again.
+
+Everyone was there.
+
+Then I noticed Marta standing beside me, staring at the building.
+
+She was looking at the west stairwell exit.
+
+The exterior door had a narrow vertical window. Through it, I could see
+the landing.
+
+Someone had placed the blue plastic chair directly behind the glass.
+
+I hadn’t seen anyone carry it there.
+
+There was a woman sitting in it.
+
+She was wearing a beige cardigan and dark trousers. Her hair was gray
+and tied back.
+
+She sat with her hands folded in her lap, looking straight ahead.
+
+I pointed her out to Marta.
+
+Marta grabbed my arm so hard it hurt.
+
+“Don’t open it.”
+
+The woman behind the glass turned her head toward us.
+
+I couldn’t make out her face very well through the wired glass, but I
+could see that her mouth was moving.
+
+She was saying something.
+
+Marta started walking backward.
+
+The woman raised one hand.
+
+Not waving.
+
+She held up a single finger.
+
+Then she pointed to the people standing outside.
+
+I turned around.
+
+Our employees were gathered near the parking lot, chatting, checking
+their phones, waiting for the all-clear.
+
+I started counting.
+
+Forty-one.
+
+I counted again.
+
+Forty-one.
+
+When I looked back at the door, the woman was standing.
+
+Her chair was empty.
+
+She had moved right up against the window.
+
+And I could hear her now, even through the closed fire door.
+
+“Forty-one,” she said.
+
+She sounded disappointed.
+
+Then, in a much louder voice, she called out, “You’re missing one!”
+
+Every employee outside turned toward the building.
+
+And the occupancy counter changed.
+
+42 inside.
+
+41 outside.
+
+Then 43 inside.
+
+I looked at my phone. The system was registering another person entering
+the building.
+
+But nobody had gone inside.
+
+The woman was still at the window.
+
+She was smiling.
+
+One of the firefighters arrived a few seconds later and asked me whether
+anyone was trapped.
+
+Before I could answer, Marta said, “No. Everyone’s here.”
+
+I agreed.
+
+I don’t know why, but I was terrified of telling him about the woman.
+
+He went inside with his crew anyway.
+
+They cleared the building and found nobody.
+
+When the alarm was reset, the occupancy counter dropped to zero.
+
+The chair was gone.
+
+I resigned this morning.
+
+My boss thinks I had some sort of stress reaction. He’s offered me a few
+days off to reconsider, but I’m not going back.
+
+I called Dennis, the original security contractor. His number was still
+saved in my phone.
+
+He answered on the third ring.
+
+I told him what happened.
+
+He didn’t interrupt once.
+
+When I finished, he asked a single question.
+
+“Did she count you?”
+
+I said I didn’t understand.
+
+“Outside. When she was counting. Did she look at you?”
+
+I thought about it.
+
+The woman had pointed toward the employees. Not toward me.
+
+Dennis was silent for so long I thought the call had dropped.
+
+Then he told me something.
+
+Apparently, the building used to be a residential care facility. It
+closed in the late eighties after a small electrical fire caused an
+evacuation.
+
+Everyone got out.
+
+Except one elderly resident who remained in the west stairwell, waiting
+for a staff member to come back and help her down.
+
+She was found the next morning.
+
+Sitting on a chair.
+
+Dennis said the strange activity had happened before, years ago, when a
+different company installed occupancy sensors.
+
+He said they eventually removed them because the system kept registering
+people who weren’t there.
+
+I asked what any of this had to do with whether the woman counted me.
+
+He said he didn’t know for certain.
+
+But the last technician who reported seeing her had described almost
+exactly what I had.
+
+She’d counted the people outside.
+
+Then she’d asked someone to come back for the person who was missing.
+
+That technician had opened the door.
+
+Dennis wouldn’t tell me what happened afterward.
+
+He just kept asking whether she’d looked directly at me.
+
+I told him I didn’t think so.
+
+He said, “Good.”
+
+Then he hung up.
+
+About an hour ago, I received an automated notification from the
+building’s access control system.
+
+I forgot to remove the app from my phone.
+
+It was an occupancy alert.
+
+ONE PERSON REMAINING INSIDE.
+
+Then the number changed to two.
+
+I called my boss.
+
+He said the building was empty. The last employee had left at six.
+
+While we were talking, another notification came through.
+
+THREE PEOPLE REMAINING INSIDE.
+
+My boss said he’d call security in the morning.
+
+I told him to do it tonight.
+
+Then I received a photograph.
+
+It came from Marta.
+
+She’d gone back to retrieve her bag and found the blue chair outside the
+west stairwell.
+
+Someone had put it beside the building’s main entrance.
+
+There was a sheet of paper taped to the back.
+
+It had three names written on it.
+
+The first was Dennis.
+
+The second was Marta.
+
+The third was mine.
+
+There was a check mark beside the first two.
+
+Mine was still blank.

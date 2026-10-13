@@ -1,0 +1,415 @@
+The man who took me out to the island had put a clean coat over his working clothes and when I asked whether the island had a landing fit for a police launch he looked at the empty water behind us before he looked at me and said that the landing was fit for any vessel whose master had been told to come.
+
+“We wrote to Mr. Aldren on Monday,” I said. “He knows what I’m coming for. He’s had three days to see to it.”
+
+“Then he’ll have fixed somethin,” the boatman said, and he leaned over the wheel and adjusted a brass lever whose movements seemed to have little effect upon the engine.
+
+I had been sent to bring Jonas before the magistrate, a young man whose mother had received no letter from him since February and whose employer had answered her inquiries with assurances that the young man remained in good health and had elected to extend his contract although the signature on the enclosed declaration resembled nothing his mother could show us and although she had come to our office carrying his old letters in a shopping basket to prove it. The magistrate had issued an order requiring that Jonas be produced in person and I had been chosen because the matter appeared to require no more than a uniform and a morning’s patience.
+
+“What do they make out yonder?” I asked.
+
+“Used to boil salt. Crush shell for the farmers. What Mr. Aldren does now dont come by way of my boat.”
+
+“Does Jonas come by way of it?”
+
+“Brought him out in the winter. If that’s what you’re after.”
+
+“And after that?”
+
+The boatman lifted his hand from beneath his coat and I saw that the two smallest fingers were missing and that the remaining ones had healed in a bent arrangement around a palm glossy with old damage.
+
+“Since then I been carrying what they give me,” he said, and he put the hand beneath his coat again as though our conversation had made it cold.
+
+The island rose out of the water for the quarry walls fell straight into the channel and above them stood the chimneys of the old boiling house and a square residence with a glazed porch from which someone might have watched every boat that ever came. White paths crossed the island in a pattern too orderly to have been made by ordinary use and at each intersection stood a low wooden shelter with a bench beneath it.
+
+The landing smelled of boiled rope and something sweet that I attributed to the sacks stacked beneath a tarpaulin, and a woman waited beside an iron trolley with her sleeves fastened at the wrists and an expression which did not change when the boat struck the fenders.
+
+“Officer,” she said. “Mr. Aldren says to bring you straight up. He hopes you aint eaten. He’s held his dinner for you.”
+
+“I’m here for Jonas. Once I’ve seen him I aim to get back while the weather holds.”
+
+“He knows of the order. You can show it to him yourself.”
+
+The boatman passed my small case up to her but would not take my hand when I climbed onto the landing, and as she turned the trolley I saw him push the boat away with the side of his boot before I had finished asking what hour he would return.
+
+“When the lower light’s lit,” he said. “Shows from anywheres along this shore. If you happen to be waiting.”
+
+The woman introduced herself as Mara and led me past the sacks, which contained lime rather than any cargo capable of accounting for that sweetness, and then through a covered passage where hooks hung from a rail overhead and dripped upon a floor recently washed. She walked quickly and never once asked whether I needed help with the climb, although she favored her left leg and a narrow dark stain had begun to show through the cloth over her knee.
+
+“How many hands you got working here?” I asked.
+
+“You counting the ones paid by the month, or everybody on the island?”
+
+“I want the man in order. I dont aim to spend all morning sorting one lot of folks from another.”
+
+“He’s on the island,” she said, and after that she spoke only to tell me where the steps were broken.
+
+Mr. Aldren was seated at a table in the glass porch with a napkin spread across his chest and a shallow dish before him. His hands were almost delicate in their shape despite their enormity.
+
+“Jonas’s mother must be very persistent,” he said. “I have written to her more than once and it seems that reassurance only gives her another reason to write.”
+
+“Her boy can ease her mind himself. The magistrate wants him to do it on the mainland.”
+
+He took the order and read it while I remained standing, and his lips moved over the formal language as though its arrangement gave him pleasure independent of what it required.
+
+“This does not accuse me of anything, Officer, although I suspect you were permitted to form an accusation before you left.”
+
+“It says you’re to produce the man. I’ll make up my mind about the rest when I’ve talked to him.”
+
+Mara stood by the doorway with her hands clasped behind her, and Aldren glanced at her before laying the paper beside his plate.
+
+“Would you consider him produced if I showed him to you at his work?”
+
+“I’ll call him produced when I can speak to him out of your hearing and he’s free to come away with me after.”
+
+There was meat in the dish under a gray sauce and beside it something narrow and browned which I first took for the bone of a bird, and then he turned it with his fork and I saw a nail attached to one end, curved and yellow and entirely ordinary, the sort of nail a man might have dirt beneath.
+
+I looked from the plate to Mara and she lowered her eyes, and when I looked back Aldren was watching me with his mouth slightly open and with a piece of meat resting between his teeth.
+
+“The smallest parts need the most attention,” he said. “Otherwise a person goes to considerable trouble and comes away with very little.”
+
+I had my hand on the flap of my holster when he moved, and I do not remember seeing him rise or seeing the table strike my legs although I remember the sound of its feet against the tiles and the sudden bursting whiteness in my left eye as his palm struck the side of my head.
+
+The revolver came halfway clear before his other hand closed around my wrist and pressed it inward until my fingers opened, and I heard the weapon fall and then felt my feet leave the floor as he took me by the coat and drove me backward against the glass.
+
+The pane broke around my shoulders and the pieces went outward over the steps in a long bright collapse, and for an instant I hung across the empty frame with his forearm beneath my chin and the salt wind touching the wet skin behind my ears.
+
+“You mustn’t mistake the appearance of a thing for an invitation to panic,” he said, speaking close enough that I could smell the sauce upon his breath. “Mara will show you where to compose yourself and afterward we will give this matter the attention it deserves.”
+
+He let me fall onto the steps and I struck the stone with my shoulder, and while I tried to get enough air into my lungs to stand Mara came down and put a hand beneath my elbow and told me not to reach inside my coat because he would think I had another weapon.
+
+Behind her the great man bent to retrieve my revolver, and the broken glass beneath his bare feet made a sound like someone slowly chewing gravel.
+
+They put me in a room in the old packing house where the window had been covered with expanded metal and where a bucket stood beneath a tap that had been removed from its pipe, and Mara waited until the man accompanying us had shut the door before she spoke through the small square opening at its center.
+
+“This room aint where you’ll die unless you make it that way. See to your shoes while there’s time. And whatever else might give out on you.”
+
+“Take the key and let me go. Do it now and I’ll tell the magistrate what you done and what you wouldnt do.”
+
+“It aint the key keeps you here, Officer. You’ll see that when they open the door.”
+
+She left before I could ask her anything else, and the man outside slid a wooden cover over the opening and left me with the afternoon light laid in little lozenges upon the floor. My left ear rang and my shoulder was bleeding where the glass had entered, and when I took off my coat I found a strip of skin folded back below the collar as neatly as the corner of a label.
+
+There was writing on the wall behind the door at a height that suggested the writer had been seated, but near the skirting a sentence had been made in much smaller letters and had then been scrubbed without being removed.
+
+**THE LIGHT MEANS HE WANTS THE BOAT.**
+
+Beneath the cot I found a spoon flattened at the bowl and sharpened along one side and I put it inside my belt.
+
+When the wooden cover slid away Aldren looked through the opening, and his head filled it so completely that I could see neither shoulder nor anything behind him.
+
+“You have been given a great deal of time to arrive at a sensible opinion of me, and I would be interested to know whether you have managed it.”
+
+“I reckon you murdered Jonas. His mother’ll send somebody else when I dont come home.”
+
+“His mother sent you because she wanted the uncertainty ended, and you have mistaken that desire for an affection capable of keeping either of you alive.”
+
+“You had a finger on your plate. No opinion can make that into something it wasnt.”
+
+The cover closed and I heard him walk away, his steps surprisingly light beneath his size, and a few minutes later the bolts were drawn and the door opened onto a man in a knitted cap holding a short shotgun across his waist.
+
+He had the small watery eyes of someone who spent much of his time looking into wind and he stood aside and gestured with the barrels toward a second door at the end of the passage.
+
+“You git through there and keep movin till the bell rings. You come back afore then and I got orders to shoot you through the legs.”
+
+“What’s to happen when it rings?”
+
+“He comes out at the bell. Save your askin for whatever’s past that door.”
+
+The yard outside had been swept and the gate at its far end stood open, and on either side of the path the wooden shelters I had seen from the boat waited with their clean benches and their painted roofs. There were no fences along the path and no obvious reason why I could not walk toward the water.
+
+The path took me between two heaps of shell where the pieces ground and shifted under my shoes, and at the next crossing I saw a young man standing beside a handcart with a red cloth tied around his arm. He watched me approach without surprise and put out one hand as if to stop traffic.
+
+“There’s a ladder over at the east wall,” he said. “Get there ahead of him and maybe you’ll have something to work with.”
+
+“What makes you tell me that?”
+
+“Last week I told a man to go west. He went west. I been thinking on that a good deal.”
+
+The bell began before I could reach him, three deliberate strokes from the boiling house which entered the ground beneath my feet as much as they entered the air, and the young man lowered his hand and went quickly into a shed and closed the door.
+
+I looked back along the path and saw Aldren step through the open gate in a sleeveless white undershirt and canvas trousers with the legs rolled above his ankles, and he stood there for a moment with his head tilted toward the sound of the bell as though someone had spoken his name from a room he could not locate.
+
+Then he began to run.
+
+I had imagined that his weight would make him clumsy or slow and that whatever might happen in a room where he could reach me would become something else in the open, but he ran with a short economical stride and his head scarcely rose or fell, and the great empty face seemed to move toward me independently of the pumping arms beneath it.
+
+I left the path and scrambled over the shell heap, cutting my palms on the broken edges and hearing his feet strike the ground behind me with a blunt regularity that did not change when I fell, and on the other side I dropped into a drainage ditch half full of black water and crawled beneath a culvert whose entrance was just large enough to admit my shoulders.
+
+He reached the ditch while I was still dragging my legs inside, and his fingers closed around the heel of my right shoe and pulled it from my foot with such force that my knee struck the roof and I bit through the edge of my tongue.
+
+“You have chosen something that narrows ahead of you,” he said. “I would not ordinarily offer that information but I have no wish to spend the afternoon digging.”
+
+I crawled farther until the darkness tightened around my ribs and I could no longer lift my head, and behind me something scraped against the pipe and withdrew and scraped again, and then I felt a pressure against my left calf and realized that he had found a length of iron and was feeling for me with it.
+
+I drew both knees toward my chest and pushed backward with my elbows until the pipe dipped and the water reached my mouth, and the iron passed between my legs and struck the wall beside my face hard enough to shower grit across my teeth.
+
+“Remain there if you like,” he said. “The pump discharges through that line when the next basin is emptied, and Mara generally keeps a very exact schedule.”
+
+His footsteps receded and I listened until I could no longer distinguish them from the blows of the machinery, and then I began to pull myself toward the pale obstruction ahead.
+
+The obstruction was a root mass caught against a broken junction and beyond it the pipe opened into a brick sump where an iron ladder had lost all but three of its rungs, and I pushed through the roots until they tore my coat and filled my eyes with fibrous dirt and then stood waist deep in water under a circular patch of sky. My remaining shoe had swollen and my bare foot was bleeding, and when I reached for the first rung I found a human molar lodged in the brickwork beside it with a piece of dark filling exposed in its crown.
+
+I did not stop to consider how it had come there because the water was beginning to rise against my waist, and I climbed by putting my fingers into the mortar joints and resting my feet upon projections so slight that I could feel them crumbling beneath my weight. At the top I rolled onto a floor of wet boards and saw that I had come up inside the boiler house, where the old furnaces stood open and the newer pipes had been fitted around them in red and green arrangements that led through the walls toward the tide.
+
+Mara was standing at the far end beside a pressure gauge, and she did not seem surprised to see me although her face tightened when I got to my feet.
+
+“He sent you down that pipe knowing I’d be here. Stay where you are and you’ll bring him through that door behind you.”
+
+“Then point me someplace he didnt pick. I’ve had my fill of your directions and his.”
+
+“There’s an old shore passage under the cutting room. Outer gate’s shut. The wheel that opens it is here.”
+
+“Then open it and come along. Whatever you’ve done you can explain it where he cant lay hands on you.”
+
+She glanced toward a door with wired glass in its upper panel and then back at the gauge.
+
+“It aint the outer gate stops people. You’ll find an inner grille down there. Somebody has to stand by it and raise it.”
+
+“Can one person lift it?”
+
+“One can raise it. One cant hold it up and go under it both.”
+
+“How’d your leg get that way?” I asked.
+
+“He wanted to see if pain made me work different. It did for a while. Then it didnt.”
+
+She turned the valve beside the gauge and the hammering beneath the floor altered its rhythm, and at the same moment a shadow passed across the wired glass and her hand stopped on the wheel.
+
+“Go through the cutting room. Take the far stairs down,” she said. “You get to the grille and I’ll meet you there. Dont wait on me anyplace with more than one door.”
+
+I went through a narrow opening behind a fuel hopper and into a tiled room where the air was cold enough to make the cuts in my hands ache, and there were troughs along the walls and a long table in the center and lengths of butcher’s paper hung from a roller above it.
+
+The body lay face down with its legs removed at the hips and one arm extended into the trough, and the remaining hand was broad and work stained and had an old tattoo on the web between finger and thumb. His mother had told me about that tattoo because she disliked it and because disliking a thing her son had chosen was one of the ways she still had him with her and I stood staring at it while water dripped from the table through a hole in the tiles.
+
+I took the flattened spoon from my belt and cut through the skin at the edge of the tattoo, not cleanly and not well, because I could think of no other proof small enough to carry and because I had already seen what happened to people who relied on words on this island. The skin came away with a shallow layer of yellow fat beneath it and I wrapped it in a piece of the hanging paper and pushed it into the inner pocket of my coat, and while I was doing this the door at the other end of the room opened and Aldren came in carrying my shoe.
+
+“You have made a mess of yourself,” he said. “Mara should have told you that the pipe opens here, but she takes an interest in postponements.”
+
+I backed toward the stairs with the spoon in my hand, and he put the shoe upon the table beside Jonas’s body and looked at the small wound I had made.
+
+“That will be of little use to his mother, and you might have spared yourself the effort if you had asked me for something more suitable.”
+
+“She’ll know whose it was. The magistrate will too if I get it to him.”
+
+“You continue to speak of leaving as though it were an appointment, and it prevents us from having any conversation worth the name.”
+
+He came around the table without hurrying and I threw the spoon at his face and ran for the stairs, and I heard it strike him and fall and then heard the heavier sound of the table being pushed aside. The stairs descended between stone walls and ended at a door whose lower half had swollen against the frame, and I hit it with my shoulder and felt the glass wound open again while behind me he began to come down with one hand sliding along the wall.
+
+The door gave on the third blow and I fell into a low chamber where baskets of shell stood beneath a winch and a wooden hatch had been let into the floor, and I pulled the hatch up and found a shaft descending into darkness with no ladder and with the faint sound of water below.
+
+There was nowhere else to go before he reached the bottom of the stairs, and I lowered myself through the opening and hung by my fingers while my toes sought a purchase that was not there.
+
+Aldren crouched beside the hatch and looked down at me with blood moving from a cut beneath his eye toward the corner of his mouth, and then he put his hand across mine and began to press my fingers against the rim.
+
+“You can let go and make whatever discovery is beneath you,” he said, “or you can accept that you have come to the end of what running can accomplish.”
+
+I tried to pull one hand free and he caught it and bent the smallest finger backward until I felt the joint part, and when I swung toward the wall he bent the next one in the same direction with no increase in effort. The pain was so complete that for an instant I could not hear the water or his breathing or even my own cry, and then I let go with the other hand and fell while he still held the ruined one.
+
+My weight dragged his arm through the opening and my wrist turned in his grip and slipped free, and I struck the bottom with my knees and one shoulder and lay in a shallow stream unable to understand why I was still conscious.
+
+Above me he looked into the shaft, his face reduced by the distance to a pale oval with a dark mark beneath one eye, and then he rose out of view and I heard the hatch close.
+
+I had believed that he was laughing until the sound continued after the hatch had shut and then I understood that somewhere ahead of me a pump was trying to draw water through a line full of air.
+
+The shaft emptied into a service tunnel that sloped toward the sea and had been built at a height sufficient for a man to walk upright only if he were prepared to bow his head, and I went along it with my good hand against the wall and the injured one held inside my coat because the two broken fingers moved when they should not. Water covered the floor and deepened as I descended, and from branches in the tunnel came the smells of rust and soap and something scorched that reminded me of wool pressed against a stove.
+
+At the first junction I found a man seated with his back against a valve housing and his legs extended into the water, and I knew he was alive because one of his shoes rose and fell as he tried to pull his foot toward him. His apron was tucked under his body and the cloth over his abdomen had darkened almost to black, and a large kitchen knife lay beyond his reach with the blade pointing away.
+
+“Was to keep you out of here,” he said. “Set me up a little and I’ll tell him you went back toward the packing house.”
+
+“Was it him did this to you?”
+
+“He asked why the lower door was open. I told him Mara’d been through. He figured I was holding somethin back on account of I wouldnt say where she’d gone.”
+
+I knelt and reached beneath his arm, but when I lifted him the apron caught against the floor and pulled away from the wound and a slick coil of bowel came after it into the water. He looked down and put both hands over the opening as if he might close it by making the gesture correctly and the water carried a thin pink cloud away between his shoes.
+
+“Dont move me no more if that’s what comes of it,” he said. “Set me back where I was and get on before he thinks I had time to tell you somethin.”
+
+“Where’s it come out?”
+
+“To the sea door. But the teeth is down and you’ll need somebody at the lever.”
+
+“Any other way out?”
+
+“Was another way before he filled it with stone. Every man that helped fill it told hisself he was just doing a job he was paid for.”
+
+I put him back against the housing and laid the knife beside his hand, and he watched me without asking for anything else until I started to stand.
+
+“You see my brother on the mainland, tell him I was here,” he said. “Name’s Paul. He’ll say that dont make no difference to him. You tell him anyhow.”
+
+I ran until the water reached my thighs and the roof began to rise, and ahead I saw Mara standing at a lever mounted beside a grille whose lower bars disappeared beneath the surface. Beyond it a chamber opened toward a gray square of daylight where the sea moved against another gate, and on the right a grated platform rose above the water with a cable running through pulleys toward the boiler house.
+
+“I set the outer sluice to lift when the boiler governor drops,” she said. “There’s a locking pin at the sea door yet. You’ll have to pull it from the platform. After that the tide takes whatever goes through.”
+
+“Your brother’s alive by the valve housing. You go back now, you might fetch him while I hold this.”
+
+She gripped the lever with both hands and stared past me into the tunnel, and the skin beside her mouth began to twitch.
+
+“He wouldnt have left him alive unless he meant for me to find him. He wouldnt have let you this far if he didnt know I was here.”
+
+“We cant know what he meant till we quit doing what he expects.”
+
+She pulled the lever and the grille began to rise with a deep scraping vibration that traveled through the water into my knees, and I bent beneath it and waded into the chamber while she held her weight against the iron arm.
+
+“Get to the platform. Find the pin with the red handle,” she said. “If it’s tight, strike it from below. When it comes free keep out of the middle. The gate swings inward.”
+
+I climbed onto the platform and found the pin where she had said it would be, a thick iron rod held through two sleeves whose edges were scabbed with salt, and I wrapped my good hand around the handle and pulled until the cut in my shoulder opened and blood ran inside my sleeve.
+
+The pin did not move.
+
+Behind me Aldren spoke from the tunnel, and the ease with which he addressed us made the machinery and the rising water seem like difficulties affecting only smaller people.
+
+“You have interrupted the pumps, Mara, and there are men upstairs who will have to spend the night putting them right.”
+
+“They’ve spent enough nights doing what you wanted. One more aint a hurt they can charge me with.”
+
+I looked back and saw him standing behind her with the kitchen knife in his hand, its blade dark nearly to the handle, and I knew that her brother would have nothing more to tell anyone. Mara kept both hands on the lever and did not turn, and I struck the underside of the locking pin with the heel of my shoe.
+
+“You have made yourself useful here,” Aldren said. “You should think carefully before choosing to become something else.”
+
+“I’ve been thinking on it since you brought my brother back from the landing. I’m tired of doing my thinking where you can hear me.”
+
+He reached for her shoulder and she turned beneath his hand and drove her elbow into his throat hard enough that he bent and coughed, and in that instant the lever slipped and the grille dropped until its lower edge struck the water with a flat report.
+
+I lay down on the platform and reached through the bars with my good arm, and she threw herself forward and seized my wrist while Aldren caught the back of her shirt and hauled her away.
+
+The sleeve tore but he kept his grip upon the cloth at her shoulder, and I saw her boots rise from the floor and kick against his legs while he drew the knife upward toward her ribs.
+
+I pulled with all the strength I had and her body struck the grille and wedged against it, and the blade went through her upper arm instead and came out red beneath the rolled sleeve. She cried out and drove her free hand into his face with her fingers extended, and one of them entered the eye already bloodied by the spoon.
+
+His mouth opened and he made a noise without a word inside it and he dropped the knife to take her wrist and twist it away.
+
+The grille still hung a little above the water because her foot had caught beneath its lowest crossbar, and I put my shoulder through the gap and seized the torn back of her shirt and pulled her toward me while she kicked with the trapped leg. Something gave in her boot and she came under the bars and landed across my chest, and the grille fell behind her with a shock that threw water over both of us.
+
+Aldren struck it with the flat of his hand and the metal bowed toward us and then he gripped two bars and pulled until bolts began to rise out of the stone around the frame.
+
+“You have no understanding of what you are leaving me to repair,” he said, and his damaged eye was shut and his other one watched Mara.
+
+She rolled off me and staggered up onto the platform and took the shoe and struck the locking pin three times in quick succession, and on the third blow it lifted far enough that I could get my hand beneath the handle and pull.
+
+The pin came free with a tearing squeal and the outer gate shifted inward, and cold seawater drove around its edges and spread across the chamber in two white seams.
+
+At the grille Aldren put one bare foot against the wall and pulled again, and a block of stone came away with the upper bracket and fell into the water between his knees.
+
+The incoming tide struck the gate harder as the opening widened and the chamber filled too quickly for either of us to think of it as a place that had a floor, and I held Mara by the back of her coat while she clung to the platform rail and tried to reach the cable above us. The boiler governor had not yet dropped and the sluice remained low outside the swinging gate, leaving a gap that looked too narrow even for my shoulders, and beyond that gap the open water moved at a level higher than our heads.
+
+“Go into it now and it’ll wash us back against the bars,” she said. “Outside plate has to rise. Then we’ve got to get above it before this chamber fills.”
+
+“How long till it comes up?”
+
+“Pump’s drawing air already. Pressure drops far enough and the counterweight comes down.”
+
+Behind us the grille tore free at one side and Aldren pushed through the opening with his shoulders turned, scraping skin from his arm against the broken bracket, and I saw that the wound did not make him hesitate although the water had reached his waist. He came toward the platform with one hand along the wall and his face tilted away from the damaged eye, and the blood running down his cheek had begun to dilute into a red stain upon his undershirt.
+
+“Stay back,” I called. “You come farther and the water’ll trap you in here. You’ve still got time to go back.”
+
+He looked at me as though I had offered him a poor explanation for the weather.
+
+“There is no place on this island where I need your permission to stand, and you are not going to make a boundary out of a pump I paid to install.”
+
+Mara caught the hanging cable and pulled it down, and above us a pulley began to turn with a protesting chirr that vanished under the noise of the sea entering the chamber. She wrapped the cable around her good forearm and leaned outward beyond the rail, and I saw that she was testing whether it would take her weight.
+
+“Runs through the inspection hatch over the sea door,” she said. “Room for one to squeeze out at the top, long as the counterweight aint reached the stop.”
+
+“Then go on up. I’ll come after you. You cant use that arm much longer.”
+
+She put one foot on the rail and the other against the stone and began to climb, but before she had raised herself beyond my reach Aldren stepped onto the platform and its supports bent beneath him with a long wrenching sound.
+
+I took the locking pin in my good hand and struck him across the knee.
+
+He went down upon one leg and his shoulder hit the rail and tore it away from its brackets, and the broken end caught Mara’s trousers and dragged her foot from the wall. She hung from the cable with her wounded arm swinging uselessly and I stepped between him and her and struck again, this time across the hand he put upon the platform to raise himself.
+
+The pin broke two of his fingers and he caught its other end with his uninjured hand and pulled me forward until my boots slid over the wet iron. I let go and he swung it across my face and missed because the platform tilted beneath his weight but the end struck the wall beside my head and threw a piece of stone into my cheek.
+
+Then he seized the front of my coat and drew me against him.
+
+“You have been carrying him,” he said, and his good eye shifted toward the inner pocket where the packet of skin made a small square beneath the cloth.
+
+I struck his throat with my injured hand and nearly fainted from the pain and he opened his mouth against my wrist and bit through the folded edge of my cuff and the flesh beneath it. I felt the teeth enter and close and felt something inside my arm drawn toward them.
+
+He withdrew his head with blood on his chin and a pale strand caught between his teeth, and above us the pulley gave a sudden hard clank.
+
+The governor had dropped.
+
+The cable jerked upward and carried Mara toward the inspection hatch, and outside the sea door the sluice began to rise while the counterweight descended inside its open well along the wall. It was a rectangular mass of iron thick as a door and almost as tall as a man, and it came down slowly enough that I could see the water peeling from its sides.
+
+Aldren looked toward it without loosening his grip.
+
+I stopped pulling away.
+
+Instead I stepped toward him and drove my shoulder beneath his chest and thrust with my legs against the sloping platform, and he took a backward step into the water while still holding my coat. His heel found no purchase where the floor dropped toward the gate and he shifted his weight to the injured knee, and as it folded I went with him and turned so that my back struck the wall beneath the counterweight well.
+
+The descending iron touched his shoulder.
+
+He tried to straighten and found the weight above him and the tilted platform beneath one foot and the water rising against his chest, and for the first time his hand opened of its own accord.
+
+I slipped sideways and fell beneath the broken rail, and he reached after me and caught my coat again but only by the hem, and when I rolled in the water the seam tore from waist to shoulder and left him holding a long strip of cloth.
+
+The counterweight continued down.
+
+His shoulder compressed beneath it and his head struck the stone at the edge of the well, and he put both hands against the underside and pushed with an effort that made the muscles across his chest stand out beneath the wet shirt. For a moment the weight seemed to stop, and then the pressure in the system changed and a stream of black oil spilled from a housing above him and the iron came down another six inches.
+
+I heard the collarbone break and saw the arm on that side shorten against his body, and his mouth opened so widely that the skin at its corners split.
+
+He was still looking at me.
+
+The sound he made had no command in it and no persuasion, and the great pale hand which had held my wrist in the porch reached through the water toward my ankle. I moved back and caught the cable below Mara’s foot and pulled myself upward as the chamber surged around my waist, and behind me the counterweight descended to its stop with a noise that passed through the walls and through my teeth.
+
+When I looked down again his head was bent against his chest and one side of his body had been flattened into the channel behind him, and blood escaped beneath the iron in a dense branching movement which the incoming water tore apart before any of it could reach the gate. His free hand still moved once against the stone and then remained there with the palm upward and the fingers neither closed nor open.
+
+I climbed.
+
+Mara had reached the inspection hatch and was pushing against its cover with her head because she could no longer lift her wounded arm, and I braced my feet against the wall and climbed beneath her and put my shoulder against the iron. The cover had been painted shut around the hinges but the bolts were not fastened, and after two blows with my shoulder it rose enough for the evening wind to enter and touch our faces.
+
+She got one knee over the edge and I pushed her through, and then she turned and caught my collar with her good hand and held me while I found a place for my bare foot. We came out onto a narrow ledge above the sea door and lay there with the cable between us while below the water moved through the chamber and over the machinery and everything the machinery had contained.
+
+For a while neither of us tried to stand.
+
+Across the channel the mainland had become a low blue shape with two windows catching the sunset, and the distance was not great but it was farther than either of us could swim in the condition we were in. Above the landing stood the lower light, a metal box on a post with an electrical line running to the boiling house, and I remembered the words cut into the cell wall and the boatman’s coat and the way he had pushed away before I could ask him another question.
+
+“Any way to light it from here?” I asked.
+
+“Switch in the landing shed. If the generator’s still running it’ll light.”
+
+“Then we’ll get to the landing shed. When the boat comes we’ll make sure he knows who he’s hauling.”
+
+We followed the ledge around the cliff with Mara’s good arm across my shoulders and my injured hand pressed against my chest, and twice she stopped because the wound in her upper arm had begun to pour blood down her sleeve and twice we bound it tighter with pieces torn from my coat. At the end of the ledge a ladder rose to the landing and we climbed one at a time and rested between rungs, and no one came to stop us although I saw a face at the window of the trolley shed and another in the doorway beyond it.
+
+Inside the landing shed I found the switch and raised it, and the lamp outside came on with a weak orange glow that brightened as the filament heated. Mara sat against a stack of empty crates while I wrapped my wrist with the last clean portion of my shirt, and after perhaps fifteen minutes the boat’s engine sounded beyond the harbor wall.
+
+The boatman brought it close enough to see us and then stopped the engine without putting it against the fenders.
+
+“Where’s Mr. Aldren?” he asked. “He dont send for the boat usual unless he’s here hisself.”
+
+“He’s under the sea door counterweight,” I said. “You can come ashore and see for yourself or take us to the mainland and tell the police what you done for him.”
+
+He looked up toward the porch and then toward the people standing beyond the trolley shed, and his damaged hand appeared from beneath his coat and closed around the throttle.
+
+“If I bring you in like that there’s questions I cant answer to suit anybody.”
+
+“There’ll be questions if you leave us like this. You may find them harder.”
+
+Then he brought the boat alongside.
+
+He helped Mara aboard with his good hand and avoided touching me and when we were clear of the landing he opened the throttle farther than he had on the journey out.
+
+I reached inside what remained of my coat and found the paper packet still there, soaked through but closed around its contents and I held it in my good hand while the boatman watched the water ahead.
+
+Mara saw what I was carrying and asked whether it was something I had taken from her brother.
+
+“It’s something I owe somebody else,” I said, and she turned her face toward the mainland and did not ask again.
+
+The surgeon later removed the two broken fingers from my left hand and repaired what he could of the wrist and he told me that I had been fortunate. Mara lived and gave her account three times before anyone was willing to write it without altering the parts they found difficult, and the men brought back from the island discovered an astonishing number of ways in which obedience had prevented them from knowing what they had plainly seen.
+
+I was not present when they raised the counterweight, and afterward I went to Jonas’s mother’s house with a constable who waited in the road because I could not bear to make her answer the door to two uniforms.
+
+She had put a plate aside for Jonas in a cupboard where she kept things too good for daily use, and when I told her he would not be coming home she opened the cupboard and took the plate down and placed it on the table between us. There was a chip beneath its rim which she touched with her thumb while I tried to tell her what the magistrate would need and what the burial arrangements might allow, and she listened without interrupting until I had used every harmless phrase I possessed.
+
+“Did you find him your own self,” she asked, “or was there somebody showed you where he was?”
+
+“I found him myself. I knew him by that mark on his hand you told me about.”
+
+She nodded and continued to rub the chipped place on the plate and after a while she said that when he had first shown her the tattoo she had made him cover it at meals because she thought it looked foolish.
+
+I stayed until the room had darkened and she asked me to light the lamp and because she had asked for something I could do, I got up and did it.

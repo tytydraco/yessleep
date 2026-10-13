@@ -1,0 +1,55 @@
+The dust from laying on the cold steel floor clung to me like an extra layer of skin. As I pried myself up from the ground each bone in my body crackled and shifted back into place. It was as if I had been asleep in this unrecognizable place for centuries,  I woke up with no idea how I even ended up here. It was more than that, I woke up unaware of who I am, or what anything is. Once I stood up on my bare feet I was able to recall a few things, of what once used to be home, how life used to function, and that I am human. Even with all of this knowledge, I still did not understand myself, not even a single detail of my life before this.
+
+My first memory, not of being ripped from the womb by a stranger's hands, instead was rising from my barren bed laid upon the floor, and approaching the porthole of the station's hall. All that stood before me was a pitch black nothingness, and set in the middle of it all, was a singular glowing star no larger than a freckle upon someone’s face. 
+
+I set the gray tip of my pointer finger against the glass right over the star, and ran it down to the metal that entrapped the porthole. My eyes followed the greasy dust trail I left behind with my touch. Similar to the line I had created, tears fell down my cheeks and splattered beside my bare feet. I was afraid to die in a place I could not even begin to process, yet the struggle of not understanding if I had even lived before this moment laid ever present. 
+
+With nothing else to fill the brain, I recall every second that went by as I stood and sobbed my confusion away. I was there for exactly five minutes and forty two seconds, counting down each moment as it fled right by me. 
+
+With only two ways to push forward, I decided to shift left and make my way into the dim hall. It was faintly illuminated by the weak light gifted to us by the star peering through the portholes. Each step I took felt like a failed attempt, I had to drag my feet across the bumpy ground to just barely lift them into the air. 
+
+After endless concrete walls on my left, a metal door came into view set in one of the blind spots of the portholes, leading the area to be set in darkness. With a light tap of my palm, the door slowly opened with the grating of steel echoing throughout the halls. Despite everything being so grim, I felt a small appreciation for how easy it was to enter, as I didn’t have the strength to push it with any force. 
+
+Wires dangled from the ceiling and swung about like snakes reaching out in an attempt to sink their fangs into me. I was startled at first, but was calmed by the sound of a fan shooting up a cloud of dust into the room and creating a false wind. I stepped inside, only able to see thanks to an attention red light above the in-wall fan. The moment I reached the machine I dangled my arm out towards the off switch, but before I even managed to press the button it shut down on its own. 
+
+The wires wiggled about for a few seconds longer before returning to a stillness, and the room became easier to make out. Cabinets and drawers were scattered in uneven patterns alongside the edges of the room. I spent upwards to an hour attempting to dig through everything the room held, but all I found was endless empty sheets of paper and unused journals, attached alongside a singular ballpoint pen. 
+
+I gathered a few sheets and folded them into the pockets of my grime covered sweatpants. Tucked into my left arm was the journal, and in my right, both as a weapon and a tool, I clenched onto the pen of black ink. 
+
+As I made my exit I turned left once more and continued down the path. I approached the next checkpoint of light and spotted a trail of footsteps going in the opposite direction I was headed. 
+
+It had not been there previously, I would have made note of it far earlier than now. Without any other purpose, I changed trajectory and set off behind my only lead.
+
+I did all that I could in a place like this, I jotted down each moment I have spent in this unfamiliar world. As I walk further into these halls I continue to mark each moment no matter how pointless it seems to be. While I wrote I felt the overwhelming pain of the countless thoughts rattling my head hush away and giving me a sense of focus.
+
+With a return back to where I had awoken, I could see the outline of where I had rested. The footsteps did not halter beside my first memory, instead they pushed onward and into the unexplored hall. 
+
+Sound was an unprecedented sensation to me for the first while I had been aboard this station. Yet, as I ventured deeper into the dark my ears began to pick up on the light humming that filtered the air. If I’m correct, I assume it to be the sound of all the fans in each room I pass by all blaring at once. Perhaps, if I ever get a chance, I’ll shut them all off and enjoy a complete silence. 
+
+I pass through another zone lacking light and approach the next porthole. I found that the trail had arrived directly in the middle of the hall, and vanished. There were no more footprints, no sign of turning around, and not even a hint at where they could have gone. 
+
+There was no attempt to continue the search for them. I just went on forward until I arrived at the next door just a few dozen steps away. This time it was outlined by the star, and I was able to push it open with ease yet again. 
+
+The room shared only a few slight differences with the one I had entered previously. I was thankful of the lack of wires in this one, but the dust continued to persist with aid from the ever blasting fan. This time, I didn’t even need to approach it for the machine to shut off automatically. 
+
+I was met with the same result from the drawers, piles of untouched paper filled them from corner to corner, unless someone used ink invisible in red light. With how easily the drawer slid open, I’d assume these are used quite often, but everything looked decades old. I dug through over a dozen of the containers and found nothing new, all until the very last one where I spotted something written on the side of the drawer. 
+
+My head creaked closer to get a better view, with it I made out four words. 
+
+“Afraid of the stranger.” written across it in black marker.
+
+I set my pen between the spine of the journal and set it onto the murky ground. I pulled my knees closer to my chest and remained locked onto the text. My eyes recognized the writing far sooner than my brain did. I picked the journal up once more and flicked it open.
+
+The words on the drawer had the same handwriting as my own.
+
+I had written this sometime before my first memory, there was no doubt about it. 
+
+As if the station wanted me to flee the room, the red light that had given me sight for so long had blinked away without a warning. With my valuables in hand, I launched back up to a standing position and speed walked right out the doorway.
+
+I found myself sitting beneath the porthole and staring into the dark room I was in before. My knees pointed to the ceiling and my journal laid in my lap. Morbid curiosity was getting to me, I wanted something to exit the room to give me another sign that I wasn’t alone here, yet nothing ever happened. Thankfully as well, because if something did, I would have fled. 
+
+It was stupid, and as I walk down these halls once more I recognize the lack of care I showed myself. I would much rather be alone aboard this cement and steel hell than something lingering alongside me. 
+
+As an hour of nonstop walking ensued, I came across a familiar, but uncomfortable sight inside the light. Another trail of footsteps going down the path that I came. 
+
+This time, I did not shift myself around and follow, I continued onward, because it was becoming clearer to me that whatever was roaming, was trying to keep me there. 

@@ -1,3 +1,5 @@
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1x4lak8/the_kid_who_bullied_me_vanished_the_morning_after/)  
+  
 A lonely child’s imagination is among the wildest of feats. I would know. Mine got out.
 
 It was never that I struggled to make friends or to talk with strangers. What I struggled with was keeping things. As a child, my memory was never fortified to my possessions, and I often found myself at a loss. I would lose toys, my directions, and trains of thought, and I could never hold onto friends for too long, as I’d often lose them too. Everyone said I was careless, but that couldn’t be further from the truth. I cared a lot, but that didn’t stop me from believing them.
