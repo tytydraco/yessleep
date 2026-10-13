@@ -1,0 +1,53 @@
+I never should have taken that night shift at the warehouse. It was the only place hiring when my hours got cut at the hardware store, and the money was decent if you could handle the quiet. Most nights it was just me and the security cameras and the low constant hum of the freezers in the back. The building sat on the edge of town past the old rail yard. No neighbors. No traffic after midnight. Just long stretches of concrete floors and the kind of darkness that settles in the corners and makes you check the locks twice even when you already know they are secure.
+
+The first weird thing happened on a Tuesday. I was doing the usual walkthrough of the loading bay when I noticed the side door was cracked open. Not wide. Just enough that the wind could catch it and make that soft rhythmic knocking sound against the metal frame. I shut it firmly and locked it and wrote it up in the log the way they told us to. Figured some delivery driver from earlier in the day had left it loose without realizing.  
+The next night the same door was open again. Same narrow crack. Same soft knock against the frame every time a gust came through. I checked the cameras right away. Nothing showed. Just me walking past the door earlier in the shift and then, later, the door standing open after I had already closed and locked it. I locked it harder that time. Used the deadbolt and tested the handle twice. Still wrote it up. Still told myself it was nothing.
+
+By the third night I started leaving a heavy chair under the handle as a secondary block. When I came back from the freezer section twenty minutes later the chair had been moved three feet to the left and the door was open again. No sound on the cameras. No motion alerts triggered. Just the door and the chair sitting in the wrong place like someone had calmly rearranged them while I was out of sight. The air near the doorway felt colder than the rest of the bay. I stood there longer than I needed to, listening, before I locked everything again.  
+I told my supervisor the following morning. He said the sensors were old and the wind had been strong that week. He told me to stop worrying about it and finish the inventory count. I did the count. I locked every door twice on the way out. I still felt like someone was standing just outside the range of the security lights, waiting for the moment I turned my back.
+
+Then the notes started.
+
+The first one was stuck to the time clock with a neat square of clear tape. Plain white paper. Block letters in thick black marker.
+
+YOU LEFT THE DOOR OPEN AGAIN.
+
+I crumpled it and threw it in the trash. Told myself it was a joke from one of the day shift guys who must have seen the log. The second note was waiting inside my locker, taped to the inside of the door at eye level. Same paper. Same marker.
+
+I SAW YOU CHECK THE CAMERAS. THEY DO NOT SEE EVERYTHING.
+
+I stopped using the locker after that. Kept my keys and phone and the spare flashlight in my pockets. Started carrying the big Maglite in my hand even though the warehouse lights stayed on all night. The beam cut through the darker corners near the shelving units but never seemed to reach far enough.  
+The third note was waiting on the seat of the forklift I always used, folded once and placed carefully in the center.
+
+STOP LOOKING OVER YOUR SHOULDER. IT MAKES IT HARDER TO GET CLOSE.
+
+That one made me call the non-emergency line. The officer who showed up walked the entire perimeter with me, checked every lock, reviewed the camera footage, and said there was no sign of forced entry anywhere. He told me to keep the doors locked and report anything else if it happened. He did not take the notes with him. Said they were probably just a prank that had gone on too long.
+
+I started bringing a second flashlight after that. Kept one in each hand when I walked the far corners of the building. The air in the back of the warehouse felt heavier after midnight. Like the temperature dropped without the freezers working any harder. Sometimes I would hear slow footsteps on the metal stairs that led up to the catwalk, but when I shone both lights up there the stairs were empty and the thin layer of dust on the steps looked untouched. The sound would stop the moment the light hit the metal.
+
+One night the power flickered. Just once. Long enough for the emergency lights to kick on with their dull red glow and then everything came back to normal. When the main lights returned every single door in the warehouse was standing open. Front entrance. Side door. Loading bay. Even the little office door I always kept shut and locked. The cameras showed nothing useful. Just a blank stretch of darkness during the flicker and then the doors all open at the same time like they had been waiting for the lights to fail.
+
+I quit the next morning. Told them I had found something closer to home with better hours. They did not argue. The supervisor just nodded and said the night shift was hard on people and that he understood.  
+I thought that was the end of it.
+
+Two days later I found a note under the wiper blade of my car in the grocery store parking lot. Same paper. Same block letters.
+
+YOU CANNOT QUIT.
+
+I looked around the lot carefully. Ordinary people pushing carts. Ordinary cars parked in ordinary rows. No one watching me that I could see. I drove home with the doors locked and checked the rearview mirror more than the road.
+
+That night I heard the soft knock on my apartment door. Three times. Slow and measured. The same rhythm the warehouse door used to make against its frame when the wind caught it. I did not open it. I waited in the dark until morning and then checked the hallway camera the complex had installed the year before. The footage showed the hallway completely empty the entire night. No one approached my door at any point. The knock still happened. I heard it clearly.
+
+The notes kept coming after that. One inside my mailbox folded between the junk mail. One taped to the underside of my doormat where I would only find it when I lifted the mat to sweep. Once folded inside the free newspaper that got delivered even though I never subscribed and had called twice to cancel it. Always the same block letters. Always telling me I was being watched. That the doors were never really locked. That the cameras were lying about what they recorded.  
+I started sleeping with every light in the apartment on. Moved the heavy couch against the front door as a barricade. Stopped answering my phone when the number came up unknown or blocked. The feeling of being followed never left me. Sometimes at the very edge of my vision I would catch a shape in the reflection of a dark window or the black screen of the television, but when I turned there was only the empty room and the sound of my own breathing.
+
+Last night the knock came again. Louder this time. Longer. It went on for almost an hour without stopping or changing rhythm. I sat on the floor with my back pressed hard against the couch and both flashlights in my hands and waited for it to end. When the sun finally came up I found the final note slid halfway under the door.
+
+I AM ALREADY INSIDE.
+
+I searched every room slowly. Every closet. Under the bed. Behind the shower curtain. Inside the cabinets. Nothing. The windows were still locked from the inside. The deadbolt was still thrown. But the air in the apartment felt exactly the same as the air in the back of the warehouse. Heavy and waiting and slightly too cold.  
+I am writing this from my car in the grocery store parking lot with the doors locked and the engine running and the headlights on even though it is daylight. I do not know where else to go. Every place I have been for the last three weeks feels like it already belongs to whatever has been leaving the notes and opening the doors and standing just outside the reach of the light.
+
+It was never a ghost or a spirit or anything that came out of the dark on its own. Every open door at the warehouse, every note left in places only I would find, every knock that the cameras refused to show, every time the power flickered at the exact moment the locks failed, and every moment I felt watched in my own apartment was the careful and deliberate work of a serial killer named Gerry Poopballs. He had been studying the warehouse security system for months before I ever took the job, learning the exact blind spots in the camera coverage and the precise timing of the old sensor delays. He followed me home on the night I quit, mapped the apartment complex cameras the same way, and spent days testing which of my routines he could interrupt without ever appearing on a single recording. The notes were written in advance and placed with gloved hands during the brief windows when he knew I would be looking elsewhere. The knocks were made with a soft rubber mallet against the lower part of the door so the sound would travel without leaving marks. 
+
+He is still out there. He knows I am writing this. And he has already decided what happens next.

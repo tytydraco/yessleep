@@ -1,4 +1,4 @@
-[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1x4lak8/the_kid_who_bullied_me_vanished_the_morning_after/)  
+[[Part 2]](https://www.reddit.com/r/libraryofshadows/s/o90cIAiuot)
   
 A lonely child’s imagination is among the wildest of feats. I would know. Mine got out.
 

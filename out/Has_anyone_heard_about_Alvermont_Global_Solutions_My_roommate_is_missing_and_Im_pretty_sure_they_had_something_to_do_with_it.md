@@ -179,3 +179,5 @@ Nothing terribly strange so far. Though it obviously raises a lot of questions t
 Wait. I just heard the front door open.
 
 I'll update when I can.
+
+[UPDATE](https://www.reddit.com/r/nosleep/comments/1x578ox/has_anyone_heard_about_alvermont_global_solutions/)
