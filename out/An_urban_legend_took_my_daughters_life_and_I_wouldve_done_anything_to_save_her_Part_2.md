@@ -277,3 +277,5 @@ My stomach dropped.
 “Max!”
 
 The hammer eased back.
+
+[Part 3](https://www.reddit.com/r/nosleep/s/9VFyxwpLC5)
