@@ -1,0 +1,63 @@
+It sounds impossible. The ravings of a mad man. But it’s the only way to explain what’s been happening.
+
+ 
+
+ 
+
+It all started last week. I was getting ready for work when in the shower I started humming this tune. I’m not usually one to sing in the shower or anything like that but I just couldn’t seem to get this tune out of my head. I couldn’t place it, for as far as I could tell I had made it up. I was still humming it by the time I got in the car and turned on the radio. I had moved to change the station, but I stopped myself.  The song was playing. Even after hearing it I couldn’t place where I had heard it before. It was then that the song ended and the presenter cut in.
+
+ 
+
+“Good morning everybody, that was Rory Porter with Got To Keep On off his new album Stardust. We’ll have more off his new album released today later on, so don’t go anywhere!”
+
+ 
+
+ 
+
+Two days later, I was sitting in my flat watching television when there was a knock at the door. I got up to see who it was but by the time I got to the door no one was there and the hall was empty. I closed the door and sat back down assuming I had been the victim of some childish ding dong ditch prank - then the door went again. As before I got up and opened the door and found no one. I went out into the hall hoping to find the miscreants responsible but had no luck. I had just returned to my door when the elevator across the hall opened and outstepped a young woman with black hair. It was my girlfriend. In one hand she held a bottle of red wine and the other a plastic bag marked with the words “China Palace”. I let her in and she explained how she had been meaning to surprise me and that I had spoiled her cute gesture. I let her in and tried my best to not give away how disconcerted I was. Had I really heard her knock before she had even arrived? Well, no. She hadn’t actually gotten the chance to knock before I met her in the hall.
+
+ 
+
+“Where’d you get this?”
+
+ 
+
+She was referring to the new Mahogony coffee table she had begun setting the food out on.
+
+ 
+
+“My mum gave it to me, she didn’t need it anymore.”
+
+ 
+
+“It’s nice”
+
+ 
+
+She knocked on the wood four times testing its thickness.
+
+ 
+
+ 
+
+If this had been all I might’ve managed to chalk it up to coincidence, my mind imagining wonder in the mundanity. Even if I convinced myself this was some kind of precognition, it wouldn’t be necessarily cause for alarm. But this isn’t all I’ve been hearing, this is just the sounds I can explain. The sounds don’t always immediately precede the action that cause them. The sound of crunching snow even though its spring, someone snoring in the middle of the day or my mother’s voice when she at her house two hours away,
+
+ 
+
+ 
+
+It’s worse at night. I often wake to what sounds like someone walking around the house, their feet creaking up the wooden steps or shuffling against the carpet just outside my door. The first time this happened I had even called the police, sure there was a burglar or some axe wielding crazy in my house. Even now I have to get up and scan the whole house before I’m able to get back to sleep, it just sounds so real. But maybe even this I could’ve lived with, pushed to the back of my mind. That would be until tonight. Just ten minutes ago, I had once again been awoken by a sound in the night, but this was different. A scream from downstairs. A man’s scream. My scream.
+
+ 
+
+ 
+
+While I write this, I still haven’t been downstairs, but I know I’ll have to. Maybe there won’t be anything there tonight, though that might be worse. It would just mean there’ll be something another day and all I can do is wait for it. I’m going downstairs now, I think I can hear breathing.
+
+ 
+
+ 
+
+ 
+
+ 

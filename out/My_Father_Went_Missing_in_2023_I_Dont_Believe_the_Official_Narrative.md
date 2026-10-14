@@ -1,0 +1,23 @@
+On March 6, 2023, my father, Mark Granger, disappeared. At the time, he was employed by McGuire Realty and had been hired to renovate a vacant home roughly 7 miles outside the town of Craven's Junction, KY. He arrived at the property a few days prior to a blizzard that swept across the state. Winter Storm Albert buried much of Ellington County under heavy snow, cut off roads for days, and claimed the lives of 22 people across the state.
+
+That was the last time anyone can say with certainty where my father was.
+
+My dad and I spoke by phone some mornings while he was staying at the property. Our conversations were usually pretty brief, but at no point did he mention anything unusual or give me any reason to believe he was in danger.
+
+He had spent most of his life outdoors.  Being alone at an isolated property for a couple weeks wasn't unusual for him, and certainly wasn't something I would have considered dangerous under normal circumstances.
+
+As the storm passed and reports of fatalities throughout the state began to emerge though, I became concerned. I attempted to contact him repeatedly over the following days. In total, I called or texted him about twenty times. None of those attempts ever received a response.
+
+After the third day, I filed a missing person's report with the Ellington County Sheriff's Department. Several days after that they performed a search, and found his pickup truck at the house, but no other sign of him.​
+
+According to investigators, they believe my father attempted to leave the property once the storm became severe. Their theory is that he walked outside to his truck, discovered it wouldn't start because of the cold, and attempted to return to the house. At some point during that walk, they believe he became disoriented in the whiteout conditions and wandered into the surrounding woods, where he ultimately succumbed to the elements.
+
+*There is something about that explanation that doesn't sit right with me.*
+
+My dad's truck was parked roughly thirty feet from the front door and was facing directly toward the house. Even in near-zero visibility, it's difficult for me to understand how someone with his level of experience could become so disoriented that they were unable to find a building only a few steps away. If he had remained near the truck, simply walking forward would have brought him back to the residence. It is a question that I don't think the investigation ever answered, and from what I can tell it seems they are content in their explanation.
+
+I remain grateful for the efforts of the Ellington County Sheriff's Department and the numerous agencies and volunteers who participated in the search. My criticism has never been towards those who searched for my father, but rather at the investigation that followed and the conclusions that authorities reached.
+
+I've made this post in an attempt to garner more attention surrounding his case. I am currently performing expeditions out into the forest where he disappeared. If you're interested in following the case further, please consider checking out our site [www.findmarkgranger.com](http://www.findmarkgranger.com/)
+
+If I find anything else interesting, I'll be sure to let you know there.

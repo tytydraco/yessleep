@@ -1,0 +1,47 @@
+The impact almost bit my tongue in half. I hit the canvas tarp of the flatbed truck hard, rolled over the wooden crates, and slammed into the steel cab just as the truck swung onto I-95. My ribs are definitely cracked, my left knee is twice its normal size, and I’m bleeding through my jeans.  
+   
+I’m typing this right now with a thumb that’s practically numb, sitting on the floor of a rotting timber deer-blind a few hundred yards deep into the woods. I managed to crawl up here fifteen minutes ago. I’m using a single, blinking bar of weak cellular data that I can only catch by holding my phone against the highest wooden beam of this roof. I don't know who else to tell, but I need to put this out there before the signal drops or the black SUV finds where I hid.  
+   
+If you ever go to the flea market on 4th Street in Philadelphia, don't buy anything from the old guy selling military surplus from the back of a green van.  
+   
+Three days ago, my friends invited me to a weekend hunting trip up in the mountains. I didn't own any proper rugged gear, so I went to that market and bought a heavy, faded black canvas field jacket from that van for forty bucks. It had a thick brass zipper, an old grease stain on the left cuff, and a faded white stenciled serial number inside the collar: V-1784. It felt warm, and I thought it was perfect for the woods.  
+   
+This afternoon, the world went completely insane.  
+   
+I was crossing the pedestrian bridge over the rail yard near Vine Street, heading to meet the guys for the trip, when I noticed two men walking thirty paces behind me. They wore identical matte-black windbreakers, heavy boots, and earpieces. When I stopped to tie my shoe, they stopped. When I looked back, the taller one brought his hand to his collar, pointed directly at me, and said something into his microphone.  
+   
+I didn't think. I broke into a run.  
+   
+They didn't yell "stop." They didn’t pull badges. They just sprinted after me with terrifying speed. As I reached the end of the bridge, a dark Ford Explorer with tinted windows blew through a red light, tires screeching, blocking the exit ramp right in front of me. Two more guys stepped out of the doors.  
+   
+I was trapped on the overpass. The tall guy from behind was closing the gap, his hand reaching inside his jacket for something heavy and metallic.  
+   
+I looked over the concrete railing. Below, a massive commercial flatbed truck was hauling a load of covered cargo toward the interstate, rumbling right underneath the bridge. I didn't hesitate. I vaulted over the concrete barrier and dropped.  
+   
+The air tore out of my lungs when I hit the heavy canvas tarp. I survived the fall, but my car keys and my wallet flew out of my pockets, clattering into the dark grid of the highway below. I have nothing but my phone, which I instinctively clutched in my hand.  
+   
+I managed to crawl into a gap between the crates, shivering in the cold wind, as the truck accelerated down the highway. I thought I escaped, but looking back through the crates, I saw the Ford Explorer swerve onto the highway entrance ramp behind us, its tires smoking as it began tailgating the truck. They knew I was on it.  
+   
+Soon, the truck slowed down as it approached the heavy lighting of a toll plaza.  
+   
+The bright halogen lamps flooded the area, and through the gap in the wooden crates, I saw that same dark Ford Explorer pull up beside the truck in the adjacent lane. The passenger window rolled down. The man inside was staring directly at the truck bed, his eyes locked on the space between the crates where I was hiding.  
+   
+As the two vehicles moved side by side under the glare, the man leaned slightly forward, and the overhead light hit his shoulder.  
+   
+The material of his jacket was identical to mine. The same heavy, faded black canvas. The same unique brass zipper. But what made my heart drop into my stomach was his sleeve. Stenciled in bright, faded white ink across his left arm was a serial number: V-1780.  
+   
+The flatbed truck’s air brakes hissed as it pulled into the final toll lane. Through the crates, I saw the Ford Explorer already idling by the shoulder fifty yards ahead, waiting. Two men stepped out, their hands resting on their holsters, staring at the back of this truck.  
+   
+I had to jump again.  
+   
+I rolled off the passenger side right into the dark drainage ditch before the truck hit the main lights of the toll booth. I dragged my bad leg into the wood line and managed to scramble up into this old abandoned blind before my knee completely gave out.  
+   
+I tried to take the jacket off ten minutes ago because I realized it has to be the reason they are tracking me. There must be a localized transponder sewn into the lining, or the fabric itself is treated with something. But the temperature out here has plummeted. I’m already soaking wet from the ditch, and when I took it off for just five minutes, my fingers turned blue and I couldn't stop violent, uncontrollable shaking. Without it, I will die of hypothermia before the sun comes up.  
+   
+But if I keep it on, I’m a walking beacon. I can hear dirt bikes or ATVs revving out by the highway shoulder now. They are starting to map the perimeter of the woods.  
+   
+I don't know what kind of tracking technology is hidden in a heavy canvas seam. If I stay here, I'm cornered. If I run deeper into the freezing dark, I won't make it till dawn.  
+   
+Funny how fast it turns around. I bought this jacket to hunt. Now I'm the one being hunted.  
+   
+The engine sounds are getting closer. I can see flashlights cutting through the trees below my wooden perch. My phone battery is low. I’m using a sharp wooden splinter from this rotting blind to frantically hack away at the thick collar lining, trying to feel for a hard plastic lump or wire to rip out before I have to crawl down and drag myself into the dark. I'm hitting post before I turn my screen brightness to zero. Wish me luck.
