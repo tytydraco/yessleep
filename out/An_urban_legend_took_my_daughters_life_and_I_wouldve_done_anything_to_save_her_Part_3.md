@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/s/W6Btc9zIfv)
+[Part 1](https://www.reddit.com/r/nosleep/s/3dveI2k711)
 
 [Part 2](https://www.reddit.com/r/nosleep/s/C1jM6L2DmJ)
 
@@ -209,3 +209,5 @@ I headed for my car.
 “She has dementia,” Angelo called after me.  “She won’t be able to help you.  Trust me.”
 
 Maybe.  But dementia or not, Quintana Hess had cursed the gun.  She was my only chance.
+
+[Part 4](https://www.reddit.com/r/nosleep/s/MRVd9yY7jw)

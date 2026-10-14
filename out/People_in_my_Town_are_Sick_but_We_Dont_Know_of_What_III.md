@@ -1,0 +1,34 @@
+In the time since my last post, things have taken such a dive that I truly struggle to think of a way to explain what has happened. If you have not read my previous transmissions, my city of Santa Fe is facing a terrible sickness that has spread and killed rapidly. After the government took control and divided the people by neighborhoods with large walls, they have enforced strict, militaristic control over everything. When a guard fell from a tower, shooting at something unknown, a leader of our neighborhood was killed in cold blood by a soldier while speaking out against the occupation.
+
+​	Since that time, every leader in this prison as well as I have made the effort to keep the peace and plan for the future. Until very recently, we have been successful.
+
+​	A few days ago, on an especially hot one when the people rested in the shade of their porches and looked to the tops of the walls as guards traversed to and from, a vicious cry rang out that sent the town into a frenzy. Looking out of my window, I watched as guards ran to a point just out of my sight and, after a slight pause, began firing rapidly at something far out.
+
+​	Like ants, people below scattered about, fearing for their lives, but when the firing ceased, the crying out did not. Opening my window to peer out further, I watched as the soldiers stared outside the wall dumbstruck before a body crashed into and sent them flying limp. Cries and screams from townspeople rang out, horrified, as gunshots blasted again.
+
+​	As soldiers moved into tactical position and fired at something that jumped and whirred in the air with unbelievable speed, a large explosion covered the entire corner of the upper wall, absolutely disintegrating anything caught within it.
+
+​	Cries of shock and confusion erupted through the town, and without missing a beat, more military men poured from the wall into the neighborhood, barking orders.
+
+​	“It is time to evacuate! There is no time to wait if you wish to live.” And to my surprise, not a soul moved. All looked upon the men with hateful stares.
+
+​	“You expect us to believe a word you say? What of the man you killed? Did you have a concern for his wish to live when your men shot him down?” A man standing in the front barked right back at the armed man. I searched the soldiers' eyes, expecting to see the violent rage of conflict building like before, but I did not find it. Instead, looking to the top of the wall nervously.
+
+​	“Suit yourselves. If you cannot find yourself to trust us any longer, then you will die!” Just as he finished speaking, one of the neighborhood's leaders came forth with his hands up cautiously, obviously wanting to escape becoming another example.
+
+​	“Please, people! Anger is justified for what happened, but do not allow us to tear ourselves apart! Hear them out at least!” The crowd looked upon him with a stern curiosity. “Sir, I’m sure every one of us would be far more inclined to follow your lead if we understood the danger at hand. If you don’t mind-”
+
+​	“That's classified!” He interrupted and the crowd shifted in anger, beginning to step forward as the military raised their guns in unison. The leader in the crossfire raised his hands to the heavens and cried out.
+
+​	“Enough, please! Stop this now!” For a moment longer, silence engulfed the neighborhood until a silent creaking sound lifted above the crowd. Maybe a dozen feet above the ground level, clinging onto the wall was something. A terrifying thing monstrous and decrepit. The specific features I did not get a chance to uncover; as in the moment of the people noticing it, the thing leapt into the crowd like a panther.
+
+​	Pandemonium spread through the crowd as the thing ripped and tore through bodies like butter, and the military fired, mostly only accomplishing hitting civilians. From there, I would love to report on the specifics of what happened, but I could only give information on my own rush to safety.
+
+​	As described in underground meetings, in case of some form of emergency, the tunnels underground would be utilized for cover and sealed to protect from an exceedingly vile threat. I figured there was no better time to enact such a plan. Rushing with gallons of adrenaline, I am ashamed to admit I fell down the stairs on the way to ground level and undoubtedly shattered a bone in my wrist.
+
+​	Even still, I was not stopped from making it down to the tunnels where many on the ground level had already gathered. Dozens crowded into the open doorways, most shrieking and covered head to toe in carnage. A large man holding the door open stared aghast as the thing bolted directly towards the opening.
+
+​	“What the hell are you doing?” Another screamed at the man before the shrieking thing dug its bony, shell-like finger into his skull, sending the door collapsing down. This severed the man's lower half and left the rest to that beast outside.
+
+​	Now, in silence we wait, and I can only hope that if the beasts could enter these tunnels, they would have already done so. Aid has gone through to the survivors, discovering the extent of the damage as we speak. Though, while we know that, the fate of the other neighborhoods and the military as a whole is yet to be discovered. I do not wish to die, but I consider my logging of events to be beyond important and will do anything in my power to share what I learn. So if I die in the search for that, then that is just how it will have to be. Look for my next log if you will, but if you are unable to find it, then do not doubt that it is only because I have met a terrible fate.
+

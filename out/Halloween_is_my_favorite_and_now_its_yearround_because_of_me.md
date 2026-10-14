@@ -1,0 +1,102 @@
+Halloween is the one night of the year you get to dress up as anything you want, and no one has to know who's under the mask or make-up; it's perfect. 
+
+I'm the most introverted person there's ever been. If you do meet me, you won't. Unless you're a family member crossing my path in a grocery store which obviously doesn't count. I'll give you a made-up name, job, and find a way to get out of the conversation. I'll make sure that I don't see you again or, at the very least, make sure you don't see the other fictionalized version. In my life, Halloween is every day. No one ever has to know who I am. Whether or not I stay in character, it doesn't matter.
+
+It started with me getting ready in my bedroom, trying on all the new costumes I'd gotten. I already had hundreds and hundreds more from childhood that my mom made me keep; she felt the opposite about Halloween. Kids have obsessions and mine was being someone else.
+
+Even being 20 years from then, it still consumes my waking hours, constantly finding who else I can be. Having my own studio apartment and disposable income working from home, I like to say:
+
+“I’m a kid at heart, stuck in a 30 year old body.”
+
+The TV blared loudly behind me with music and when whatever song was playing faded out, a deep voiced man declared:
+
+"I'm tired of looking the way I do," he said. His voice and look carried a sadness similar to Eeyore.
+
+"Well do we have a fix for you!" A supposed doctor said at a violent volume, causing a ringing in my ears for a split second after. I shook it off and glared intently at the screen by the time I registered the word "fix."
+
+"Introducing Mixobarboxetine! The state-of-the-art anti-anxiety and sleep medication! Side effects may include-"
+
+A phone number popped up on screen, and I immediately scrambled for my phone to start dialing, not paying attention to the rest of the ad. Impatiently, I waited through every ring while pacing to the tone. Voicemail. I never call twice, but I was desperate. Pacing faster now, I was interrupted before the first ring to meet the same fate.
+
+"Become whoever you desire, TODAY!"
+
+While I set the phone down disappointedly, the doorbell rang. I was upset, but the night had to go on. I shut the TV off and headed to the kitchen for the trick or treaters bucket of candy, but I noticed two things. The ad and number I had just called had burned itself into the TV display and a generic bottle of pills sitting on my breakfast nook.
+
+I had more than a few concerns about what had just happened. The doorbell rang out twice more, beckoning me to hurry up and decide between my lame costume, or whatever wonderland was held in the orange container. The contrast in color to the rest of the room made it impossible to ignore, engraving its image into my mind’s eye. I quietly walked to the door and peered through the peephole, I instantly knew what I had to do.
+
+I opened the door to three little boys with, what I assumed was their single father. It was three of the four ninja turtles with their Master Splinter. 
+
+“Well hello kids! You came to the right place, your leader is here!”
+
+Michelangelo, Donatello, and Raphael all stared blankly at me. Master Splinter looked at me with a tinge of anger and fear. There was a long silence before the dad nudged them and simultaneously all said, “Trick or treat” in the most monotone and disinterested voice possible for such blissful ignorance. I dropped 3 pieces into each of the boys’ pillow cases and they slowly backed up and continued around the complex.
+
+“What just happened?” I said out loud to myself. Kids are full of glee this night of the year and they all acted like they just saw disabled Freddy Krueger in their dreams. Did the pills work?
+
+I looked in the mirror beside my bed and saw that what I became wasn’t what I wanted at all. Bubbling and oozing green flesh covered my body, a turtle that had been thrown into Chernobyl to survive on its own. I was about a whole foot taller and I hadn’t even noticed. I pulled my phone back out to look at the picture of Leonardo I had googled and really tried my hardest to look exactly like him, but nothing. Still just a mess of a viscous and clay-like substance, pooling on the floor. Pondering my options, I decided to turn back to myself and looked at just about the only picture I had of myself from a few years back, back when Mom cared more. Then it hit me.
+
+Looking back into the mirror once more, I noticed I was back to being just as young in the photo. I was perfect, no more oozing or bubbling, I was just me. The younger, happier me. I was no longer who I was moments before the abominable tortoise. Even beyond the physical form I had taken on, I was just as happy and carefree as I was when the picture was taken. Thankfully I didn't have any others from recent times. 
+
+These next couple hours, I decided to do some testing on the limits of this drug while also trying to scare the visitors I had every so often. I tried looking like Jack Sparrow, Jason Voorhees, Hannibal Lecter, Jack Torrance, and so many others to no avail. The same exact thing would happen as Leonardo. So, I started thinking outside the box more: Jack Nickelson in character in The Shining, Anthony Hopkins in Silence of the Lambs, and so on. They all worked exactly as I thought. The fictional version of them doesn’t exist, but the actors, their stage direction, and characters while filming do. I even gained their acting skills.
+
+The kids and parents alike were impressed with my “costumes” after that realization. I knew most of them thought I was a former Hollywood make-up artist, it made me feel human again. The effects started to wear off and much quicker than I had imagined. I felt myself grabbing the bottle more and more often, it seemed endless. With an intense rush of adrenaline and dopamine flooding my mind, I knew the drug didn’t completely change me, but even going ten minutes without it after wearing off, I felt the heavy withdrawals. That was until I decided to take things further. Everytime I took it, it felt like I was putting on another sweater in an ice storm that only worsened. 
+
+I peered through the door to see what was clearly 3 adult men under bedsheets with holes for the eyes. So, I decided to give them a good scare for the lack of effort. Ed Gein was the best thing I could think of. The second I switched, I knew it was a mistake.
+
+“H-hey folks, want some-” my voice trailed off, I saw the most beautiful blonde woman I had ever seen, costume or not. The timidness of my demeanor and sudden speechlessness made them question the validity of my disguise. The validity was there; I had unexplainable urges. The real me and real Ed fought internally with a sort of cohesion like Newton’s cradle, back and forth and back and…
+
+“What are you guys up to tonight?”
+
+“Uhh… What dude? It’s Halloween, what do you think we're doing? Trying to get some free shit tonight.”
+
+“Ah, right right,” Ed said sheepishly. “Well I can give you free stuff, try one of these.” Ed walked back in my apartment and quickly grabbed the orange bottle. I was a passenger in my own body. I had no control and I had an ache in my stomach telling me I just had to wait it out like a bad magic mushroom experience.
+
+“What is it?” The woman questioned
+
+Before Ed could answer, I felt our hearts thud faster against our ribcage. “Lets just call it ‘the nice drug.’”
+
+“Hey man, we’re not taking it if we don’t know what it is! That shit could be laced and I’m sure as hell not taking it.”
+
+“What if I said it’ll be the best time of your life?”
+
+I felt a hard slap as soon as Ed finished the sentence and peeked out, watching them all walking away down the complex balcony. Ed had disappointment and rage flowing through him. I felt the rusty gears turning, contemplating what to do next. He wanted that girl from before, but not with those men around her that would beat him senseless. He saw a child with their parents below in the common area and an idea popped in his mind. He grabbed a knife from the kitchen.
+
+I fought and fought to gain back control before he grabbed the mother dressed as a basic vampire. I couldn’t do anything, I just had to watch. He slit her throat and drug her body next to a dumpster and started fileting her flesh, stuffing the bits of meat into his pocket. He quickly rushed over and he had transformed into the woman he just killed. His thoughts started to clash with mine, how did he do that?
+
+“Hey honey, sorry I had to use the ladies room,” she said in a sweet, motherly tone. Ed became aroused, and mixed my horrified anguish, it felt like the world was a spinning top at ten thousand RPM.
+
+“That’s alright, I think it’s time to head home anyways,” the father said. 
+
+“Aww, no way! My candy bag isn’t even half full!” The small girl stomped her feet while beginning to cry.
+
+“You know we have church tomorrow morning. We have to be up early for that.” The mother said reassuringly, “After, we’ll get you all the candy you want to fill it up to the very tippy top!”
+
+The girl's face looked up excitedly to reveal sea blue eyes that stood out even in darkness.
+
+“Oh! I forgot something in the bathroom, I’ll catch up!” The father turned and gave a wide smile back, still thinking this was the love of his life.
+
+She went up to my apartment in a hypnotic state to see that the main room floor was covered in Tic-Tac looking white pills. She picked two up, walked out, left the door open behind her, and hurried back to her family.
+
+“Let's go have some candy!”
+
+Getting back to their home, I felt the effects start to wear off. The sludge that was forming her face and body started to blister and form to gravity. I felt every acceleration of the car speed up the process of decay. Walking drunkenly through the front door, with the husband and kid just behind, they knew something was wrong. Following her, keeping a safe distance, they watched as a naked me appeared through the grey slime that was once this child’s mother and I fell to my knees. The withdrawals mixed with the freedom of having control over my own thoughts again, created that horrible mix of hangover and peace.
+
+“Mommy? What are you?”
+
+I turned around and watched the fear grow in the father’s eyes, pick up the child, and turn to run. I felt around the sludge and saw that the pill had multiplied to four. I instantly popped one in my mouth and swallowed through the dry desert that was my throat, weakly sliding down into an empty pit. The surge of adrenaline had me chase after them and I had to force one down each of their throats.
+
+The anger, jealousy, and lust had my thoughts lost on who the real me was. I ran faster than I ever had, even through the melting, and now painful popping of my oobleck flesh. My melting scalp drooped over my eyes blocking my sight, but I still caught up to the father carrying his daughter, causing him to fall hard onto his knees and catch himself before putting his full weight on her. They tried to get up to run but my now slug-like form got their legs, trapping them like tar. 
+
+“Man… what a night. You’re fast!” I said to them, surprised by my real and enthusiastic voice from the past, like it had been ages since I last heard it. I felt the pills slide out of me and a hand-like appendage stretched out to force open their mouths. Through their crying, my mind was at peace again.
+
+I didn’t care about the remorse I would feel. The pills were an infinite fight towards the dragon I’d never be able to catch. At least, I’d never have to me again.
+
+Going back into the grand house that was once this family’s, I grabbed the candy bucket beside the door. I tossed the remaining candy out and put a single pill inside. I watched as they multiplied their matter with amazement.
+
+I heard the child and father start laughing and peered outside. They were as quickly hooked onto the pills as I was and started morphing into each other, back and forth, seemingly forgetting had just happened moments before. When they also both seemingly forgot who’d they really were, mirroring each other, became the same person, they morphed together as one. What I imagine as a black black hole, formed between them, sucking them in, and creating a pile of grey dust as if their bodies were cremated together. This made me smile, of course only on the inside, my real smile was more of a post-fat loss journey of loose skin, denying the muscle of creating any shape.
+
+When the bucket was full, I walked back out into the street and yelled, “Free candy!” I watched as the swarm of men, women, and children alike, scrambled for the infinite mysterious pill. Now, the world would forever be in a purgatory of infinite cycles of being someone else until they found their identical twin. 
+
+My addiction was, in reality, my own best friend. I live in a beautiful house that isn’t mine, without a name, without a job, and without responsibilities. It’s forever Halloween, and I don’t regret a single thing because of one simple reason:
+
+*It was never me who did it.*
+

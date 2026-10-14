@@ -1,12 +1,12 @@
-I turned twenty-nine on a Thursday, which meant I spent my birthday teaching twenty-two eight-year-olds the difference between *there*, *their*, and *they’re*. They made me a card that said HAPY BIRTHDAY MS. ELENA YOUR THE BEST TEACHER EVER, and little Dominic had drawn me wearing a crown, with arms down to my knees. I propped it on my desk where I could see it all day, and every time I looked at it, I had to pretend I had something in my eye.
+I turned twenty-nine on a Thursday, which meant I spent my birthday teaching twenty-two eight-year-olds the difference between *there*, *their*, and *they’re*. They made me a card that said HAPY BIRTHDAY MS. ELENA YOUR THE BEST TEACHER EVER, and little Dominic had drawn me wearing a crown, with arms down to my knees. I propped it on my desk where I could see it all day.
 
-At home there was Pancake, a fourteen-year-old beagle I’d adopted the year before. He had three teeth and a heart murmur, and he greeted me every evening like I’d come home from a war. Most nights it was just the two of us, a bowl of pasta, and whatever I was grading, and most nights that was enough.
+At home there was Pancake, a fourteen-year-old beagle I’d adopted the year before. He had three teeth and a heart murmur, and he greeted me every evening like I’d come home from a war. Most nights it was just the two of us, a bowl of pasta, and whatever I was grading. A most nights that was enough.
 
-I had a father, technically. He left when I was eight. That spring I’d made it to the final round of the school spelling bee, and I spent the whole competition watching the gym door instead of the judges. I won anyway, on the word *necessary*. For years afterward I kept the blue ribbon in my desk drawer, in case he came back and wanted to see it.
+I had a father. He left when I was eight. That spring I’d made it to the final round of the school spelling bee, and I spent the whole competition watching the gym door instead of the judges, expecting him to burst in. He never did. I won anyway, on the word *necessary*. For years afterward I kept the blue ribbon in my desk drawer, in case he ever came back.
 
-After school I bought myself a fuzzy cardigan and some perfume I’d been eyeing for months, because if nobody else was going to spoil me, I was perfectly capable of doing it myself. Then I found a bar with dark booths and photographs of dead people on the walls, and settled into a corner with a gin and tonic and a stack of spelling tests.
+After school I bought myself a fuzzy cardigan and some perfume I’d been eyeing for months, because if nobody else was going to spoil me, I was perfectly capable of doing it myself. Then I found a bar with dark booths and photographs of dead people on the walls, and settled into a corner with a margarita and a stack of spelling tests.
 
-I got fifteen minutes.
+I got about fifteen minutes of alone time.
 
 “What’s a young lady doing alone in a place like this?”
 
@@ -16,7 +16,7 @@ Two old men stood at my table. One was tall and silver-haired, in a cream sweate
 
 The short one laughed, a big, delighted laugh that turned heads at the bar. “Mind if we keep you company while you grieve?”
 
-They introduced themselves as Mark and Harold. They were eighty-five and seventy-eight, they were charming, and I was two gin and tonics in, so I moved my spelling tests and let them sit. Harold noticed my shopping bags and asked what the occasion was, and when I told him it was my birthday, he sang to me right there in the booth. He had a lovely voice, warm and a little old-fashioned. Mark joined in, and he definitely did not have a lovely voice. I laughed so hard I had to beg them to stop.
+They introduced themselves as Mark and Harold. They were eighty-five and seventy-eight, they were charming, and I was two margaritas in, so I moved my spelling tests and let them sit. Harold noticed my shopping bags and asked what the occasion was, and when I told him it was my birthday, he sang to me right there in the booth. He had a lovely voice, warm and a little old-fashioned. Mark joined in, and he definitely did not have a lovely voice. I laughed so hard and my face turned a deep read, I had to beg them to stop.
 
 “How old?” Mark asked.
 
@@ -32,7 +32,7 @@ Harold let out a long breath, the way you would at a vintage on a wine list. “
 
 Neither of them drank. Harold had orange juice, and Mark had something fizzy with mint. They’d given it up, Mark explained, because it was hard on the body. He glanced at my glass and smiled. “Yours can handle it, of course.”
 
-They paid my tab before I could reach for it, and then they took me to a cocktail lounge, and then a comedy club, where Harold critiqued every punchline in a whisper until I was crying with laughter into my drink. In between, they asked about my life, and they actually listened. I told them about Dominic, who wanted to be a shark when he grew up, and Maya, who corrected my Spanish with the patience of a saint. Mark listened to every word like he was memorizing it. Harold asked follow-up questions about the shark. By the end of the night, they knew the names of half my class.
+They paid my tab before I could reach for it, and then they took me to a winery, and then a comedy club, where Harold critiqued every punchline in a whisper until I was crying with laughter into my drink. In between, they asked about my life, and they actually listened. I told them about little Dominic, who wanted to be a shark when he grew up, and Maya, who corrected my Spanish with the patience of a saint. Mark listened to every word like he was memorizing it. Harold asked follow-up questions about the shark. By the end of the night, they knew the names of half my class.
 
 It was the best birthday I’d had in years.
 
@@ -90,15 +90,11 @@ I’d fallen asleep on the couch, and the next morning, my back ached.
 
 After that, they became part of my weeks the way weather does, so gradually I didn’t notice when it happened. There were Sunday dinners and Wednesday phone calls. Harold emailed me terrible jokes, always in capitals. Mark mailed me postcards even though we lived twenty minutes apart, with neat, slanted handwriting that said things like *Thinking of you. Hope the Z-speller is improving.*
 
-Mark started teaching me piano on Sunday evenings. I was hopeless at first, but he was patient in a way I’d never experienced from a man. He’d put his hand over mine on the keys and say, “Again, slower,” and he never once sighed. I bought a cheap keyboard and practiced at night after grading, while Pancake snored on my feet.
+Mark started teaching me piano on Sunday evenings. I was hopeless at first, but he was patient in a way I’d never experienced. He’d put his hand over mine on the keys and say, “Again, slower,” and he never once sighed. I bought a cheap keyboard and practiced at night after grading, while Pancake snored on my feet.
 
 One Saturday, Mark showed up with a small toolbox and fixed the hinge on my kitchen cabinet that had been hanging crooked for a year. He made me hold the screwdriver and walked me through every step. “So you’ll know how, next time,” he said. I could have watched a video and done it myself, but I didn’t tell him that. I just stood very close to him in my little kitchen and did exactly what he said.
 
 I found my first gray hair in November. Then three. Then six. My knees started cracking when I sat down on the reading rug for story time, and the kids thought it was hilarious. They started making cracking sound effects whenever I lowered myself down, and I took a theatrical bow every time.
-
-My doctor ran bloodwork, and everything came back normal. “Stress,” she said, without looking up from her clipboard.
-
-“I teach third grade,” I said. “So, that makes sense.”
 
 At a Christmas market in December, a woman grabbed Mark’s sleeve. She looked sixty, gray-faced and stooped, but she was wearing a university sweatshirt with a graduation year on it that couldn’t have been more than five years old.
 
@@ -114,15 +110,15 @@ But I didn’t like the way she’d been led off. So when they stopped at a cand
 
 I sat down next to her. “I’m Elena. What’s your name?”
 
-She looked at me for a long moment, as if she were trying to remember how to answer. “Claire,” she said finally. “I’m a pediatric nurse. I was.”
+She looked at me for a long moment, as if she were trying to remember how to answer. “Claire,” she said finally. “I’m a pediatric nurse. Well, I was.”
 
 “I teach third grade,” I said. “Between us, we’ve got every kid in the county covered.”
 
-She almost smiled. Her hands were shaking, so I took off my new scarf and wrapped it around her neck, and she touched the wool like she hadn’t been given anything in a very long time. When Mark found me a few minutes later, I turned to answer him, and when I turned back, Claire was gone. I looked for her for the rest of the night.
+She smiled. Her hands were shaking, so I took off my new scarf and wrapped it around her neck, and she touched the wool like she hadn’t been given anything in a very long time. When Mark found me a few minutes later, I turned to answer him, and when I turned back, Claire was gone. I looked for her for the rest of the night.
 
 Right before winter break, the district named me Teacher of the Year.
 
-There was a ceremony in the high school auditorium, with a podium and folding chairs and a slideshow that kept freezing. My mother couldn’t get off work, so she watched on a video call from her break room, her face tiny and proud on my principal’s phone. I’d told Mark and Harold about it in passing. I hadn’t actually asked them to come.
+There was a ceremony in the high school auditorium, with a podium and folding chairs and a slideshow that kept freezing. My mother couldn’t get off work, so she watched on a video call from her break room, her face tiny and proud on my principal’s phone. I’d told Mark and Harold about it in passing.
 
 When they called my name, I walked up to the podium with my heart pounding, and I looked out into the audience, and there they were in the second row. Mark was wearing a suit and tie. Harold was already crying. On each of their lapels was a small, slightly crumpled gold star.
 
@@ -130,7 +126,7 @@ I’d prepared a speech, but I don’t remember a word of it. I remember that I 
 
 Afterward, Mark hugged me for a long time. “We’re so proud of you,” he said into my hair. Harold kept wiping his eyes with a handkerchief and telling strangers, “That’s our girl,” until I had to drag him away from a very confused janitor.
 
-“The good ones are always worth the wait,” he said in the parking lot, kissing my cheek. I laughed and told him he was a sap.
+“The good ones are always worth the wait,” he said in the parking lot, kissing my cheek. I was beaming and told him he was a sap.
 
 That night, I took the blue ribbon out of my desk drawer and put it on the fridge, next to the receipt.
 
@@ -178,7 +174,7 @@ At recess, Maya held my hand while we watched the four-square game. She turned i
 
 She thought about it. “My abuela’s really old.”
 
-The kids around her giggled, and I laughed too. Then I spent my lunch break in the staff bathroom, staring at my knuckles under the fluorescent lights.
+The kids around her giggled, and I did too. Then I spent my lunch break in the staff bathroom, staring at my knuckles under the fluorescent lights.
 
 Mark, meanwhile, looked wonderful. His cheeks had filled out, and the deep lines around his mouth had softened. When I asked him what his secret was, he smiled and said, “Plenty of sleep. Ten o’clock, every night.” Harold had stopped wearing his glasses. I told them they were both aging backward, and they laughed, and Mark reached across the table and squeezed my swollen hand very gently, like it might break.
 
@@ -204,7 +200,7 @@ I ended the call. For a moment, I barely recognized my reflection on the black s
 
 On Friday, Pancake whined at the door when I left. He’d never done that before either. I knelt down, slowly, because of my knees, and kissed the top of his gray head and told him I’d be home soon.
 
-Harold made vegetarian lasagna, slightly burned around the edges, which he insisted was a choice. Mark answered the door in a blue shirt I’d never seen before. His hair was darker. Not by much, just enough to notice.
+Harold made vegetarian lasagna, slightly burned around the edges, which he insisted was a choice. Mark answered the door in a blue shirt I’d never seen before. His hair was darker.
 
 “There’s our girl,” he said, and hugged me so tightly my back popped.
 
@@ -230,7 +226,7 @@ Mark’s hands went still on my shoulders, just for a moment, and Harold said, v
 
 “Close your eyes, dear,” Mark said.
 
-I did. The mantel clock ticked. I could feel my skin folding under his fingers, and somewhere in my bag, my phone buzzed. It was my mother again, and then again. I let it ring.
+I did. The mantel clock ticked. I could feel my skin folding under his fingers.
 
 Harold went back to the piano and played the old song about a girl waiting for someone to come home. His voice cracked on the last verse, and I opened my eyes long enough to see him wipe his face with the back of his hand.
 
@@ -248,12 +244,10 @@ He rested his cheek on the top of my head, and I reached back and found his hand
 
 “Love you too, dear girl.”
 
-When the clock struck ten, neither of them asked me to leave.
-
-And I was so happy about that.
+When the clock struck ten, neither of them asked me to leave. And I was so happy about that.
 
 I woke up on Mark’s couch the next morning with the scarf from the Christmas market folded over my legs. The house was empty. The piano was closed, and the shelves were bare except for a single framed photo of me and Harold on the cliff, still with its little gold star. 
 
-They emailed me this morning. All capitals, from Harold’s account.
+I checked my phone. They had emailed me this morning. All capitals, from Harold’s account.
 
 WE MISS YOU, SWEETHEART. YOU LOOK SO WELL IN THE PICTURE. COME FOR DINNER FRIDAY?
