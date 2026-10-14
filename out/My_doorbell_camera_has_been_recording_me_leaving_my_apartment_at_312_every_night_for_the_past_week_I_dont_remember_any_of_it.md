@@ -1,0 +1,84 @@
+I've read this sub for years and never written anything. But it's 7:10 in the morning and I've been awake since around 3:30 am. I don't have anyone I can say this to out loud without them looking at me like I've lost my mind...  
+  
+I should say first that I'm fine. Nothing has happened to me. No harm physically, or psychologically except extreme stress and anxiety.  
+  
+All of this started with a lamp.  
+  
+Three weeks ago somebody stole a package off my front step. A desk lamp, brass, green shade, the antique kind you see in old movies. I'd wanted one for years. The delivery app said "left in safe place" aka my door step, but when I got home from work I was met with a dry rectangle on the concrete where the box had been placed during the rain.  
+  
+I know a lamp isn't a big deal. But I'm not a person who gets things taken.   
+  
+I'm a person who checks. I do the back door three times before bed, deadbolt, knob lock, chain, and then I put my hand flat on it to feel it hold. I sleep with the kitchen light on. I've lived in this apartment six years and nobody has ever taken anything from me because I don't give them the chance. So the a stolen lamp isn't just something I can get past.  
+  
+This whole incident led me to then buy a doorbell camera. A full forty-nine dollars without any discount. My friend came over on Saturday and read the instructions out loud in a dumb voice while I sat on the chair and fiddled with a screwdriver. It's a little white camera that records when it sees movement and sends you a buzz notification to your phone. It perfectly captures the door step, the walkway, gate, a piece of the street, and the corner of the railroad bridge at the end of the block.  
+  
+The first week was honestly lovely. I'm not proud of it but I watched everything. There are two foxes that come up the walkway around 1:30 most nights and sniff where the lamp was. There's a gray cat that sits on the wall and stares into the lens. The mail carrier comes at 11:40 and never shuts the gate. And a man living across the street goes out with his dog at 6:15 sharp every morning. On Tuesday he looked up into the camera and mouthed "morning" and I nearly gasped.   
+  
+It made the outside of my door a known thing. Everyone who'd stood on my step, I'd seen. I slept better that week than I have in years. I remember thinking that.  
+  
+The only thing the camera didn't like was the train. There's a freight line at the end of the block. I stopped hearing the trains years ago, the way you stop hearing a buzzing fridge, but the camera picked up the vibration, so two or three times a night it'd buzz me for a clip of the empty step with the whole picture trembling. I turned the sensitivity down but it kept pinging me.  
+  
+Last night I was in bed doing my scroll through the day's clips. Fox at 1:28. Fox at 1:31. Then one at 03:12:40 and I nearly swiped past because 3:12 is always the freight.  
+  
+Thats when my heart dropped. The thumbnail was a person.  
+  
+I jumped out of bed and turned the bedroom light on. I know that's a strange thing to do when you're looking at a phone but I wanted the room to be lit. For whatever I was about to see.  
+  
+The clip is twelve seconds. The picture trembles in pixels as the train goes by underneath. And then my front door opens. From the inside...  
+  
+A woman comes out. She's wearing my coat, the long black one from the hook in the hallway. Hood down, and it's raining, and she doesn't seem to have a care in the world. She pulls the door shut, takes a key out of her pocket and locks it. Deadbolt then knob, fast, like its a reflex and she's done it a thousand times. She walks down the walkway, goes through the gate, and shuts the gate behind her, which nobody ever does. She turns left, toward the bridge.   
+  
+Then gone.  
+  
+She isn't sneaking. She isn't hurrying. She's a woman going somewhere she goes.  
+  
+I watched it nine times. On the fourth time I paused it as she turned from the door. With trembling hands I zoomed into the video and realized it's me.
+
+I don't mean it looks like me. I mean if you showed me that clip and said "this is you leaving your apartment" I'd say yes, that's right.   
+  
+Except I was in bed. I'd locked the doors and put my hand flat on the back door. I still remember only getting in bed after I felt it hold, then I slept and woke up at seven with the alarm.  
+  
+So I scrolled back.  
+  
+Tuesday, 03:11:52. Door opens. Coat. Key. Gate. Left.  
+  
+Monday, 03:12:15.  
+  
+Sunday, 03:13:03. My friend's wine glass is still on the step in that one, where she'd left it, and the woman in my coat steps over it without looking down.  
+  
+Saturday. Friday. Thursday, the day the camera went up.  
+  
+Every night. Every single night since it's had eyes. Same minute, give or take, with the train going by underneath.  
+  
+And every morning around five, a clip of her coming back. Up the walkway from the left. Key. Deadbolt, knob. Door shuts. Picture goes still.  
+  
+Except Sunday.  
+  
+Sunday, 05:02:17, she comes up the walkway and stops on the step. Right where the man upstairs stood. And she looks up. Straight into the lens, the way he did, the way the cat does. Her face is wet and her hair's stuck to it and she's completely calm. She holds it for maybe three seconds.  
+  
+Then her mouth moves. Two syllables, maybe three. No sound, the camera doesn't do sound at that distance, just the shape of it.  
+  
+I've played it twenty times. I've slowed it down. I've held the phone an inch from my face. I cannot tell what she's saying. I don't know if she's saying it to the camera or to whoever's watching the camera, and I'm the only one who watches the camera.  
+  
+Then she looks down, gets the key out, and goes in.  
+  
+I didn't sleep. I sat against the headboard with the phone face down on the comforter and the light on and listened to the apartment, and there was nothing to hear, because it's my apartment and I'm the only one in it. I kept saying that to myself. I'm the only one in it.  
+  
+When it got light I went into the hallway.  
+  
+My coat was on its hook. Where it always is. I stood in front of it for a while before I touched it, and when I did, I put my hand flat on it, the way I do the door.  
+  
+The hem is wet. Not damp. Wet. The bottom few inches heavy and cold, and the lining stuck to the outside in one spot, and when I peeled it away there was pale stuff on my fingers that under the kitchen light turned out to be the white caliche mud you get up by the railroad bridge. Where nobody goes.  
+  
+I've got a scar on the inside of my left arm. Long, white now. From an accident before I moved here that I don't really remember. I never think about it. But standing in the hallway this morning I noticed my right hand had gone to it and was holding it, the way you'd hold someone's wrist to stop them from going somewhere.  
+  
+I've typed "sleepwalking?" into my notes and taken the question mark off and put it back on. My doctor's office opens at eight. I'll call them. I know that's the sensible answer and I know some of you are going to say it in the comments and you're probably right.  
+  
+But here's the thing I can't get past, and it's why I'm writing this instead of sleeping.  
+  
+I've told everyone who'll listen that I don't hear the trains anymore. Six years by that line, you stop hearing them.  
+  
+But I knew what time the 3:12 came through. Before I ever saw that clip. I've always known.  
+  
+I'm going to stay awake tonight. I'll update.
+
