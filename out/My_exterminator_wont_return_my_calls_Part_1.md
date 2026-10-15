@@ -1,0 +1,55 @@
+A couple weeks ago I began to notice a decline in the insect population around my house. Months of hanging up fly paper and cleaning my home vigorously had done little in the way of curbing the infestation. It seemed to be a yearly occurrence at this point. Summer would begin to set in, followed by a mass migration of creepy crawlies trying to find a cool, shaded place to hunker down. I have little tolerance for squatters and, last time I checked, none of these bugs were paying rent—so they had to go. 
+
+At first I thought that the sudden scarcity of unwanted guests had been brought upon by my own skillful use of bait, traps, and chemical sprays. I’ll regretfully inform you now that this was not the case. 
+
+My first causes for concern were the exoskeletons. I should have been more clear before. When I said that the insect population was declining, I meant the *living* population. Since about two weeks ago I’ve been finding these—shells in various corners of the house; dead bugs that seem to crumble apart like dried leaves under small amounts of pressure. I almost jumped out of my skin the other day when I heard a dry \*crunch\* sound come from beneath my foot. I had just stepped out of my bedroom, and when I looked down I was met with a small pile of dead beetle remains. While this was an odd phenomenon to say the least, it paled in comparison to my next discovery.   
+  
+I found it in my dresser.   
+  
+It happened early in the morning while I was getting ready for work. I was running late and desperately trying to make up for lost time by eating breakfast on the go. With half a bagel clenched between my teeth, I remember opening up one of my dresser drawers to grab a top. As I reached down towards a neatly-folded shirt, my eyes locked onto a small, dark form and I immediately drew my hand back and let out a shriek—which was only slightly suppressed by the bagel ejecting from my mouth.   
+  
+There, sitting on one of my shirts, was a large brown spider.  
+  
+Its legs, nearly the same diameter as a golf ball, twitched slightly as I scrambled backwards. Almost tripping over my bed, I grabbed a dirty shirt from the top of my laundry basket and bolted out of the room. Spider be damned, I wasn’t going to be late for work again this week. I’d have to deal with it later. 
+
+However, when later came, the eight-legged intruder was nowhere to be found. I spent about twenty minutes creeping around the house, expecting to catch a glimpse of the arachnid in a dark corner or on one of my walls. The search turned up nothing. Feeling defeated and sufficiently fatigued from the eventful day, I gave up the search and decided not to let it ruin my evening. Out of sight, out of mind. 
+
+The next morning, about four days ago now, I awoke dangerously close to noon. Sure, it was my day off, but I’m not the type of guy to sleep half my day away for no good reason. Groggily, I sat up and wiped the sleep from my eyes. I rolled out of bed and began to stretch, but paused a few seconds after my bare feet made contact with the floor. 
+
+It was a weird feeling. Somewhere between a light tickling sensation and an itch. I looked down as I felt the sensation travel from the top of my foot to my ankle. When my eyes locked onto the cause, I felt all of the blood drain from my face. 
+
+It couldn’t have been the same spider as before. No. This one was nearly twice the size of that one. It had stopped moving upon my discovery and now laid flat against my leg, just below the knee. I could see the late morning light reflecting off of its three pairs of eyes. It was a horrifying sight.
+
+I made a sound that’s about as hard to describe as it is to replicate. Shaking my leg like a leaf in a hurricane, I grabbed my phone, took off out the door, and didn’t stop running until I was standing shirtless on my front porch. I took a moment to catch my breath, then dialed the number for my local pest control company.   
+  
+After three or four rings I was answered by what sounded like a middle-aged man. I asked if he could come by my house today to take care of my spider problem. He claimed that his whole crew was booked out for the day, but assured me that he would come by personally first thing tomorrow morning. I begrudgingly accepted his offer and hung up. I can survive another day, right? It was just a spider after all. The little monster would probably be hiding away until the exterminator showed up. Still, I wasn’t taking any chances.   
+  
+For the rest of the day, I kept my head on a swivel. I checked every doorway before entering the next room and made sure to inspect all items closely before picking them up. Something about knowing this thing was in the house somewhere had brought upon me a paranoia that I had never before experienced. Every dark corner was a potential lair. Every crevice was a possible trap. My safe haven had been violated and I doubted I could relax until I knew the threat was removed.  
+  
+That night was a restless one. I kept picturing spindly appendages feeling their way over the side of my bed, waiting for me to make a sudden movement. I felt like prey. Even the few times I managed to slip into unconsciousness, it would be a brief respite followed by sudden wakefulness and subsequent panic. How many were there? There had to be at least two of the things. I pictured thousands of small, brown masses moving between the walls. Gritting my teeth, I attempted to blink those thoughts away.  
+  
+When morning finally came, I felt like a wreck. My eyes were puffy and my mouth was dry. I almost didn’t notice the sound of my doorbell ringing. I made my way to the front door as quickly as my tired body would allow. The man standing on my front porch looked exactly like expected: Average height with a receding hairline, five o'clock shadow, and belly that his button-up shirt must have been seriously struggling to contain. I welcomed the man inside and gave him a quick tour of the house while explaining my situation in further detail than our brief phone call had allowed. As we made our way through the dining room I noticed the man kneel down and reach towards the floor. He brushed his hand around one of the dining room chairs while mumbling something under his breath. When I asked him what he was looking at, he pointed out a wispy little web. I met his eyes with a puzzled expression. 
+
+“Fiddleback.” He stated.   
+  
+My confused silence prompted him to elaborate further. 
+
+“Fiddleback.” He repeated. “It’s what we call those little fuckers from the Sicariidae family. They’re pretty common in this part of the country, but they’re not the type of spider you want to be messin’ around with.” He continued while stooping down to look under the dining room table.   
+“Most folks just call ‘em recluses. They’re ugly and quick, and if you’re not careful they’ll leave you with a nasty bite.” He turned toward me and held up one of his hands for me to see. It was then that I noticed the pinky on his right hand had been amputated down to the first knuckle.   
+  
+“A spider did *that*?” I choked out in stunned horror.   
+  
+He nodded. “But thankfully my doctor chopped it off quick enough to keep the toxin from spreading. I could’ve lost half my damn hand.”
+
+My eyes widened and my throat went dry.   
+  
+“But there’s no need to worry,” he said. “They’re pretty shy by nature, and don’t usually bite unless provoked or–” He stopped. “What the hell–” The man slowly withdrew from underneath the table, holding something in his hand. I nearly vomited when I saw what he was holding. 
+
+Thin and almost translucent in color, it appeared to be the molted exoskeleton of an abhorrently large arachnid. Nearly eight inches across. 
+
+I excused myself and beelined it to the front door. I walked across the driveway, got in my car, and began driving away. After my breathing had returned to normal, I called the exterminator and told him that I would be spending the night in a hotel and would not set foot in that house until it had been purged of everything with more than two legs.   
+  
+“I don’t care what it takes! Gas the whole fucking building if you have to! I’m not coming back until that–that *thing*…and any other thing like it is dead!” I hung up.   
+  
+It’s been three days since that call. All of my attempts at reaching the man have gone to voicemail. 
+
