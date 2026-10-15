@@ -1,0 +1,24 @@
+In the summer of 2024, I travelled to Japan on my own. Before setting off, I dyed the left side of my fringe a white-gold colour (I’m Chinese, and my natural hair colour is black). After travelling from Tokyo to Osaka, I felt a persistent sense of unease; to describe it in detail, I felt very cold, even though it was July and temperatures in both Osaka and Tokyo were above 35 degrees Celsius. The very next day, I took the train to Kyoto. After getting off the train at around 2 o’clock in the afternoon, I spotted an elderly fortune-teller near a local pagoda (I can’t recall the exact name, but it was next to a tourist attraction).
+
+Let me explain: in East Asian culture, some people can predict one’s future destiny by observing the lines on one’s palms and one’s facial features. I found this quite intriguing, so I asked the old man to read my fortune.
+
+He asked for my date and time of birth, then said some rather generic things, such as ‘You’ll face difficulties when you’re 35’. Just as I was beginning to think he was simply spouting nonsense to swindle money, he uttered a crucial sentence: ‘You must go home immediately.’
+
+I was completely baffled, but after leaving, I carried on with my sightseeing as normal. However, at six o’clock in the evening, just as I’d finished my meal and was about to go for a stroll along the banks of the Kamogawa River, I witnessed a scene I shall never forget for the rest of my life. A man dressed exactly as I was—with black hair and platinum-blonde bangs on the left side—suddenly appeared on the opposite bank of the Kamogawa River, standing perfectly still, making no other movements, with his hands hanging at his sides.
+
+That day I was wearing a white shirt and grey trousers—which might be quite common—but the fact that the left side of my fringe was dyed platinum blonde could hardly be described as a coincidence. I can honestly say that I have never seen an Asian person, either in real life or online, who has dyed the left side of their fringe platinum blonde, just like me.
+
+I was terrified at the time. Taxis are very expensive in Japan, but I immediately hailed one to take me back to the train station. I wasn’t wearing my glasses at the time, and as the man was so far away, I couldn’t make out his face—nor did I dare to try. All I knew was that I had to get away from there.
+
+After returning to Osaka, I felt a little more composed, though I was still somewhat frightened. I messaged a friend of mine in Japan about the incident, and he said he wasn’t sure either—there were no relevant ghost stories or legends. But in China, there’s a legend that when a person is about to die, they will see their double—that is, a second version of themselves appearing in the world.
+
+I began to reassure myself: surely it was just a coincidence? Perhaps that man shared my sense of style and had dyed one side of his fringe platinum blonde? I didn’t want to overthink it, so at 9 o’clock that evening, I decided to head out to find an izakaya for a late-night snack.
+
+Just as I stepped out of the hotel entrance and was checking my map, that person appeared again. This time, he was in a window of the building diagonally opposite the hotel entrance, on about the third floor. It wasn’t that I was observing particularly closely; it was simply that the half-platinum fringe was far too striking and distinctive, especially in East Asia. The person was standing right by the window, looking down; he was even wearing a white shirt—exactly the same as the man from that afternoon.
+
+I froze completely. I practically ran back to the hotel reception, told them I was being followed, and asked them to call a taxi to the back entrance. I then insisted that a member of staff accompany me to collect my luggage from my room. They were quite puzzled as to why I was acting this way, but I didn’t want to explain too much, given the language barrier. I still had one more night’s stay at the hotel, but I checked out straight away. As soon as the taxi arrived, I got in straight away and told the driver I wanted to go to the nearest station with a direct service to the airport.
+
+But I was absolutely terrified on the way, so I asked the driver to take me to the nearest police station. Once there, I showed them my passport and told them I was being followed – that this person had been tailing me from Kyoto to Osaka, and I felt my personal safety was at risk. The police didn’t believe me; they simply asked what I wanted them to do. I said, ‘Just take me to the airport.’ They eventually agreed. In the police car, I immediately booked a flight back to China leaving in three hours’ time; my original ticket was non-refundable. It wasn’t until I boarded the plane that I began to feel a little more at ease.
+
+
+

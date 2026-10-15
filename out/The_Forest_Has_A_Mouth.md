@@ -162,7 +162,7 @@ We walked along the same sinister black muck for hours. We were getting tired. B
 
 ‘Sam!’ I caught her falling body, her weight causing me to tumble to the ground. My hands and elbows were covered black by the tar now. ‘Sam! Can you hear me?’ I shook her body, trying to bring her back to consciousness, which is when I noticed that her skin looked odd. There were red spots all along it, similar to a rash but more organised, like there were patterns across it. Just neatly strategised pieces of dead skin.
 
-She violently awoke. Coughing and heaving. Thank God!
+She violently awoke, coughing and heaving. Thank God!
 
 ‘Sam, are you alright? Can you breathe?’
 
