@@ -1,0 +1,47 @@
+Every night since I was a five-year-old child, I used to pretend to fall asleep—or force myself to—so I wouldn't have to look at those figures that appeared in my room as soon as the lights went out.
+
+Although on those occasions when my body simply refused to sleep, I would stay there staring at the ceiling or cover myself with the blankets. Those were the worst nights, because I was fully aware of how the elongated, cold hands of those shadows drifted over my body. Sometimes I could see their faces—some featureless, others with strange shapes, but all of them with white, empty eyes.
+
+This situation didn't improve as the years went by. Even though I told my parents a thousand times to switch my room or sell the house, they simply wouldn't listen, arguing that I needed to leave those childhood fears behind.
+
+Now I am 16 years old.
+
+And everything changed a few weeks ago.
+
+I was finishing up some schoolwork on my computer—it was around 10 or 11 at night—when suddenly I felt something crawl into my bed.
+
+It was one of the shadows, but this time it wasn't trying to reach for me. It simply pulled the blankets over itself and started looking around frantically. I could see a near-demented terror in its eyes while its body—or whatever it had—shook violently.
+
+Then I heard something under my bed.
+
+And there it was: another shadow in the fetal position, accompanied by even more shadows curled up in the exact same posture.
+
+It was as if something had terrified them. And if the very entities that had fueled my childhood nightmares were afraid, maybe I should be, too.
+
+I finally understood what was happening last Tuesday, when my parents had gone on a trip to visit my paternal grandmother. I found the living room in total darkness, but what was standing there wasn't just shade—there was something else.
+
+Heavy, dense, and incomprehensible, right in the center of the room: a shapeless shadow, darker than the very darkness surrounding it.
+
+I ran upstairs to my room and locked myself in, thinking it might be an intruder who had broken into the house. I decided to call the police, and they told me they’d be there in five minutes—minutes that felt like an eternity.
+
+Then I heard something knock on my bedroom door. Fearing that whatever had seen me was about to end my life, I hid in the back of the closet and tried not to make a sound.
+
+Suddenly, the door burst open violently, as if it had been kicked in, though it didn't make a single sound.
+
+At first, I didn't see anything or anyone enter, until I felt something strange wrapping around me. It was one of the shadows, and in its eyes was a horror even greater than what I had seen the first time one climbed into my bed.
+
+All of a sudden, a deafening noise echoed through my room. I closed my eyes and tried to stay quiet—though with the chaos outside, I doubt anyone could have heard me anyway. That was when I felt the shadow's fingers dig deep into my shoulders, as if I were its anchor, holding it back from being dragged away.
+
+Then, everything went back to normal. I stepped out of the closet to see what had happened, but everything was in perfect order. The furniture and objects in the room were right where I had left them; the same was true for the living room, the kitchen, and even the bathrooms. It was utterly surreal.
+
+I heard a knock at the front door. It was the police. I let them in and told them what had happened—leaving out the part about the shadow hugging me so they wouldn't think I'd lost my mind. As they searched the house, I couldn't help but ask myself: What was that thing, and what happened to the shadows?
+
+Right now, I'm at my computer, scrolling through Reddit forums dedicated to the paranormal. I haven't found much, to be honest, except for vague mentions of the term "God of Darkness." I really don't want to believe that all of this was caused by a "god" rather than a sick prank played by my own mind—though considering I'm currently buried in paranormal message boards, the joke writes itself.
+
+Maybe I should...
+
+My computer camera just turned on by itself. I can see my face on the screen, and something else...
+
+That shadow—the exact same shadow I saw in my living room that night—is standing right there at my bedroom door...
+
+And it's coming closer.

@@ -124,7 +124,7 @@ Henry took a long time to answer.
 
 “I don’t know, man,” he said. “I’m not calling you a liar. That missing scar is weird as hell. But Ian, I’ve known that boy since he was in diapers. He used to come down to the depot and sit in the cab of my truck for hours, pretending he was driving. He even made me a stupid little card with a crayon dinosaur on it; I’ve still got it framed on my desk at home.” He dragged his left hand down his face, looking exhausted.
 
-“Has he done anything?”
+“Has he done anything?” He finally asked.
 
 “What?”
 
@@ -140,7 +140,7 @@ Henry took a long time to answer.
 
 I felt the old heat rise in me, the defensiveness I’d been catching in the half second. I let it pass.
 
-“You’re so focused on figuring out *what* he is,” Henry said, his voice quiet. “Look, I get it. I’d be losing my mind too. But did you ever stop and think about what that kid went through? He got trapped in the dark, and when he came out, you were screaming at him like he was a monster. That’s terrifying for a little kid, Ian. That doesn't mean he’s not your kid anymore. You just scared the hell out of him.” 
+“You’re so focused on figuring out *what* he is,” Henry said, his voice quiet. “Look, I get it. I’d be losing my mind too. But did you ever stop and think about what Toby went through? He got trapped in the dark, and when he came out, you were screaming at him like he was a monster. That’s terrifying for a little kid, Ian. That doesn't mean he’s not your kid anymore. You just scared the hell out of him.” 
 
 “Alicia thanked me for apologizing to him,” I said.
 
@@ -192,7 +192,7 @@ I left half an hour later. At the door he called my name, and when I turned, he 
 
 Alicia called that evening. 
 
-We'd texted all week about Saturday's mediation and the investigators from CATALOGUE who'd visited my garage. We weren't on good terms, just too exhausted to fight. 
+We'd texted all week about Saturday's mediation and I took the opportunity to mention the investigators from CATALOGUE who'd visited my garage. We weren't on good terms, just too exhausted to fight. 
 
 “I need to ask you something,” she said.
 
@@ -206,7 +206,7 @@ We'd texted all week about Saturday's mediation and the investigators from CATAL
 
 I remembered the faded blue pine box. I'd carried it upstairs myself.
 
-“He’s suddenly become obsessed with it,” she said. “After the weekend, he started going in there every single day, dragging things out, piling things back in. I actually thought it was a good sign. He was so quiet and withdrawn when he first got back. I just thought, thank God, he’s finally playing again.”
+“He’s suddenly become obsessed with it,” she said. “After the weekend, he started going in there every single day, dragging things out, piling things back in. I actually thought it was a good sign. He was so quiet and withdrawn when he first got back from your place. I just thought, thank God, he’s finally playing again.”
 
 She paused.
 
@@ -234,7 +234,7 @@ She went quiet for a moment.
 
 “Why didn't you tell me sooner?”
 
-“Because I thought he was making it up. An imaginary friend, something he'd picked up at school. I didn't want to make a big deal out of nothing, especially after everything that happened at your place.” I heard her swallow. “But the toys keep showing up, Ian. And he won't tell me where they're coming from. I don't know what else to think.”
+“Because I thought he was making it up. An imaginary friend, something he'd picked up at school. I didn't want to make a big deal out of nothing, especially after everything that happened at your place.” I heard her swallow. “But the toys keep showing up, Ian. I don't know what else to think.”
 
 “Alicia, listen to me. I don't think this is somebody giving him toys.”
 
@@ -376,7 +376,7 @@ Toby laughed. It was a real laugh, and my chest hurt. “There was a truck with 
 
 “Where do you show him?”
 
-“Do I have to say everything?” He slumped back, tired of explaining. “It’s *obvious.*”
+“Do I have to explain everything?” He slumped back onto the carpet. “It’s *obvious.*”
 
 I nodded, trying to keep my breath even. 
 
@@ -402,7 +402,7 @@ He'd met his friend inside the wardrobe. But Toby had been missing for less than
 
 I pushed the questions aside. Something from that wardrobe might now be in my son's bedroom, and I needed to know whether it was dangerous.
 
-The painted pine chest had a heavy lid and familiar scrapes from Toby dragging it. 
+I recognised the toy chest, blue painted pine with scuff marks where Toby had dragged it. We'd bought it for him years ago, though he'd long since outgrown most of the things he used to keep in it. Last I'd heard, Alicia had been planning to get rid of it. Apparently, he'd taken an interest in it again.
 
 Alicia stood beside it with her arms folded. I knelt, examining the brass hinge.
 
@@ -410,7 +410,7 @@ I remembered repairing that hinge myself, back when Toby was three. The lid had 
 
 The hinge was still there. But the screws weren't. Where the heads should have been, the metal didn't end. It was a seamless transition from brass to pine, as though the two materials had grown together. I ran a thumbnail along it. The surface was smooth and faintly warm.
 
-“Did anyone repair this?” I asked.
+“Did anyone else repair this?” I asked.
 
 “No, nobody’s touched it. The most I’ve done is clean it up a little.”
 
@@ -440,7 +440,7 @@ I picked up the others, careful not to press too hard. Some were total butcher j
 
 “He’s working on that one,” he said, pointing at the duck in my hand. “That’s an *improved* one. Do you like it?”
 
-“It’s good,” I said. “It’s very good.”
+“It’s nice,” I said. “It’s very nice.”
 
 He came in and sat cross-legged by the chest. He pulled out the jack-in-the-box.
 
@@ -552,7 +552,7 @@ She recoiled, and the whole space convulsed. The pressure around her wrist incre
 
 “*Get off her!*”
 
-I screamed straight into the dark. The fingers jerked away for a second, startled by the noise. Then the space contracted again. It wasn't giving up. 
+I yelled straight into the dark. The fingers jerked away for a second, startled by the noise. Then the space contracted again. It wasn't giving up. 
 
 I remembered the garage. It had shrieked when I looked at it and hid behind its hands.
 

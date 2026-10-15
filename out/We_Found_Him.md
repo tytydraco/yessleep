@@ -1,0 +1,475 @@
+By the time I found Caleb, we'd been looking for him for 37 hours.
+
+He'd been missing longer than that. His truck was found Friday afternoon at the north trailhead with his wallet in the center console and an empty Gatorade bottle under the driver's seat. The last person known to have seen him was a cashier at a gas station 12 miles away. He bought two bottles of water, beef jerky, and a pack of cigarettes Thursday morning. He wasn't supposed to be gone overnight.
+
+By Saturday, the sheriff's office had opened the search to volunteers. By Sunday morning, they'd divided the woods into grids and started sending us through anything that hadn't already been covered twice.
+
+It had rained most of Friday night, and the woods still held it. The ground smelled of wet leaves and black soil, and water dropped from the bare branches whenever the wind moved through them. The rain helped in some ways. Mud held tracks better than dry ground, and the wet leaves made it easier to spot places where someone had passed through.
+
+I'd done volunteer searches before. There was a routine to them that kept you occupied: a direction, a partner and a piece of ground you were responsible for. You moved slowly enough to notice things you'd normally walk past—broken branches, scraps of paper, impressions in mud.
+
+I was working with a man named Curtis when I found the first cigarette butt.
+
+It was caught between two rocks beside a creek, swollen from the rain. Curtis almost stepped on it before I stopped him. I crouched beside it without touching it. The paper had gone brown, but the filter was still recognizable.
+
+"Could've been there a month," Curtis said.
+
+He was right. We'd been told Caleb smoked Marlboro Reds, but that didn't mean much. Half the men I'd worked construction with smoked Marlboro Reds. I marked the location and called it in anyway.
+
+The creek wasn't part of Caleb's expected route. He'd parked north of us and, according to his brother, intended to hike out to an overlook and back. The established trail never came within half a mile of where Curtis and I were standing.
+
+But people who aren't lost generally don't need to be searched for.
+
+We followed the creek.
+
+The banks grew steeper as we went, forcing us onto the slope above it. Ferns had collapsed under the cold and lay flat against the ground. Mountain laurel crowded some sections so tightly that we had to turn sideways to push through. Every few minutes one of us stopped to look behind a log or down an embankment. We called Caleb's name, waited, then moved on.
+
+Sometimes another searcher answered from far enough away that the voice had lost its words by the time it reached us.
+
+Mostly there was the creek.
+
+It wasn't particularly large, but the rain had given it enough water to fill the spaces between rocks. The sound followed us continuously, rising when we came close and softening whenever the terrain carried us away.
+
+About 40 minutes after the cigarette, I found a strip of blue fabric snagged on a thorn.
+
+Caleb had been wearing a blue rain shell.
+
+Curtis radioed our team lead. We were told to hold our position until another pair could work toward us from the east. About ten minutes later, I noticed a boot print down in the creek bed, pressed into a patch of mud between stones. Once I'd seen it, another stood out farther ahead.
+
+I told Curtis I'd check the next bend while he stayed where he could guide the second team in. I wasn't trying to be a hero. The creek curved sharply about 200 feet ahead, and I wasn't going farther than that.
+
+I'd covered maybe 150 feet when I smelled cigarette smoke.
+
+It was startling because the woods had smelled the same for hours: water, leaves, dirt, occasional pine. Cigarette smoke belonged somewhere else.
+
+"Caleb?"
+
+Something moved uphill to my left.
+
+A man was sitting beneath a fallen tree about 100 feet above the creek. I couldn't understand how I'd missed him. He wasn't particularly concealed. The tree had come down with its roots attached, tearing a pocket out of the hillside, and he'd wedged himself into the dry space underneath.
+
+He had a blue jacket.
+
+"Caleb?"
+
+He stood, and the relief hit me hard enough that I laughed.
+
+You spend enough hours searching for someone and the person stops feeling entirely real. They become a photograph you've been shown too many times: height, weight, jacket color, boot brand, medical history. Seeing him stand up turned him back into a man.
+
+"I found him," I said into the radio. "Curtis, I've got Caleb."
+
+Caleb started down the hill but stopped halfway.
+
+"Who'd you tell?"
+
+"You're all right. Stay there."
+
+"Who'd you tell?"
+
+"Curtis. We've got another team coming in."
+
+His face was hollow beneath several days of beard, and mud covered his jeans nearly to the knees. One sleeve of the rain shell was torn from wrist to elbow. He wasn't looking at any of that. He was looking past me toward the creek.
+
+"How many people?"
+
+"There's a whole team out here looking for you."
+
+He closed his eyes. "Jesus Christ."
+
+I started uphill, assuming he was injured or confused, but he backed away and told me not to come any closer. When I asked if he was hurt, he said no.
+
+"We need to get you checked out."
+
+"I'm not going with you."
+
+Behind me, my radio crackled. Curtis asked if I had visual confirmation. Caleb watched me answer and give our approximate position.
+
+"Tell them you lost me."
+
+"What?"
+
+"Tell them I ran. Tell them I pulled a knife. Whatever you have to tell them."
+
+He wasn't shouting. That made it harder to dismiss as panic. He seemed exhausted more than anything else, but there was a concentration in the way he watched me that didn't fit with someone who had spent three nights wandering aimlessly through the woods.
+
+I told him he wasn't staying out there.
+
+"You don't understand."
+
+"Then explain it."
+
+Caleb looked over his shoulder. It wasn't the nervous glance of someone who thought he had heard something. He looked at one particular place.
+
+"There's something following me."
+
+I followed his gaze.
+
+The hillside behind him was darker than the creek bottom. Hemlocks and white pines had held their needles while most of the hardwoods around them were bare, and their branches broke the afternoon light into narrow gray columns. Laurel filled the spaces underneath.
+
+One of those spaces changed shape.
+
+Something was standing among the trees about 300 feet beyond Caleb.
+
+Gray-brown. Low to the ground.
+
+My eyes kept trying to assemble it into familiar things. A fallen stump. A deer with its head lowered. A bear partially obscured by brush.
+
+It walked between two trees.
+
+Its body was about the length of a large deer, but heavier through the middle. Coarse hair hung from it unevenly, long in some places and absent in others, exposing skin the dull gray of old dishwater. Its front end tapered without forming any neck I could see. Where I expected a head there was only a blunt continuation of the body, slightly narrower than the shoulders.
+
+It had four legs. I was sure of that.
+
+The front pair were thin but unusually long, each bending once beneath the body and again farther down. That second joint made the legs fold outward rather than underneath it. The rear legs were thicker and similarly jointed. It should have stood chest-high on me if those limbs had straightened. Instead its belly hung less than two feet above the ground.
+
+It took three deliberate steps without a limp or hesitation and stopped.
+
+I couldn't find its eyes.
+
+That didn't mean it didn't have any. At that distance, through the branches, there were plenty of things I couldn't see.
+
+But I could see where its face should have been.
+
+There wasn't one.
+
+"How long has that been following you?"
+
+"Since Friday morning."
+
+"You've been watching that for two days?"
+
+"I've been trying not to bring it anywhere."
+
+The thing hadn't moved again. I asked whether it had attacked him, touched him, done anything to hurt him. No to all of it.
+
+That was difficult to reconcile with the man in front of me. Caleb looked more frightened of being rescued than of the thing standing behind him.
+
+"Because it follows," he said.
+
+"So?"
+
+"Other things follow too."
+
+Curtis called my name from below.
+
+Caleb shot to his feet and told me to send him back, but Curtis was already coming through the trees with Renee from the second team behind him. His face opened into a smile when he saw Caleb, the automatic expression you give somebody after spending two days expecting that, if you found him at all, he might not be standing.
+
+"There he is."
+
+Caleb backed uphill and warned them not to come closer. Curtis slowed while Renee stayed near the creek to report our location over the radio.
+
+"Stop calling people," Caleb said.
+
+Curtis tried to calm him down and mentioned that his brother was waiting at the command post. That was the first thing that seemed to get through. Caleb asked if his brother was really there. When Curtis said yes, Caleb looked down at the ground.
+
+When he checked the woods behind him, the thing was closer.
+
+I hadn't seen it move.
+
+It stood about 180 feet away now, half obscured behind a pine.
+
+Curtis followed my stare. "What the hell is that?"
+
+Renee lowered her radio.
+
+We watched it.
+
+Nothing about the woods had actually changed. The creek still moved over the same stones. Water still dropped from the branches. Somewhere downhill a woodpecker struck a trunk in short hollow bursts.
+
+But those sounds didn't feel empty anymore.
+
+Every rustle in the laurel now had a possible source. Every gap between the trunks seemed deep enough to contain something. The woods that had felt open and quiet while Curtis and I searched them suddenly seemed crowded with places where I couldn't see.
+
+I became aware of how far we were from the road.
+
+Renee whispered, "Is that a bear?"
+
+Caleb laughed once. It wasn't loud, but something about the sound made me wish he hadn't done it.
+
+Renee told us command wanted us to hold position until medical reached us. Caleb started backing uphill again. Curtis moved toward him, and Caleb snatched a branch off the ground and held it across his body.
+
+"Stay away from me."
+
+Curtis raised his hands. "Nobody's going to hurt you."
+
+"If you make me go back, you're taking it with you."
+
+He told us he'd already tried to leave.
+
+On Friday he'd found an old logging road west of where we were standing. He'd heard trucks somewhere beyond it and followed the sound until he could see pavement through the trees.
+
+"I thought I was out. I could see the road. I could see the fucking road."
+
+He walked toward it and looked back.
+
+The thing had followed him to the tree line.
+
+Behind it were two deer.
+
+Caleb hadn't thought much of that. Deer had been moving through the woods around him since Thursday. But behind them was a fox, and farther back was another deer.
+
+They were all facing him.
+
+When he moved toward the road, they moved. When he stopped, they stopped. A truck appeared around the bend, and Caleb went back into the woods.
+
+Everything followed.
+
+Curtis asked why a few deer had been enough to send him back. Caleb told him there were seven or eight by then, and they stayed behind him for the rest of the day.
+
+"One of the deer fell around dark. It kept trying to get up whenever I moved. Front legs first. Then the back ones. It couldn't do it anymore."
+
+Nobody interrupted him.
+
+"I left it there. The fox made it longer."
+
+Renee asked what happened to the fox.
+
+"I don't know. I didn't go back."
+
+Now that I'd seen the creature clearly once, I couldn't make it become a stump again. Wet strands of hair hung beneath its body. A patch of bare skin along one flank contracted faintly when it breathed. One front foot was planted against the leaves.
+
+Not a paw.
+
+The end of the limb widened directly against the ground into several pale, blunt projections. They weren't toes exactly. There were too many, and none appeared to have claws.
+
+It shifted its weight, compressing the leaves beneath it with a wet crunch.
+
+That sound did more to convince me it was real than seeing it had.
+
+Caleb watched our faces. "You see it."
+
+No one answered.
+
+"Good. Now leave."
+
+Curtis shook his head. "We're not leaving you out here."
+
+Caleb tried to explain that bringing more people only made things worse, but Curtis was already talking about wildlife officers and deputies. Their argument began circling until Caleb's voice rose over his.
+
+"That's the problem. Everybody keeps coming."
+
+The creek continued behind me. Water dripped from the trees. Nobody spoke.
+
+Caleb lowered the branch.
+
+"Please. Just leave me here."
+
+We didn't.
+
+I still think about that decision, but there wasn't much of a decision to make at the time. We had a missing man who had spent three nights outdoors with little food, probably dehydrated, possibly injured, and clearly not thinking normally. We had also seen an animal none of us could identify.
+
+Those two facts did not add up to abandoning him.
+
+Renee stayed behind to guide medical personnel toward our position while Curtis and I started Caleb toward the logging road. He didn't come willingly, but we didn't have to drag him. Fighting us would only bring more people in, and that frightened him enough to cooperate.
+
+For the first half mile, nothing happened.
+
+That was almost enough to make the whole thing feel foolish.
+
+The creek faded as we worked downhill. The terrain leveled into long runs of bare oak and poplar where 150 or 200 feet opened between some of the trunks. A breeze moved through the canopy, shaking loose water in scattered drops, and without the constant rush of the creek I could hear our boots pressing into leaves, Curtis's pack shifting against his coat, Caleb's uneven breathing.
+
+And, every so often, something behind us.
+
+I checked often enough that I stopped having to search for it. Brush hid it completely in places, but sooner or later that gray body passed through another opening between the trees, holding roughly the same 120 or 150 feet no matter how the terrain changed.
+
+It wasn't creeping from cover to cover. It made no attempt to conceal itself. Across an open patch of leaves I finally saw its gait without branches interfering. The strange construction of its legs made the body roll gently from side to side, one flank rising while the opposite pair folded beneath it. The narrow front swung only inches above the ground.
+
+When it stepped over a fallen branch, something along its underside opened.
+
+A dark vertical slit began several inches behind the blunt end of the body and continued farther back than I could follow. The movement of the leg stretched it open enough to expose a wet interior and something pale within, smooth and briefly visible before the edges drew together again.
+
+My pace faltered.
+
+Caleb glanced over. "Keep moving."
+
+After that, the woods no longer seemed quiet.
+
+They seemed occupied.
+
+I knew the distinction existed mostly in my head. The trees hadn't moved closer. The smells were still wet soil, leaves and pine. Yet every sound I'd ignored that morning now suggested a location. A branch snapping behind us established distance. Leaves dragging across leaves meant something had displaced them. Even the breeze bothered me because it set too much of the forest moving at once.
+
+I wanted stillness so I could tell what belonged to the woods and what didn't.
+
+We reached the logging road shortly after noon.
+
+Caleb stopped with one boot on the gravel.
+
+Medical was coming from the east. Another mile, maybe less, and there would be people waiting for us. Curtis reminded him of that, but Caleb was staring into the trees behind us.
+
+The creature had reached the edge of the woods.
+
+Without brush hiding it, the proportions looked worse. Its body was longer than I'd thought and sagged slightly between the shoulders and hips. Rain had flattened the hair along its back into dark ropes, while the nearly bare underside showed skin with a faint bluish cast beneath the gray. Its front narrowed to that same blunt end with no eyes or mouth where either belonged.
+
+The slit underneath loosened.
+
+Something pale shifted inside.
+
+Caleb eased his foot off the gravel. One of the creature's front legs folded forward.
+
+Both stopped.
+
+Nobody tried to persuade Caleb now.
+
+The road ran south around a bend. Somewhere beyond it were EMTs, deputies, volunteers and Caleb's brother. More people would arrive throughout the afternoon. Cars already lined both shoulders near the command post.
+
+Nothing we'd seen proved Caleb's story about the animals. The thing hadn't attacked us. It hadn't shown any interest in Curtis or me. It hadn't done anything except follow.
+
+Abandoning Caleb because of that was absurd.
+
+Taking him another mile suddenly felt worse.
+
+Movement behind the creature drew our attention.
+
+A doe stepped between the trees.
+
+She was thin, with mud darkening her legs almost to the knees, but otherwise there was nothing remarkable about her. She stood about 45 feet behind the creature, ears twitching toward sounds I couldn't hear.
+
+Caleb stared at her.
+
+"That one's new."
+
+Curtis asked how he could possibly know. Caleb said he hadn't seen a deer since the previous day.
+
+The doe lowered its head.
+
+Caleb stood at the edge of the road, the creature just inside the trees, the deer farther back. None moved.
+
+Curtis broke away and started south by himself. About 60 feet down the road, he turned and found the rest of us still standing where he'd left us.
+
+"Come on."
+
+There wasn't enough evidence.
+
+There would never have been enough evidence.
+
+If Caleb was wrong, we were leaving an exhausted man in the woods because he'd frightened us. If he was right, the only way to prove it was to bring him back to everyone.
+
+Caleb looked toward the bend in the road.
+
+"I got lost," he said. "That's all I did."
+
+His voice had gone quiet again.
+
+"I just got lost."
+
+There wasn't a trespass he'd committed or a rule he'd broken. No place he'd knowingly gone where he shouldn't have. He'd missed a trail sometime Thursday afternoon and spent the next three days trying to undo that mistake.
+
+I asked what he was going to do.
+
+"Go back."
+
+"For how long?"
+
+He looked into the woods.
+
+That was answer enough.
+
+Curtis came back, and we argued over what obligation meant when none of us understood what we were looking at. He was right that we couldn't simply leave Caleb. I was right that we didn't know what we were bringing out with him, or at least I believed I might be. We circled those same facts until Caleb stopped listening.
+
+He stepped off the road.
+
+The creature turned with him.
+
+The doe raised its head.
+
+Caleb walked uphill through the trees. The thing followed at its usual distance, rolling slowly over the wet leaves.
+
+The doe remained at the roadside until Caleb passed between two trees.
+
+Then it followed.
+
+Curtis stopped arguing.
+
+The woods broke the procession apart as it climbed: Caleb's legs vanished first, then the creature's gray body, then the doe moving lightly behind it.
+
+The last thing I saw was Caleb's blue jacket.
+
+We did not follow him.
+
+The official search continued for four more days.
+
+Renee met us on the logging road with two EMTs. We told them Caleb had become agitated and fled when we attempted to bring him out. That wasn't entirely a lie. Curtis and I gave statements separately, and neither of us mentioned the creature or the deer.
+
+I don't know what Curtis told himself afterward.
+
+I told myself we'd made a temporary decision. Caleb knew where the logging road was now. He knew where people were. If he changed his mind, he could come out.
+
+That explanation worked better during the day.
+
+At night I thought about the way the thing's legs folded beneath it and the opening along its underside. I thought about the pale movement inside.
+
+Mostly I thought about the deer.
+
+Caleb's family kept searching after the county stopped. His brother organized volunteers online. Hunters checked game cameras. People walked the logging roads well into December.
+
+Nobody found him.
+
+I didn't participate.
+
+Winter came early that year. By January there was enough snow in the higher elevations that even his brother stopped organizing regular searches.
+
+There were other disappearances that winter. I didn't connect them to Caleb at the time. People go missing in the mountains every year, and once you've participated in a search, you start noticing the notices in gas-station windows and the photographs people share online.
+
+One of them was a man named Thomas.
+
+I remembered his face because his family used the same photograph everywhere. He was 41, with a brown beard going gray at the chin and an orange knit cap. He'd gone out alone on a trail about 20 miles west of where we'd searched for Caleb and hadn't returned to his car. That was in January.
+
+They never found him.
+
+In March, Caleb's brother called me.
+
+A couple driving home late on one of the county roads had reported seeing a man walking along the shoulder. No coat. No flashlight. They slowed because they thought he might need help.
+
+The man stepped off the road before they reached him.
+
+Caleb's brother had spoken to the couple himself after hearing about the report. The description of the first man wasn't good enough to identify anyone, but the location was close enough to the search area that he thought it might have been Caleb.
+
+The couple had seen something behind him.
+
+They couldn't agree on what it was. The husband thought it was a sick deer. His wife thought it was a large dog. Their headlights caught it only briefly before it crossed the ditch.
+
+Behind it came a deer.
+
+Then another.
+
+The second deer was limping badly. One rear leg barely touched the pavement, but whenever it fell behind it lurched forward again.
+
+Behind the animals walked another man.
+
+Orange knit cap.
+
+Brown beard.
+
+The couple stopped.
+
+The husband rolled down his window and asked if he needed help.
+
+The man kept walking.
+
+By then the first man had reached the trees. The strange animal crossed the ditch after him, followed by the deer. The man in the orange cap came last.
+
+The husband got out of the car and called after him. He made it as far as the ditch before his wife started shouting for him to come back.
+
+The couple waited beside the road for nearly 20 minutes, but nobody came back out.
+
+Caleb's brother asked me if the orange cap meant anything.
+
+It did, but I didn't have the heart to tell him.
+
+I still had Thomas'  missing-person notice saved on my phone. The description matched exactly what we'd been given.
+
+I asked for the road name.
+
+It ran along the western edge of the search area, less than two miles from the logging road where we'd let Caleb go.
+
+His brother asked what I thought had happened.
+
+I told him I didn't know.
+
+That part was true.
+
+There was one thing I did know.
+
+Caleb hadn't been hiding from whatever he found in those woods.
+
+He'd been keeping it there.
