@@ -1,0 +1,98 @@
+‘You get what you pay for’ doesn’t even come close to explaining my last apartment. It was cheap, but it was still almost more than I could afford. A top floor apartment in a run down building, nothing glamorous, pipes hissing and bumping around, thin walls, an unreliable elevator, but still manageable. It was my new home. It was good, for a while. 
+
+For the first couple of nights, I was passed out on my bed from hauling and rearranging what little I owned, but after that, I started hearing something strange. 
+
+Footsteps.   
+Above me. 
+
+Not creaking from the building settling, not bumps from branches hitting the roof once or twice, clear enough steps moving around on what could be the attic or something. The first day after I noticed it, I was able to trace it to my living room. They seemed to be making circles around the room above, slow steady footsteps, not stomping, simply walking in a circle. When I asked the landlord about it, he seemed confused too. “No workers are gonna be up there that time of night. You're on the top floor. There's no sixth floor. There's a little maintenance space above part of the hall, but nothing over your apartment. I’ll ask the super.” 
+
+Shrugging it off, I assumed that was it. The super or janitor were just weirdly moving things around or maybe had zoned out. Not a big cost for living on the top floor, I planned to just ignore it and move on, maybe turn up the volume when I vegged out on the couch. After a couple of nights of hearing that, I decided to go up and check it out, maybe I’d make a new friend and get some extra help around the house if they were already up. 
+
+Finding the stairs up, I went to check on the space above me, but it was locked. It also looked like a half-floor or something. Not enough height to fully stand up, with a narrow door. So the new friend idea was a bust. That night, they started moving heavier things around. It sounded like furniture, maybe a couch or some shelves? Every night for the next week, I heard some scraping or shuffling, step after step that seemed to start around midnight. Then the routine started changing when I turned up the volume of the tv enough that it could block out most of the noise. The footsteps moved from just the living room. They started moving in another pattern, from above my living room, to the kitchen, the hallway, the bathroom, ending above my bedroom, then back again. A new pattern, with the footsteps sounding a bit more solid, but not like stomping…yet. 
+
+After a week, the landlord finally got back to me via text. He told me no one had gone into that room in weeks, maybe months. That couldn’t be right. I texted back that I heard someone the night before, and every night for the past 2 weeks or so. Since just after I moved in! He didn’t believe me, said it might be an animal stuck up there or something, and that the super would go up there to chase it out. 
+
+Frustrated by the lack of concern over a possible homeless person or madman squatting up there, I decided to record the noise that night. Every time I tried though, my cellphone didn’t pick up anything. It had me thinking that I really was just imagining it all, but it sounded **so real**. Annoyed that I couldn’t prove it, I decided to ignore it for a while, and it seemed to work, the footsteps went back to their shuffling more than full steps. 
+
+Eventually it seemed to calm down again. I decided to have a friend over after work, we’d both had a long week and needed to relax for the weekend. 
+
+They heard it too. 
+
+They confirmed that it sounded like someone was taking slow steps every few seconds. I had told them about it over work after I moved, and they thought it was something like a ghost story to freak them out before I invited them over. After turning off the tv and looking up to listen more clearly, they looked a little freaked out anyway, “Why does it sound exactly like your apartment?” 
+
+I hadn’t really noticed it before, simply thinking it was cluttered, but it DID sound like they were following the same floor plan. We decided to turn the tv back on at a much louder volume and try to ignore it again. The night was pretty much over after that, they decided to split after finishing a movie and it seemed like they definitely wanted out of there asap. 
+
+The following day, I tried the landlord again, waiting until I could talk to them face to face. This time he got visibly uncomfortable. He asked me, “Have you responded to it?” Which got me really confused. 
+
+“What?”  
+“Knocked back. Banged on the ceiling. Said anything?”
+
+When I told him I hadn’t he got this relieved look on his face and just said, “Good, keep it that way.” before walking away. I stood there, confused and wondering what that whole interaction was about before realizing he hadn’t answered any of MY questions…or maybe he did. 
+
+Feeling even more weirded out, I returned home and tried ignoring them again. It sounded like the landlord knew something, but didn’t want to share. Maybe it was an illegal apartment, maybe a family member was staying without paying or something. Either way, I was going to ignore it all. I was. Really. That was the plan, until the footsteps stopped one night. Right. Above. My head. 
+
+Then they knocked three times.   
+Whoever “they” were. 
+
+I tried to resist the urge, I didn’t want to, but I couldn’t help letting out a quiet, “hello?” No response other than the footsteps moving on again, more clearly this time. It annoyed me, but I thought nothing more about it. Maybe they were just happy to be acknowledged? 
+
+That’s what I thought, until I returned from work the next day. In the elevator there was a new button. I was supposed to be on the top floor, 5, but now there was a button with a number 6 on it, just above mine. I stood there for a long time before texting the landlord to come and see it. The landlord arrived after a few minutes and saw the button. He immediately went pale, told me not to press it and just ignore it. The next morning it was gone again, and the panel was smooth, like it never existed. I wanted to press it last night, but the landlord stayed in the elevator the whole ride up. Going to the stairs, I went back up them to see if the door was unlocked now or something, but the door was gone. The stairs ended in a fresh plastered wall now. 
+
+That wasn’t the end of it though. Even more strange things started happening. One morning, I woke up and saw a vent near my kitchen wall, it looked brand new, but I hadn’t heard any cutting or installation work last night. I even smelled some fresh cookies coming from it. From above. Another day, I heard water coming down from above. Not rain water, but water from a sink or something else. Then they turned on their own tv, I could barely hear the muffled sounds coming from above, sometimes a show, sometimes sports, but they seemed to settle on one channel a night. It was getting louder now, and the footsteps were still continuing, regardless of any other changes. 
+
+Since the landlord was ghosting me now, I decided to check up online, see if I could find any records of the building, maybe some old tenants of the same floor. I found a picture from when the building was first completed. It had five floors. There were some articles about the building changing hands every few years, then an article about a fire on a sixth floor. Another about reconstruction up to the fifth floor. Then another article with the full six floors. Again and again, back and forth, until the last articles I could find were all mentioning the reopening with only five floors. 
+
+After that, I noticed something else. The footsteps, they stopped moving in their usual circle. Now they were following me. A few steps behind, every time, stopping when I stopped, and continuing when I started again. I would go into the kitchen to make dinner, open some cabinets and close, then I would hear the sound a few seconds after, the cabinets slamming shut, almost like they wanted to make sure I heard them closing the cabinets too. I would get out of the shower and they’d have their own still running. The footsteps started around 10 seconds behind me. After a few days they were around 5 seconds behind, clattering plates and noise from the kitchen getting closer behind me every day, until one day I realized they were matched up, even when I cut a shower short, or stayed longer than I would have. 
+
+At that point, I was almost ready to throw in the towel, looking up new apartments and thinking of taking any penalties for breaking my lease early. The night I heard them catch up, I lay awake in bed long after I should have. That’s when I heard it. Whispering above my bed, or maybe they were just that muffled, but I could finally hear a voice coming from above. They seemed to be talking to someone, maybe on the phone, but when I strained my ears to hear it more clearly, I ended up wishing I hadn’t. The voice I heard above my bed was my own. My voice. Talking about something I couldn’t catch clearly. I heard a few things about new apartments I’d looked up, work, and finally, hearing clearly for a second; 
+
+“There isn't an apartment below mine.”
+
+Nope. Nope nope nope. I went to stay over at a friend’s home that night. I started texting my landlord about moving out, even if I had to get my things shoved into a storage locker before finding a new place and couch surfing until then. I still had to get some things for work out of there, but when I did, that time I saw the button for the sixth floor in the elevator. Tapping it, nothing happened, so I went the other way. Checking the stairs again, I saw that there was a sixth floor landing now. With a door and everything, but I was NOT going to check that right now. I just grabbed some things and left again. 
+
+At least, that was the plan. 
+
+Turning around to walk down from the landing, I heard someone crying inside. They didn’t sound like me, instead, it sounded like someone younger. I know I shouldn’t have gone in, but if someone else had been lured up here for some reason and I left them there, I would’ve felt awful. I would have been like the landlord, ignoring the problem in front of me to protect myself. Psyching myself up, I tried the door and found it unlocked. Taking the first step into the apartment, I was stunned by what I saw. 
+
+It was MY apartment.   
+At least, at first glance.   
+Same furniture arrangement.  
+Same dishes.  
+Same photos.  
+But subtly wrong.
+
+Walking up to one of the pictures, I was standing next to a woman I didn’t know in one picture. Another had me visiting a landmark, some giant dinosaur.   
+There were a few others, all with strangers or in places I’ve never gone.   
+Walking into the kitchen, I checked the fridge, and all of the food inside had strange brands on them. Close enough to the ones I bought, but…not.   
+I walked into the bedroom and found a closet of different clothes. My size for sure, but nothing in my style. 
+
+Walking around the apartment, I saw another door, leading to a staircase that kept going up. Shutting that door quickly, I realized that the crying sound was gone. It had been gone since before I saw the pictures, and now I heard footsteps again. Below me. 
+
+They walked from the living room to the bathroom, to my bedroom, and stopped there. I heard the bed creak a little as something dropped into it and got comfortable. I started rushing out of the apartment when my cellphone buzzed again, ringing with a call from the landlord. Picking up with trembling hands, before I could say anything I heard his tired voice on the other side, “You weren't supposed to answer it.” I shouted at him, demanding to know what the hell lived on the sixth floor, and he replied with no emotion in his voice, “Nothing. That's the problem. It builds itself out of whoever notices it.” 
+
+Rushing out of the apartment, I started running down the stairs. I had to get out of there. I had to not think of it anymore. 
+
+Running down.  
+Five.  
+Four.  
+Then, at the next landing, I saw Five again.   
+Running down the next.   
+Six  
+Every visible landing had a “Six” now
+
+Every floor said the same thing.   
+Then the knocking started. Behind every door. At the same time. 
+
+I was freaking out too much, I looked for the fire escape and rushed down the stairs there, the alarm blaring after forcing the door open. Stumbling out of the door, instead of the alley I was in a forest. Looking around confused, I heard the knocking getting closer, coming from the other side of the fire escape’s door, so I started running. 
+
+Moving through the woods, the knocking kept coming, from the trees, from branches, from the ground close to my feet. Turning away every time the knocking got too close, I eventually saw an orange glow in the distance, like from a Campfire. Crashing through the last bushes, I almost fell into the clearing, and saw several people turning around to see me. Normal people and none of them looked like me. I started babbling, trying to tell them what happened, why I was there, “There was an apartment…” One of the people said, “Above yours?”  
+   
+**Knock. Knock. Knock.**
+
+It was coming from the air above the clearing,   
+Only I looked up.   
+The others didn’t.  
+Nothing but stars.  
+   
+An older guy in a green hooded coat held up a hand, “don’t answer.” He waved me closer to the Campfire, “Stay where you can see the fire.” When I asked why, he turned back to the tending the fire before responding, “Because if you wander far enough away tonight, you'll find your hallway.”

@@ -1,15 +1,58 @@
-So I’m not sure how to explain what’s going on so I’m just going to start from the point that I think I woke up? 
+>!I originally posted this in r/AskReddit, in response to our creepiest experiences. I have tried to refine this, but this actually happened/still happens to me.!<
 
-(I’m a lucid dreamer. That’s when I actually sleep. I’ve been dealing with insomnia since I was young.At first it wasn’t that bad, I just couldn’t sleep at night and would sleep all day. Then it turned to no sleep at all. I was taking 400mg of Benadryl at a time, trust me, don’t do it. Finally I was put on ambian) 
+  
+I must say, since I have been a children I developed the ability to analyse the dream I am in, and actively change the outcome of it.
 
-I “woke” up this morning after what I thought was a horrible dream. The thing is, I know I took my ambian last night and I don’t ever remember my dreams when I’ve taken it. But this one I did. I remember at one point in my dream I seen a blister on my big toe, I popped it, and by the end of my “dream”, my toe was infected and falling off. I’m sure you can imagine how waking up after something like that could mess with you. 
+What that means is, if the dream starts to go off the rails, I can realise it is a dream. This was very handy when I was younger as I used to have very vivid nightmares except for a very specific dream in which I am murdered... (perhaps a story for another time).
 
-Honestly like most of my non lucid dreams, I forgot about it after a hour. It was such a good start to the day, my parents took my son out. I got so much cleaning done. And that’s when it happened. 
+One way for me to change the dream is to just "fly away" (quite literally levitating and flying off somewhere else). From that point onwards, I tend to enjoy the dream, even if it started as a nightmare, because I know I can control the dream. Like a wizard controlling the environment for their own protection.
 
-I sat down to take a break. I deal with chronic pain and I’m disabled and while cleaning isn’t always the easiest for me, I’ve learned if I take small 5-10 minute breaks I can do more. Well I’m sitting there and look down. I see a blister on the corner of my big toe. Without even thinking I pulled the skin to pop it, but that’s when I not only got the strongest feeling of déjà vu, but that something wasn’t right. 
+... that was until a nightmare I had about two years ago.
 
-The skin covering the blister wasn’t thin like normal. It was so think, and it wasn’t full of liquid but a think, nasty smelling substance. I didn’t even give myself time to handle everything I was feeling. I went right into the bathroom and cleaned it good with hydrogen peroxide. The problem? I’ve definitely done all of this already. Also? The bottle of peroxide was gotten brand new a few weeks ago. But it was already open. 
+The dream was very mundane. I was at home, either cleaning or cooking, it doesn't matter, I was doing something when I heard people rushing pass our apartment's front door. I wanted to know what the kerfuffle outside was; walked to the front door, opened it, just to find the hallway outside my apartment with haze and my neighbours running out of the building, and I could smell the smoke. There was a fire upstairs and the fire was expanding down through the stairs.
 
-I know what you are going to say. There are 2 other adults in the house obviously someone else opened it. Nope. I already asked. My parents are not the type to lie or forget something like that and since it’s only been about 2 1/2 weeks since we bought it they would definitely remember needing to use it. 
+First thought through was, my wife and kids are in the bedroom, reading books as they usually do. I wanted to get them out of the building. I turned to run to the bedroom when someone, from outside the apartment, grabbed my arm firmly, then they pulled it, trying to drag me out of the unit.
 
-The part that’s scaring me the most. I remember vividly wearing my new moon and sun mumu to bed last night, I haven’t changed my clothing. I tend to change my clothes at night and wear them during the day unless I go out and I’ve been in cleaning. I didn’t go to bed wearing these pants and tank top. Idk whats going on! The one thing I’m positive about is that I didn’t see my son in my dream before waking up “today”. If I’m asleep I just want to wake up. I want to see my son! All I know is. My toe is killing me. And it’s only been a hour since I popped the blister…
+I turned once more to see who is pulling me out... and I don't know how to properly describe it, but the person standing outside was less a person and more like a tear in the fabric of the space. Each inch of it was swallowed by heavy, midnight-black cloth that seemed to drink the ambient light rather than reflect it. Where a face should have been, it was a sort of void with two pale grey orbs for eyes, but no mouth to read, nothing else to lock on, it was devoid of warmth. It was like a fully 3D existence of a shadow, there, reaching out to my arm.
+
+It spooked me, I pulled hard, but its grip tightened harder, painfully. Then a voice that was more like a whisper projected into my mind said - *"Let them go... let them die"*
+
+ I tried pushing the person away demanding to let me go, but the pain in my arm shoot up contorting my face.
+
+Then I thought about the fire, I tried to remember what I was doing before cooking, about the person in front of me... *this can't be real*... sounded in my mind, and I focused on my feet, to levitate above the ground, to regain control over what was happening, but the shadow squeezed my arm and said - *"You can't escape me."*
+
+It pulled my arm so hard, I stumbled outside to the hallway and fell on the ground. The fire now had consumed the entire floor above my apartment. A loud "clunk" banged inside the lift chute, it opened the elevator door as the elevator plummeted down engulfed in flames.
+
+I headbutted the shadow... stupidly, because I don't fight all the time and my forehead hurts now, but it was enough for me to stubble back and crawl back away from the shadow.
+
+It stood up quickly, and pounced on me. I pushed it away with my legs, but it gripped my legs and we rolled to the side. It clanged to my whole body, pushing me down, pressing me would be the better description. I was struggling to breathe in.
+
+I wanted to scream, but it felt like I had not air inside to even do that...
+
+... and I woke up... panting... rolling to the side of the bed...
+
+My wife was sitting right next to me, reading a book. I began to tell her the awful dream I just had, about the fire, about how I can't remember falling asleep right next to her and that the dream felt so vivid... and she was completely unresponsive, sitting there starting at the pages of the open book in front of her. It was like she was awake but she couldn't hear me, or I wasn't talking.
+
+I waved my hand in front of her, but nothing. My heart pounded, and sweat ran down my back. I felt like I was about to freak out, decided to take a deep breath and a glass of water, before coming back to the bedroom.
+
+I stood up, and looked at the bedroom door... it was opened. We almost never leave it open because my wife says the room gets colder when the door is open, but maybe one of the kids came in the bedroom and got out. I stepped outside, into the passage between the bedrooms and the living room, and from there I could see the silhouette I was fighting in my nightmare sitting on my couch.
+
+I froze, but the shadow stood up and charged at me, clinging onto me. Again we stumbled forward into the kitchen and onto the flood. We struggled, pushing and pulling in the narrow space between the fridge and the dishwasher. It grabbed my face and pushed me against the edge of the dishwasher, banging my head again it...
+
+... And I woke up again... panting heavily... running the back on my head where it had met the edge of the dishwasher... and right next to me, my wife was reading a book.
+
+I said - *"Honey?..."* \- but she didn't answer. I felt a chill running down my back. Looked at the open bedroom door, and my heart is about to come out of my mouth.
+
+I hopped off the bed, stepped slowly towards the door frame, and there it was... the shadow seated on my couch, staring at the door. It stood up and charged at me, again.
+
+This scene was a cycle that repeated three or four times. I woke up, talk to my wife without getting and answer, stepped outside, struggle with the shadow, got injured with something in the kitchen and the pain would be the trigger to waking up again to the new cycle. Each cycle was slightly different to the one before, my wife would be reading a different book, I would hit my head, or crushed my arm, or bent my knee...
+
+... And then I woke up, except this time it was dark outside. I pulled my phone out, it was 4am... and I was panting, drenched in sweat. My wife is sleeping right next to me, and I don't know if I should wake her up... would she even wake up?
+
+I looked at the bedroom door, and it is opened.
+
+I was exhausted... I sat at the edge of the bed, staring at the open door and the little bit of the wall of the passage connecting the bedrooms to the living room. I sat there listening if I could hear anything outside, if there was a ruffle of the leather couch, or steps... anything...
+
+I sat there waiting for the arsehole to show up, running towards me, to tackle me and start the fight again. I am not sure any more what is a dream and what isn't.
+
+Then my kids came in, asking for a glass of water. I gave them a hug, hoping they wouldn't disappear in a puff of air. Maybe, I am not dreaming any more.

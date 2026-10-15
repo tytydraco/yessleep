@@ -613,7 +613,7 @@ Marshall glanced toward the garage.
 
 At the door, he asked about money.
 
-I hadn’t said anything about a lawyer. I’d mentioned the custody hearing once, in passing, somewhere between the helmet and the hammer. He must have been listening to every word.
+I hadn’t said anything about a lawyer. I’d mentioned the mediation and custody hearings once, in passing, somewhere between the helmet and the hammer. He must have been listening to every word.
 
 “Ian, we’d like to compensate you properly for the items, for your account, and for the footage.” He glanced at Priest, who produced a plain white envelope from the canvas bag. “It’s customary. People who report to us lose time, and sometimes more than that.”
 
@@ -675,4 +675,4 @@ The envelope is sitting beside me while I write this. For months, four thousand 
 
 Now I have it.
 
-I’m attending my son’s custody hearing this Saturday. I’ve spent six months trying to prove I deserve more time with Toby. After today, I’m not sure what scares me more: losing that chance, or getting exactly what I asked [for.](https://www.reddit.com/r/AmoebaGold715/)
+I’m attending mediation this Saturday. I’ve spent six months trying to prove I deserve more time with Toby. After today, I’m not sure what scares me more: losing that chance, or getting exactly what I asked [for.](https://www.reddit.com/r/AmoebaGold715/)
