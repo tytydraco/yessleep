@@ -347,3 +347,5 @@ Quintana told me I needed to save my daughter.
 Were Angelo’s obsession and Quintana’s words somehow connected?
 
 Was there a way to save Nina?
+
+[Part 5](https://www.reddit.com/r/nosleep/s/tuhhmGvgKl)
