@@ -1,35 +1,563 @@
-The Thing in the Woods
+THE THING IN THE WOODS
 
-Hello. My name is David and I’m from a small city in Michigan off the the coast of Lake Michigan that is mostly known for its high crime rate and high school sports teams. In this post I’m going to recount a meeting my family, friends and I had when I was 18. 
+By Garry E. McMillan
 
-The year was 2015, I had just graduated high school and I was working my first job. I resided in a trailer park that was located just off the beach. In-between the beach and my trailer park was a small forest, and in that forest was a sand factory that stored sand. I had 3 close friends that lived in the neighborhood around the trailer park, Ryan, Brett, and Bob. My Step Dad worked as a cab driver, and I worked as a burger flipper, which left my mother at home alone most days. Our trailer was located right at the back of the park and only the trees separated our trailer from the sand factory field.
+**Part One: The Old Mercer Place**
 
-The trailer we lived in was old and beat up, it had siding missing underneath it, which left it open for any animals to possibly wander underneath. The first time hearing this thing, it sounded as if two cats were chasing eachother full speed underneath our trailer. We could feel it from one end of the trailer to the other end. This was in the early days of June and we didn’t think nothing of it, being that we lived in a trailer park that was infested with stray cats.
+My father had three rules about the woods behind our house.
 
-Sometime in the middle of the month a neighbor approached my mom and advised her to get our siding fixed, as she had seen an abnormally large raccoon exit from underneath our trailer in the early morning hours. 
+Never cross the creek after sundown.
 
-Now my mom, being left alone every night, began to hear noises in the trees right behind our home. She described these noises as a monkey screaming at the top of its lungs as loud as it could. She would try to explain what was going on to me when I got out of work every night, but I didn’t think much of it. Until one day I heard the noises too. Neighbors started to complain about their pets coming up missing.  Things started to get kind of creepy.
+Never follow a voice you couldn't put a face to.
 
-That’s when my mom met Luigi. Luigi was a large, muscular, black man that stayed with his mom in the trailer park. I think my mom was standing outside one night smoking some weed when he walked by and they struck up a casual conversation. Then he started in on his personal experience without any prior knowledge to my mom’s experience. One night he was coming home and it was late. He seen a creature at the end of his road, which he believed was a dog. This had to be at least 50 yards from him. It began to approach him. He didn’t pay it no mind, that is until it stood up. He described this creature as an all white beast that resembled a monkey, with pitch black pupils that stared in his sole. It began to run at him. He ran into his home as fast as he could and before he could shut the door this creature shoved his hand in the door blocking it from closing. Luigi is at least 6’5, 250 pounds and this man was screaming for his mother. When this thing finally left his home, it stole the lid off of his garbage can. 
+And no matter how familiar that voice sounded, never answer it.
 
-This prompted my mother to figure out what the hell this creature was. It scared the shit out of her, and intrigued her at the very same time. It haunted her thoughts. Still to this day it does. Her beliefs as to why this creature exists and what it is rattled her thought’s. It traumatized her. If I wasn’t so young and naive it probably would do the same to me. I don’t live too far from where I used to live, and I still find myself shutting my doors on certain summer nights when I hear things outside that don’t sound too promising. 
+I thought the old bastard was crazy. Now I'd give anything to hear him say those words again.
 
-Following her hearing Luigi’s story and continuing to hear the creature’s scream in the evening hours, my mom began to ask around. Surprisingly, not very many of the residents had seen or heard anything, which is crazy because allot of our neighbors had spent allot of time outside. 
+My name's Elias Mercer, but anyone who knows me calls me Eli. I'm thirty-nine. I'd stayed away from that house for twenty years, long enough to convince myself the rules were just one more way for Dad to control me. He had plenty of those. No visiting friends after dark, no camping, no wandering the logging roads. If I broke one, he'd stand in the doorway and wait until I couldn't bear the silence anymore.
 
-One night my friends Brett, Ryan, Bob and I were hanging out at my house when we heard it screaming. It was already pretty dark out, but this prompted all of us, my mom included to investigate. We first walked around the trailer park. We ended up meeting one of the residents who accompanied us out of pure interest that it was the chupa cabra, he had a speech impediment and was calling it the cupa cabra, haha. We didn’t find any evidence of the creature in the trailer park so we decided to cross into the woods and venture into the sandlot next to the park. None of us had ever went in there before because it was tresspassing. 
+Dad died of a heart attack on Tuesday, October 6, 2026. We buried him three days later outside Langley, Arkansas. By sundown that Friday, I was back at his farmhouse with my nine-year-old daughter, June, planning to pack whatever mattered and put the property up for sale.
 
-So the trailer park sat on a 4 way corner, and on one side towards Lake Michigan was the sandlot, and the other side of the park was the factory that ran the sandlot. The sandlot was full of big Sandhills that were at least 20 feet tall, and a pond separated the lot from the factory. There was a trail from the entrance of the lot that curves around the hills and off into a wooded area, and in between these hills were patches of grass that were at least 4 to 5 feet tall. 
+The house stood on private land surrounded by the Ouachita National Forest. A narrow creek separated the backyard from a stand of timber so thick you could hardly see daylight between the trunks. Dad cleared our side every spring, but beyond the water the ferns stayed green even during a drought.
 
-That night when we went in there, our search for this creature was unsuccessful. The resident we had befriended abandoned us once he had learned of our plans to trespass, so it was just the 5 of us. We were armed with a small flash light and a BB gun. We were too stupid to realize if we had an encounter we probably didn’t stand a chance. We walked around on the trail for a little bit thinking every noise and movement was the creature and we ventured maybe 20 feet into the dark woods before we decided to turn around because we were all too chicken shit to continue going further. We were shooting the BB gun in pure darkness because we all had imagined we seen the thing; it was a joke to us. 
+As a boy, I'd sometimes heard footsteps over there. They always stopped when I did.
 
-The crazy thing is that this sandlot was separated by about a mile long stretch of woods that lead up to the beach, and my buddy’s and I would camp in these woods at the beach a ton this summer. On our walks back every morning I would find myself staring into these woods, scanning them for any sign of the creature, all while feeling like I was being watched. 
+In summer, the cicadas shrieked until the air seemed to vibrate. But every so often the noise would end all at once. The dog would creep under the porch, and I'd find myself watching that bank for movement. Nothing came out. That was almost worse.
 
-About a week after our first search, my 3 friends and I found ourselves talking about the creature. Ryan thought the whole thing was bs, he thought my mom was insane. So we decided to venture into the sandlot once again, this time to prove him wrong. We armed ourselves with knives and the BB gun and a flashlight. We entered the lot just next to the entrance this time, I had flip flops on and decided to take them off at the entrance and leave them where we entered, hidden in the woods. 
+When I asked Dad why we couldn't cross, he pointed to the water. "That creek ain't there to keep you from getting lost, Eli. It's there to remind you where you belong."
 
-This time around we searched harder, we had grew more ballsy and we really wanted to see this thing. We ventured into the dark trail deeper, and eventually we found ourselves on the beach of the pond that separated the lot from the factory. It was covered in these weird footprints that had 3 long toes in the front and one long toe in the back. There were two sizes, one was about 5 to 6 inches and the other was about 2-3 inches. The whole beach was covered in them. We finally had something solid to investigate. We were too intrigued with these prints to realize that the security at the factory had spotted us tresspassing. After scanning these prints for 10 to 15 minutes, we had decided to split up, me and Bob and Ryan and Brett. We were on one side of a giant sand hill and they were on the other side. Little did any of us know, the creature was on top of the very hill that separated our small group. We heard it shriek, it let out a blood curtailing cry, and before we could even react it had launched itself to the ground, it stood there dead in the middle of the pass, it’s eyes pitch black, it’s body covered in white fur, it towered over us, it had to have been at least 7 feet tall, with noticeable muscle definition, arms that slunk down to its knees and long draggy ears that resembled Momo from Avatar the last Airbender. Withen seconds it launched itself into the trees on the other side of the path, and those trees sat on a hill, so this thing had to have jumped at least 10 to 20 feet high. 
+That was Harlan Mercer. A man who could make a conversation feel like punishment.
 
-Bob and I didn’t even have a moment to absorb what we just saw, I know we were both trembling in fear, as soon as that thing had gotten in the trees a big light hit those same woods, and the sound of talking and a running engine became clearer. We both realized it was the security guards from the factory investigating the trespassers on their property. We ran for the grass that stood 5 feet tall and laid on the ground face first. We could feel them shine their big light on us for what felt like 10 years. When the sound of the engine finally drifted away, we high tailed it out of there. I was barefoot running as fast I could through thorns and prickers, I didn’t even stop to grab my sandals. I had an adrenaline rush that could make a person come back from the dead. 
+We'd had our last real argument the day I left home. Dad said I'd come crawling back when the world taught me some sense. I said a few things I haven't forgiven myself for, though at the time I meant every word. We spoke on the phone afterward, on birthdays and at Christmas, but neither of us ever brought up that day. When I found out he was dead, the first thing I felt was anger that we'd left so much unsaid.
 
-I’m not entirely sure what we did afterwards, I’m not sure whose house we went to or what we talked about. What I do know is that we never attempted to search for that thing again, and the agonizing screams from it were never again heard by any of us. I only lived in that park for a few more weeks before I moved. Still to this day Ryan thinks we were messing with him. Even witnessing the tracks, he thinks me and Bob made the noises once our group separated. 
+•  •  •
 
-For those reading this thinking it’s a creative fictional story about a group of friends trying to fight a scary monster, it’s not. This is a recounting of a meeting with an ungodly creature, and the reason I’m sharing this is because besides Bob, Luigi and myself, I don’t know anybody that’s seen it. I don’t know what it’s capable of. I don’t know why it exists, and I’m not even sure if it’s still alive or not. So I’m posting this ultimately in search of answers, whether it be similar encounters, pictures, videos or stories. If anybody has ever heard those angry, almost painful screams, screams that no human could mimic, please tell me your story. 
+The last mile of the driveway was little more than ruts and blackberry vines. June held her stuffed rabbit, Buttons, by his one good ear and watched the pines go past.
+
+"Did Grandpa really live out here alone?"
+
+"Most of the time."
+
+"Wasn't he lonely?"
+
+I used to think he preferred it. Now I wasn't sure.
+
+"I reckon he got used to it."
+
+She pressed against her seat belt. "Then who's that man?"
+
+I eased off the gas. "What man?"
+
+"Behind the trees. He was standing sideways."
+
+I saw nothing but trunks and tangled brush. "Probably a hunter."
+
+"He wasn't holding a gun."
+
+"A deer, then."
+
+She gave me a look. "I know what a deer looks like, Daddy."
+
+She watched the trees until the house appeared.
+
+A bend in the driveway followed the creek for a few hundred yards. I recognized a split boulder beside the water where Dad once caught me trying to build a bridge from fallen boards. He'd grabbed me so hard by the collar that the seam tore. I remembered the bruises more clearly than I remembered him carrying those boards away in the rain.
+
+Inside, the place smelled of damp wood and stale tobacco. Dad had saved everything: bent nails in coffee cans, bills from the nineties, my childhood baseball glove. The webbing had been repaired with the heavy thread he used on his work gloves. I'd never known he'd bothered.
+
+June slipped her hand inside. "Did Grandpa teach you to catch?"
+
+"He tried."
+
+"Like you taught me to ride my bike? You let go too soon."
+
+"I ran right behind you all the way to the mailbox. You just didn't look back."
+
+"Because I was riding," she said, as though that settled it.
+
+I still had a photograph from that day on my phone. June had one foot off the pedal and both arms flung wide, certain she was about to crash. My hand was inches from the seat. I hadn't let her see the picture yet; she liked telling everyone she had done the whole thing herself. I liked letting her.
+
+On the mantel she found a photograph of a young woman with her arm around a little boy.
+
+"That's you. Who's she?"
+
+"Your grandma. Margaret."
+
+"Why didn't I meet her?"
+
+"She died when I was eight."
+
+Dad said my mother had gotten sick while I was staying with an aunt. He never let me ask much more than that.
+
+In the picture, her hand rested on my shoulder. I couldn't recall the weight of it. I did remember her voice, though. She used to sing while washing dishes and, whenever I got into trouble, smooth my hair and say, "Lord have mercy, Elias, what am I gonna do with you?"
+
+I remembered the sound of singing. Not one note of the song.
+
+My memories of my mother were hazier than those of Dad. I knew that was normal. Children forget faces, smells, whole years. But I could remember the tiny scar on her thumb and the way she scraped batter from a bowl for me to eat. It bothered me that the tune had vanished while those useless details remained. I stood there looking at her photograph until June tugged my sleeve and asked whether we could have supper.
+
+•  •  •
+
+We ate canned soup at the kitchen table because the dining room felt colder than the rest of the house. June wanted to know whether Grandpa had liked children. I told her he'd loved me, just wasn't good at saying so. The lie came easily. I hated myself a little for it afterward.
+
+June fell asleep upstairs around eight. I made coffee and opened Dad's desk. Beneath a stack of property records lay a cracked leather notebook, its pages covered in small, uneven handwriting.
+
+*March 12, 2004. Three knocks on the north wall. Nothing outside.*
+
+*April 6. Tracks along the far bank again. Too far apart to be a man's.*
+
+*May 19, 2018. Heard Margaret calling from the lower pasture. Did not answer.*
+
+My mother had been gone since 1995.
+
+A later entry had been pressed so hard into the paper that the letters scored the page.
+
+*It knows his name now.*
+
+Below it: *God forgive me, I answered.*
+
+Three taps sounded at the living room window.
+
+The porch light reached only to the grass beyond the glass. Dad had cut down every tree close enough for a branch to touch the house.
+
+I heard a scrape, as though somebody had dragged the heel of a boot across the boards outside. But there was no porch below that window. Just the drop to the yard and a clear stretch of ground before the creek. For a moment, I couldn't make myself look up from the notebook.
+
+"Eli?"
+
+I knew the voice before the second word.
+
+"Eli, boy. Come out here a minute."
+
+My father, right down to the irritation in his Arkansas drawl.
+
+Leaves shifted near the pines. A pale hand rested against a trunk well above a man's head. I counted six fingers before it disappeared.
+
+"Son, you reckon you could come give your old man a hand?"
+
+I wanted to think one of his old lumber-mill friends was playing some rotten joke. Then it said, "Don't you turn your back on me, boy."
+
+Those were the last words Dad had shouted when I left home more than twenty years earlier.
+
+"Dad?"
+
+The word was out before I remembered his rule.
+
+Every insect fell silent. Beyond the creek, something let out a long, wavering breath, like a man trying not to laugh.
+
+Upstairs, June began to cry.
+
+•  •  •
+
+I found her sitting upright, quilt bunched beneath her chin. I sat beside her until she stopped shaking. Then, without thinking, I tapped her shoulder three times.
+
+Three taps meant *I love you.* We'd done it every night since she was four. She always tapped back.
+
+It began when June was little and afraid of thunderstorms. I used to sit on the edge of her bed, trying not to show that I had no idea how to make thunder less frightening. Somehow we settled on the taps. We'd use them in crowded stores, at school drop-off, anywhere one of us needed to know the other was there. I'd forgotten plenty of things about those five years. That wasn't one of them.
+
+This time she moved away.
+
+"What's that for?"
+
+"Our secret, June Bug."
+
+She frowned. "What secret?"
+
+I tapped again. She watched my fingers, puzzled.
+
+"You never did that before."
+
+I nearly argued. I could have named a hundred nights when she'd answered my taps, even with her eyes closed.
+
+Outside, my dead father called for me again.
+
+This time he was laughing.
+
+**Part Two: What the Creek Kept**
+
+I stayed beside June until she slept. Outside, Dad's voice called through the trees, sometimes angry, sometimes frightened. Once it coughed. That smoker's cough used to wake me every morning when I was a boy.
+
+It was the cough that came closest to making me answer again.
+
+He'd given up cigarettes twice in my childhood. Both attempts lasted a week. I used to count the days and wait for him to get angry enough to start again. Hearing that cough beyond the creek, I found myself doing the same thing I did at twelve: holding perfectly still until I could tell what kind of mood he was in.
+
+Downstairs, I turned off the living room lamp. The window reflected my face over the porch light and the first row of trees. Beyond the creek, the dark looked solid.
+
+I opened the notebook again.
+
+The earliest entries were from October 1995, the year Mom supposedly died.
+
+*October 14. Margaret heard Eli crying across the creek. Boy was upstairs asleep. I checked.*
+
+*October 16. It cried again. She answered before I could stop her. Eli asked why she quit singing at the sink. She hadn't quit. He couldn't remember the song.*
+
+I remembered my mother singing. Not the tune.
+
+I tried to force it back. Hymn? Lullaby? Something from the radio? All I could remember was the clink of dishes and my own bare feet on the kitchen floor. If Dad's entry was true, then I'd been unable to remember the song since the very week it disappeared from our house.
+
+Four pages later:
+
+*October 23. Margaret's gone.*
+
+*Heard the boy calling beyond the creek. Real Eli was asleep beside me on the couch. She kept saying our baby was hurt.*
+
+*I followed her to the water. Saw something tall and pale bent over behind the trees. It spoke. Margaret answered, then crossed.*
+
+*Heard her scream once. Never found her.*
+
+Dad had told me she'd died in a hospital while I stayed with my aunt. I could remember my aunt holding my hand outside a church, but not a casket or a graveside. The longer I tried to picture them, the less certain I felt they'd ever been there.
+
+I remembered being angry with Dad for not letting me see her one last time. He'd told me she'd already been buried. I screamed at him until he raised his hand, then put it down without touching me. For years that was the part of the story I'd carried around: a frightened little boy sure his father was ashamed to see him cry. Now I wondered what Dad had heard from the woods while I was screaming inside the house.
+
+*October 27. Told Eli his mama passed away. He keeps running to the window whenever it calls her. Better he thinks she's dead.*
+
+There was a small sound behind me.
+
+Three taps from the hallway wall.
+
+"Son?" Dad said from the kitchen. "I can't find the light."
+
+The kitchen doorway was empty. I knew every loose board between the hall and the sink, yet I hadn't heard anything move across them.
+
+"Just give me a hand, Eli."
+
+I wanted to turn on every light in the house. Instead, I gripped the notebook so hard the cover bent.
+
+The kitchen smelled faintly of tobacco, warm and stale, as if Dad had just finished smoking at the sink. I knew the shape of that room in the dark: the metal edge of the counter, the scar in the floor where he dropped an axe head, the cupboard door that never closed all the way. I couldn't see anybody in it. That didn't make the voice any farther away.
+
+When I didn't answer, the faint smell of cigarettes faded. The voice went with it. I never heard footsteps leave.
+
+I should have taken June and gone then. But there was one more entry I couldn't make myself leave unread.
+
+If I'd been alone, I might have stayed there until morning reading every page. I wanted proof that Dad hadn't lied to me because I was an inconvenience. I wanted to know why a man who could face down anybody in town had spent his life afraid of a few acres of woods.
+
+*June 4, 2018. Eli asked why I never took him fishing. We went every Saturday when he was small. His green tackle box is in the shed. I answered Margaret three nights ago.*
+
+I'd noticed the tackle box earlier that day. My name was scratched into the lid. I had no memory of holding a fishing pole beside my father.
+
+Across the bottom margin, Dad had written:
+
+*The voices get farther than the body. The tracks never come across the water.*
+
+And beneath that:
+
+*Sometimes I know it ain't her. Sometimes I answer anyway.*
+
+Something giggled upstairs.
+
+June.
+
+Then I heard her say, "Okay, Daddy."
+
+The back door opened.
+
+•  •  •
+
+June stood barefoot on the porch in her pink pajamas, Buttons dangling from one hand. She turned when I called her name.
+
+"You said you were going to show me something."
+
+"I didn't. Get inside."
+
+I pulled her through the doorway and locked it. She clutched her rabbit to her chest, and for a horrible second I couldn't remember what she called him. I'd stitched his ear back on twice. I'd bought him for her. But the name was gone.
+
+"What's your rabbit's name?" I asked.
+
+"Buttons." She looked hurt. "Daddy, you know that."
+
+Once she'd said it, the name sounded familiar. Before that, nothing.
+
+I tried to remember the first time she'd carried Buttons out of the store, when she still called every stuffed animal a baby. The scene came back clear enough. His name didn't. That missing word frightened me more than the shape I'd seen among the pines, because I could feel its exact size inside my mind.
+
+June had answered a voice pretending to be me, and I was the one who'd forgotten.
+
+I crouched in front of her. "Something's out there using our voices. Whatever you hear after dark, don't answer it. Not even if it sounds like me."
+
+"Then how do I know it's really you?"
+
+Her question wasn't the question of someone who believed in monsters. It was what any child would ask after a parent told her not to trust his voice. I'd spent her whole life teaching her to come when I called. Now I was telling her that habit could get her killed.
+
+She was nine. I had no answer that would make a nine-year-old feel safe.
+
+She slipped her hand into mine. "Two squeezes," she said. "If it's really you, you can squeeze my hand twice."
+
+I squeezed back. "All right. Two."
+
+A voice came from outside.
+
+"June Bug?"
+
+My voice. The rasp I get when I'm tired, the little upward turn I put on her name.
+
+"Come on, baby. Daddy's right here."
+
+June squeezed my hand twice.
+
+Beyond the creek, something leaned against a pine. It looked almost human until it raised its head. Higher. Still higher. Its shoulder stayed in place while its narrow face emerged above the lowest branches.
+
+One hand curled around the trunk. The fingers bent in places fingers shouldn't.
+
+"June?"
+
+The voice came a fraction before its mouth moved, like a performer missing a cue.
+
+Its body didn't move with any breath. Nothing in the silhouette suggested lungs. For a second, though, it seemed to study my stance. One shoulder dropped. Its head turned at the same angle as mine. I could almost believe it was looking into a mirror and correcting itself.
+
+"Daddy's right here."
+
+Then it laughed with my laugh, that short, embarrassed chuckle I make when a joke falls flat. It held the sound a little too long.
+
+I understood, suddenly, that it wasn't laughing at us.
+
+It was practicing.
+
+•  •  •
+
+I got June inside and shut the curtain. She kept hold of my hand.
+
+"His face didn't fit," she whispered.
+
+"What do you mean?"
+
+"When he stopped, it kept moving."
+
+I took the keys, Dad's notebook, and nothing else. The truck was twenty feet from the front porch.
+
+I carried June across the gravel. As I reached the passenger door, she tightened her grip around my collar.
+
+Twice.
+
+Someone stood in her upstairs window.
+
+A girl in pink pajamas, holding a rabbit with one torn ear. She lifted a hand and waved.
+
+"Daddy? Why'd you leave me?"
+
+The voice was June's. The figure pressed its cheek against the glass. Its skin lagged behind the movement, then settled into place as though pulled by invisible fingers.
+
+The real June shook against me. She couldn't have made that face at the window even if she'd tried. The girl upstairs was smiling, but the muscles around her eyes hadn't been told. I caught myself watching her instead of moving, as if one more second would explain what I was seeing.
+
+It raised one hand and tapped the pane three times.
+
+The secret my daughter had forgotten.
+
+June hid her face against me. I buckled her into the passenger seat, scrambled behind the wheel, and started the engine. I reversed so hard that gravel struck the porch steps.
+
+Three knocks came from the rear window.
+
+In the mirror, something pale crouched in the truck bed. Its fingers hooked over the roof without leaving marks in the dust.
+
+I'd have sworn I felt the suspension dip, though the truck never changed its pitch. Dad's notebook flashed through my mind: no tracks across the water. Whatever sat behind us was a picture made with the same cruel patience as the voices. Knowing it couldn't be solid did nothing for the cold spreading through my chest.
+
+"Lord have mercy, Elias," my mother's voice said behind my head. "What am I gonna do with you?"
+
+June reached for my hand. Two squeezes.
+
+I kept driving.
+
+In the dark windshield, faintly lit by the dashboard, my reflection began to smile.
+
+I wasn't smiling.
+
+**Part Three: The Last Answer**
+
+The smile stayed in the windshield when I turned back toward the road.
+
+"Daddy!"
+
+A fallen pine limb lay across the next bend. I swerved, clipping it with the passenger-side mirror. The truck skidded sideways in the gravel and stopped with a shudder.
+
+I checked June. The seat belt had caught her shoulder, but she was all right. Buttons lay beneath her feet.
+
+She was trying not to cry. She had that look she gets at the doctor's office, brave until somebody asks whether she's frightened. I wanted to take her home and put on the cartoon she'd been watching before we drove to Langley. I wanted a problem I knew how to fix.
+
+I tried to drive. Something scraped against the front wheel. A fork of the branch had jammed beneath the fender, and each turn of the steering wheel ground it deeper.
+
+Three knocks came from behind my head.
+
+"You're going the wrong way, boy," Dad's voice said. "You'll get that little girl killed."
+
+I found a flashlight in the glove compartment.
+
+"I'm clearing the tire," I told June. "Lock the doors. Don't open them for a voice. Not even mine. I'll come back and squeeze your hand twice."
+
+"What if you fall?"
+
+"I'll get up. Stay here."
+
+She caught my fingers before I got out and squeezed twice.
+
+I went around the hood, set the flashlight where it shone on the wheel, and crouched beside the tire. The pine limb had wedged against it. I hooked both hands under it and pulled. The bark tore at my palms before the branch snapped free.
+
+The cold gravel soaked through the knees of my jeans. A smell of split pine rose from beneath the bumper. I remember both things because I was trying so hard to pay attention to ordinary details. I thought if I could hold on to the tire, the branch, the beam of my flashlight, nothing else could get inside my head.
+
+Behind me, a door latch clicked.
+
+I turned. My flashlight rolled off the hood and struck the gravel.
+
+From somewhere down the slope, my own voice shouted, "June! Help me! I fell!"
+
+The passenger door stood open.
+
+June was gone.
+
+For one second, I stood there listening to the empty cab. The radio was still on low, some late-night preacher talking about salvation. I had told June to keep the doors locked. She must have heard me crying for help and forgotten every warning I'd given her. Or remembered them and opened the door anyway, because I'm her father.
+
+•  •  •
+
+Her bare footprints led through a break in the brush toward the creek. I ran after them, pushing past briers, hearing my own voice farther ahead.
+
+"Honey, I'm hurt. Come down here."
+
+The creek was only a strip of moonlit water when I reached it.
+
+June stood on our bank, clutching Buttons. Across from her, a man in my jacket crouched among the roots. One leg appeared bent beneath him. He had his face buried in his hands.
+
+The bank was slick clay, and the far side rose abruptly beneath the trees. I remembered Dad hauling me backward from those same stones when I was small. He'd been furious. I thought then that he cared more about the rules than whether I was hurt. Standing there with June inches from the water, I understood the look he'd had on his face.
+
+The man lifted his head. He was wearing my face, but the fear arrived late in his eyes, like he'd remembered to put it there only after raising them.
+
+"You have to help me," he told her.
+
+June moved one foot onto a stone at the edge.
+
+"June," I said.
+
+She turned. Relief crossed her face until the other me spoke.
+
+"He's not your daddy. You know what I told you about the bicycle?"
+
+He looked at me and smiled with my mouth.
+
+"I ran right behind you all the way to the mailbox. You just didn't look back."
+
+My own words from earlier that afternoon.
+
+She hesitated. There were two men with her father's face, and one of them was using a memory she knew belonged to us.
+
+June clutched her rabbit so tightly its loose ear twisted around her fist. She wanted to believe me. I could see it. But I had her father's voice, and so did the shape across the creek. Her little signal was the one piece of proof it hadn't stolen yet. I was too far away to use it.
+
+I held out my hand. "I can squeeze twice. You don't have to listen to either voice. Just reach for me."
+
+The thing across the water extended its hand, too.
+
+Then it started humming.
+
+I recognized the tune the way you recognize a place you haven't seen since childhood. My mother used to sing it at the kitchen sink. The notes came back only as the creature sang them, and even then I couldn't have repeated them myself.
+
+The imitation of my face loosened. The skin slipped as if it had been hung over something narrower.
+
+Beneath it was my mother.
+
+She did not rush toward me. She stood among the roots as if she were waiting for me to come home from school. That quiet patience almost worked. I was eight again, aching to bury my face in the front of her dress. I could hear her singing the notes I'd spent thirty-one years trying to remember.
+
+Blue dress. Dark hair. The same face in the photograph on Dad's mantel. She hadn't aged a day since 1995.
+
+"Elias," she whispered. "I heard you crying. I thought my baby needed me."
+
+Behind her, something unfolded among the trees. A long pale limb bent around a pine. Another followed, far above where a person's shoulder should have been. I saw a narrow head turn without the rest of its body moving.
+
+The woman held out her hand to me.
+
+"Answer me, sweetheart. Let me know you're there."
+
+The creek murmured over stones. June glanced from the woman to me. Her bare foot slid on the moss. She dropped to one knee, caught a root on the opposite bank, and clung there above the water.
+
+I lunged but couldn't reach her. The figure wearing my mother's face bent forward. Behind it, six pale fingers tightened around the tree.
+
+Then I remembered what happened when I'd answered at the window.
+
+The footsteps stopped. The woods went silent. The thing had listened so closely that for an instant it stopped pretending to be my father.
+
+I could make it listen again.
+
+When it listened, it stopped reaching. I only needed a second.
+
+I knew what it would cost. I couldn't choose which memory June would lose. I couldn't know whether she'd still recognize me when it finished.
+
+She was pulling on the root. Another few inches and she'd be across.
+
+"I'm here," I said to the woman.
+
+The humming stopped.
+
+I knew that if June survived, I'd have to tell her what I'd done. She might never believe me. She might wake up unable to remember our mornings together, or her birthday, or my face. There was no way to ask that thing for mercy; it had learned the sound of mercy only so it could speak in my mother's voice.
+
+Across the creek, my mother's borrowed face went blank. The towering figure leaned toward me, its pale head tilting as though catching a sound no one else could hear.
+
+June's hand slipped from the root. I seized the back of her pajama shirt and dragged her into my arms.
+
+For an instant the entire forest seemed to hold its breath. Then water and insects and June's sobs rushed back into the world.
+
+My father's voice rose from the far bank.
+
+"You always were a damn fool, boy."
+
+I ran without answering.
+
+•  •  •
+
+When we reached the truck, June touched my cheek.
+
+She had mud smeared up one shin and blood on her knee from the stones. I checked the cut, desperate to have something practical to do. It was shallow. She watched me clean it with the damp corner of my sleeve as if she were trying to decide which questions were safe to ask.
+
+"You were there when I learned to ride my bike, weren't you?"
+
+"Yeah, baby."
+
+"I remember the mailbox." She swallowed. "And falling off the first time. But when I try to remember you running behind me, there's nobody there."
+
+A few hours earlier she'd teased me for letting go too soon. Now she could remember the ride, the scraped knee, the mailbox. Just not her father keeping pace with her.
+
+"I'm sorry," she whispered.
+
+"Don't you ever apologize for that."
+
+I buckled her in. She squeezed my hand twice, and I squeezed back.
+
+The truck started. I drove until there were streetlights, gas stations, and other people who had no idea what lived in the forest north of Langley.
+
+We found a motel in Hot Springs after one in the morning. June fell asleep with Buttons beneath her chin. His torn ear had come loose again, so I used the motel sewing kit to stitch it back on.
+
+Outside the motel window, cars passed through pools of orange streetlight. Somebody laughed in the parking lot. I could hear a vending machine rattling down the hall. Such stupid, ordinary sounds, and I had never been so grateful for them. June didn't ask whether the thing could follow us there. Neither did I.
+
+When I finished, I kissed her forehead and tapped her shoulder three times.
+
+"What's that mean?" she asked sleepily.
+
+"I love you."
+
+She tapped me back.
+
+"Do it tomorrow, too."
+
+"I will."
+
+•  •  •
+
+It's Thursday, October 15, as I'm writing this. Six days since we buried Dad.
+
+I've kept his notebook. I found a letter folded between the last two pages, addressed to me. Most of it was an apology he should have said while he was alive. There was one sentence I couldn't stop reading:
+
+*I kept you away because I was afraid of losing you, and I lost you anyway.*
+
+Below it he'd written, *I love you, son. I should have told you more often.*
+
+He couldn't say those words to me while he was alive. I wish I knew whether it was stubbornness or fear that stopped him. I suppose I'll never know.
+
+The notebook had one last surprise.
+
+I'd seen the entry already:
+
+*March 12, 2004. Three knocks on the north wall. Nothing outside.*
+
+On the back of that page, beneath a fold, Dad had written:
+
+*March 13. Tapped Eli's shoulder at breakfast. Three taps, like when he was little. He asked why I was doing it. I answered Margaret Tuesday night. It took that from him, too.*
+
+I'd always thought June and I invented our little ritual together. I don't remember my father tapping my shoulder even once.
+
+But somewhere along the way, my hands remembered what I couldn't.
+
+Tonight June asked me to tell her about learning to ride without training wheels. She knows what happened. She's heard the story enough to repeat every detail, right down to the mailbox.
+
+She still can't remember me running behind her.
+
+Somewhere beyond that creek, something can.

@@ -1,0 +1,51 @@
+I’m so sorry this is very long, but PLEASE bear with me a lot happened. I know when teens post it’s often brushed aside and seen as fake, but I don’t know what to do and i’m just so shaken up after this.
+
+This all happened in Mid-Late July, but I(18F) just found out about these things yesterday, and I’ve been thinking about it ever since.
+
+This summer my family moved to another state, and since i’d just graduated high school I chose to spend my last summer in my hometown, and stayed with my best friend.
+
+My college does this thing for incoming freshman, where you can spend a week on campus and get to know college life. I chose not to do it because I was working 7-5 every day that week.
+
+Well, I get an add from a guy who is in my community at college. This guys name is “Someone” on snap, and will remain as “Someone” throughout the story.
+
+I hadn’t been added by any other incoming freshman, so I accepted it in hopes of making new friends. We start messaging with the basic “Hey, where are you from, what’s your major, what are you wanting to do with that major, etc.”
+
+I saw 0 red flags because he seemed like a genuinely nice person, and after a few weeks of talking we grew really close. He mentioned how he was coming into town for the college event and how he was wanting to take me out on a date.
+
+At this point we’d voice called a lot, and sent a few photos back and fourth, so I trusted him and agreed that we could go out one day.
+
+I had an odd feeling, which should’ve been my first signal to just not meet up with him, but im not the brightest sometimes and I ignored it.
+
+The night comes and i’m calling my male best friend and his gf, (18M and 17F). We’ll call them Roman and Ashley. Roman tells me that it’s weird that I haven’t video called with the dude, but I explained that I really didn’t like video calls and that if he asked me to i’d say no. I’m a little lost on what led to it but it led to Ashley and Roman watching me and Someone on our date.
+
+I had got a call from Someone telling me his car broke down and he couldn’t drive to the date, so I offered to come pick him up. I get the address for the dorms he was staying in and I went out to the address, which is in the middle of the most unsafe area of this town. NO DORMS HERE at all.
+
+I call Someone and ask him to confirm the address, which is the same one in my google maps. I explain how there’s no dorms here, and ask if he could possibly ask a friend for the right address since we both are unsure. He gets all angry at me but finally finds the right address, and sends it to me.
+
+By the time I get there, i’m in a parking lot all alone and sitting there for thirty minutes waiting on him to find me (I parked on the second floor of the parking garage, where nobody was). I’m calling Ashley and Roman and complaining about this, and while i’m waiting the restaurant closes. They’re telling me to leave and I can come third wheel them, but I told them it was too late to back out.
+
+Someone finally gets to the car, and he looks NOTHING like the photos he sent me. In the photos I saw, he had black shorter hair, (almost like a buzz), LITERALLY BEAUTIFUL SKIN I WAS JEALOUS, and all around I thought he was an attractive dude.
+
+He had acne all over his face, the greasiest hair i’ve ever seen, it was past his shoulders, and has maybe 30 pounds more than the photos I saw. Just obviously didn’t take care of himself. I was cat fished. But he was already in my car, and I felt too sad to say no, so I continued on with the date.
+
+He insisted that we go to a park, late at night, and I agreed because I knew Ashley and Roman were going to be there. We get there and I sit in the car with him until I see Romans truck pulling into the road to get to the park.
+
+I finally get out and we walk along the tiny lake that’s there, and he is being super creepy and trying to get away from Ashley and Roman as we walk. (They are sitting at one picnic table on their phones, so it wasn’t like they were following us or staring).
+
+Eventually Someone gets so weird that I tell him I’ve had a long day and I am just going to take them to the dorm. They get all weird but I quickly got them to the dorm and that’s that.
+
+I come home to a bunch of snaps from them telling me they don’t want to go out and that his roommate is saying i’m weird. I just ignored him and said “That’s fine, hopefully we can be friends”
+
+A week later he tries telling me he never actually had a car and lied about that, but wanted to go on a second date, which I refused with the excuse being “sorry, you already said you didn’t wanna go out again and I lost interest. I prefer someone who doesn’t lie and can make up their mind without their friends.” He replied telling me I ruined his life and that Im a horrible person and should feel sorry about myself. I just blocked him.
+
+Fast forward to yesterday, I get onto Instagram and saw I had a DM from my friend Veronica, (she knew about the situation). She told me to check YikYak and see the Someone drama.
+
+I was like “uuuuhh what?” and went to go see what people were posting.
+
+***TW: MENTIONS OF SA, STALKING, AND HARRASSMENT!!!***
+
+>!So, someone came forward describing their experience being SA’d by one of the boys in marching band. She gave out a description and the initials, and it all matched Someone. Someone had been stalking not only them, but two other girls in marching band, and got kicked out for stalking. One he got kicked he began harrassing these women and ended up SAing them all.!<
+
+I called Roman, (him and Ashley are now broken up), and explained what’s coming out about Someone, and we both agreed that if they weren’t there I could’ve been one of those girls, and I am SO thankful Ashley had convinced me to let them follow us.
+
+My heart goes out to those women, and I support them 100%.

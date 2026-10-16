@@ -1,0 +1,164 @@
+I found this notebook in the woods…
+
+And this… is what it read…
+
+Randy woke up in the hospital at 3 AM with hella mornin’ wood, he looked around. He was dreaming about Jeff, This time Randy said “Go to sleep.
+
+The doctor came in, “get a nurse to clean that all up over his blanket.”
+
+Randy leaned in almost kissing the doctor “Erm…I think I want my parents in here now…” 
+
+The doctor responded “Sure”. Randy's dad was let into the room. 
+
+Randy said “You let in some fresh air doc?” because he didn’t have a father. His mother swiftly came in. “I’m sorry sweetie, they had to cut through your Aeropostle t-shirt…” 
+
+“NOOOOOOOOOOOOOOOOOOO!” Randy cried in angst
+
+“THIS IS WORSE THAN THE TIME I GOT \[REDACTED\]!” He exclaimed 
+
+While reading this it shook me to my core and had to redact the next sentence to not implode your feeble reddit minds…
+
+“Unfortunetly, you’ve had to get a transplant from that one guy who destroyed your heart, Jeffrey Stein or something. Remember him? The guy who tried to kill ya? I hope the heart matches with your new T-shirt the hospital gave you…” 
+
+Randy looked down to see his absolutely abysmal vineyard vines t-shirt
+
+“I can’t go out like this, at this point I'm practically asking for it, a beating that is.” Randy winked and said
+
+“Randy do you have any known STD’s?” The doctor asked infront of his mother. Doing a motion into his mouth and using his tongue to press on the inside of his cheek. And making a weird sound.
+
+“Erm… kinda awkward?” Randy said in annoyance
+
+Randy had approximately 4 STDs including but not limited to; Having a weird feeling, Syphilis, Homosexuality, and terminal involuntary virginity not able to be cured by sex.
+
+“Nah” Randy responded
+
+“Good.” the doctor responded. He motioned to Randy’s mother. “It’s best if you leave the room now. His mother left the room.
+
+“Good, Randy, now that this BITCH is out of the room, we can talk for real for real. One brother of the same color to another.” The doctor said motioning to his mother walking through the window.
+
+Randy, now in a state of hysteria and sterilization, grabbed hold of the doctor's thing.
+
+“I see you have a hold of a thing of dih, Randy.”
+
+Jeff looked through the window, his brow furrowed with envy. No one around him cared.
+
+“My life isn't a tragedy… It's a comedy. Why so serious?” Jeff pondered.
+
+“Doctor, one of them got out!” One of the nurses spelled out.
+
+The plot didn’t acknowledge Jeff any further.
+
+“Doc, is it terminal?” Randy said
+
+“When did I ever say anything about that Randy. Other than the syphilis, you’re good. Unless you get back up on the plate champ.” He make the gawk motion again 
+
+“You know what I’m sayin right, Ya feel me brodysseus?” Doc said
+
+“Yeah, ugh. Probably with your wife. Because in case you didn’t know, I’m what's called a ‘pickup artist’, I’m a real \[Austrian painter\] when it comes to that shit.” Randy spoke
+
+“You should check out that guy’s paintings some time. They’re perty good.” Randy said again
+
+“Wow. Didn’t know you were like that R-Dog.” Doc said sheepishly
+
+“Nuh uh. It stands for Randy, dumbass.” Randy says as he jams his thumb into Randy's eye.
+
+“When did I say different lil schizoid?” The Doctor said, speaking down to him.
+
+“Is it gay to like boys?” Randy asked
+
+“Not if you avoid eye contact, champ!” Said the Doc with pride, but like a straight kinda pride.
+
+Randy jams his thumb into his other eye, embracing his heterosexuality.
+
+Little did Randy know it was gay if he imagined the eye contact too.
+
+Randy went through a training montage where he learned to use the power of his new heart and work through his gay thought- um I mean Demons.
+
+Later that day he was chilling at his home when he went into the fridge and grabbed one of his dad’s 40’s and chugged it all while watching los on stream.
+
+“Haha wow! Maybe alcohol IS the answer!” Randy cheered
+
+Jeff the killer busted through the door after covering himself in a ski mask.
+
+“Who is this intriguing masked gentleman who swiftly entered my home unattended in a civilized way? What’s your name?” - Randy said
+
+“My name is Jeff… My bad my name is Jeff the kille- I mean Just Jeff, Jeff the anarchist. But my neighbors call me Palm Beach Geoffery.”  
+~~Jeff the Killer~~ Palm Beach Geoffery said
+
+“I’ve come back for my Heart, Type shit.” Jeff said
+
+“I’ve come for mine too, honey.” Randy said licking his lips
+
+“Oh… so you on the DL too?” Geoffrey the killer said
+
+“I see you’ve been mistreating my heart with that alcohol." Jeff the killer said, still in his ski mask.
+
+“Nah, I’ve treated it as best as i’s can’s.” Randy said
+
+Jeff the edgy and virtuous killer threw a deadly punch which headed straight for Randy’s new heart.
+
+It was at that moment, Randy unlocked ultra instinct and dodged the punch. The punch went straight through the couch which they were about to make love on before Jeff rudely interjected.
+
+“Not again… Jeff…” Randy said standing up on the couch of ruin and hitting a karate pose he learned from master Myiagee during the training montage.
+
+Jeff hit his own pose which he learned from Fortnite™.
+
+“Our battle will be legendary, I’m gonna kill you and be Jeff the killer now…”
+
+“Once I battle you it will be Jeff the Killer 2: Randy’s Reckoning in this bitch.”
+
+They had an offscreen battle… you should've seen how badass it was.
+
+“MOM! DAD!” When Randy said ‘dad’ he looked at an empty space.
+
+“Randy dear, the teacher said that last year you used too many swear words. No knives or screentime past 2 hours. You better break up with that ai girlfriend of yours, young man.” His mother said as she picked up Randy's iPad.
+
+Randy plopped down on his desk the first day of school as you do when you're in school. The kid next to him spoke .
+
+“Aren’t you that kid who got jeff the killed?”
+
+“I don’t wanna talk about it!” He said looking at the class and yelling to make sure everyone heard. Randy shook with rage, his fists curled inward as a single tear ran down his pants
+
+One kid laughed near the front. Randy went up to his desk grabbed his head and said “If you keep laughing, I won't be responsible for any anal damages that WILL happen,” Randy said angrilly.
+
+A kid ran up behind Randy and gave him the most devious backshot known to mankind. Randy’s back crumbled and his ribs smashed into the chair. 
+
+Randy hit the floor tears in his eyes and his fist balled up. Before taking his underwear and trying to pull an atomic wedgie on him.
+
+“Jus…Just cause you broke my back and put your hard anchor against me without any consequences doesn’t I won’t fuck you up, imbicile!” He said in a school ender kinda way. Hiding the fact that he kinda liked it.
+
+At that moment Randy had a feeling. Not quite a pain or a gay urge, but more of a tingling or twitch in his penis. A feeling like maybe wearing trench coats isn’t stupid. Maybe fedoras *are* attractive as hell. 
+
+“Maybe I *should* use Reddit and 4chan.” He murmured to himself
+
+“I HAVE TO KEEP UP MY REPUTATION!” he stood up to the kid and yelled.
+
+Randy grabbed a thing of desk and smashed the kid with it.
+
+"OFFICE NOW, YOU DEGENERATE LOSER!... I FUCKING HATE YOU RANDY!” The teacher said personally imbuing all his hatred into two sentences.
+
+Randy left for the principals office, leaving a trail of liquids behind him.
+
+“I heard about you randy..” The principal said
+
+“What you hear, huh?” Randy said 
+
+"I know you've been selling meth and shaking down kids Randy."
+
+"Show me..." The principle said.
+
+"Not after last time in this school!" Randy said angrilly
+
+"No Randy, the meth." Principle said
+
+“GOD DAMN, SON!... That’s real Harvard material right there.” The principal said, admiring the meth. Cause Randy got the hella Walter White material.
+
+“You know who got the better methamphetamine?” A voice said from the dark cuck corner… 
+
+(END OF PART ONE)
+
+ft- [u/TheKremlingThug](https://www.reddit.com/user/TheKremlingThug/) \- Co-Authorship
+
+And that is the last thing I saw in the notebook.
+
+Now my fingers are sticky.
