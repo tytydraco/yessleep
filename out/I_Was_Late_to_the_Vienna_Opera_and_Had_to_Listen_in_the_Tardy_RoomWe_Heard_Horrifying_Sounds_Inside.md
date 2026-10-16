@@ -82,9 +82,9 @@ The other three in my room voiced their terror about their own loved ones who we
 
 One worried about her boyfriend, another about her children, the last about his friends—the loved ones who they’d been separated from by arriving here late. In turn, each of them slowly reacted to the sight they dreaded as it flashed on the screen.
 
-A shot of their loved ones exsanguinating bodies overflowing with blood, whilst screaming their lungs out in apparent agony. Their reactions to this were as devastated as you’d imagine. It was clear now—it had to be the continuous music that was having this violent effect on them all somehow. Us being separated here in this room, not hearing the music directly, was shielding us from it.
+A shot of their loved ones’ exsanguinating bodies overflowing with blood, whilst screaming their lungs out in apparent agony. Their reactions to this were as devastated as you’d imagine. It was clear now—it had to be the continuous music that was having this violent effect on them all somehow. Us being separated here in this room, not hearing the music directly, was shielding us from it.
 
-Then, at last came the sight I was dreading—there on the screen I finally saw Jenna’s own inexplicable close-up shot, her writhing in her bloodsoaked sweater and reaching out her hand in desperation, gurgling cries still coming from her mouth.
+Then, at last came the sight I was dreading—there on the screen I finally saw Jenna’s own inexplicable close-up shot, her writhing in her bloodsoaked shawl and reaching out her hand in desperation, gurgling cries still coming from her mouth.
 
 “JENNA NO!”
 
