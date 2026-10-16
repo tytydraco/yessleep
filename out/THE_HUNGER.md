@@ -1,0 +1,166 @@
+My stomach felt emptier than the miles of snow-covered nothingness stretching forever outside the bus window. It was winter break from school, and all my friends were headed to Florida.  
+  
+Not me.  
+  
+I was on a bus to Yellow Springs, Ohio to clean out my late grandmother’s house. My mom had warned me she was a hoarder. But when I arrived that night, nothing could have prepared me for the eight decades of clutter stacked to the rafters of that little bungalow. Unmarked boxes climbed the walls like ivy. Old newspapers filled entire corners. There were things I couldn’t even identify, all jumbled together beneath a thick layer of dust.  
+  
+I’d definitely have my work cut out for me.  
+  
+But that could wait until tomorrow.  
+  
+A sharp pang twisted in my stomaCh, reminding me how long it had been since I’d last eaten anything. I opened the pantry to find nothing but ketchup packets. Hundreds of them. And one blue box of mac & cheese.  
+  
+They say a watched pot never boils. And that’s twice as true when you’re as hungry as I was. I stared at it. Nothing. Then after what felt like hours, finally, the water began to bubble. I tore open the blue box and poured the noodles in.  
+  
+BANG, BANG, BANG, BANG.  
+  
+A loud, angry pounding on the front door rattled the house.  
+  
+Terrified, I stayed quiet hoping they’d think no one was home and leave.  
+  
+“Open this door, I know you’re in there!” a woman’s voice bellowed from outside.  
+  
+I reached for my phone. No service.  
+  
+She banged again. But this time she didn’t stop. Each pound of her fists shook dust into the air. I couldn’t hear myself think. I grabbed a large knife from one of the kitchen drawers and made my way to the door. Then put my eye up to the peep hole, but it was opaque with rust and grime.  
+  
+“What do you want?” I shouted.  
+  
+“Do you realize what you’ve done?” the voice cRied out.  
+  
+I gripped the knife tightly in my hand and pressed my back against the door. My heart was hammering against my ribs.     
+“You have the wrong house!” I pleaded.  “My grandmother died, I’m just here cleaning out her stuff!”  
+Then she went quiet.  
+  
+“The mac & cheese,” she whispered. “Dump it out right now, please.”  
+  
+I turned and stared at the door.  
+  
+Was this woman seriously standing outside in the freezing cold, pounding on my grandmother’s door about mac & cheese?  
+  
+“DUMP IT OUT NOW!” she scrEamed.  
+  
+The pounding started again.  
+  
+I ran into the kitchen and dumped the steaming pot into the sink.  
+  
+For several seconds, there was nothing.  
+  
+Then, from the other side of the door:  
+  
+“Thank you.”  
+  
+And I heard her footsteps slowly descend the front porch.  
+  
+The next morning the house looked even more chaotic in the sunlight. Dozens of porcelain dolls stacked beside tarnished picture frames of all sizes, and more books than in my college library. An armoire filled with novelty ceramic eggs looked good enough to eat. It had been nearly 24 hours since I’d consumEd anything at this point, so I decided to venture out into town.   
+  
+When I stepped outside, the cold morning air hit me like a slap. I pulled my coat tighter and surveyed the neighborhood. The houses were far apart from one another. How did that woman even know I was making mac & cheese? And why the hell did she care so much?   
+  
+As I perused the narrow aisles of the dated supermarket, I was hit with an uncanny sensation. Even though I was starving, nothing on the shelves looked remotely appealing.  The only thing I wanted was that blue box of mac & cheese.  
+  
+Was the woman from last night even real? Maybe I was so delirious from hunger that I’d dreamt it.  
+  
+Suddenly, hot breath brushed the back of my neck.  
+  
+“Looking for something specific?”   
+  
+I turned around to find an elderly grocer standing right behind me. He had a severe widow’s peak and grey-blue eyes that crinkled into a warm, welcoming smile.   
+  
+“We have a great sale on Granny Smith apples. $3 for a bushel.” The word bushel struck me as odd for the twenty-first century. But then again, the entire town felt like it had been frozen in the 1960s.   
+  
+“Where can I find the blue box mac and cheese?” I asked, taking a small step back. I started to explain what happened to me the night before but he cut me off mid-sentence.  
+  
+“We don’t sell that here.” The welcoming smile vanished from his face.  
+  
+“Sorry?” I asked. And he repeated himself in a flat, icy tone.   
+  
+“I said, we don’t sell that here.”   
+  
+He sauntered off leaving me to wonder if I had inhaled some kind of black mold in my grandmother’s house because nothing was making sense. Why was that box in her pantry then?   
+  
+Standing confused and ravenous in the pasta and rice aisle, I could have just bought some spaghetti. And knowing what I know now, I should have. But the blue box craving had its cheesy griP on me and I wouldn’t be satisfied until I satiated it.   
+  
+“Pssssst.”   
+  
+I whipped around to see a bag boy lurking in the aisle. He must have been 15 or 16 with a pale complexion and sandy blonde hair. He gestured for me to follow him so I did, to the back of the store.  
+  
+“I can get you the blue box. For a price.”   
+  
+“How much?” I asked, aware of how absurd this whole situation was.  
+  
+His eyes quickly scanned me from head to toe.   
+  
+“$50,” he said with a straight face.  
+  
+“$50 for mac & cheese? Are you out of your mind?” I barked at him with hanger.   
+  
+I shouted at him to tell me where I could get it. I’d go there myself.   
+  
+“You’ll have to go to the next town over. It’s 16 miles.”   
+  
+“Why?!” I demanded to know. Then he leaned in real close and whispered:   
+  
+“He’ll come for it.”   
+  
+“Who will???” I asked. But we were interrupted by the grocer who summoned him for a clean up on aisle six. “Fine,” I blurted out. And handed him the $50 my mother had given me for emergencies. “I’m staying at–”   
+  
+“Ruth’s old house on State Street, I know.”  
+  
+I don’t know how he knew. But I was too hungrY to care.  
+  
+Back at my grandmother’s I cleaned to pass the time. Five hours and I barely made a dent in the circus of junk. The bag boy told me he’d have to wait until nightfall to make the delivery. Luckily that would be around 5:15 this time of year.  And when I saw the sun dip below the trees, I felt like a werewolf ready to transform at the first sight of the full moon.   
+  
+But it wasn’t until 6:52 that I heard a faint knock on the door.   
+  
+The bag boy looked sweaty and flush. Like he’d been running. Without saying a word, he handed me the blue box in a brown paper bag and turned back for the porch steps.  
+  
+“Wait,” I blabbed. “You hungry?” To this day, I’m not sure why I invited him in. I was ravenous enough to eat three boxes myself. I guess I wanted his coMpany. Any company. In case the woman from last night came back.  
+  
+Together we covered every window with old newspapers.  If she had been peeping through them, she wouldn’t be able to tonight. And I blasted some music through my portable speaker. Logically I knew there was no way she could have heard the water boiling from any of the houses spread sparsely down the dark street. But I wasn’t taking any chances.  
+  
+At first it was all working. I poured the noodles into the boiling water, and felt them get tender with one of my grandmother’s 32 wooden spoons she’d collected. When it was time to strain them, I felt giddy like a child. But as I returned them to the pot and mixed in the milk and butter–  
+  
+BANG, BANG, BANG, BANG.   
+  
+It was back. But this time it wasn’t just one set of fists pounding. There were multiple.   
+  
+“DUMP IT OUT!”   
+  
+“HE’LL COME FOR IT!”  
+  
+There must have been a dozen voices pleading with us to waste another box. The bag boy looked terrified. Like I imagine I had the night before. But oddly, a strange calm came over me. I tore the cheese packet open with my teeth and defiantly dumped it in. The second I did, the pounding stopped.   
+  
+I didn’t even bother to get a bowl, just stabbed the wooden spoon into the pot and brought a mouthful to my lips. Then another. And another. It had never tasted this good. I turned to offer a bite to the bag boy, but he was gone.   
+  
+“Bag boy??” I called out for him, cheese sauce dripping from my chin. At first I didn’t hear anything. But then, a faint whimper came from the back bedroom. “Help me.”   
+  
+I made my way through the clutter to the bedroom, weaving through racks of clothing and the endless stacks of boxes. The pleads for help grew louder with each step. But as I shoved the bedroom door open past a pile of shoes, he wasn’t inside. I dropped to the floor and checked under the bed. But it was pAcked with old containers of receipts. He wasn’t in the closet or bathroom either. Did he leave?  
+  
+Then I heard a clamoring of pots from the kitchen. Followed by a squishing sound. Like someone walking through mud. I charged back the other way but slipped on something wet. Had I left the sink running?   
+  
+When I opened the flashlight on my phone, I saw that it wasn’t water at all.   
+  
+It was bright orange cheese sauce.   
+  
+A trail of it slicked the floor all the way back to the kitchen. I crawled through it to the pot of mac & cheese somehow empty now on the linoleum floor. So empty, in fact, it looked like it had been licked clean. Then that squishing sound again.   
+  
+This is the part of the story no one ever believes, but I swear on my mother’s life that every word is true. When I turned back around, he was right there. Just for a fraction of a second, before he bolted out the front door into the dark.  
+  
+I can only describe what I saw as a man whose skin was fused with mac & cheese. Like he had fallen into a vat of it and it melted into him.   
+  
+That night I actually felt grateful for my grandmother’s hoarding as I barricaded the door with as much junk as I could carry.   
+  
+Needless to say, I was more than ready to leave the next morning. My mother would have to call a junk hauler.   
+  
+I felt terrible for putting the bag boy in the position I had, so on my way to the bus station, I stopped by the store to apologize. Inside, I found the elderly groCer stacking Granny Smith apples into a sale bin.  
+  
+“Hello again,” I said gently, trying not to startle him. “Is the bag boy working today?”   
+  
+He paused, wiping his hands on his apron, looking at me with genuine confusion. “Bag boy?”  
+  
+“Yeah, the young guy from yesterday,” I clarified.  
+  
+He shook his head slowly. “We haven’t hired bag boys in this store since… oh gosh, must be twenty years now.”  
+  
+I felt the blood drain completely from my face and I thought my knees may buckle. Then it hit me. A sudden craving deep in my gut. For that blue box mac & cheese. 
+
