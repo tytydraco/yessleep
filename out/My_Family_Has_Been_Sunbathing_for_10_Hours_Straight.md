@@ -1,6 +1,6 @@
 "Today we have a somewhat historic weather report for you all. It seems summer wanted one last goodbye before the start of the cold season. Tell us about it, Jason."
 
-"That's right, folks, 85 degrees," he chuckled. "85 degrees Fahrenheit, no wind, and a cloudless, sunny sky is the weather here today in Ely. This is a historic high for November in Minnesota, so put on your bathing suits and get outside to soak in the sun while you can. This is a real treat from Mother Nature. My name is Jason Sweatman with Northwood News 8, reporting live that the sun feels AMAZING."
+"That's right, folks, 85 degrees," he chuckled. "85 degrees Fahrenheit, no wind, and a cloudless, sunny sky is the weather here today in Goldfield. This is a historic high for November in Minnesota, so put on your bathing suits and get outside to soak in the sun while you can. This is a real treat from Mother Nature. My name is Jason Sweatman with Northwood News 8, reporting live that the sun feels AMAZING."
 
 The weatherman stretched out his arms and looked up at the sun, smiling widely, before they cut back to the anchors and finished the rest of their segment. I picked up the remote and switched to Cartoon Network.
 
@@ -108,4 +108,4 @@ I went over to the glass door to inspect the damage from yesterday's tantrum. Su
 I froze.
 
 Outside, sitting motionless in their three chairs  
- facing the sun, were my mom, dad, and sister. Lying next to them, stiff as a board, was my dog. In that moment I knew that they never came back inside the house, I knew that they never would. 
+facing the sun, were my mom, dad, and sister. Lying next to them, stiff as a board, was my dog. In that moment I knew that they never came back inside the house, I knew that they never would. 
