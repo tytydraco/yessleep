@@ -1,3 +1,5 @@
+\[Part 2\] (https://www.reddit.com/r/nosleep/s/2iQo3RIoof)
+
 "Today we have a somewhat historic weather report for you all. It seems summer wanted one last goodbye before the start of the cold season. Tell us about it, Jason."
 
 "That's right, folks, 85 degrees," he chuckled. "85 degrees Fahrenheit, no wind, and a cloudless, sunny sky is the weather here today in Goldfield. This is a historic high for November in Minnesota, so put on your bathing suits and get outside to soak in the sun while you can. This is a real treat from Mother Nature. My name is Jason Sweatman with Northwood News 8, reporting live that the sun feels AMAZING."
