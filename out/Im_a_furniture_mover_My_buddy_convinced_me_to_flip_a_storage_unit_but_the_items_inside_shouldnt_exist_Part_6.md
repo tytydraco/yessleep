@@ -12,9 +12,9 @@ The day after CATALOGUE left, nothing happened in my house. For weeks there'd be
 
 I had a lot of time to think this week, and I want to be honest that I hated it.
 
-I hadn't touched a drink in nine days. Not since that night with the radio. I still thought about Alicia's voice coming from it and how I'd sounded answering her. I'd spent so long telling myself our arguments had gone differently that hearing them again felt like being caught in a lie. Maybe the radio had invented some of it. But I remembered enough to know it hadn't invented everything.
+I hadn't touched a drink in days. Not since that night with the radio. I still thought about Alicia's voice coming from it and how I'd sounded answering her. I'd spent so long telling myself our arguments had gone differently that hearing them again felt like being caught in a lie. Maybe the radio had invented some of it. But I remembered enough to know it hadn't invented everything.
 
-I wanted a drink more than once that week. I didn't have one.
+I wanted a drink more than once that week.
 
 On Wednesday, I finally met with the family lawyer I'd been talking to for months. After depositing CATALOGUE's money, I called from the bank parking lot. For once, I could afford to retain him.
 
@@ -36,7 +36,7 @@ Then he got the corner between his teeth and pulled hard. The packet split down 
 
 “*Shit,*” Henry said, with real feeling, and looked up.
 
-I was waiting for him to get embarrassed or hide his hand, but he just gave me this crooked grin, the same look he used to give when he lost twenty bucks on a game. 
+I was waiting for him to get embarrassed or hide his hand, but he just gave me this crooked grin, the same look he used to give when he won twenty bucks on a game. 
 
 “Should’ve told the nurse I needed help with the bag,” he said. “I keep forgetting my hands don't work like they used to.” 
 
@@ -46,7 +46,7 @@ I was waiting for him to get embarrassed or hide his hand, but he just gave me t
 
 “Henry.”
 
-“I mean it, Ian.” He started picking crackers out of his lap with his left hand. “If you start opening my stuff now, I’ll be asking you to do it every time you come over. Grab a chair and sit down. You're making me nervous standing there.” 
+“I mean it, Ian.” He started picking crackers out of his lap with his left hand. “If you start opening my stuff now, I’ll be asking you to do it every time you come over. Sit down. You're making me nervous standing there.” 
 
 I sat on the edge of the bed. The room was small and clean, and an orange dolly strap was hanging off the bed rail. I looked at it for a while.
 
@@ -60,7 +60,7 @@ Henry used to take the heavy end of everything. I'd once watched him carry an oa
 
 “I’m not doing anything.”
 
-“I know that look. You did the same thing while they were loading me into the rig.” He swallowed a piece of cracker. 
+“I know that look. You did the same thing while they were loading me into the ambulance.” He swallowed a piece of cracker. 
 
 “So how’re you actually doing?” I asked.
 
@@ -80,7 +80,7 @@ Worse, I wondered if he'd started asking himself the same question.
 
 “Anyway,” he said, brushing a cracker crumb off his chest. “How’s the garage holding up without me?”
 
-So I told him.
+So I told him everything that had happened in his absence.
 
 Henry had this half-smile on his face the whole time, waiting for me to say I was pulling his leg. When I didn't, the smile faded. 
 
@@ -116,7 +116,7 @@ I didn’t say anything.
 
 “I’m pretty sure she hates me.”
 
-“She’s *scared* of you, but she’ll come around eventually.” He picked up another cracker, then set it back down. “Tell me about Toby.”
+“She’s *scared* of you, but she’ll come around eventually.” He picked up another cracker, then set it back down. “Tell me about Toby. How's he holding up?”
 
 I’d been dreading the conversation since I got off the elevator. I told him what I’d told Marshall, blurting it out in a rush. 
 
@@ -192,7 +192,7 @@ I left half an hour later. At the door he called my name, and when I turned, he 
 
 Alicia called that evening. 
 
-We'd texted all week about Saturday's mediation and I took the opportunity to mention the investigators from CATALOGUE who'd visited my garage. We weren't on good terms, just too exhausted to fight. 
+We'd exchanged texts earlier about Saturday's mediation, and I took the opportunity to mention the investigators from CATALOGUE who'd visited my garage. We weren't on good terms, just too exhausted to fight. 
 
 “I need to ask you something,” she said.
 
@@ -234,7 +234,7 @@ She went quiet for a moment.
 
 “Why didn't you tell me sooner?”
 
-“Because I thought he was making it up. An imaginary friend, something he'd picked up at school. I didn't want to make a big deal out of nothing, especially after everything that happened at your place.” I heard her swallow. “But the toys keep showing up, Ian. I don't know what else to think.”
+“Because I thought he was making it up. An imaginary friend or something. I didn't want to make a big deal out of nothing, especially after everything that happened at your place.” I heard her swallow. “But the toys keep showing up, Ian. I don't know what else to think.”
 
 “Alicia, listen to me. I don't think this is somebody giving him toys.”
 

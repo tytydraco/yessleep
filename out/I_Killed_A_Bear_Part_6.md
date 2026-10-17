@@ -1,0 +1,365 @@
+  
+
+
+ ‎  ‎   
+ ‎   
+​​  
+‎   
+\[Translation: Hello. I am speaking to you in mime. My transformation is complete! I passed the test in case you were wondering. And I expect to be seeing you all when I play at Radio City this summer. They’ll fold soon. Anyway that’s all I’ve got. This here is the last letter. Read it. And after that I'm sure you'll want to read letter [one](https://www.reddit.com/r/nosleep/s/edSKhUI2dh) and [two](https://www.reddit.com/r/nosleep/s/xKhIVUu2WJ) and [three](https://www.reddit.com/r/nosleep/s/Xs1shYvdEk) and [four](https://www.reddit.com/r/nosleep/s/jtBIxxCuag) and [five](https://www.reddit.com/r/nosleep/s/U32ExagY2O) too.\]
+
+Judge,
+
+It’s snowing now. Is it snowing where you are? Well I guess even if it is it could have stopped by the time you get this. Because I’m writing you a letter. It started last night I think. Or possibly two nights ago. It doesn’t matter exactly really. It’s snowing still. It hasn’t stopped since. Now everything is blanketed in this thick layer of soft white. It looks like there are little flecks of glitter in it when the sun shines upon it and it almost hurts to look at. 
+
+My house is chilly now. I’m  really quite cold. The door situation doesn’t help one bit.
+
+Have you ever let the snow dig into your bare skin? It’s an awful feeling. You put it in your palms and it melts and your hands get numb until they sting. The same thing happens if your socks aren’t long enough. You get the sensation in a ring around your ankle. I seldom go out when it’s snowing outside because of it. 
+
+You think it would stop them from running out in the street. Some of them are barefoot. Their feet must be pulsing by now. They’re rampaging. It might be everyone in the neighborhood. They’re all very scared. They’re breaking windows and they’re crawling out with TVs and microwaves and toasters. I’m not sure how any of it helps.
+
+They collected in the street earlier. When they were all together it was sort of like a parade. It wasn’t a bad show. They’ve broken up now.
+
+Do you wanna know why they’re doing all this? It’s because of the headline in today’s paper:
+
+GOVERNMENT COMPUTERS DETECT MORE THAN 2,000 SOVIET NUKES HEADED TOWARDS AMERICA
+
+This is only the headline. It seems no one had bothered to read the whole thing. This actually happened two days ago. It was a glitch in computers that lasted for six minutes only. And they’re still going. They’re still outside. I can hear them shuffling through the snow.
+
+I only hope I can make it out of this safe. It’s taking great effort to steady my hand enough to write as I sit here curled under my desk.
+
+Anyway  don’t believe I finished telling you about the night I killed the bear with my last letter. I think you could tell it stretched on longer than that. I thought stopping it there would make for a mighty fine cliff hanger. I’m sure I got you!
+
+Oh and by the way I’m sorry if my handwriting is still a bit messy. I haven’t gone to the doctor for the rib or the arm. Here you go now:
+
+As you’ll remember I was standing over the bear with its head broken open and I was looking down at bits of brain matter floating up in its skull. I was a bit shocked that I had actually killed it then. I really hadn’t planned. I guess from there the rest of the night was just a big scramble to finish up. 
+
+Admittedly I had frozen for a minute there in the river. There was so much stuff I’d planned on smoothing out later but with the bear dead there was no time. I had to conduct it all immediately.
+
+You should know already that I’ve planned to stuff the bear. But in order to do that I’d first have to secure and transport its corpse. In the little research I had time to conduct I settled for a utility trailer since I wasn’t strong enough to carry it all on my own. But I never had the time to secure the trailer or a car.
+
+I crawled out of the forest. It was quite the struggle given my newly broken rib but I had to act fast or I’d never have the bear stuffed. 
+
+Fortunately I know right where the river is. I walk over it quite often so I wasn’t lost. I knew there was a bridge just down the stream. It actually wound up being much closer than I thought it would be. So when I crawled up I wasn’t lost fortunately. Though I still had some distance to travel.
+
+When I came round the street it was all still. I could hardly see in front of me. The streetlights on the side of the road did seldom to help. All was dark around me. And I heard through the dark this little noise. Like a little staccato *crunch*. It sounded rhythmically and there was metallic rumbling in between each time.
+
+I found the source of the noise before long. Down the street and in front of their house my neighbor’s twins were kicking a can through the street. They noticed me.
+
+“Hey mister,” one of them said.
+
+“What are you two doing out so late?” I asked.
+
+“Is it late? I didn’t think it was that late.”
+
+“Do you have any idea what time it is?”
+
+“No. Do you?”
+
+“Well. No.”
+
+“How do you know it’s late then?”
+
+“Yeah,” the other one piped up. “You know how early it gets late out in the winter?”
+
+“It’s summer,” his brother said.
+
+“Oh.”
+
+“Uh. Never mind all that,” I continued. “What exactly are you doing?”
+
+“We’re playing kick the can mister.”
+
+“Kick the can?”
+
+“Yeah. Wanna know how to play? We can tell you.”
+
+“Sure,” I said.
+
+“Alright. You gotta get two people. Then you got a can. Like this one right here. And then you kick it. Kick it back and forth.”
+
+“Is there more?” I asked.
+
+“No,” said the other boy. “That’s it.”
+
+“Oh.”
+
+“It’s a lot of fun if you’re able to get it right. Wanna play?”
+
+“No thanks,” I said. 
+
+“Alright. Good night.”
+
+I began to walk away. I was a little irritated with those boys for waiting my time. But just before I left the sight I realized something. I turned around.
+
+“I do have the question though.”
+
+“Hm?” said the boy who told me how early it gets dark in the winter.
+
+The boy’s brother came up and elbowed him.
+
+“Come on Jackson. Mom says we’re not allowed to talk to strangers.”
+
+“Oh. Sorry.”
+
+“No no,” I said. “I’m not trying to give you anything. It's just a question about your parents.”
+
+“What is it?” said the other boy.
+
+“Well. I just wanted to know. Does you dad–or your mom–do either of them have a utility trailer in the garage? Or attached to the back of their car.”
+
+“What’s that?”
+
+“Oh. You know. You attach it to the back. It’s real big and flat. It’s got it’s own set of wheels. And you put stuff on it.”
+
+“Does it have walls?”
+
+“Some do I guess.”
+
+“I think you’re asking about a wagon sir. It’s red and it says radio fly on its side.”
+
+“No no no. Not that. It’s bigger. It’s like an adult wagon. You attach it to the back of a car. An adult car”
+
+“We attach our radio fly to dad’s car all the time,” said Jackson.
+
+“You’re not supposed to.”
+
+“Oh.”
+
+“Now.” I turned to his brother. I believe his name may have been Jonah. “Do you know what I’m talking about?”
+
+“I think so. It says radio fly on the side. Dad always keeps one of them on the back of his car. Look.” He pointed to the driveway. “He’s got it on there right now.”
+
+I looked up. It was a utility trailer attached to the back of their dads car. A crudely attached metal plate had the words “Radio Fly” scratched into it. It wasn’t red though.
+
+“Is that it?” Jonah asked.
+
+“Yes,” I said. “That’s it.”
+
+I required some help so as I was retrieving the utility trailer I asked them to come along. They were the nearest and potentially only option and they obliged for some reason. I promised I would bring them home afterwards. I held to that promise in case you were wondering.
+
+Amongst the junk their dad had left in the trailer was a rope. I tied it to that little hook thingy that connects the trailer to the car and used that to the trailer and I left the rest of the stuff in their lawn and put it back in the trailer later. It was pretty heavy(not that I was having much issue). I brought them to the river and parked it and Jonah asked me:
+
+“What are we out here for? It’s late anyway.”
+
+“You’re gonna help me put something on the trailer. It’s quite heavy so I’m going to need your help.”
+
+“Then we can go home?”
+
+“Yes.”
+
+Jackson said: “What are we moving?”
+
+“I’ll show you two. Follow me. It’s just past these trees.”
+
+I parsed a branch and we all went through with the trailer dragging behind us. It trampled a few shrubs and weaker trees but I’m sure their replacements will go back soon. In a few moments the bear came into view with its brain still open and a few flies buzzing around it already.
+
+“Woah,” they both said as I swatted the flies away. “Is that a bear?”
+
+“Yeah. I need your help moving it to the street.”
+
+“Wait…” began Jonah. “How come we have to move him? Why don’t we just ask him nicely?”
+
+“Because he’s dead. Are you done?”
+
+“Yeah.”
+
+“So we’re gonna have to pick up a bear?” said Jackson.
+
+“I just said that.”
+
+“Bears are pretty heavy. My dad can lift pretty much everything but I’ve never seen him carry a bear.”
+
+“Well. I’m sure together we can lift more than your dad.”
+
+“Oh. That’s good.”
+
+“Is that all?” I paused. It was all. “Alright. Follow me.”
+
+Fortunately by bringing the trailer I’d vastly shortened the distance we’d have to carry the bear ourselves. That didn’t make it any less difficult to pick it up but it did help.
+
+So we all gathered round the bear. The two boys were at the front and I was going to hold up the back. I counted down from three and we all lifted. My whole body was shaking as we made the few steps from the river to the trailer. I could especially feel it near my ribs. One of them is most definitely broken. It was also quite apparent that the boys were hardly putting any effort in and that didn’t help at all.
+
+We plopped the bear onto the trailer(it was mostly me doing the pushing) and I had take a moment to handle the pain in my chest. The trailer was much heavier now but dragging the bear behind me was much easier than carrying it.  So the boys followed me as I pulled it up to the street and then I let them go on home.
+
+You already know this but before returning the bear to my home and going to bed I decided I ought to to go put in my order for the taxidermy shop and then once that was done I lugged the bear into my home and put the utility trailer back on just as the sun rose and fell into my bed finally and slept peacefully until it rose again the next day.
+
+That was all months ago now. The taxidermy store never contacted me the whole time. I actually went ahead and canceled the order last night. Now that should lead me to today but in the months since then I’ve racked up quite the count of grievances (especially with this bear’s corpse) that I really feel the need to air out right now.
+
+It really stinks. I guess that ought to be expected though. It really knocked me out the first day but I would’ve been prepared for it had I not been in such a daze. It’s also quite cumbersome. There’s just this big lump on my floor. Right before my back door. And it’s too heavy to move.
+
+Those things aren’t real issues. I mean they still tick me a little but I can live with them and I have been anyway. I have two real issues with it.
+
+The first might just be how it looks. I guess it’s face. I thought maybe I’d get used to it but I never did. The bowl that became of its skull never dried up. The juice is still there. It’s sort of pink. It ripples often whenever my floor vibrates which happens to be quite often. And the bits of brain still float up in it. They’ve gone stale now. Sort of shriveled up like raisins of meat. They bob up and down when the juice ripples. 
+
+It was so unappealing in fact that I tried sticking a football in the hole once. I figured it ought to patch it up and it ought to fit in there just right. It was the same color as the bear's fur. The holes in its head seemed big enough too. I acquired one which the neighbor's kids tossed into my back yard and left there. The idea actually sprung once I’d seen it still there the fourth night and the row and realized they probably wouldn’t have minded if I took it.
+
+Anyway I stood over the bear and just kind of shoved it in there. It didn’t go as I expected. The juice splattered everywhere. It got all over the bear’s face. It got all over my face. It drenched my clothes. It was cold. My shirt was stained with a plink splotch which remains to this day. It has since gone stale.
+
+And once I had made room from the juice I went ahead and kept shoving the football in there. I imagined it would slide in easily but it really wasn’t budging. It was making this wet farting noise each time I pushed and I was really starting to get irritated.
+
+I brought the football out of the bear’s head. It was dripping and shriveled bits of brainmatter were sticking to it. A few peeled off and fell down in the puddle of brain juices that was already forming on my floor. I realized looking in that I had made contact with the bear's complete brain. Or what was left of it anyway. I was aware I had taken out a frontal chunk but I was not aware just how much was intact up until that moment. I had squished it with the football. It was so flat like a pink little pancake in the bottom of its cranial hole. 
+
+Anyway I wedged it in there tight and it wasn’t any easier than it was before. I made sure the part with the white stitch was showing. I thought it was cute. Like a frankenbear. Only it was still dead.
+
+I got it in as deep as it could go. I guess it was a bit big for what I’d expected. It sort of pokes out of the bear’s head where I’d expected it to blend in but oh well. I can’t get it out now.
+
+It didn’t help anyway. It still looked ugly as ever. There was this pink and squishy rim around the hole where the ball protruded now which you could see over it anyway. And the hole had adopted the shape of the ball. Now it really looked like a vagina. So I just covered it with a towel. Now I don’t have to look at his face anymore.
+
+But that’s not even the true worst of it. I still hear it at night. I still hear the bear. And I know you’d tell me based on that alone that there are in fact multiple bears and I am well aware of that but I know for a fact this isn’t a different bear. The noise doesn’t come from my garden. I hear it in my living room.
+
+Yes. It treats my house like it treated my garden. It treats it like the woods. It sniffs around and lugs its massive body about the place without a care. And of course it still scratches wood. Each morning when I wake up I find new strikes through these walls. Oftentimes I can make out legible messages. Frequently it lobs accusations at me. I’d rather not repeat them.
+
+It was like this just last night. I couldn’t sleep. I haven’t been able to since that night I brought it in. And this morning when it was time to get out of bed my entire living room was in disarray. Scathing messages scratched into my walls. At my feet as I stood in the bedroom doorway there was a little smashed VHS with the black tape sprawled all over my rug.
+
+Judge I have to admit something now. I’ve been going back to the grocery store a lot more lately and heading to the back and meeting up with that sleazy man and watching his tapes in that dark room. I swore I’d never return and yet I found myself so easily doing so. Isn’t it funny how that works? 
+
+It's become a nightly habit of mine. Sometimes I run over there in the morning. The selection of videos has remained the same. This includes the one I told you about. The one with Popeye. The man still leaves it there though he told me he’d remove it. I don’t even mind all that much anymore when it comes on.
+
+I try to keep all our interactions highly impersonal and usually he obliges but one time he just insisted on speaking to me.
+
+“You know I used to run a movie theater,” he said. “You know.”
+
+“I actually didn’t know that.”
+
+“Well you do now.”
+
+“...”
+
+“It used to be pretty popular. And we showed the same stuff I’ve got back here. One day people just stopped showing up. I had to relocate.”
+
+“...”
+
+“Turns out letting people view this stuff alone makes them come around more often. I actually recognize some of the guys who come by often from when they used to show up with their buddies. They come alone now.”
+
+“You get other customers?”
+
+“Of course I do. You think you’re the only one?”
+
+That conversation sort of rubbed me the wrong way so the next time I went by I pocketed one of his tapes before I left and brought it home. And Judge when I was going home after that I noticed something odd. You know the streets that lead me to the store are just by the forest. I’m sure you’ve been around a forest. They’re always humming with sounds of life. Always the crunch of leaves or the buzz of some bugs. But on that day I heard nothing. Real and pure silence so quiet I could hear my own saliva dripping down my throat. And there was no other sound.
+
+I’m actually not too miffed this tape was destroyed. I don’t own a TV anyway though I’d certainly like to. When this fact forced me to head back I watched them all and realized which one I’d taken. Really I’m more offended the bear dug through my home so intrusively like this.
+
+Well all that leads me to today I guess. You already know half of it. The whole time I’ve been writing this people have still been doing as I told you. I’ve been under this desk a while longer than it takes for two thousand nukes to make contact and you’d think they’d have realized this by now but they’re still going.
+
+In fact some of them were in my backyard just earlier. They had this conversation:
+
+Voice 1: “Wait a minute. This guy's still in his house.”
+
+Voice 2: “He's not scared of the bomb?”
+
+Voice 1: “No. Doesn't seem like it.”
+
+Voice 2: “Maybe he planned it.”
+
+Voice 3: “You mean he's Stalin?”
+
+Voice 2: "Stalin's dead. The reds have a new guy.”
+
+Voice 3: “Oh.”
+
+Voice 1: “Well. I guess I mean he helped plan it. I think he's working with them. He's working with the communists.”
+
+Voice 2: “That makes sense.”
+
+Voice 3: “Yeah. Come to think of it I don't even see him around much.”
+
+Voice 2: “Then he has to be a communist.”
+
+Voice 3: “We oughta do something about this. Let's charge ‘im.”
+
+Voice 1: “Wait. We don't know what machines he's got. We need to prepare.”
+
+Voice 2: “Good idea.”
+
+Voice 3: “Yeah.”
+
+And so they all scampered off through the snow. I could see them through the window. Even through the snow I could tell they were trampling my bushes. I could recognize one of their voices as my neighbor’s. The one with the fake lawn. And all three of them were waiting for the bomb’s arrival out in the open.
+
+I think I ought to tell you now Judge that this is the last letter I will ever write you. You’ll never get another one from me. No one will. I've made the decision just recently. This is actually the reason I’ve cancelled my taxidermy order.
+
+I'm giving up Judge. I'm giving up on people. It feels so good to say that. Or to write it. It feels good to leave it all behind finally.
+
+You remember where we met Judge. I'm sure you do. I’m talking about the plane but I guess we met far before that. We were part of the same squad but I never introduced myself. You and I were the only survivors of our poor squad. One of those boys–I can't even recall his name–put out a radio signal without encoding it. I’m sure you’ll recall. A lot of it from there is a blur and I can only assume that it’s for a good reason. I woke up hours later in a body bag in a morgue.
+
+We didn't talk until the plane though when the war was over and we were all going home. You were the only familiar face around and even though I'd never got your name I sat next to you. You turned to me as we lifted off and said:
+
+“You heard about John Kerry?”
+
+“Who?”
+
+“Kerry. John Kerry.”
+
+“No. Who is he.”
+
+“Soldier. He won three purple hearts.”
+
+“What's that?”
+
+“Come on. You know what a purple heart is.”
+
+“I don’t.”
+
+“Oh. Well. Basically you get one for being injured. It’s just a little ribbon I guess.”
+
+“Oh. That must've hurt. Wouldn't wanna be like him.”
+
+“If you get three you go home. He went home before us.”
+
+“Then we should've got injured before.”
+
+“Damn right.”
+
+“Did you get any purple hearts?”
+
+“One.”
+
+“Did I?”
+
+“How am I supposed to know?”
+
+“Would they tell me if I did?”
+
+“Yeah. I think they would,” you answered.
+
+“Oh.”
+
+“...”
+
+“...”
+
+“So who do you got waiting for you? Who are you excited to see back home?”
+
+“Uh. Parents I guess. A friend or to from back in school if they still care.”
+
+“Girlfriend?”
+
+“No. I don’t have one.”
+
+“Oh. Well I’ve got one. Man am I glad to see her again. She’s great. Got a brother too. Can’t wait to see that little punk.”
+
+“Sounds like she is.”
+
+“You’ve never even heard about her.”
+
+“Oh. Sorry.”
+
+And we talked like that the whole flight home.
+
+I know of many men from the military who shut out people completely after their return. I knew it back then. Even from the wars of old. I'd thought they were insane my whole life. But I realize now that they’d always been right. Only now have I stopped denying.
+
+One of the men on our plane they wheeled out in a chair. He was quite injured. You and I were just behind him as they brought him home. I’d expected it to look all pretty but the spot where we landed looked just like where we’d just left from. There was a crowd of people before us watching us come out the plane. He raised his hand and he smiled and he gave them a peace sign. In response the entire crowd raised their own fists in the air and uncurled their middle fingers. They held it as we all walked out the plane. Until the very last man had come home.
+
+In the years since I last saw you I've been fighting against this thing in me. I tried very hard to get along with everyone here but I don’t think it’s possible. I don't know why. I don't know who the problem is. I feel like a tourist in my home town. I can’t speak my own language without being bombarded. But I’ve been here my whole life.
+
+I'm really just so tired of it all. It never changes. I realize that now. I’ve only remained here under the pretense that it may someday change and I’ve got no reason to abide by this now.
+
+So I’ve taken the liberty to cut the bear open myself. Not to have her stuffed. I’m going to crawl inside her. 
+
+That’s another thing. I realize now it was a lady bear. I checked her genitals. And as I was cutting her open I cut into her teats. Milk sprinkled on my cheek then. I think now that perhaps I was a bit too harsh. She was only doing what comes natural.
+
+So anyway I’ve carved out this nice big cavity for me to fit in. I’ve even patched up her head good as new. My arms control her arms and my legs control her legs. My cheeks touch right up against her tonsils. I can see and eat through her mouth. I feel comfortable inside. The meat is nice and warm inside. It presses up against my rib and hurts terribly but that’s not so bad. It’s simple to ignore.
+
+In a moment Judge I will climb in the bear and sow it shut from the inside and say goodbye to the human world. In a moment you will never hear from me again. I can hear now pairs of feeting climbing through the snow towards my house. In a moment they'll see me. I doubt they’ll even be able to see me fully before they die. They never could. And so it shall be their end.
+
+You might hear a bear coming round your own home. He may scratch against your trees and sniff your beehives. That bear will be me. I am the bear now. I only hope you understand Judge that I mean no harm. I’m only visiting.
+
