@@ -1,0 +1,459 @@
+I found the dog because he was scratching at the side door.
+
+The storm had been building since late afternoon. By 8:00, the back steps had disappeared beneath the snow, and the wind was pushing enough of it against the windows that I kept hearing little dry taps from the living room. The scratching was different: three quick drags across the door, a pause, then another.
+
+I turned on the outside light. A dog stood on the landing with his nose close to the glass. He was some kind of shepherd mix, maybe 60 pounds, dark across the back with tan legs and a white patch under his chin. Snow had collected along his spine and packed itself between his toes. He squinted when the light came on and lifted one paw.
+
+There was no collar.
+
+"Come on."
+
+He didn't need to be asked twice. As soon as I opened the door, he squeezed past my legs and shook himself hard enough to spray the cabinets. I locked the door again and got an old towel from the laundry room.
+
+He stood on the kitchen mat while I dried him. I expected to find blood somewhere under the snow or at least a paw rubbed raw, but he looked healthy. His ribs weren't showing. His coat was clean beneath the wet outer layer, and he let me handle his legs and check between his toes without pulling away.
+
+"Somebody's looking for you."
+
+His tail knocked once against a cabinet.
+
+My house is about fifteen minutes outside town, on a road with more trees than houses. There are a few places scattered along the first couple of miles, but only one close enough that I can usually see a porch light through the woods. That night the snow had swallowed it.
+
+There wasn't much I could do with the dog until morning. The roads had been getting bad when I'd come home and were buried now. If the plows got through overnight, I'd take him into town and have the vet check for a chip.
+
+I gave him water and half a bowl of the dry food I keep for my sister's dog. He ate, drank, and spent a while sniffing around the kitchen before moving into the living room. He inspected the couch, the coffee table and the stack of firewood beside the stove, then curled up on the rug.
+
+The wind weakened as the evening went on. Snow kept falling, but the house became quiet enough that I could hear it brushing against the windows. I got up to close the curtains and saw someone standing beyond the driveway.
+
+The porch light covered part of the yard. Beyond it, the ground faded into gray and the trees were little more than vertical streaks through the snow. The figure stood where the open part of the property narrowed between them.
+
+I switched off the lamp beside me. Without my reflection in the glass, I could see it better.
+
+It was tall enough that I initially put it farther away than it was. Its arms hung straight down, and its shoulders were narrow. Snow passed in front of it in sheets, hiding its lower body and exposing it again.
+
+I looked back at the dog. "Looks like somebody came looking for you."
+
+His nails clicked across the floor as he came to the window beside me. He stared outside with his ears forward.
+
+I turned on the porch light. The brighter light didn't reach the figure, but it gave me a better sense of the ground between us. The yard was almost flat there. I knew that because I'd mowed it for six years.
+
+The figure's knees were almost level with the ends of its hands.
+
+Everything above the hips was proportioned close enough to a person. Narrow chest. Long arms, but not unusually so. A head that seemed a little small from where I stood. Most of its height was in the legs.
+
+I took out my phone and tried the camera. Zooming only broke the image apart. Snow streaked across the screen, and the figure became a collection of gray blocks surrounding the pale blur of a face.
+
+The dog began to growl.
+
+The figure's legs started running.
+
+Its arms stayed down. Its shoulders remained level while the legs drove through the snow beneath them, each stride throwing white behind its feet. The torso hardly moved. Its head didn't dip with the impacts. It came across the field with its face held toward the house.
+
+I stumbled backward into the coffee table. The dog barked and scrambled away from the window with me. When I looked outside again, the figure had stopped perhaps 120 feet from the house.
+
+Snow drifted through the gouged path behind it. Its arms hung at its sides again, its shoulders level, its head facing the living-room window.
+
+I called 911.
+
+The dispatcher got my address and asked what was happening.
+
+"There's somebody in my yard."
+
+"Do you know who it is?"
+
+"No."
+
+"Can you describe him?"
+
+I looked through the curtain again. "I don't think it's a man."
+
+She asked what I meant, and I gave her what I could: one person, no visible weapon, about 120 feet from the house, not attempting to enter.
+
+She told me a deputy had been dispatched, but crashes and road conditions were delaying responses. I was to lock the doors, stay inside and not approach whoever was in the yard.
+
+"That's not going to be a problem."
+
+I asked how long the delay might be. Her answer broke apart halfway through, followed by two clipped pieces of her voice before the call dropped. The next attempt didn't connect.
+
+I checked the doors and windows, closed the blinds facing the road and pulled the dining-room curtains. The shotgun I kept upstairs hadn't been fired in more than a year, but I loaded it and brought it down with the remaining shells in my pocket.
+
+The dog had returned to the living-room window. The figure hadn't moved.
+
+Snow had begun collecting on its shoulders and along one side of its head. I watched for the rise of its chest and couldn't see one. After a while the dog lost interest in growling. He drank from his bowl, nosed the empty food dish and settled near the couch while I moved between windows trying to keep track of what was outside.
+
+The figure stayed where it was.
+
+I left the phone on the table and went to the kitchen for water.
+
+When I came back, the yard was empty. The tracks still ended where the figure had been standing.
+
+I checked the front porch and driveway from the windows. The dog had stayed in the kitchen, but while I was looking toward the road his head turned toward the side of the house.
+
+A dark shape passed the dining-room window.
+
+I raised the shotgun and waited against the wall. There was no knock, no sound against the siding. When I looked through the edge of the blind, the figure was standing beside the shed.
+
+From there I could finally see the legs without the snowfall hiding them. They had the structure of human legs stretched far beyond human proportions. Bare feet disappeared into the snow. The thighs were long and narrow, with more muscle on them than the rest of the body seemed capable of carrying. Above the hips, the thing looked almost starved. Its arms hung beside a narrow rib cage, the skin gray beneath the outside light.
+
+The dog barked at the window. I caught him by the scruff and pulled him back until he stopped fighting me, then shut the curtain.
+
+There were paw prints in the snow near the figure's feet.
+
+Most had softened around the edges, but I could still follow them from behind the shed toward the house. I looked at the dog standing in the kitchen doorway, then back outside.
+
+The figure ran.
+
+I saw the first stride clearly this time. One bare foot came out of the snow and the knee rose almost to its waist. The other leg drove down, launching the entire body forward without moving the arms at all. It passed the dining-room window, and a pale shape flashed through the narrow pane in the side door.
+
+I brought the shotgun up and stopped several feet away. The dog stood beside me growling at the glass.
+
+One of the figure's shoulders was visible outside, along with the side of its head and an arm hanging straight down. It had reached the landing.
+
+I waited for it to touch the door, but it didn't.
+
+Snow melted against the glass and ran down in thin lines. Minutes passed without a hand reaching for the knob or a shoulder leaning against the door. Eventually the weight of the shotgun began to ache through my arms and I lowered it.
+
+The clock on the stove read 9:17.
+
+The figure had crossed most of my property in three bursts.
+
+By 9:30, it still hadn't touched the door. The dog paced between the kitchen and living room, occasionally coming back to sniff along the bottom of it. When he started nosing the corner of the mat, I pulled him away.
+
+"Get back."
+
+He waited until I released him, then tried to return.
+
+The mat was marked with the mud he'd tracked inside earlier. Outside, the landing had almost disappeared beneath fresh snow, but several shallow depressions remained where he'd stood scratching at the door. Beyond them, his paw prints continued across the open ground beside the house toward the shed.
+
+From the dining-room window, I could pick them out in pieces. The dog's tracks passed the shed and continued toward the back of the property. The creature's deeper prints came from the same direction. Its stride was too long to land precisely over the dog's, but the two trails crossed and separated and crossed again.
+
+I went upstairs for a better view. From the dark bedroom, the dog's route was easier to follow. His tracks wandered in from the trees, changed direction near the shed and continued toward the house. The other trail was made of deep holes separated by long stretches of untouched snow.
+
+It wasn't straight either. Where the dog's path bent, so did the creature's. Both ended at my side door.
+
+The dog barked downstairs.
+
+By the time I returned, the creature was walking away.
+
+It crossed toward the shed with the same rigid upper body it had when standing still. At that speed, its proportions looked no more natural. Each step carried it several feet, but the arms didn't swing and its shoulders barely moved.
+
+It passed the shed and continued toward the back of the property until the snowfall swallowed it. The dog came to stand beside me at the dining-room window.
+
+At 10:05, he started pacing. He went from the living room to the kitchen, stopped at the side door, then came back. A few minutes later he did it again. The third time, he put his nose against the bottom of the door and whined.
+
+"No."
+
+He circled the kitchen table and returned. I wasn't opening the door while I had no idea where the creature had gone.
+
+At 10:16, he squatted beside the cabinets and pissed on the floor.
+
+"Ah, come on."
+
+He moved away with his ears back while urine spread across the tile. I put the shotgun on the counter and cleaned it up. The dog watched from the doorway while I went through half a roll of paper towels and sprayed the floor twice.
+
+"That's my fault."
+
+His tail moved once.
+
+As the next hour passed, the storm began to weaken. I checked the property often enough that I stopped looking at the clock each time. The shed remained empty. So did the tree line.
+
+The dog fell asleep beside the couch. The shotgun stayed within reach while I watched the windows and listened to the house settle around me.
+
+By 11:00, the creature had been gone for more than an hour.
+
+The dog woke and returned to the kitchen.
+
+"No."
+
+He whined.
+
+"You already went."
+
+He stared at me.
+
+"Technically."
+
+He pawed the door.
+
+Another layer of snow had softened the creature's footprints until some were little more than shadows. I checked the yard from downstairs, then from the bedroom window. Nothing stood between the house and the trees.
+
+The dog was still waiting when I came back down. I lasted another ten minutes.
+
+"Right outside."
+
+The moment I cracked the side door, cold air pushed into the kitchen and the dog shoved his nose toward the opening. I held him back long enough to scan the yard before letting him squeeze past.
+
+He stopped on the landing to sniff the snow.
+
+"Go."
+
+I stayed in the doorway with the shotgun while he wandered about ten feet into the yard. He sniffed one patch, moved to another and drifted toward the corner of the house.
+
+"Stay where I can see you."
+
+He ignored me.
+
+A clump of dead grass poked through the snow nearby. He investigated it, moved on, and started toward the shed.
+
+"Hey. No. Come back."
+
+He looked at me and took a few steps in my direction before finding something else worth smelling.
+
+"Seriously?"
+
+A small pine stood near the edge of the yard. He circled it once, went halfway around again, doubled back over his own tracks and buried his nose in the snow.
+
+The tree line remained empty.
+
+When he finally lifted his leg against the pine, I called him back. He started toward me, veered toward the shed one more time, then responded to a sharper "Inside" and trotted up the steps.
+
+I shut and locked the door behind him. The entire trip had taken less than two minutes.
+
+His new tracks were a mess compared with the trail that had brought him to my house. They wandered toward the corner, cut back across the yard, approached the shed, circled the pine and doubled over themselves before returning to the side door.
+
+By 11:18, the dog was back on the rug licking snow from between his toes.
+
+A low growl brought his head up. His ears pointed toward the window.
+
+Something moved between the trees.
+
+The figure stepped into the open farther back than where I'd first seen it, almost beyond the reach of the outside lights. Snow covered its shoulders. It stood facing the house while the dog moved closer to my leg.
+
+One of the figure's feet lifted.
+
+Its legs tore forward.
+
+The first burst carried it across the open ground, but instead of coming toward the house, it cut sideways and stopped where the dog had first lowered his nose after leaving the steps. The next burst took it toward the corner of the house.
+
+It stopped, changed direction and crossed back toward the center of the yard. The dog pressed against my leg.
+
+The figure sprinted toward the shed. It made the same useless turn the dog had made and crossed the same few feet twice. When it reached the small pine, it went around so quickly that one foot slipped sideways and carved a trench through the snow while the torso above it remained upright.
+
+It came around the other side, halfway around again, then back across its own tracks.
+
+I had watched the dog do all of it.
+
+The figure stopped over the patch where the dog had buried his nose. From there it ran to the pine and stood beside the trunk where he'd lifted his leg.
+
+Only one part of the route remained. The tracks between the pine and the side door were almost straight.
+
+The figure turned its face toward the house.
+
+Its legs began to run.
+
+By the time I reached the kitchen, it was standing on the landing again. The dog barked behind me. I kept him back while the pale face settled into the narrow pane of glass.
+
+This time I could see it clearly enough to know there was nothing obviously missing. It had two eyes, a nose and a mouth. The features were narrow and colorless, but arranged the way they should have been.
+
+Its eyes pointed into the kitchen.
+
+I moved to one side. They stayed where they were.
+
+The creature wasn't watching me.
+
+The dog's tracks ended on the other side of the door. He had been inside the entire time the thing ran around the yard. It hadn't cut across the route to reach him.
+
+I thought about the first trail coming out of the woods. The dog had been asleep beside my couch when the creature followed that one to the same door.
+
+I didn't know how it could find the tracks beneath falling snow or why it sometimes stood still for minutes before running again. But it wasn't following the dog.
+
+It was following where the dog had been.
+
+The creature stayed at the door until sometime after midnight. When it left, it walked. It passed the pine without stopping, continued beyond the shed and disappeared into the trees.
+
+For nearly an hour nothing moved outside. The snow dwindled to a few scattered flakes, leaving the trails in the yard exposed instead of slowly burying them. Two routes now ended at the house. One shallow and wandering. The other deep and widely spaced.
+
+The dog eventually came over and pushed his head beneath my hand. I rubbed the fur behind his ears.
+
+"You picked a hell of a house."
+
+He leaned against my leg.
+
+I could wait until morning. That was what I intended to do. The deputy already had my address, the plows would eventually reach my road, and the dog could piss wherever he wanted until then. I moved his water bowl into the living room and sat with him.
+
+Nearly an hour passed before I found myself studying the tracks again.
+
+The newest trail left the side door, wandered around the yard and returned to the same place. The creature had followed it from beginning to end.
+
+If the dog hadn't come back, the trail wouldn't have come back either.
+
+I kept my hand on his neck.
+
+There was another way to make a trail leave the property.
+
+Mine.
+
+My boots were beside the kitchen mat and my coat hung behind the door. I could cross the yard, reach the road and head toward the nearest house. If the creature found my path the way it found the dog's, there would be nothing leading it back here.
+
+I put on my boots. The dog watched from the kitchen doorway while I pulled on my coat. He wagged his tail when I picked up the shotgun.
+
+At the front window, I looked across the yard to the road. The creature had crossed the distance from the trees to the driveway before I'd managed to get away from the living-room window. I pictured that open stretch with no glass between us, then the road beyond it and the woods on the other side.
+
+I didn't know whether it could follow me at all. Every trail I'd seen it follow belonged to the dog.
+
+I stood there until I started getting hot inside the coat, then took it off.
+
+The dog followed me back into the kitchen.
+
+"Don't."
+
+He sat down.
+
+I wasn't sure whether I was talking to him.
+
+I left the coat on the table instead of hanging it back up. The dog had made it through the woods once already. He'd crossed several miles in a snowstorm without an injury I could find. Whatever the creature was doing, it wasn't very good at it. It moved faster than anything I'd ever seen, but it kept stopping. It lost the trail for long stretches. The dog had been in my house for hours before it arrived.
+
+If I sent him out and he kept moving, he could stay ahead of it.
+
+That was what I told myself.
+
+The dog came close enough to rest his chin on my knee.
+
+"You're somebody's dog."
+
+His tail brushed the floor.
+
+There had to be a house on the other side of those woods. Maybe more than one. He hadn't appeared starving or half frozen. He knew people. He knew what a kitchen was and what a food bowl meant. There was a decent chance that if I let him go, he'd do exactly what he'd done before.
+
+He'd find a door.
+
+An old blue nylon collar was buried in the junk drawer beneath batteries, dead pens and takeout menus. It had belonged to my sister's dog before she replaced it. I tightened it several notches and slipped it around the shepherd's neck to check the fit.
+
+He stood patiently between my knees while I wrote my phone number on a strip of white tape and wrapped it around the collar.
+
+When I clipped it around his neck, he leaned forward and licked the side of my hand.
+
+My fingers stayed on the buckle.
+
+"Shit."
+
+He licked me again.
+
+I unclipped it.
+
+The collar sat on the kitchen table while the dog wandered back to the living room and lay down. I stood at the side door looking at the tracks. Nothing appeared in the yard.
+
+I went back to the couch and sat beside him. He rolled partly onto his side when I scratched his chest, one back foot kicking once against the rug.
+
+The house was warm. The doors were locked. The creature had never tried to break a window or turn a handle. Maybe we could sit there until daylight and nothing else would happen.
+
+Maybe I had already seen everything it could do.
+
+Every trail ended at my house.
+
+The dog fell asleep with his head against my foot. I stayed there until the clock passed 1:00.
+
+When he woke, I put the collar back on him.
+
+I chose the front door because none of his earlier tracks began there. The road was visible beyond the yard, a white strip between two darker lines of trees.
+
+The dog stood beside me while I checked outside. I opened the door, and he stepped onto the porch before looking back.
+
+"Go on."
+
+He went down one step and stopped.
+
+"Go."
+
+At the bottom, he turned and looked at me. For a second I reached toward the handle, but the dog turned away before I touched it.
+
+He crossed the yard slowly, stopping once to smell the snow near the driveway. I stayed behind the glass and watched him reach the road.
+
+He looked back at the house.
+
+I didn't open the door.
+
+The snow on the far bank came almost to his belly. He pushed through it, climbed onto higher ground and shook himself. Then he went into the trees.
+
+I watched until the dark between the trunks swallowed him.
+
+The collar had my number on it. If he found a house, somebody would call. If he found his own house, even better. He'd already crossed those woods once and survived.
+
+The kitchen still had his water bowl on the floor.
+
+I left it there.
+
+Sometime before 2:00, the creature returned.
+
+From the upstairs window, I watched it emerge from the trees behind the house. Instead of running, it walked slowly across the back of the yard, stopped, changed direction and walked again.
+
+It reached the side of the house and disappeared from view.
+
+I went downstairs.
+
+The creature came around the corner at a walk and stopped near the front steps. The dog's newest tracks began a few feet away.
+
+For several minutes, it stood between the porch and the driveway.
+
+Then one leg moved.
+
+The creature crossed the yard in a burst and stopped near the driveway, exactly where the dog had paused to smell the snow. The next sprint carried it across the road to the far bank.
+
+Beyond it, the dog's tracks continued between the trees.
+
+The creature ran into the woods.
+
+It didn't come back.
+
+The deputy reached my house sometime after 3:00. By then there was nothing to show him except the tracks. He walked partway into the yard, shined his flashlight over the deeper impressions and took my statement from the porch. Whatever he thought of it, he kept to himself.
+
+I didn't sleep after he left.
+
+Daylight turned the woods gray. A plow came through shortly after 7:00, throwing dirty snow across the end of my driveway. My phone had three bars again.
+
+There was no dog in the yard.
+
+By 9:00, I had started thinking he wasn't coming back.
+
+My phone rang.
+
+I didn't recognize the number.
+
+"Hello?"
+
+"Hi. This is going to sound weird, but did you have my dog last night?"
+
+"Shepherd mix?"
+
+"Yeah. Black and tan."
+
+"Blue collar?"
+
+"That's him. Your number's taped to it."
+
+The man laughed, the exhausted kind that comes after you've spent hours expecting something bad.
+
+"He's been gone since yesterday afternoon. We thought he was dead out there. I don't know how the hell he got that far."
+
+"Where are you?"
+
+He named a road several miles away, on the other side of the woods behind my property.
+
+"Did he come back on his own?"
+
+"About ten minutes ago. Scared the hell out of my wife. Something started scratching at the back door and there he was."
+
+I went to the window.
+
+"He's inside?"
+
+"Yeah."
+
+"Lock the door."
+
+The man went quiet.
+
+"What?"
+
+"Lock your door."
+
+"Why?"
+
+Beyond the shed, the woods were still.
+
+"Don't let him back out."
+
+"He's standing right here."
+
+"Good."
+
+I hung up.

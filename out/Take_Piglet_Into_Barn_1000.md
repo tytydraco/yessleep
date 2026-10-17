@@ -1,0 +1,27 @@
+I arrived on the silo-dotted property as a rosy film of atmosphere cradled the horizon like a hide and was skinned by the gloaming. Its centrepiece was my destination: a run-of-the-mill, tin sheeting-topped barn.
+
+I’d found the classified serendipitously whilst leafing through an old newspaper at the coffee shop. The gig paid handsomely, for next to no work at that. The instructions were to the point: *Take Piglet Into Barn, $1000*. I was to see myself in. An envelope at its entrance would hold the cash and key.
+
+But first, I had to catch a piglet. They ran and ran with all their might, and I chased them round and round in circles in their pigsty until one tired. This farm only had piglets, bar a pair of mature pigs that looked like they didn’t want to be alive anymore and watched silently from a separate enclosure. The piglet resigned itself to me once I picked it up, its head dropping with a short-lived groan.
+
+I then ventured into the barn.
+
+Buzzing filled the space. I should’ve set the piglet down then and left, but something was wrong. There was a… shape in the middle of the room, barely illuminated by a lone plane of light percolating in through a slit in the barn boards from the main farmhouse’s porch light outside.
+
+The piglet jittered as I crept forward, the movement soon compounded by my own jittering arms.
+
+…It was a porky man lying motionless in a child’s pram, torso marinating in a rainbow-tinged puddle in the carrycot, limp limbs protruding from it like flaccid oars. A purple network of veins pressed up against the translucent skin, streaking it like rain did windows on wistful days.
+
+The buzzing was louder here. It reeked of death.
+
+Both the piglet and I jumped out of our skins as the man yawned before arduously propping himself up on his elbows.
+
+When he finally took notice of us, his eyes lit up like fireworks, and his gargantuan sausage-tongue made its expeditious appearance, carouselling *slipperily* over his bulbous slug-lips and wetting them to no end.
+
+“PIGGYYYYYYYYYY!” he squealed. His outstretched hands groped the air continuously. His shallow panting accelerated.
+
+*Fuck this*. I threw piggy into the pram, where it crashed with a *squelchous* **SLAP**. It immediately audibly gagged before being engulfed in a bear hug. The pram creaked wildly and I heard something burst. I couldn’t take it. I scrambled back to the door like a possessed rag doll, the taste of bile bubbling up to the surface with the fervour of a geyser on Enceladus. A quick glance over my shoulder I was certain had burned itself into my brain for good: the piglet’s hind legs backpedalling frantically on the beads of condensation lubricating the man’s bloated gut, and the man’s beady eyes gleaming like those of a spoiled brat unwrapping a Christmas present.
+
+Outside, the blood-curdling screams came, then abruptly ceased. I saw the other piglets there, huddled together at the back of their pigsty. They whimpered when I approached.
+
+I unlatched their gate, tears streaming down my face.
