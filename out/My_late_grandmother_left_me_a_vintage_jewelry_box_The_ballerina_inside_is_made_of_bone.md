@@ -1,0 +1,43 @@
+I always knew my grandmother’s jewelry box was wrong. When she passed away last month, the rest of the family refused to touch it. They claimed it gave them headaches, that the faint smell of copper and formaldehyde clinging to the wood was too offensive. But as her only grandchild, the burden of her estate fell to me, and I brought the heavy mahogany box into my apartment. **That was the worst mistake of my life.**
+
+The box is an ornate, oppressive piece of Victorian craftsmanship. The wood is stained so dark it looks like coagulated blood, edged with tarnished silver filigree that resembles intertwined thorns. But it’s the ballerina inside that makes your stomach drop.
+
+She isn’t made of plastic or cheap porcelain. Her skin has the yellowish, matte texture of polished, aged bone. When you look closely through a magnifying glass, you can see tiny, microscopic pores—like human skeletal remains. Her eyes are two hollowed-out sockets set with jagged chips of black obsidian that seem to track you across the room. Her tutu isn't silk; it's a stiff, brittle mesh woven from coarse, greying human hair.
+
+When you wind the silver key in the back, the mechanism doesn't just chime. It groans. The internal gears sound like teeth grinding together, forcing the bone figurine to move. Her joints don't spin smoothly; they snap and pop, mimicking a grotesque, agonizingly disjointed arabesque to a warped, agonizingly slow rendition of Tchaikovsky’s *Swan Lake*.
+
+I placed it on my nightstand. The first night, the nightmare began.
+
+I woke up at 3:14 AM to a wet, rhythmic clicking sound right next to my ear.
+
+*Click. Snap. Click.*
+
+The room was freezing. I could see my breath pluming in the pale moonlight. I turned my head slowly. The lid of the jewelry box was propped wide open, yawning like a mouth. Inside, the bone ballerina was spinning so violently that her hair-tutu was whistling through the air. But she wasn't on her metal peg anymore. The silver rod was bare. She had grown.
+
+She was now six inches tall, her elongated, skeletal legs stretching out of the box, stepping onto my nightstand.
+
+I tried to scream, but the air caught in my throat. I was entirely paralyzed by a suffocating wave of sleep paralysis. I could only watch in absolute horror as the entity crawled out of the box. Her bone joints popped with the sickening sound of a compound fracture. *Crack.*
+
+She didn't just dance; she mutated as she moved. With every agonizing spin, her limbs stretched longer, the bone splintering and reforming, growing larger. The music wasn't coming from the box anymore. The distorted *Swan Lake* melody was chiming directly from inside her ribcage, vibrating out of her hollow chest like a dying music box trapped in a wet throat.
+
+*Crack. Snap. Tap.*
+
+She hopped off the nightstand and landed on my chest.
+
+The weight was immense—she felt like she weighed fifty pounds, pressing the breath out of my lungs. Up close, I could smell her. She smelled of a freshly opened grave and rancid machine oil. Those jagged obsidian eyes stared directly into mine. Then, her jaw—a tiny, hinged piece of human jawbone—dropped open far wider than anatomically possible.
+
+A thick, black, viscous fluid began to drip from her mouth, splashing onto my face. It was ice cold and tasted like rust.
+
+*"The audience must not leave,"* a voice scraped out of her open throat. It sounded like two rusted iron plates grinding together, layered beneath the frantic, hyper-speed chiming of a broken spring.
+
+With a sudden, violent jerk, she began to pirouette directly on my sternum. The razor-sharp points of her bone toes sliced right through my t-shirt, tearing into my flesh. The pain shattered my paralysis. I let out a blood-curdling shriek, threw my arms up, and violently shoved the growing monstrosity off me.
+
+She hit the hardwood floor with a heavy, wet thud and immediately scrambled backward on all fours like a massive, skeletal spider. Her limbs were now the size of a human infant's, snapping and bending backward as she retreated into the pitch-black shadows beneath my bed.
+
+I bolted. I didn't grab my shoes. I didn't grab my wallet. I tore open my bedroom door, sprinted down the hallway, and locked myself in the bathroom at the end of the hall.
+
+That was two hours ago. The sun still hasn't risen.
+
+The apartment is dead silent, except for the floorboards right outside the bathroom door. They are creaking under immense weight. Whatever is out there isn't six inches tall anymore. It's heavy. It's massive.
+
+And just a second ago, the silver key on the jewelry box back in my bedroom began to wind itself up again, the loud, metallic *crank, crank, crank* echoing down the hall.
