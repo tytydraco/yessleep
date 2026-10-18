@@ -134,7 +134,7 @@ We tried to pull Dave back from the door, we really did. But, he was already rea
 
 “Guys! What the f-!” I tried to ignore the sounds of Dave scrambling backwards and screaming. “Oh god no! Please! No!” 
 
-We ravenously ate the remains on our plates. There was no point risking the food waste fee anymore. We were willing to for Dave, but we were forced to hear Dave screaming like a child while some wet thing macerated his flesh less than twenty feet away from us. So, that was a lost cause. 
+We ravenously ate the remains on our plates. There was no point risking the food waste fee anymore. We were willing to for Dave, but we were forced to hear Dave screaming like a child while some wet thing lacerated his flesh less than twenty feet away from us. So, that was a lost cause. 
 
 I hid my face in my food to hide the tears. 
 
