@@ -1,0 +1,73 @@
+We all know how the rules of the Midnight Game are played, heck, I have listened to the narrations, some better than others, even watched the Netflix version from no/sleep.So, to say I love, I love. To the point of obsession, imagine scrolling endlessly for yet another contribution to my favorite and, dare I say it, consuming interest. 
+
+At night I would find myself, playing out the stories in my mind as I drifted off to sleep. So, introduction complete, let us move on. Obviously I am writing in the past tense, because it's already done. Ok, you want me to just get to the story. Here I go, or, we go? Anyway. 
+
+The rules of the Midnight Game are precise, rigid, and untirely unforgiving. Write your full name on a piece of parchment, prick your finger to stain it with your own blood, place it at the front door, knock twenty two times exactly, open the door, blow out your candle, and relight it within ten seconds. 
+
+If you fail, the Midnight Man arrives. 
+
+I didn't fail. Did I mention that I am obsessive? I have a very methodical mind. The candle flickered back to life on the nineth second. At that moment the heavy stale air of my hallway suddenly cooled: smelling of turned soil. He was in the house. 
+
+And that was my cue to start boiling the water. 
+
+My friends had called me insane when I pitched the idea to them, 
+
+" You're inviting a primordial entity of darkness into your house, " Helen, from accounting had shouted over the phone, "And you're going to do what? Feed him? "
+
+Yes. Because nobody ever considers the domesticity of spirits. We assume demons and poltergeists exist on pure malice and ethereal dread. But energy requires sustenance, and ancient entities bound by centuries old summoning rituals grow weary. They are tethered to the physical plane by the rules of the game, and rules, by their very nature, possess loopholes. 
+
+I poured a generous drizzle of olive oil into a heavy copper pot. As the burner clicked and hissed to life, the shadows in the corner of my kitchen began to stretch, detaching themselves from the drywall. They pooled together, coalescing into a towering, jagged silhouette devoid of light. Feeling the temperature drop even lower, fighting a nervous trembling in my stomach, I whispered to the empty air, 
+
+" You are early. " I kept my eyes fixed on the stovetop. 
+
+A sound answered me, not a voice, but the scraping of fingernails across bone, echoing directly inside my skull. 
+
+" Fools play to survive, " the scraping hissed, "You play to bargain. "
+
+"I play because I'm hungry, and so are you, " I replied evenly. 
+
+I reached for the salt. It wasn't table salt. It was harvested from dried tears collected over seven winters, ' another story in itself' ( sorry, I know, you want the story you are here for) , mixed with crushed roesemary and dried hemlock. As I cast a generous pinch into the roiling boil, a low, guttural growl vibrated through the floorboards. The Midnight Man hated salt. It reminded him of the earth, of graves, of the boundaries he was forbidden to cross. But a pinch in pasta water? It mearly stung. It kept him at arms length, hovering just past the linoleum edge of the kitchen. 
+
+Next came the pasta. Not store bought dried tubes, but fresh fettuccine I had kneaded that afternoon. The flour was mixed with ash from a burned confession letter; the eggs had been laid during a blood moon. Ritual Pasta. It was heavy, green, and smelled like old regrets. 
+
+I dropped the strands into the pot. They hit the water with a soft, heavy splash, instantly turning the boiling liquid a murky bruised purple. 
+
+The entity moved closer. A hand, long and thin, tipped with obsidian claws reached out from the darkness beyond the kitchen, hovering inches from my shoulder. The air around it burned with a numbing, necrotic cold. 
+
+" Turn off the stove, " the entity commanded, the thought stabbing into my prefrontal cortex like an ice pick. " Extinguish the light. Let the dark take the room, and take you with it. "
+
+" Patience, " I murmured, stirring the noodles with a wooden spoon carved from a gallows oak. " Al dente takes precisely eight minutes. You wouldn't want it mushy. " I set the timer. For an instant both of us seemed transfixed with the, bip.bip bip.. counting down. 
+
+The tension in the room grew suffocating. The Midnight Man loomed larger now, his form shifting and warping, a storm of absolute blackness that seemed to swallow the glow from the stove. He wanted me to panic. Fear was the spice he preferred. But I had spent three weeks meticulously reviewing occult Grimoires and culinary chemistry. I knew that fear soured the offering. 
+
+I chopped fresh garlic, a traditional ward, but when browned gently in butter and infused with nightshade, it becomes something else entirely. A bridge. A binder. 
+
+Bip.. Bip.. Seven minutes. 
+
+The entity leaned in, it's nonexistent face pressing against the back of my neck. I could smell him: a terrifying cocktail of putrefaction, glaciers and autumn deadfall. My skin pebbled with goosebumps, I swallowed it all down with the calm efficiency with which I built my life. 
+
+" I will peel the skin from your bones, " the entity whispered, a promise of exquisite agony. " I will scatter your teeth like gravel. "
+
+" Not tonight, " I said calmly. I strained the pasta, the thick purple water swirling down the stainless steel drain, I tossed the noodles back into the hot copper pot, folding them generously into the garlic and nightshade butter, finishing it with a grating of special parmesan that had aged in a tomb. 
+
+I plated it. A single, steaming mound of dark, glistening fettuccine on a white ceramic dish. 
+
+I set the plate on the kitchen island. I stepped back, raising my hands slowly to show I held no weapon or deception, only the white candle burning steadily in my left palm. 
+
+" Dinner is served, "I said. 
+
+The darkness paused. The scraping sound in my head ceased, replaced by a profound, sudden silence. The Midnight Man stared at the plate. For a creature bound to the shadows of the witching hour, the offering of a warm, ritually prepared meal was an anomaly. It was the loophole in the game's mechanics. A guest cannot destroy a host who feeds them properly. 
+
+Slowly, the towering silhouette drifted forward. The long, clawed fingers hovered over the ceramic plate. A wisp of black smoke curled down, tasting the steam. 
+
+I held my breath. If the magic failed, if the ingredients weren't balanced, if the invocation was flawed, he would tear my throat out before I could blink. 
+
+The shadow paused. Then, with a sound like a starving wolf inhaling its prey, the plate was empty. The pasta vanished into the void of the entitys form.. 
+
+The air in the house suddenly warmed. The oppressive weight lifted like an exhaled breath. 
+
+" The debt is paid, " the voice echoed, fading away into the walls. " Until the next time. "
+
+I let go finally of the tension I had been holding, my legs suddenly weak with exhaustion I sank gratefully to the kitchen floor. Then, smiling to myself, I reached into my pocket and pulled out my notepad. 
+
+" Note to self, I wrote. The Midnight Man prefers garlic over rosemary. Adjust the recipe for next Tuesday. 

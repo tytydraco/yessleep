@@ -1,0 +1,352 @@
+I (21F) work as an overnight stocker at a grocery store in a city located about half an hour from my home. Most of the exhaustion wore off after 2 weeks of working the late shifts. I still get a bit drowsy when I have to drive home at 5 AM and the road is dark and quiet, and that’s usually when I’ll put on my pop-rock playlist up super loud to keep myself from drifting into another lane or getting too sleepy. The last stretch of road before my home is pretty curvy and I tend to get a bit carsick after I get to my house.
+
+Today I got broken up with. My boyfriend decided he didn’t want to deal with long distance anymore and he felt too “held down” during his time at college, which is surprising to me because we were just talking about our life after graduation. We wanted a nice wedding at a church in the city even though we were still so young, and he seemed like he wanted to get married more than I did. Oh well. I don’t really have many friends here and the only person I’m really close with is my dad. I get frustrated looking at my coworkers getting along or groups of strangers about my age laughing in groups. I wish I had someone that I could confide in about everything that’s been happening recently. 
+
+Today I finished up my shift after 8 hours of overthinking and start walking to clock out 10 minutes before I usually do. I just wanted to get home and sleep more than anything. I get into my car and put on something upbeat to distract myself from my thoughts. I find myself almost drifting off a few times and I ran one red light on accident. There’s a few people on the sidewalks carrying around shopping carts and I had to swerve to avoid a few walking slowly across the street without seeming to be aware of their surroundings.
+
+I was about 5 minutes from my home when a figure steps out right in front of me while I was turning onto the windy road. I try and swerve while my tires squeal, then I get jolted forwards with a loud thud. The figure is violently knocked over by my bumper and slams onto the pavement. There’s a good amount of blood splattered on my windshield. I slam on my brake pedals so hard my leg is almost locked as my car drifts into a trench on the side of the road. It’s pitch black outside except for my headlights. My heart pounds and I feel like vomiting.
+
+I sit in my car, hands shaking, and reach for my phone to call 911. I get connected with an operator while the reality of what happened sets in.
+
+“911, what’s the address of your emergency?”
+
+“Please help me. I think I hit someone with my car.”
+
+“Okay, where exactly are you?”
+
+“Umm, fuck, I don’t know, like right before \[O\] Road?”
+
+“What city?”
+
+“\[REDACTED\].”
+
+“Okay. Tell me exactly what happened.”
+
+I tell her in detail about the small amount of information that I know. Outside of my window, I see long brown hair on the pavement slightly moving. I’m unsure if it’s from the figure still being alive or if the wind is moving the hair.
+
+A few seconds of silence.
+
+“Hey, the guy is still underneath my car and I can see something moving. He might still be alive.”
+
+“Is it safe to approach him?”
+
+“I think so. Hold on.”
+
+I open my door and approach the body on the road. I can’t see much, just some twisted limbs and long hair. Lots of blood.
+
+“Hello? Sir? Can you hear me?”
+
+“Is he responding to you?”
+
+I move closer and discover that the figure was a woman, probably about a few years older than me. She’s laying completely still and her breaths are labored…they sound almost crunchy. 
+
+“I think she’s still alive.”
+
+“Is she breathing?”
+
+“I think so.”
+
+The woman rolls her head until she is looking directly at me and her wet, rattled breaths stop as I catch a glimpse of her bloodshot eyes.
+
+“I need you to put your phone on speaker and begin chest compressions. Place the heel of one hand in the center of her chest and your other hand on top.”
+
+I do as the operator says.
+
+The woman continues her breathing as I begin compressing her chest.
+
+“Fuck. I’m not doing this hard enough. How fast am I supposed to even do this?” 
+
+I hear sirens in the distance getting closer. 
+
+“About twice per second. Keep a steady rhythm, and don’t stop until the paramedics take over.”
+
+It seemed like an eternity before they finally arrived. They assess her, ask me a few questions, then transport her into the ambulance. 
+
+“Have the paramedics arrived?” The operator asks.
+
+“Yeah, they’re here.”
+
+“Ok. Please remain at the scene until the police arrive.”
+
+A few moments pass.
+
+“Ma’am, before I disconnect, can I ask you something?”
+
+“Yeah?”
+
+“Why did you do it?”
+
+“What?”
+
+The line disconnected. 
+
+I sit in complete silence as the lights and sirens disappear into the distance. 
+
+I feel sick to my stomach and step back into my car and turn on the lights. I try to call my dad but his phone goes straight to voicemail. I cry for what seems like an hour while trying to avoid looking at the dark blood splattered on my windshield.
+
+The police finally arrive. I feel my heart settle a tiny bit as I see an officer come out of his car and come to my drivers’ seat window.
+
+“Are you the driver?”
+
+“Yes. I called 911.”
+
+“Okay. Are you hurt at all?”
+
+I actually never really stopped to think if I’ve been hurt. I never felt anything during the collision, but I do see a bit of bruising on my arms from when I must’ve hit the steering wheel.
+
+“Umm no. Not seriously.” I show him my bruises. 
+
+“Alright. I need you to step out of the vehicle for me. We’re going to get your statement, and I’ll need to see your license and insurance.”
+
+I nod and reach for my wallet, my hands still trembling.
+
+“Have you had anything to drink tonight?”  
+“No. I just got off work.”  
+“What time did your shift end?”  
+“Five. I work overnight.”
+
+He writes something in his notebook, then looks back at me.
+
+“Did you see the woman before you hit her?”
+
+“It was so dark. I tried to avoid her but she just came out of nowhere.”
+
+He pauses for a few moments.
+
+“Alright. We’ll need to finish documenting the scene, but you’re free to go for now. Someone is probably going to contact you for a follow-up statement.”
+
+“What about my car?” I look at the smeared blood on my bumper and on the windshield.
+
+“You’ll probably want to clean it before driving it much more, unless we need to come back and hold it for whatever reason, you should be good to take it home. And, uh, the paramedics mentioned something about the lady’s condition.”
+
+“What’s that?”
+
+“Well, they said there were signs of decomposition.”
+
+My stomach twists.
+
+“She was breathing. I heard her. I told the operator!”
+
+“You said that in your 911 call?” The officer looks at me uncertainly.
+
+“I was doing CPR. I could hear her breathing. She was moving.”
+
+He pauses, then writes something down. 
+
+“Alright. If you remember anything else please let us know. Someone may follow up with you.” He clicks his pen and heads back to his vehicle. “Please, get some rest tonight.” He takes a moment to sit in his car, then drives off.
+
+I buckle myself into my seat and finish the drive to my home. I keep a steady 15 mph as I’m constantly reminded about what happened due to the messy obstruction on my windshield. It looks darker now. It’s turned into a deep, muddy brown in places. I turn on the wipers and immediately regret it as thick blood is smeared all throughout the glass. I pull the lever to spray washer fluid over the windshield. I’m able to see a bit better now.
+
+I pull into the driveway to see my dad’s blue truck parked out front. I’m going to have to explain this to him in the morning, but for now I’m just glad to be home. I know I’m too old to be sleeping with my parents, but I climb into my dad’s king size bed without him noticing. I don’t know how else I’m going to sleep tonight. My eyes close to the sound of his loud snores, and I finally slip into a dreamless silence.
+
+At about 8:30, I’m woken up by my dad while he’s leaving for work.
+
+“Hey, what happened last night? Did you hit a deer? Are you okay?”
+
+I only got about two hours of sleep and in my groggy haze, I forgot what had happened last night. It felt good to finally get that and the breakup off my mind while sleeping. I could feel the anxiety kick in and my stomach drop as I explain to my dad what had happened.
+
+“Some crazy lady walked out in front of my car. She was taken away and the police came and talked to me,” I yawn and stretch my arms, trying hard to mask the shakiness in my voice.
+
+“Wow. Well, I’m glad that car isn’t too damaged. I loved that thing. We can clean it together when I get home. Get some more sleep if you can, I know you have work tonight.” He’s worried, I can see it in his eyes.
+
+“Dad, what’s going to happen to me? Was it my fault?” I feel tears well up in my eyes and a knot tighten in my stomach. 
+
+“Sweets, I’m sure you’re not in trouble. I know it’s been a hard week for you. You know you need to be taking your anxiety medication.”
+
+I didn’t even tell him about my breakup, I didn’t want to stress him out even further. He didn’t even like my ex, but he saw how happy I was and held his tongue for me.
+
+I grab my bottle labeled “Buspar” and take a few pills as prescribed. I guess I have to be consistent for it to work, but at least I have the comfort of knowing it will start working soon. I hear the door shut and the jingling of keys as they lock behind my dad as I close my eyes again.
+
+I wake up to my alarm. 4 PM. My dad will be home soon. I walk over into the kitchen, grab an energy drink, and scroll Instagram for a while. No DMs. No texts from anyone. I’m 21 and have the most lonely existence out of everyone I know. I watch as everyone else takes trips to Japan, announces pregnancies, and graduates college, trying to squash the jealousy and resentment in my stomach. I set my phone down and finish my drink. 
+
+My phone begins to vibrate.
+
+I’m getting a call from an unknown number.
+
+I know I shouldn’t be unsettled because the officer said I would be receiving a follow-up soon, but I can’t answer the phone until I know for certain who is calling.
+
+The voicemail pops up after about a minute. I open it and press the button for it to be on speakerphone. There’s silence for a few seconds.
+
+Then I hear it. 
+
+I hear the rattling, labored breaths. The sound of sirens in the distance.
+
+What the fuck? Was this a recording of what happened last night?
+
+Then I look at the transcript.
+
+“You did this to me.”
+
+My heart sinks. 
+
+Maybe she’s alive. Maybe she wants to talk. I call the number back. It takes a few seconds to connect, then I hear a voice.
+
+“Hi, \[REDACTED\] police department, how can I help you?”
+
+“Umm, did you call me to follow up about the collision on \[O\] Road yesterday?”
+
+He read my name and asked me to confirm.
+
+“Yes. Is everything okay? Did you find out what happened to her?”
+
+There’s a pause on the other end.
+
+“I’m calling to follow up on the incident. We reviewed the scene documentation, and the report is being updated to reflect a suspected deer collision.”
+
+I pull the phone away from my ear and look at the screen.
+
+“What?”
+
+“A deer collision. Based on the damage to the vehicle and the evidence recovered at the scene.”
+
+“No, I hit a woman. A woman with long brown hair. I called an ambulance. The paramedics came. I spoke to the police officer who was there.”
+
+“I understand that you’re distressed, ma’am, but the documentation we have doesn’t support that account.”
+
+“Then where is she?” I feel my mind race.
+
+“I’m sorry, who?”
+
+I pause. 
+
+I hear a keyboard clicking in the background.
+
+“Ma’am, you should contact your insurance company as soon as possible. Do you have any more questions for me?”
+
+“No. That’s all.”
+
+“Thank you and have a great rest of your day.”
+
+The call ends.
+
+The voicemail has disappeared.
+
+I blink, thinking somehow that will make it reappear. My call to 911 from this morning is still there, 23 minutes long. My call now is still there. No voicemail. No breathing.
+
+I need to eat something. But the thought of eating makes me sick. 
+
+Outside I hear cars driving past. I hear my dad pulling up in the driveway and walk outside to meet him. He’s got soap and a few large sponges and rags. I feel a bit relieved. Maybe we can wash away the remnants of that deer and move on. We get to work.
+
+I called off tonight. I need sleep. Maybe I can try driving tomorrow.
+
+Dad made us Sloppy Joes after washing my car and I was so happy just being with him that I forgot about everything on my mind for a second. Then, I felt okay to open up to him about how I’ve been feeling, the breakup, the woman, the guilt, the loneliness. He listened to every word, hugged me for a good few minutes, then told me to go get some more rest. I couldn’t help but feel like he was worried about me. I might be worried about myself.
+
+I wake up next to my dad again.
+
+He went out for work and left me alone here. 
+
+I check my phone. 8:30 AM. No new messages. No DMs. Typical.
+
+I should probably shower, but I’m too tired to move. My mousy brown hair is getting greasy and tangled. It’s freezing. I put on my black hoodie and sweatpants, crawl back into bed and pull the covers up to my chin, listening to the familiar sounds of the house settling around me.
+
+My dad won’t be home until this evening.
+
+I close my eyes.
+
+A car passes outside.
+
+Then another.
+
+I don’t think much of it. We live close enough to the road that I can hear traffic from anywhere in the house, especially at night.
+
+A few minutes later, I hear a horn.
+
+It’s loud enough to make me open my eyes.
+
+Another horn follows, then the sharp squeal of tires against pavement.
+
+I sit up.
+
+For a moment, I consider staying in bed. It’s probably just someone driving too fast around the bend. People do it all the time.
+
+Then I hear a crash.
+
+I throw the covers off and hurry to the front window.
+
+A white sedan is stopped at an angle across the road. Its headlights illuminate the trees and the empty stretch of pavement ahead.
+
+The driver of the sedan gets out.
+
+He looks down at the front of his car, then turns to stare at the road. He’s talking to himself, or maybe shouting at someone I can’t see.
+
+I press closer to the window.
+
+There’s nobody else out there.
+
+The man suddenly looks toward the passenger side of his car. He takes a few steps backward, shaking his head.
+
+He stands still. I watch as he completely freezes for about 5 minutes. Then he slowly walks into his car and drives away.
+
+I stand at the window for another minute, waiting for something else to happen.
+
+Nothing does.
+
+I go back in my room. My heart rate is higher than usual. I know it’s probably just a distracted driver or someone having a car issue. Happens every day here. 
+
+I hear something.
+
+A slow, rattling inhale. 
+
+It’s almost too quiet for me to hear.
+
+I hold my breath and listen.
+
+It stops for a minute.
+
+I walk outside of my dad’s room.
+
+I hear the crunchy breathing again. It’s coming from somewhere inside the house.
+
+I grip my phone and get ready to run out the front door. The breathing is getting louder. I turn my phone flashlight on without averting my eyes from the front door. The air in the hallway smells sickening, like blood and sweet, rotting flesh.
+
+I run for it. The breathing almost starts to sound like a roar directly behind me as I race towards the front door. I rip my car keys off the kitchen counter and quickly slam the door behind me.
+
+I get into my car and start it. I don’t even have shoes on. I just want to see my dad. My GPS loads the car dealership he works at and I book it. 45 minutes away.
+
+My radio starts on its own. There’s a chorus singing a hymn, but it’s different somehow. Some of the chords are wrong. Very wrong. It’s suddenly interrupted by a news report.
+
+“—we interrupt our regular programming with a developing story out of \[REDACTED\]. Emergency services are responding to a serious traffic collision on \[O\] Road, just south of the \[R\] property.”
+
+I froze.
+
+“According to preliminary reports, a female pedestrian stepped into the path of an oncoming vehicle at about 8:55 o’clock this morning. The driver stopped and contacted emergency services, attempting to administer first aid before paramedics arrived.”
+
+I stared at the dashboard. 8:47 AM.  
+How is that possible?
+
+“Police have confirmed that the pedestrian sustained catastrophic injuries. Paramedics at the scene have reportedly noted signs of advanced decomposition, though authorities have not yet released the identity of the woman.”  
+My mouth went dry.  
+I reached for the radio dial, but my fingers wouldn't cooperate.  
+“Witnesses describe the woman as having long, brown hair and wearing dark clothing. Authorities are asking drivers to exercise caution in the area, as the pedestrian has reportedly been seen standing in the roadway even after emergency personnel arrived.”  
+The speaker crackled.  
+Underneath the announcer's voice, I heard it.  
+That wet, broken breathing.  
+I yanked my hand away from the radio.
+
+“Help me.”
+
+I sat there, staring at the radio in shock, tears welling up in my eyes. 
+
+“Help me.”
+
+The voice was clear as day. Outside of my car.
+
+I pull over and park onto the side of \[O\] Road. Almost exactly where the collision happened. I exit my car, almost entranced by the voice. Someone needs my help. 
+
+There it is.
+
+The rattling.
+
+“Hello? Is anyone there? Do you need help?”
+
+It was coming from the other side of the road. Louder this time. I grab my phone, ready to call 911. I cross the center line to see nothing at the other side of the road. No blood. No woman. No more breathing.
+
+“Help me.”
+
+Directly in my ear. My hair stands up. 
+
+I look towards the intersection to see headlights barreling towards me. 
+
+I try to move.
+
+8:55.
