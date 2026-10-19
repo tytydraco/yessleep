@@ -1,0 +1,137 @@
+He came up to me on the street one day. I was walking not far from that outdoor, high-end mall to a sandwich spot where I had placed a pickup order. I didn’t think twice about him when I first saw him. Seeing homeless people was a daily occurrence in the city, and the only reason I gave him a second glance was because of how much he stuck out among the wealthier shoppers around him. I never did learn if he actually was homeless. God only knows where he came from.
+
+He was a short, thin, dirty-looking, middle-aged man in ratty clothing that was too big for him. The top half of his face was covered with a sun-faded baseball cap, his chin and cheeks covered in unkept grey stubble. He was standing by the button for the crosswalk, looking around as if he was lost. I soon noticed that he was staring deeply into the faces of people walking around him, one after another, as if he was trying to make eye-contact with whoever would take him up on it. No one spared him a second glance, of course they didn’t, but I kept an eye on him for safety. 
+
+I continued walking towards the small crowd that was waiting to cross the street so that I could stand among them. Before I got to them, the Man turned his head and his eyes landed right on my own. I got my first good look at his eyes: big, blue eyes that stared out from behind rectangular, wire-frame glasses. His eyes had an almost innocent quality to them, they held no heaviness. I thought to myself that he must be crazy. I stared back, as was my habit to show people walking on the street that I was not someone to be messed with. Regardless, he strode toward me as if someone had fired a starting pistol. He stopped directly in front of me, forcing me to come to a halt as I stared at him in confusion and frustration. 
+
+The first thing that hit me was his stench: a mix of dried piss and rotten food. I opened my mouth to tell this creep to screw off, when he interrupted me.
+
+“We’re going to the grocery store,” he said, then turned and began to amble along.
+
+Suddenly, I was walking in step behind him. 
+
+It took me a moment to realize I was following him. I tried to stop, to turn around, but I couldn’t. I had lost control of my own legs. I tried to turn my head around, to reach out and grab a telephone pole or something to stop myself, but it was as if my brain no longer controlled my body. We kept walking, weaving through pedestrians as we made our way down the sidewalk. I tried to open my mouth to yell, to say anything at all, but it would not listen to me. I could feel that my face was frozen in a look of ambivalence. 
+
+I was starting to panic. I could feel my eyes darting in every direction, pleading for strangers to look at me and free me from whatever this was. What had happened? Had this man drugged me somehow? Was I dreaming? Was I going insane? Was it witchcraft? All I knew was that I was following him, and I could not stop. 
+
+We made it to the grocery store and walked inside. He walked me to the produce section and stopped in front of the apples. He didn’t look up at me as I unwillingly stopped next to him. He pointed at a section of the apples with a dirty fingernail and spoke.
+
+“Straighten all the Granny Smith apples, turn every other one upside down. One at a time.”
+
+To my shock, my hands reached out and began to straighten the green apples in front of me. I continued for what felt like hours, unable to even turn my head away from the task. I could feel everything. It was still my body. My hands cramped early on, and I never stopped to stretch them. He watched the entire time, offering miniscule critiques of my performance which my hands would respond to, correcting my work. He never looked away, never got bored. You would have thought we were doing surgery by the level of care that he and my body gave to our task.  
+Finally, I finished. I was amazed that no grocery store worker had stopped us. Customers had walked and reached around us many times, but no one seemed overly concerned by our work. Would I have said anything had I seen this? I would have hoped so, but I wasn’t sure.
+
+“Move on to the tomatoes. Turn them all upside down.”
+
+Finally, after several sections of produce, he walked me to the front door and out onto the street.   
+“Walk home. I will see you tomorrow.”
+
+So I walked home. Unable to disobey.
+
+When I crossed the threshold of my apartment’s front door, my body snapped out of it. I froze where I stood. I began to shake, then slowly angled my head down to look at myself. I appeared ok. I patted myself in several places. I was fine. I took a few steps in each direction to be sure that I was in control of my own movement. When I was confident that I was, I sprinted back out the door.
+
+It took several minutes to run to the nearest police station, but I ran the whole way. It took almost an hour to get seated in front of an officer, but I waited. I explained what had happened. I demanded some sort of drug test, which they eventually gave me. I asked how it was possible. The officer stared at me with a confused look on his face after hearing me out. He brought in his supervisor and he listened to my story as well. 
+
+“Did he threaten you or something?” The supervisor asked. “I’m sorry, I’m just not sure I get what you’re saying.”
+
+“Well… no, but-”
+
+“Did he indicate in any way that if you didn't do it, there was going to be any consequence?”
+
+“No, but-”
+
+“So a stranger told you to do something, and you just did it? You didn’t walk away?”
+
+“*I couldn’t!*”
+
+It went in circles for several more minutes. In the end they told me to just walk away next time. I couldn’t seem to make them understand that I very literally had no control of my own body.
+
+Later on, the drug test came back. I was negative for everything. 
+
+I didn’t sleep at all that night, terrified that the Man would make good on his promise of seeing me the next day. I called my office and said I would work from home that day. 
+
+Around eleven in the morning, there was a knock at the door. I froze, careful not to move a single muscle. There was no way he knew where I lived. I was pretty sure he hadn’t followed me.
+
+Then a voice called from behind the door: “Come outside.”
+
+My legs stood me up and walked me to the door. I fought my body with every ounce of my will, but it didn’t make a difference. My hand shot out and turned the doorknob, then pulled the door open. 
+
+He stood there, in the same dirty clothes as the day before, his blue eyes magnified by his thick glasses. He stunk just as bad as he had. 
+
+“Let’s go.”
+
+That day he brought me to a gas station and had me taking very deliberate steps to make a square, all while facing the same direction. It was ninety-eight degrees out and we were out there for four hours.
+
+As soon as I was free, I got in my car and drove for hours. I ended up in the desert in a little town in the middle of nowhere. I didn’t know where I was going, but I knew I had to get as far away as possible. I would figure it out from there. I pulled into a gas station as the sun came up, having driven all night. I filled up the tank, then went to get back in my car.
+
+He was already sitting in the passenger seat.
+
+We drove back and went to the mall. He had me count all of the lightbulbs in the building. I didn’t finish by the time the mall closed, but he let me go home, assuring me that we would finish tomorrow. I tried tying myself to the bed that night, plugging my ears with noise-cancelling headphones, and blindfolding myself.
+
+I got up first thing in the morning, not having heard or seen a thing, the blindfold still tight across my eyes. I easily pulled my right arm free of the shoddy bond I had tied and freed myself completely. I felt myself stand and leave the apartment. I could smell him as soon as the door opened. We walked for several minutes, leaving my apartment building, walking on the street, and entering another building. I could hear people beside us as we went. I heard some quiet comments about my blindfold, and each time it lit a small flame of hope in me that they would stop to ask what was going on. No one did. Eventually, I stood still and took off the blindfold, unwillingly, and saw the Tyrant smiling at me. We finished the lightbulbs in the mall that day.  
+This happened day after day. Every time it was something different, but it was always strange. One day, he brought me to the public library and we went through the stacks, taking books out one at a time, rotating them in midair, then putting them back just how we found them. It always went on for hours, and each second was agony.
+
+I never understood why he made me do any of this. He was dedicated to watching every task he made me do, but none of them made any sense nor did they benefit him in any way. It didn’t matter how useless the motion, he was passionate about it. He would encourage me as we did whatever we did, never losing patience or enthusiasm. He never introduced himself, or spoke of anything that didn’t have to do with the immediate task or to tell me that he would see me the next day. I didn’t know if he was homeless, if he had a name, or if he was even human. It seemed that he had no sort of identity outside the completion of these useless ordeals. 
+
+I took to calling him “the Tyrant.”
+
+My boss was getting concerned about me. I had been working from home for days, and as far as she could tell, I had not been getting anything done. I forced myself to go into work one morning, extra careful to make sure that the Tyrant was not following me. I convinced myself I could shake him, but a part of me knew otherwise. I parked a mile away then called a ride-share that took me the rest of the way, so that I couldn’t be tracked from or by my car. It worked for the first half of the day. I went about my work day the same as I always did before the Tyrant appeared.
+
+Then, in the middle of a meeting, he showed up. 
+
+He had walked all the way to the conference room door. Somehow he had gotten past the locked front door, reception, and up to this floor unobstructed despite looking like a security risk. No one had stopped him. The whole room turned when he walked into the conference room. 
+
+“I’m sorry, are you lost?” My boss asked.
+
+The Tyrant did not spare her a glance. His eyes found mine as I trembled. 
+
+“We are taking the bus,” he said, before turning back around and walking out the door.
+
+I stood up and walked to the door. Out of the corner of my eye, I could see my coworkers staring at me as if I was crazy.
+
+My boss called after me as I walked out, unable to turn around and offer an apology or even an apologetic look. She followed me to the door, but stopped at the threshold and watched me follow the Tyrant continue along the sidewalk. 
+
+Just like he promised, we rode the bus that day. That was it. We would sit on one for God knows how long, then he would randomly have us switch to another. I quickly recognized that there was no logic to what we were doing. We were not headed in a consistent direction. He would often have us double back in the same direction using a different bus line, or we would ride in a big square. I tried so hard to get someone to recognize that something was wrong. I stared like a madman at anyone and everyone. No one met my glance. There was an old woman who sat across from me who I stared at for several minutes, my eyes wide as saucers as I tried to get her attention. I tried to force my jaw open to make a noise, but it would not happen. I watched the woman step off the bus after several stops. The Tyrant spoke to me every so often, assuring me that we were “almost there” and relating the plans for the nonsensical route as if it mattered. 
+
+Before the buses stopped for the night, we got off right in front of my car and he walked off.  
+When I got home, I sobbed for hours. I sobbed until no more tears came. I sobbed until my voice went out so I was just lying on the ground shaking as my face continued the sobbing motions. I felt hopeless. There was no way to escape this. There was no moving away. There was no asking for help. Who would believe me? 
+
+No. The Tyrant had me. 
+
+Then the idea came to me. 
+
+It took a few days, but when I got what I needed and set it up, I was sure it would work. Before I went to sleep, I tied myself to the bed as best I could, spreadeagled. This time, I bought handcuffs, and cuffed myself to the bedframe, then tossed the key as far as I could. I tried my best to get out, but I couldn’t. Finally, this would work. After almost an hour of uncomfortable fidgeting, I finally fell asleep.
+
+It was morning when the pain woke me. I felt my arms straining against the restraints, the metal of the handcuff digging into the skin of my wrists and the rope on the other hand burning as it rubbed against me. My hips shot up and down from the bed, trying to wrest the remainder of my body from its prison.
+
+*Nice try.* 
+
+I had to wait for several minutes as this continued. The pain in my wrists was growing, blood was starting to trickle down my arms. I thought I would dislocate a limb. Then the door unlocked: he forced me to give him a key after the last time I tried to lock him out. It swung open and I caught a glimpse of his impassive face. As always, he looked the same, but then…
+
+*PING.*
+
+I wish I could have grinned at him as he stood up a little straighter, alarm showing everywhere but his soulless face. For the first time, he looked startled. He looked to the source of the small noise, and saw the grenade whose pin he had just pulled by yanking the door open.
+
+*BANG!*
+
+My eyes burned and my ears rang. I turned my head away from the scene and shut my eyes tight. That was when I noticed that I wasn’t struggling anymore, that I had moved my own head. I looked down at myself and attempted to flex my hands. They moved when I wanted them to.  
+I turned to look at the door and my breath caught in my throat. The remains of the Tyrant were slumped against the wall, his entire left arm and the left half of his chest were gone, only bloody red meat remained. I could see his brain on the left side of his head. His eyes were glassy and lifeless.
+
+*Jesus, how am I going to explain this to the cops?*
+
+I took a few deep breaths, steadying myself, and when I was ready, I took a deep breath in, preparing to yell at the top of my lungs for help. Someone would come hear me and untie me, I would yell all day if I had to, but someone would come. I was free.
+
+“HEL-”
+
+My voice caught in my throat. My arms went rigid.
+
+*No.*
+
+Then, searing pain as my body tore my hand out of the handcuff, shredding layers of skin and breaking bones. My now free, mostly ruined hand, now fumbled at my other restraint until my other arm was freed.
+
+Thankfully, he did not make me look at him as I untied my legs, but I heard him. He sounded as if nothing was wrong.
+
+“Put me back together. Every last piece.” 
+
+(FOLLOW ME ON INSTA AT RUNDABEG.HORROR FOR MORE HORROR SHORTS)
+

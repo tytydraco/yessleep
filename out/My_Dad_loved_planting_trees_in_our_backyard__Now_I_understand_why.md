@@ -2,7 +2,7 @@ If you met my father, your first thought would not be that he is a “hippie” 
 
 Throughout their early twenties together, Mom had several miscarriages.  Every attempt to start a family was foiled by nature’s cruelty. Years of disappointment soon led them to an era of depression.  Around this time, my Dad moved them to a new home out in the sticks.  
 
-It was here he took up planting trees in our extremely expansive property.  It was and remained his sole passion, outside of raising his future child.  Mom always described it as “a way to get his mind off things”, aka he was depressed in the ‘90s.  
+It was here he took up planting trees in our extremely expansive property.  It was and remained his sole passion, outside of raising his future child.  Mom always described it as “a way to get his mind off things”, aka he was depressed.  
 
 Well into their late thirties, they had me.  They always joked about how fat I was, that I had been growing in Mom well before she was pregnant, that I had been eating all the other “attempts”.  I guess it was the type of humor they needed just to cope with all they had been through, relieved at last.  In fairness, I was almost ten pounds when I was born.  Hefty.  
 

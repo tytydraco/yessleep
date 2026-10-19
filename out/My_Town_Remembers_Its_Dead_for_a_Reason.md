@@ -1,0 +1,1737 @@
+When I was a child, I thought everyone’s dead came home.
+
+Not as ghosts.
+
+Not exactly.
+
+Ghosts were something people talked about on television. Pale women in mirrors. Doors opening on their own. Cold spots in empty rooms.
+
+What happened in Bellwether was different.
+
+It was normal.
+
+On the last Thursday of every October, before the sun went down, everyone in town went home.
+
+Stores closed at four.
+
+School let out at noon.
+
+The gas station chained off its pumps.
+
+The sheriff drove slowly through town with his lights on, not his siren, and reminded anyone still outside that they needed to be indoors before dark.
+
+Nobody called it a curfew.
+
+We called it Home Night.
+
+There were rules.
+
+Every family had their own little variations, but the important ones were the same.
+
+Lock every door before sunset.
+
+Close every curtain.
+
+Leave the porch light off.
+
+Don’t answer the phone after midnight.
+
+Don’t look outside if someone calls your name.
+
+And if you hear someone knocking, no matter who they say they are, do not open the door.
+
+The last rule was the one adults repeated the most.
+
+If someone you love comes home, let them pass.
+
+I never really understood what that meant.
+
+I didn’t need to.
+
+Children accept the world they’re given.
+
+If you grow up near train tracks, you learn to sleep through the trains.
+
+If your father works nights, you don’t think it’s strange that he eats breakfast at six in the evening.
+
+And if the dead walk through your town once a year, you learn not to look out the window.
+
+I remember my first Home Night clearly.
+
+I must have been five.
+
+My aunt Ruth raised me. My mother died when I was a baby, and my father was never part of the picture, so Ruth was the closest thing I had to a parent.
+
+She made Home Night feel almost festive.
+
+She cooked stew.
+
+We baked cornbread.
+
+She let me stay awake later than usual.
+
+Before sunset, we walked through the house together while she checked every lock twice.
+
+Front door.
+
+Back door.
+
+Cellar.
+
+Kitchen windows.
+
+Bedroom windows.
+
+Then she pulled the curtains closed and put towels along the bottoms.
+
+I asked why.
+
+“So they can’t see the light.”
+
+“Who?”
+
+She smiled like I’d asked why the sky was blue.
+
+“The people going home.”
+
+That answer satisfied me.
+
+Later that night, I woke up on the couch to someone walking down our street.
+
+There were no cars.
+
+No voices.
+
+Just footsteps.
+
+Slow.
+
+Dragging.
+
+One foot.
+
+Then the other.
+
+Scrape.
+
+Step.
+
+Scrape.
+
+Step.
+
+I sat up.
+
+Aunt Ruth was in her chair beside me.
+
+She wasn’t asleep.
+
+She was watching the front door.
+
+The footsteps stopped outside our house.
+
+Three knocks came from the porch.
+
+Soft.
+
+Polite.
+
+Knock.
+
+Knock.
+
+Knock.
+
+Then a woman said my aunt’s name.
+
+“Ruth?”
+
+My aunt closed her eyes.
+
+The voice came again.
+
+“Ruthie?”
+
+I remember smiling because whoever was outside sounded old and sweet.
+
+“Who is that?”
+
+Aunt Ruth grabbed my wrist so hard it hurt.
+
+“Quiet.”
+
+The woman knocked again.
+
+“Ruthie, honey, it’s cold.”
+
+Something changed in my aunt’s face.
+
+Not fear exactly.
+
+Pain.
+
+She stared at the door for what felt like forever.
+
+Then the woman outside said, “You don’t have to forgive me. Just let me see you.”
+
+My aunt began crying.
+
+Silently.
+
+I had never seen her cry before.
+
+The voice remained outside for almost an hour.
+
+Sometimes talking.
+
+Sometimes knocking.
+
+Sometimes just standing there.
+
+Eventually the footsteps continued down the street.
+
+Scrape.
+
+Step.
+
+Scrape.
+
+Step.
+
+I asked Aunt Ruth about it the next morning.
+
+She told me it had been my grandmother.
+
+My grandmother had been dead for eleven years.
+
+I asked why she didn’t let her in.
+
+Aunt Ruth said something I didn’t understand until much later.
+
+“Because that wasn’t the part of her that loved me.”
+
+That was life in Bellwether.
+
+Nobody talked about Home Night outside of Home Night.
+
+The other 364 days of the year were ordinary.
+
+Football games.
+
+Church picnics.
+
+School fundraisers.
+
+Teenagers smoking behind Miller’s Feed & Supply.
+
+The same five old men eating breakfast at the diner every morning.
+
+Everyone knew everyone.
+
+Everyone knew who had died.
+
+That mattered.
+
+There was even a section in our local newspaper called Those We Remember. At the time I thought every town printed one.
+
+Names.
+
+Birthdays.
+
+Death dates.
+
+Sometimes photographs.
+
+The paper ran it every October.
+
+Adults would cut out certain entries and tape them inside cabinets or tuck them into family Bibles.
+
+I thought it was sentimental.
+
+Now I know they were keeping count.
+
+The older I got, the less frightening Home Night became.
+
+By thirteen, I treated it like a snow day.
+
+By sixteen, my friends and I joked about it.
+
+Mara Bell lived two houses down from me. She was my best friend from second grade until graduation.
+
+One Home Night when we were seventeen, we texted each other from our bedrooms.
+
+She dared me to look outside.
+
+I told her she was insane.
+
+She called me a coward.
+
+Then she sent me a picture through the tiny gap in her curtains.
+
+The street was empty except for a man standing beneath the dead streetlight across from her house.
+
+The photo was blurry.
+
+He wore some kind of dark coat.
+
+His head was turned toward Mara’s window.
+
+I immediately called her.
+
+“You’re an idiot.”
+
+She laughed.
+
+“He’s just standing there.”
+
+“Close the curtain.”
+
+“He looks familiar.”
+
+“Mara.”
+
+There was silence.
+
+Then she whispered, “I think that’s my uncle.”
+
+Her uncle Brian had died in a motorcycle accident when we were twelve.
+
+I told her to get away from the window.
+
+She did.
+
+A few minutes later, someone began knocking on her front door.
+
+I could hear it through the phone.
+
+Mara’s mother started screaming at her to go downstairs.
+
+Then the knocking stopped.
+
+Something tapped against Mara’s bedroom window.
+
+Second floor.
+
+Tap.
+
+Tap.
+
+Tap.
+
+Mara dropped the phone.
+
+I heard her scream.
+
+Then her mother.
+
+Then nothing.
+
+The call disconnected.
+
+I spent the rest of the night sitting beside Aunt Ruth in the living room.
+
+The next morning, Mara texted me.
+
+I asked what happened.
+
+She said nothing.
+
+I asked about the tapping.
+
+She replied:
+
+I’m not talking about it.
+
+And she never did.
+
+Not until years later.
+
+I left Bellwether three months after graduation.
+
+College was four hours away.
+
+I was excited mostly because I had spent eighteen years in a town where everyone knew my aunt, my mother, what grade I got in chemistry, who I took to prom, and which booth I preferred at the diner.
+
+I wanted anonymity.
+
+I wanted somewhere that didn’t feel like it had been watching me grow up.
+
+The first October away from home changed everything.
+
+I was sitting in my dorm with two girls from my floor when I asked what their families did for Home Night.
+
+They stared at me.
+
+I thought maybe it had a different name elsewhere.
+
+“The thing at the end of October,” I said.
+
+One of them laughed.
+
+“You mean Halloween?”
+
+“No. Before Halloween.”
+
+They still didn’t understand.
+
+I explained the closed businesses.
+
+The curtains.
+
+The knocking.
+
+The dead relatives.
+
+By the time I finished, neither of them was smiling.
+
+One of them finally said, “Anna, what the fuck are you talking about?”
+
+That was the first time I understood that Bellwether was not normal.
+
+I called Aunt Ruth that night.
+
+She dismissed it immediately.
+
+“Different places have different traditions.”
+
+“That isn’t a tradition.”
+
+“Sure it is.”
+
+“Dead people walking around isn’t a tradition.”
+
+There was a pause.
+
+Then she said, “Have you actually seen a dead person walking around?”
+
+I hadn’t.
+
+Not clearly.
+
+There was always a curtain.
+
+A door.
+
+A dark window.
+
+A blurry photograph.
+
+Maybe Bellwether was just full of superstitious people reinforcing the same story generation after generation.
+
+That explanation became easier to believe the longer I stayed away.
+
+I stopped going home for Home Night.
+
+Aunt Ruth hated that.
+
+Every October she called.
+
+Every October she asked me to come back.
+
+Every October I found an excuse.
+
+Exams.
+
+Work.
+
+Money.
+
+Bad weather.
+
+Eventually she stopped asking.
+
+I graduated.
+
+Moved again.
+
+Found a job.
+
+Built a life that didn’t revolve around one Thursday in October.
+
+Bellwether became a story I rarely told because whenever I did, people reacted exactly like those girls in my dorm.
+
+Like I had escaped a cult.
+
+After a while, I started wondering if they were right.
+
+Then Mara called me.
+
+It was August.
+
+I hadn’t spoken to her in almost two years.
+
+I knew something was wrong as soon as I heard her voice.
+
+“Anna?”
+
+“Mara?”
+
+“You need to come home.”
+
+I laughed nervously.
+
+“Good to hear from you too.”
+
+“It’s Ruth.”
+
+My aunt had pancreatic cancer.
+
+Stage four.
+
+She hadn’t told me.
+
+I drove to Bellwether the next morning.
+
+Coming back felt like driving into a memory.
+
+The same water tower.
+
+The same diner.
+
+The same cracked statue outside the courthouse.
+
+Even Miller’s Feed & Supply was still open.
+
+But something felt different.
+
+There were fewer people.
+
+More empty houses.
+
+More curtains permanently drawn.
+
+Aunt Ruth looked half her old size.
+
+She was sitting in her chair when I walked into the house.
+
+For a second I had to pretend I didn’t notice.
+
+She smiled.
+
+“You finally came home.”
+
+I hugged her carefully.
+
+“Why didn’t you tell me?”
+
+“Because you would’ve come home.”
+
+“That’s generally what happens when someone tells you they’re dying.”
+
+She laughed.
+
+Then coughed for almost a minute.
+
+I stayed.
+
+At first I planned on a week.
+
+Then two.
+
+Then I started working remotely.
+
+By October, I had basically moved back into my old bedroom.
+
+Aunt Ruth worsened quickly.
+
+Hospice started visiting.
+
+Mara came by constantly.
+
+She had never left Bellwether.
+
+Neither had most of the people we grew up with.
+
+One evening I asked her why.
+
+We were sitting on Ruth’s porch.
+
+Mara looked toward the road.
+
+“You know why.”
+
+“No, I don’t.”
+
+She rubbed her hands together.
+
+“You really don’t?”
+
+“If you’re talking about Home Night, no.”
+
+She went quiet.
+
+“You never wondered why people don’t leave?”
+
+“People leave.”
+
+“Not many.”
+
+“Small towns are like that.”
+
+“No.”
+
+She looked at me.
+
+“Small towns lose people. Bellwether keeps them.”
+
+I laughed.
+
+Mara didn’t.
+
+“Do you remember my uncle?”
+
+Immediately, I remembered the photograph.
+
+The tapping on her second-story window.
+
+“You never told me what happened.”
+
+“I looked at him.”
+
+“That’s it?”
+
+“No.”
+
+She swallowed.
+
+“He looked back.”
+
+A cold breeze moved through the yard.
+
+Mara rubbed her arms.
+
+“He knew I saw him. After that, he started coming every year.”
+
+“To your house?”
+
+“To my window.”
+
+My stomach tightened.
+
+“You said you were upstairs.”
+
+“I was.”
+
+Neither of us spoke for several seconds.
+
+Finally I asked, “How?”
+
+“I don’t know.”
+
+“What did he want?”
+
+“He wanted me to let him in.”
+
+“That doesn’t make sense.”
+
+“He didn’t always ask with words.”
+
+I stared at her.
+
+Mara looked exhausted.
+
+Older than thirty.
+
+“Sometimes he cried. Sometimes he smiled. Sometimes he scratched the glass until his fingers bent backward.”
+
+“Mara-“
+
+“The last year my mom was alive, he used her voice.”
+
+I stopped.
+
+“She was standing beside me,” Mara continued. “I could hear her breathing right next to me, but outside the window he was using her voice. Saying my name.”
+
+She looked toward Aunt Ruth’s house.
+
+“You were smart to leave.”
+
+That night I confronted Ruth.
+
+I expected her to dismiss it again.
+
+She didn’t.
+
+She was lying in bed, almost too weak to sit up.
+
+When I said Mara’s name, her eyes opened.
+
+“She told you.”
+
+“Some of it.”
+
+Aunt Ruth sighed.
+
+“I told that girl to leave years ago.”
+
+“What happens on Home Night?”
+
+“You know what happens.”
+
+“No. I know the bullshit version people tell children.”
+
+Her face tightened.
+
+“Watch your mouth.”
+
+“You’re dying, Ruth. I think we can survive the word bullshit.”
+
+She almost smiled.
+
+Almost.
+
+Then she looked toward the window.
+
+The curtains were already closed.
+
+Home Night was six days away.
+
+“There are the remembered,” she said.
+
+“What?”
+
+“The ones who still have somewhere to go.”
+
+I sat beside her.
+
+She continued.
+
+“Most of them don’t hurt anybody. They walk. They visit. They stand outside old houses. Sometimes they speak.”
+
+“The dead.”
+
+“Yes.”
+
+The ease with which she said it made my skin crawl.
+
+“And the others?”
+
+Aunt Ruth looked at me.
+
+“The Forgotten.”
+
+I waited.
+
+She didn’t continue.
+
+“What does that mean?”
+
+“Exactly what it sounds like.”
+
+She turned away.
+
+“Ruth.”
+
+“Some people die with nobody left to remember them. Some are forgotten slowly. Some deserve to be forgotten.”
+
+“And?”
+
+“And they still come back.”
+
+Aunt Ruth’s voice became quieter.
+
+“But they don’t know where home is anymore.”
+
+I thought about the newspaper.
+
+Those We Remember.
+
+The photographs.
+
+The names saved inside family Bibles.
+
+“That’s why everyone keeps records.”
+
+“Yes.”
+
+“So the dead remember who they are?”
+
+“No.”
+
+She looked at me again.
+
+“So we remember who they are.”
+
+I felt something shift in my stomach.
+
+“What happens if you don’t?”
+
+Aunt Ruth closed her eyes.
+
+“They learn someone else.”
+
+I didn’t understand.
+
+She refused to explain.
+
+Two days later, she stopped eating.
+
+The day before Home Night, hospice told us she probably had less than forty-eight hours.
+
+That morning the entire town began shutting down.
+
+By noon, people were already indoors.
+
+Mara came over carrying grocery bags and a wooden box.
+
+“What’s that?”
+
+“Ruth asked for it.”
+
+Inside were dozens of small index cards.
+
+Names.
+
+Birth dates.
+
+Death dates.
+
+Descriptions.
+
+Silas Wren.
+
+Margaret Hale.
+
+Thomas Bell.
+
+Evelyn Cross.
+
+Some names I recognized.
+
+Most I didn’t.
+
+At the bottom was one card written in red ink.
+
+UNKNOWN MALE.
+
+NO NAME.
+
+NO FAMILY.
+
+DO NOT ACKNOWLEDGE.
+
+I held it up.
+
+“Who is this?”
+
+Mara took it from me immediately.
+
+“Put that back.”
+
+“What is it?”
+
+“Anna.”
+
+“Who is he?”
+
+Aunt Ruth spoke from the living room.
+
+“Silas.”
+
+Mara froze.
+
+I looked between them.
+
+“The card says unknown.”
+
+Ruth’s voice was barely audible.
+
+“Because that isn’t his name.”
+
+That afternoon, she finally told me what happened.
+
+In 1952, a man arrived in Bellwether.
+
+Nobody knew where he came from.
+
+He rented a room above the old pharmacy.
+
+Worked odd jobs.
+
+Called himself Silas Wren.
+
+Then children started disappearing.
+
+Three in one summer.
+
+The town suspected him.
+
+Nothing was ever proven.
+
+Then a fourth child vanished.
+
+A group of men dragged Silas into the woods.
+
+He never returned.
+
+The child was found alive three days later.
+
+Silas had been innocent.
+
+“Jesus Christ,” I whispered.
+
+Ruth stared at the ceiling.
+
+“They buried him without a marker.”
+
+“And he came back.”
+
+“The next Home Night.”
+
+“What did he do?”
+
+“Nothing at first.”
+
+Her eyes moved toward me.
+
+“He knocked.”
+
+The men who killed him began dying.
+
+Not on Home Night.
+
+After.
+
+One walked into the river.
+
+One hanged himself.
+
+One cut his own throat in his kitchen.
+
+Each had reported seeing Silas outside their homes.
+
+Then their families began seeing him.
+
+Then people who had never known Silas saw him.
+
+The town destroyed photographs of him.
+
+Stopped saying his name.
+
+Removed him from records.
+
+They thought forgetting him would make him disappear.
+
+Instead, they made him something worse.
+
+“He forgot himself,” Ruth whispered.
+
+My skin prickled.
+
+“And now?”
+
+“Now he learns.”
+
+“What does that mean?”
+
+Ruth started coughing.
+
+Mara answered.
+
+“He watches.”
+
+I turned toward her.
+
+“If one of the Forgotten sees you clearly, they start learning you. Your face. Your voice. Your memories.”
+
+“That’s impossible.”
+
+Mara laughed once.
+
+There was no humor in it.
+
+“So is my dead uncle climbing a two-story wall.”
+
+Aunt Ruth grabbed my hand.
+
+Her grip was shockingly strong.
+
+“That is why we do not look outside.”
+
+That night, Home Night began at sunset.
+
+The town disappeared.
+
+No traffic.
+
+No porch lights.
+
+No dogs barking.
+
+Nothing.
+
+Mara stayed with us.
+
+Aunt Ruth was too sick to be moved, so we made up the couch beside her bed.
+
+For several hours, nothing happened.
+
+Around ten, footsteps started outside.
+
+Dozens of them.
+
+Some slow.
+
+Some quick.
+
+Some dragging.
+
+Occasionally a voice.
+
+Names whispered from the road.
+
+Doors knocked on farther down the block.
+
+Once, somebody laughed directly outside our kitchen window.
+
+Mara and I sat together without speaking.
+
+At 11:43, Aunt Ruth died.
+
+There was no dramatic final breath.
+
+She just stopped.
+
+I had been holding her hand.
+
+One second she was there.
+
+The next she wasn’t.
+
+I remember staring at her chest, waiting for it to rise.
+
+It never did.
+
+Mara started crying.
+
+I did too.
+
+Then someone knocked on the front door.
+
+Three soft knocks.
+
+Knock.
+
+Knock.
+
+Knock.
+
+Mara looked at me.
+
+“No.”
+
+I couldn’t speak.
+
+The knocking came again.
+
+Then Aunt Ruth’s voice said, “Anna?”
+
+Every hair on my body stood up.
+
+It had been less than five minutes.
+
+“Anna, honey?”
+
+I stared toward the hallway.
+
+Mara grabbed my arm.
+
+“Don’t.”
+
+“That can’t be her.”
+
+“It might be.”
+
+“What?”
+
+“The remembered come home too.”
+
+Aunt Ruth knocked again.
+
+“Baby, I forgot something.”
+
+I started crying harder.
+
+Her voice sounded perfect.
+
+Not sick.
+
+Not weak.
+
+The Ruth I remembered from childhood.
+
+“Anna?”
+
+I stood.
+
+Mara pulled me back down.
+
+“She told you the rule.”
+
+“What if it’s actually her?”
+
+“It doesn’t matter.”
+
+That sentence destroyed me more than anything else.
+
+The voice outside eventually stopped.
+
+Footsteps moved away.
+
+I sat beside my aunt’s body until after midnight.
+
+At some point, the power went out.
+
+The entire house went black.
+
+Mara swore.
+
+I reached for my phone.
+
+No signal.
+
+No internet.
+
+Nothing.
+
+Then we heard glass break downstairs.
+
+Not a window.
+
+Something smaller.
+
+A lamp maybe.
+
+Mara stood.
+
+“Did you lock the cellar?”
+
+I looked at her.
+
+The cellar.
+
+In all the chaos with Ruth, neither of us had checked it.
+
+We heard the cellar door creak open.
+
+Mara whispered, “Upstairs.”
+
+We moved into the hallway.
+
+Something was standing at the bottom of the stairs.
+
+I couldn’t see its face.
+
+Only the outline.
+
+Tall.
+
+Thin.
+
+Too still.
+
+Mara stopped breathing.
+
+The thing lifted its head.
+
+Then it said, in my voice,
+
+“Mara?”
+
+She made a sound like she’d been punched.
+
+I grabbed her.
+
+We ran upstairs.
+
+The thing followed.
+
+Not running.
+
+Walking.
+
+One step at a time.
+
+I slammed my bedroom door and locked it.
+
+Mara pushed my dresser against it.
+
+The footsteps reached the hallway.
+
+Stopped.
+
+Then Aunt Ruth said from the other side of my door,
+
+“Anna, honey?”
+
+I covered my mouth.
+
+Mara shook her head violently.
+
+The voice changed.
+
+My mother spoke next.
+
+I had never heard my mother’s voice.
+
+Not once.
+
+But somehow I knew it was her.
+
+“Anna.”
+
+My knees buckled.
+
+“Open the door.”
+
+Mara grabbed my face in both hands.
+
+“That is not her.”
+
+The doorknob turned.
+
+Slowly.
+
+“Anna,” my mother said again. “I’ve been waiting so long.”
+
+I started toward the door.
+
+Mara slapped me.
+
+Hard.
+
+I stared at her.
+
+“You don’t know her voice,” she whispered.
+
+That broke whatever spell I was under.
+
+The thing outside laughed.
+
+Not my mother.
+
+Not Ruth.
+
+Something wet and broken.
+
+Then it began scratching the door.
+
+Slow at first.
+
+Then violently.
+
+Wood splintered.
+
+Mara screamed.
+
+“We need to get out.”
+
+“Outside?”
+
+“It’s already inside.”
+
+The scratching stopped.
+
+Silence.
+
+Then something whispered directly beside my ear.
+
+“Anna.”
+
+I turned.
+
+The window was open.
+
+I know it had been closed.
+
+A man was standing outside.
+
+Not on the ground.
+
+Outside the second-story window.
+
+His face was inches from mine.
+
+There was nothing beneath his feet.
+
+He wore an old dark coat.
+
+His skin was gray.
+
+His eyes were milky except for tiny black centers.
+
+And his mouth—
+
+His mouth was smiling with my teeth.
+
+I screamed.
+
+He screamed at the exact same time.
+
+With my voice.
+
+Mara dragged me backward.
+
+The thing outside tilted its head.
+
+Then its face changed.
+
+Not physically.
+
+Not like a movie.
+
+It was more disturbing than that.
+
+For one second, I simply knew I was looking at Ruth.
+
+Then Mara.
+
+Then myself.
+
+Like my brain couldn’t decide who the face belonged to.
+
+The bedroom door burst inward.
+
+We ran.
+
+Down the stairs.
+
+Past Ruth’s body.
+
+Through the kitchen.
+
+Mara stopped at the back door.
+
+I grabbed her.
+
+“What are you doing?”
+
+She stared at it.
+
+Outside.
+
+The one place we had been warned never to go.
+
+Behind us, something stepped into the kitchen.
+
+“Anna,” it said.
+
+My voice again.
+
+Mara unlocked the door.
+
+We ran outside.
+
+I had imagined Home Night streets my entire childhood.
+
+I had pictured empty sidewalks with a few wandering dead.
+
+I was wrong.
+
+There were hundreds.
+
+Maybe thousands.
+
+Every yard.
+
+Every street.
+
+Every intersection.
+
+Men and women in clothes from every decade stood silently in the darkness.
+
+Some looked freshly dead.
+
+Others barely looked human.
+
+A little girl in a burned dress stared at us from beneath a tree.
+
+An old man without half his face stood beside a mailbox.
+
+A woman in a hospital gown wandered barefoot down the center of the road.
+
+Every single one turned when we stepped outside.
+
+Mara whispered, “Don’t look at their faces.”
+
+We ran.
+
+I stared at the pavement.
+
+Voices erupted around us.
+
+People calling names.
+
+Crying.
+
+Laughing.
+
+Begging.
+
+Hands reached from yards but stopped at property lines.
+
+I realized then that the houses weren’t keeping the dead out.
+
+They were giving them somewhere to go.
+
+The Forgotten were the ones wandering between them.
+
+Something followed behind us.
+
+My footsteps.
+
+Exactly half a second after mine.
+
+Step.
+
+Step.
+
+Step.
+
+Step.
+
+I ran faster.
+
+So did it.
+
+Mara pulled me toward the church.
+
+“Why there?”
+
+“Records.”
+
+The church kept the oldest burial records in Bellwether.
+
+Names.
+
+Families.
+
+Deaths.
+
+Memories.
+
+We reached the cemetery behind it.
+
+The gates were open.
+
+Hundreds of figures stood beside graves.
+
+Most weren’t threatening.
+
+Some sat quietly beside their own headstones.
+
+Some touched names carved into stone.
+
+Some watched houses in the distance.
+
+The remembered.
+
+Then I saw the empty patch of earth near the back fence.
+
+No marker.
+
+Nothing growing there.
+
+Mara stopped.
+
+“No.”
+
+A man stood over it.
+
+Silas.
+
+Or whatever remained of him.
+
+He looked at me.
+
+And smiled.
+
+Then he said my full name.
+
+Not just Anna.
+
+My full name.
+
+The name of my elementary school.
+
+My college.
+
+My first apartment.
+
+My mother’s name.
+
+Things I had never told anyone in Bellwether.
+
+My first kiss.
+
+The song Aunt Ruth used to sing while cooking.
+
+The nightmare I had when I was eight.
+
+The exact words I had said to my mother’s photograph when I left for college.
+
+He had been learning me for years.
+
+Maybe since I left.
+
+Maybe longer.
+
+Mara whispered, “Anna, don’t answer him.”
+
+Silas stepped closer.
+
+“You came home.”
+
+His face changed again.
+
+This time into mine.
+
+Perfectly.
+
+He looked exactly like me.
+
+Then another voice came from behind him.
+
+“Anna.”
+
+Aunt Ruth.
+
+She stood beside an old grave several yards away.
+
+Not sick.
+
+Not young either.
+
+Just Ruth.
+
+My Ruth.
+
+She looked sad.
+
+Silas turned toward her.
+
+For the first time, his smile disappeared.
+
+Ruth pointed toward his unmarked grave.
+
+Then looked at me.
+
+I understood.
+
+Maybe she wanted me to remember him.
+
+Not the monster the town had created.
+
+The man.
+
+The person they murdered and erased.
+
+“Silas Wren,” I said.
+
+Mara screamed, “Anna, no!”
+
+Silas froze.
+
+I said it again.
+
+“Silas Wren.”
+
+The cemetery changed.
+
+Every whisper stopped.
+
+Every head turned.
+
+Silas stared at me.
+
+I thought I had made a terrible mistake.
+
+Then he looked toward the empty grave.
+
+Something almost human appeared in his face.
+
+Confusion.
+
+Pain.
+
+Recognition.
+
+I told him what Ruth had told me.
+
+“You came here in 1952.”
+
+His mouth opened.
+
+“You rented the room above the pharmacy.”
+
+He stepped toward the grave.
+
+“You were accused of taking those children.”
+
+Another step.
+
+“You didn’t.”
+
+His face began changing faster.
+
+Mine.
+
+Ruth’s.
+
+Mara’s.
+
+Strangers.
+
+Hundreds of them.
+
+“You were murdered.”
+
+Silas dropped to his knees.
+
+“You had a name.”
+
+The thing wearing everyone else’s faces finally became one man.
+
+Thin.
+
+Dark hair.
+
+Deep-set eyes.
+
+Young.
+
+Terrified.
+
+Human.
+
+Silas looked at his hands.
+
+Then at me.
+
+“I remember,” he whispered.
+
+Behind him, something moved through the cemetery.
+
+Not a person.
+
+Darkness.
+
+Shapes retreating between trees.
+
+The Forgotten.
+
+All of them watching.
+
+For one second I understood the mistake Bellwether had made.
+
+We thought forgetting protected us.
+
+It didn’t.
+
+It starved them.
+
+It hollowed them out until they had no identity left except what they could steal from the living.
+
+Silas looked toward Aunt Ruth.
+
+She nodded.
+
+Then she began walking away.
+
+Toward the road.
+
+Toward home.
+
+I called her name.
+
+She turned once.
+
+Smiled.
+
+Then disappeared among the others.
+
+Sunrise came an hour later.
+
+The dead vanished gradually.
+
+Not dramatically.
+
+They simply became harder to see.
+
+Like figures disappearing into fog.
+
+By the time the sky turned orange, Mara and I were alone in the cemetery.
+
+Silas was gone.
+
+The empty patch of earth remained.
+
+Three days later, we gave him a headstone.
+
+SILAS WREN
+
+1919–1952
+
+WRONGLY ACCUSED.
+
+REMEMBERED.
+
+People were furious.
+
+Others cried.
+
+Some thanked us.
+
+Bellwether hasn’t decided what to do with the truth yet.
+
+I buried Aunt Ruth beside my mother.
+
+Then I left.
+
+Mara left too.
+
+For the first time in her life.
+
+That should have been the end.
+
+It wasn’t.
+
+Home Night was almost a year ago.
+
+For months, nothing happened.
+
+Then I started noticing people outside my apartment building.
+
+Never the same person.
+
+Always watching my window.
+
+An old woman.
+
+A teenage boy.
+
+A man in a business suit.
+
+A little girl.
+
+Whenever I looked directly at them, they walked away.
+
+Last week, I received an envelope.
+
+No return address.
+
+Inside was one of Aunt Ruth’s index cards.
+
+I don’t know how.
+
+I burned those cards before leaving Bellwether.
+
+This one was blank except for a sentence written in red ink.
+
+IF ONE OF THEM LEARNS YOU, DON’T LET IT FOLLOW YOU HOME.
+
+I haven’t slept since.
+
+Because Bellwether’s Home Night is supposed to be next Thursday.
+
+And someone just knocked on my door.
