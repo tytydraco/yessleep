@@ -1,0 +1,228 @@
+The power went out at 7:06 pm.
+
+But I’d say our flame had been out for about a year and a half. 
+
+She said I was living two different lives—my late night party animal lifestyle as a locally famous bartender, and the nice guy during the day pretending he was ready for a wife and a family. 
+
+She wasn't wrong. 
+
+I’d been behind the bar for 17 years straight. God, had it really been that long? I thought I could do both. Be both. And I was. But I also didn't realize I was losing her. 
+
+Until she divorced me 2 months after our wedding.
+
+There’s something so beautiful and tragic about the hope a woman can hold onto for her man. Thinking every new holiday, anniversary, birthday… even exchanging wedding vows… could be the thing that wakes him up, changes him for the better…
+
+She had a daughter before we met, Annmarie. 
+
+At hibachi for her 8th birthday, her mother and I were unsuccessfully silent-fighting behind her back. We were staring daggers at each other over Annmarie’s curly head as she sat between us, masterfully eating her shrimp fried rice with kiddie chopsticks. 
+
+Her mother mouthed to me: "Well, aren't you gonna say something?” 
+
+Annmarie, without even dropping a shrimp said: "He already did. With his eyes.”
+
+Annmarie loved me. And that was enough for her mother to fight for what was left of our love. And to hold onto the hope that someday I would change…
+
+Buying this house was my grand effort to make that change. To show her I was ready. 
+
+“Buy the cheapest house inside the best school district” was my buddy’s advice. 
+
+So, here we were: A broken family. Sitting in an old fixer-upper without power.
+
+And tonight was Annmarie’s 9th birthday. 
+
+I was committed to showing them a future they’d enjoy. A future we’d all love.
+
+I hadn’t moved much of my stuff into the house yet. And honestly, I hadn't expected her to accept my invite. I hadn’t seen her in over 4 months. 
+
+So when she said yes, I had to scramble. 
+
+I thought hibachi delivery and Netflix would be a decent effort. 
+
+With the power still out, that would be tough.
+
+I searched for a flashlight in one of those small, hidden storage doors under the staircase.
+
+But I could only find an old lamp. 
+
+*Really* old.
+
+Then I joined them in the family room. 
+
+It was awkward. No technology. And nothing really to talk about. Just the silence from simmering all of our scars.
+
+Luckily Annmarie was not only super cute but fiercely curious. She started fiddling with the lamp.
+
+And found a secret compartment with a little latch that slid open. 
+
+Inside was an old, folded piece of paper with writing and markings on it.
+
+We discovered it was a “how to” for shadow puppet techniques, dated 1866.
+
+Analogue entertainment for the win?
+
+The paper had increasing levels of complexity for creating shadow puppets. Level one was your classic one person stuff: a crow, a bunny, a dog.
+
+Annmarie chose the ***crow***. 
+
+As she flapped her finger-wings creating a soaring crow shadow on the wall, her mother and I flapped our lips through some small talk: 
+
+“How’s the new job?”
+
+“How’s your mother?” 
+
+We stumbled into some turbulence but found some common ground by planning some home projects to “spruce up the place.”
+
+We stepped away, walking through the kitchen, then the family room. There wasn't any light, but the darkness forced us closer. 
+
+It was kind of nice, actually.
+
+Planning for the future, that's a good sign right? Staring out into the moonlit backyard through the bay window found our lips orbiting each other, nearing a kiss—
+
+Then a ***crow*** slammed into the window. 
+
+Then another. And another. 
+
+BLAM. SPLAT. SGLUSSSHTT.
+
+Leaving a smear of blood, guts, and feathers. 
+
+“Oh, my god, Rob… were those birds?” She gasped, covering her mouth with her hand.
+
+“Wow, yeah.” They had dropped dead onto the stone patio below. “Looks like *crows* maybe?” 
+
+“ROB!” Annmarie’s voice yelled out. 
+
+We ran back to her in the family room.
+
+“You okay sugar cookie?” Her mom asked.
+
+“Yeah, I just need Rob’s help.”
+
+The shadow puppet diagrams were getting more complex.
+
+She needed a second person. These techniques were next level, utilizing three hands and even four. 
+
+As we intertwined our hands into the level two animals, a smile spread across her mom’s face. 
+
+Glimpsing her happiness reminded me: I *was* living two lives. But I really liked this one. Why did I keep jeopardizing it? Yeah, I was a late bloomer but goddamn I'm 37 now. Time to grow up. 
+
+Her mother clapped at each successful attempt of a new shadow puppet from us and we all laughed together at each terrible failure. We eventually achieved them all. 
+
+But the directions prompted us to flip the page over for the final shadow puppet.
+
+The sight of it shook my soul. 
+
+As if in a single instant I had been dragged through the bowels of ancient hell, through caves containing creatures far older than the existence of the universe.
+
+Annmarie just giggled and said it was “really ugly.” 
+
+But it required 6 hands. Would take about 6 minutes to achieve. And must be held for 6 seconds.
+
+So we recruited her reluctant mother.
+
+On our third attempt, we managed to mangle our fingers together enough to eke out the outline of this monstrosity.
+
+“Yay! Now hold it for 6 seconds… one… two…” Annmarie smiled, staring at the shadow growing larger and larger on the wall…
+
+“Three…. Four…” Her mother beaming at this authentic family moment.
+
+“Five…” I started to count…
+
+But I was spellbound by the shadowy creature… looming larger and larger up the wall, bleeding onto the ceiling… almost appearing as if it was forming a real, skin-like texture… scaly goosebumps with pricks of coarse hair beginning to poke through the wall paint…
+
+“Six.” 
+
+We couldn't move. We sat transfixed. Necks bent upward mesmerized by the monster forming before us. It loomed large and ominous on the wall, growing larger and larger than all the other shadow puppets had, almost as if it were about to tear away from the wall as a living, breathi—
+
+Then the power came back.
+
+The lights flashed on.
+
+And the shadow monster was gone… for now.
+
+**9:13 pm.**
+
+Just like when the 2am lights come on for last call at the bar… reality began to set in, and the harshness of our past was fully re-illuminated.
+
+Her mom pulled Annmarie’s hands from the menage immediately. Like the light was shining on all my faults. Spotlighting our resentment. 
+
+“Come one Annmarie, we should go.” She ordered.
+
+Crazy how the shadows of the heart can just appear anytime. I’d seen this expression on her face many times. And Annmarie’s. She wanted to forgive me. Her body was here. The effort. The want. But her heart… Her soul… was pulling her away. Trying to sever the tether of our past. We both knew we needed to let go, but we were haunted by a phantom love… like starlight… a love-light extending from a relationship that no longer existed…
+
+I forced a smile. Watching them pack up their things. Annmarie’s eyes staring into my soul, ripping my heart to shreds. Her mother’s distant look, like looking through our past, into an alternate future she wished existed, at the man I should’ve been but never was. 
+
+I looked behind me, hoping that man was there. I’d trade places with him in an instant. But, he wasn’t. It was just me. Broken and begging.
+
+She was saying goodbye for the final *final* time… I could tell.
+
+The front door closed… to the new house, and to any chance of a future. 
+
+I was left standing there, just me and my monsters.
+
+Then… the power went out again. 
+
+I stood in the darkness crying for a minute or two. Then searched for the matches.
+
+Strike one. Strike two. Strike three… I was out. The match box looked like it had been rained on once, or twice, or 100 times. So I sat in the darkness in silence…
+
+Until a lighter flicked next to me—
+
+SPARK.
+
+It was Annmarie and her mother. She re-lit the lantern with her lucky green BiC lighter. And sat back down. My heart melted faster than butter on a hibachi grill.
+
+I couldn’t contain my happiness as I looked at her: “I thought you quit?” 
+
+“It seems I can't let go of the things that will eventually kill me.” She smirked. A little spark in her eye.
+
+She knelt down on the floor with her daughter and me, “Now, where were we?”
+
+Annmarie flipped over the shadow puppet paper. 
+
+And there was the drawing of that hideous monster again. 
+
+I noticed some other writing scribbled frantically at the bottom, but the ink was smeared, and the edges tattered. I was trying to make out what it said—
+
+But Annmarie was so excited for us all to be back together, so we mangled our hands together and counted to six…
+
+But nothing happened. Just an innocent shadow on the wall.
+
+Maybe it was just my demons taunting me…
+
+Annmarie ripped her fingers from the cluster, “Now what?”
+
+Try and entertain a 9-year-old without technology, I dare ya.
+
+"Maybe there’s some board games in the closet?" 
+
+“Boooooring," Boasted Annmarie.
+
+“Thats why they call them *bored* games,” I punned. They both looked at me like I was the king of unfunny.
+
+“So when are we moving in, Mom?” Annmarie jousted slyly.
+
+We stared at each other. Laughed awkwardly. 
+
+Annmarie feigned innocence.
+
+“Well my little sugar booger, we’re just visiting right now. We’ll see how it goes, ok?” She glanced at me, cautiously optimistic. 
+
+I beamed a massively cheesy grin. Couldn’t be happier.
+
+“School starts in 8 weeks, so you better get a *moooooove* on it…” Annmarie laughed hysterically to herself.
+
+She made a pun, just like me. My eyes teared up. Her mom was speechless, staring at our chemistry. She was the only thing keeping us all together if you were to ask me. But, the love and admiration of a child is not nothing.
+
+I had an idea — I found a few used candles from a kitchen drawer, which we bundled together. I grabbed an old bag of marshmallows from the pantry. Annmarie’s mom had a Hershey bar in her purse. Annmarie had some Teddy Grahams in her backpack. This was actually not bad.
+
+We sat around the kitchen island and her mother lit the candle bundle.
+
+“Birthday s’mores, anyone?” I said.
+
+Annmarie’s smile was bigger than the moon. I started to sing:
+
+“HAPPY BIRTHDAY TO YOU. HAPPY BIRTHDAY TO YOUUUUUUUU..."
+
+But as the candle flames flickered on the wall behind them, a terrifying shadow began to form.
+

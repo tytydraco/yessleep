@@ -50,7 +50,7 @@ He was strictly referred to by Mr. C, which did nothing to calm the speculation 
 
 Some of us laughed, most of us exchanged uncomfortable looks, and several questions erupted from our staff all at once. He presented a solution that sounded just as ridiculous as it looked. 
 
-In plain terms, he would create a spell circle capable of trapping a soul before releasing it upon their teleported double to repossess the body. Which sounded more like a magic fantasy than a scientific process, and it seemed many of the other researchers thought so too. 
+In plain terms, he explained the process. We would create a spell circle capable of trapping a soul before releasing it upon their teleported double to repossess the body. Which sounded more like a magic fantasy than a scientific process, and it seemed many of the other researchers thought so too. 
 
 To say we were skeptical was an understatement. As the ensuing verbal lashing from the mob of researchers had to be physically interrupted by security as it became less than academic to say the least. 
 
@@ -178,7 +178,7 @@ My voice only came to me in a tired whisper, we both whispered as if the thing o
 
 “What would you call it then? If you’ve deconstructed something’s atoms it’s dead.” Mr C interrupts beginning to stand. “It saw me” 
 
-What was left of Mr C half limped forward, his body mangled like something pulled from a car wreck. Compound fractures leaving sharp shards protruding through his taught skin. I could see the fat pressing out of his leg over a jagged bone. His face crushed on one side, missing pieces like a world war shrapnel victim. As if the flesh and bone had just been wiped away with a rag. 
+What was left of Mr C half limped forward, his body mangled like something pulled from a car wreck. Compound fractures left sharp shards protruding through his taught skin. I could see the flowering fat bursting out of his leg over a jagged bone. His face crushed on one side, missing pieces like a world-war shrapnel victim. As if the flesh and bone had just been wiped away with a rag. 
 
 One eye remained rolling in its socket impossibly, these wounds kill, he shouldn’t even be moving. His back was twisted, the pain would be unbearable he should’ve been paralyzed. 
 
@@ -196,11 +196,11 @@ I stepped away, and he limped forward. Only a few feet between us, his ravaged b
 
 I glanced around frantically as I backed away, looking for anything I could use. Small medical instruments, a box of pens, a stack of papers, a box of cigarettes and- my hand clutched around the lighter. 
 
-I backed towards the files, the desks, the cabinets, and what remained of Mr C lumbered after me into the scarcely lit room. Stalks of red separating the isles obscured in darkness, I watched his outline approaching between the light. 
+I backed towards the files, the desks, the cabinets, and what remained of Mr C lumbered after me into the scarcely lit room. Stalks of red separating the isles obscured in darkness, his dark outline contrasted between them.
 
-We continued this dance, the sound of his broken bones grinding together, his permeated skins fleshy smacks against the ground where nauseating. Every shuffle and stagger was a new pop and crunch and squelch. 
+We continued this dance, the sound of his broken bones grinding together, his permeated skin’s fleshy smacks against the ground where nauseating. Every shuffle and stagger was a new pop and crunch and squelch. 
 
-He moaned through a crushed windpipe, a wet gurgled wheeze of a sound as he followed. Finally gathering my courage, I pulled a shelf down behind me, blocking his path before reaching for a bottle of medical alcohol. I pulled another shelf down between us, struggling with its weight even with my adrenaline. 
+He moaned through a crushed windpipe, a wet gurgled wheeze of a sound as he followed. Finally gathering my courage, I pulled a shelf down behind me, blocking his path before reaching for a bottle of isopropyl alcohol. I pulled another shelf down between us, struggling with its weight even with my adrenaline. 
 
 Hearing him thrashing his way through my obstacles, I swept the nozzle over the objects between us, a spray of alcohol shining under the emergency lights. For a moment it glistened with the flame of my lighter, a dazzling light before the chaos. 
 
@@ -208,17 +208,17 @@ The flame jumped across the shelf and cabinets, quickly catching their paper fil
 
 The fire growing between us, Mr C’s gurgles became shrill as the flames lapped at his twisted body. His clothes both taught and loose over his new shape, began to singe from the growing heat. 
 
-Twisting around to face him again, I heave the still heavy bottle of alcohol with all my might into his torso. It met it with a dull thud, followed by a sudden burst as the open bottle hit the ground and caught fire.
+Twisting around to face him again, I heaved the bottle of isopropyl with all my might into his torso. It met it with a dull thud, followed by a sudden burst as the open bottle hit the ground and caught fire.
 
 A shower of flames erupting across his body, he began to scuttle after me as the flames engulfed him. I could feel the growing warmth from the fire as he closed in, nearly upon me. Lifting a chair I jabbed it at him to make distance, the heat lapping at my face. 
 
-He forced his weight against me, pushing me to the ground and pinning me beneath his flaming body. The chair still jammed between us, he grabbed at me with his free arm and sending sizzling droplets dribbling across my body. Like boiling water it sent searing pain across my chest, his molten flesh and blood molding with mine even through my shirt. 
+He forced his weight against me, pushing me to the ground and pinning me beneath his flaming body. The chair still jammed between us, he grabbed at me with his free arm, sending sizzling droplets across my body. His melting fat and boiling blood sent searing pain across my chest, his molten flesh cooking into mine even through my shirt. 
 
-He gargled once more before the skin and muscle on his hands began to slough off in sizzling clumps of melted fat and burning meat. And as the burning shrunken head fell from his melted grasp, his body fell limp. 
+He gargled once more before the skin and muscle on his hands began to slough off in sizzling clumps of melted fat and burning meat. And as the burning shrunken head still clutched in his hand fell from his melted grasp, his body shuddered and fell limp. 
 
 With effort and a few more minor burns, I was able to heave his burning body off of mine. I put out the fires with the help of a sink and a fire extinguisher, and without a plan I began doing what I knew how to. 
 
-I looked over my colleagues' results. They finished the subject's medical examination before they woke. And though for the most part nothing was out of the ordinary, the brain scan showed zero activity. Completely braindead, nothing even going on in there. 
+I looked over my colleagues' results. They finished the subject's medical examination before it woke. And though for the most part nothing was out of the ordinary, the brain scan showed zero activity. Completely braindead, nothing even going on in there. 
 
 But clearly something was in there, and if not in their head then, well I’m not so sure. After everything I’ve seen, after what we accidentally unleashed. 
 
@@ -226,7 +226,7 @@ If souls are indeed real, then what the hell did we put inside that subject, cau
 
 It’s been a few hours since I’ve heard anything through the medical wing door, but I’ve been hesitant to lift the lockdown. Someone should’ve raised the alarm by now, there’s no way it hasn’t wandered into someone else yet. I just hope they send help soon. 
 
-I can see my breath still, it’s been freezing in here since I’ve arrived. And the smell, the sulfur stench drowns out even the burnt flesh of Mr C. 
+I can see my breath still, it’s been freezing in here since I’ve arrived. And the smell, the sulfur stench drowned out even the burnt flesh of Mr C. 
 
 If I don’t hear it for another few hours, I might just make a break for it. It’s been dead silent out there, if anything it’s probably long gone. 
 
