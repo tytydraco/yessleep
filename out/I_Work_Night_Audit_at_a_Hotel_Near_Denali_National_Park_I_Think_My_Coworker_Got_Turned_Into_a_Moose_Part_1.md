@@ -1,0 +1,503 @@
+**I Work Night Audit at a Hotel Near Denali National Park. I Think My Coworker Got Turned Into a Moose. (Part 1)**  
+I want to make one thing clear before I start.  
+I know what a moose looks like.  
+I spent an entire summer working in Alaska. I’ve seen them standing beside roads, wandering through parking lots, and eating vegetation that somebody probably spent a considerable amount of money landscaping.  
+They’re enormous animals. They’re dangerous. And despite what tourists seem to believe, they’re not particularly interested in being photographed with your children.  
+I also know that moose cannot read.  
+At least, I’m pretty sure they can’t.  
+Which is why I’m having a difficult time explaining what happened outside the hotel lobby last night.  
+But I’m getting ahead of myself.  
+My name is Ryan. I’m twenty-four, and I took a seasonal job working the front desk at a wilderness lodge near Denali National Park.  
+I’ll call it North Fork Lodge.  
+I arrived in May, just before the summer tourist season started.  
+The property sits along the Nenana River, not far from the national park entrance. It’s a fairly large operation, with hundreds of guest rooms, separate cabin buildings, restaurants, gift shops, and enough employees to populate a small village.  
+Most of us live on property.  
+That’s one of the things they don’t really explain when you apply for a seasonal job in Alaska.  
+You’re not just accepting employment.  
+You’re temporarily relocating to the middle of fucking nowhere.  
+The nearest grocery store isn’t exactly around the corner. Most employees don’t have cars. Your roommates are your coworkers, the people serving you dinner are your coworkers, and if you get into an argument with somebody at work, there’s a pretty good chance you’ll see them again three hours later while you’re trying to do laundry.  
+On the bright side, the scenery is incredible.  
+Mountains, forests, the river, wildlife.  
+And during the summer, the sun barely sets.  
+That last part takes some getting used to.  
+When I first arrived, I remember looking outside at eleven at night and wondering why it was still bright enough to play golf.  
+By June, I’d stopped questioning it.  
+Alaska apparently decided that nighttime was optional.  
+I worked the front desk initially, but after a couple of weeks, management started putting me on night audit.  
+Ten at night until six in the morning.  
+Eighteen dollars an hour.  
+My regular front desk rate was fifteen, so the extra three dollars seemed like a reasonable trade for destroying my sleep schedule.  
+Besides, I have an accounting background.  
+The actual audit work wasn’t difficult.  
+I’d balance the day’s transactions, reconcile payments, run the end-of-day reports, prepare paperwork for the morning shift, and deal with whatever problems the guests managed to invent overnight.  
+You would be amazed at the problems people can invent.  
+I’ve had guests ask me to call the national park and request that the wildlife come closer to the road.  
+I’ve had people complain that their cabins were too far from the wilderness.  
+I’ve had people complain that their cabins were too close to the wilderness.  
+One woman asked whether we could turn off the river because it was keeping her husband awake.  
+I told her I’d speak with maintenance.  
+I did not speak with maintenance.  
+Most nights, though, the job was pretty peaceful.  
+By two or three in the morning, the lobby would be empty.  
+The restaurants were closed, most employees were asleep, and the only sounds came from the refrigerators, the occasional late-arriving guest, and the building settling.  
+I actually liked those hours.  
+At least until Trevor disappeared.
+
+Trevor worked housekeeping.  
+He was twenty-two, from Michigan, and had somehow managed to complain about Alaska every single day since arriving.  
+Not about the scenery.  
+He liked the scenery.  
+He hated everything else.  
+The employee dining room ran out of chicken tenders?  
+“Unacceptable working conditions.”  
+The shuttle to Healy was full?  
+“I’m contacting the Department of Labor.”  
+His roommate snored?  
+“I’m going to walk into the woods and let a bear eat me.”  
+He wasn’t serious about any of it.  
+At least, I didn’t think he was.  
+Trevor was one of those guys who made every minor inconvenience sound like a federal crime.  
+We got along pretty well.  
+He’d occasionally stop by the front desk during my overnight shifts, usually because he couldn’t sleep or wanted to steal coffee.  
+Technically, the coffee was for guests.  
+I didn’t particularly care.  
+One night in mid-June, he came into the lobby around 11:40.  
+I was working on the day’s revenue report.  
+He was wearing basketball shorts, a hoodie, and flip-flops.  
+It was probably forty degrees outside.  
+“You’re going to freeze your feet off,” I told him.  
+“Good. Then they have to send me home.”  
+“Pretty sure they’ll just give you different shoes.”  
+He grabbed a paper cup and filled it with coffee.  
+“Hey, you ever notice anything weird about Margaret?”  
+Margaret was our general manager.  
+She was an older woman, probably in her late fifties, with silver hair and a smile that looked like it had been professionally installed.  
+She was extremely polite.  
+The kind of manager who could tell you that you’d been fired and somehow make it sound like you’d won an award.  
+“What about her?” I asked.  
+“She doesn’t eat.”  
+I looked up.  
+“What?”  
+“She never eats.”  
+“Trevor, I genuinely could not care less about that woman’s dietary habits.”  
+“No, seriously. I’ve never seen her eat anything.”  
+“Maybe she eats in her office.”  
+“Then why does she come to the employee dining room every day?”  
+I shrugged.  
+“To make sure we’re not stealing the fucking chicken tenders.”  
+He didn’t laugh.  
+That was unusual.  
+“There’s something wrong with her,” he said.  
+“She’s a hotel manager. That’s generally a prerequisite.”  
+“I’m serious.”  
+He lowered his voice.  
+“I saw her outside talking to a moose.”  
+I stared at him.  
+“Okay.”  
+“Not like talking at it. Talking *to* it.”  
+“Did the moose answer?”  
+“No.”  
+“Then that’s a pretty one-sided conversation.”  
+He set down his coffee.  
+“Ryan, I’m not joking.”  
+I sighed.  
+“All right. What happened?”  
+He glanced toward the hallway leading to the administrative offices.  
+“Yesterday afternoon, I was walking back from the laundry building. Margaret was standing near the maintenance shed with that big bull moose.”  
+I knew the one he meant.  
+There was an enormous bull that occasionally wandered through the property.  
+We’d started calling him Big Jim.  
+I don’t remember who came up with the name.  
+He had a massive rack of antlers and seemed particularly interested in the bushes outside the main entrance.  
+Security regularly had to keep guests from approaching him.  
+“She was standing right in front of him,” Trevor continued. “Like, maybe three feet away.”  
+“That’s stupid.”  
+“Exactly. But the moose wasn’t doing anything. Just standing there.”  
+“Okay.”  
+“Then she said something to it.”  
+“What?”  
+He hesitated.  
+“She said, ‘I expected better from you.’”  
+I stared at him.  
+Then I laughed.  
+“Maybe Big Jim’s on a performance improvement plan.”  
+“Ryan.”  
+“What?”  
+“She said something else.”  
+I waited.  
+Trevor looked toward the hallway again.  
+“She said, ‘You don’t get to make that decision anymore.’”  
+I stopped smiling.  
+Not because I believed anything supernatural was happening.  
+It was just a strange thing to say to an animal.  
+“Maybe she was on the phone,” I suggested.  
+“She wasn’t holding one.”  
+“Bluetooth?”  
+“Maybe.”  
+He didn’t sound convinced.  
+I went back to my report.  
+“Look, dude, she’s weird. Management’s weird everywhere. Just do your job, collect your paycheck, and get on the bus in September.”  
+Trevor stared into his coffee.  
+“Yeah.”  
+He stood up.  
+“That’s the problem.”  
+“What is?”  
+He looked at me.  
+“I don’t think everybody gets on the bus.”
+
+The next morning, Trevor didn’t show up for work.  
+That wasn’t particularly alarming at first.  
+Seasonal employees miss shifts.  
+Sometimes they’re sick.  
+Sometimes they’re hungover.  
+Sometimes they discover that living in remote Alaska isn’t nearly as romantic as the job advertisement suggested.  
+By lunchtime, though, people were asking where he was.  
+His supervisor said he’d quit.  
+That afternoon, management sent an email.  
+**Subject: Employee Staffing Update**  
+*Please be advised that Trevor Miller has voluntarily separated from employment effective immediately.*  
+*We appreciate his contributions to the team and wish him the best in his future endeavors.*  
+I read it while eating lunch in the employee dining room.  
+Then I read it again.  
+Voluntarily separated?  
+Where the hell had he gone?  
+Trevor didn’t have a car.  
+Neither did I.  
+Most of the seasonal employees relied on company transportation to get anywhere beyond walking distance.  
+And Trevor had spent the previous night drinking free lobby coffee and complaining about being stuck in Alaska.  
+It seemed unlikely that he’d suddenly arranged an escape without mentioning it.  
+I asked his roommate, a guy named Cole.  
+“Hey, did Trevor actually leave?”  
+Cole looked confused.  
+“I guess.”  
+“You guess?”  
+“He’s not in the room.”  
+“Did somebody drive him out?”  
+“No idea.”  
+“What about his stuff?”  
+Cole shrugged.  
+“Still there.”  
+“All of it?”  
+“Yeah. His laptop, clothes, everything. His phone’s on his bed.”  
+That bothered me.  
+“Did he take a bag?”  
+“Not that I noticed.”  
+I thought about the conversation we’d had.  
+*I don’t think everybody gets on the bus.*  
+“That’s weird,” I said.  
+Cole nodded.  
+“Yeah.”  
+Then he went back to eating his lunch.  
+I wish I could say I immediately launched an investigation.  
+I didn’t.  
+I had to be at work in eight hours.  
+And I was tired.
+
+That night, I asked Margaret about him.  
+She was leaving her office around 9:50, just as I was getting ready to take over the front desk.  
+“Margaret, can I ask you something?”  
+“Of course, Ryan.”  
+“Did Trevor actually quit?”  
+She smiled.  
+“Trevor has decided to pursue other opportunities.”  
+“Right. But did he leave the property?”  
+“His employment has concluded.”  
+“Okay, but his roommate says all his stuff is still here.”  
+Her smile didn’t move.  
+“Employee property is handled according to company policy.”  
+I waited.  
+She waited.  
+“How did he get out?” I asked.  
+“Out?”  
+“Of Denali. He doesn’t have a car.”  
+“Transportation arrangements are confidential.”  
+That seemed like a strange answer.  
+“Okay.”  
+She tilted her head slightly.  
+“Is there anything else?”  
+“No. Just wondering.”  
+“You’re a very thoughtful employee, Ryan.”  
+“Thanks.”  
+“That’s a valuable quality in a supervisor.”  
+I hadn’t mentioned anything about wanting a promotion.  
+At least, not to her.  
+She placed a hand on my shoulder.  
+“Keep doing good work.”  
+Then she walked away.  
+I watched her disappear down the hallway.  
+Something about that conversation bothered me.  
+But I couldn’t put my finger on it.
+
+A few days later, we had a power outage.  
+Ten cabins lost electricity during the evening.  
+That part actually wasn’t unusual for a remote property.  
+When you’re running a large hotel in the Alaskan wilderness, things break.  
+A lot.  
+The guests, however, tend to treat every mechanical failure like an international emergency.  
+Within minutes, the front desk phones were ringing.  
+One guest wanted to know if we’d refund his entire stay.  
+Another wanted us to move him to a different building immediately.  
+A third was convinced the outage had been caused by a bear.  
+I told him that seemed unlikely.  
+He asked whether I was certain.  
+I told him I wasn’t an electrician or a bear.  
+Eventually maintenance restored the power.  
+Everybody survived.  
+I mention this because it was the first time I noticed something strange about our maintenance supervisor.  
+I’ll call him Eddie.  
+Eddie was one of those guys who could fix practically anything with a screwdriver, electrical tape, and an impressive vocabulary of profanity.  
+He’d been working seasonal jobs in Alaska for years.  
+Nothing seemed to bother him.  
+But when he came through the lobby after the outage, he looked genuinely shaken.  
+“Everything good?” I asked.  
+“Yep.”  
+“Figure out what caused it?”  
+“Yeah.”  
+“What was it?”  
+He glanced toward the front windows.  
+“Something got into the equipment.”  
+“A squirrel?”  
+“No.”  
+“Bear?”  
+“No.”  
+I laughed.  
+“Please don’t tell me it was Big Jim.”  
+Eddie didn’t laugh.  
+He looked at me for a moment.  
+Then said:  
+“Don’t go near the maintenance shed after midnight.”  
+I stared at him.  
+“Why?”  
+“Just don’t.”  
+He walked away before I could ask anything else.  
+I remember thinking everybody at this hotel needed to get more sleep.
+
+Three nights later, I saw the moose.  
+It was 2:46 AM.  
+I remember the time because I’d just finished reconciling the day’s transactions.  
+The lobby was completely empty.  
+Outside, the sky was still faintly illuminated, that strange Alaskan summer light that makes two in the morning look like an overcast evening.  
+I was making another pot of coffee when I heard something scrape against the front window.  
+I looked up.  
+A moose was standing outside.  
+Not Big Jim.  
+This one was smaller.  
+No antlers.  
+It was staring directly through the glass.  
+“Jesus Christ.”  
+I’d seen plenty of moose by that point, but having one standing a few inches from the lobby window was unsettling.  
+I walked toward the entrance.  
+The animal didn’t move.  
+It just watched me.  
+I stopped about ten feet away.  
+“Hey, buddy.”  
+Nothing.  
+“Restaurant’s closed.”  
+The moose lifted its front leg.  
+And tapped the window.  
+Three times.  
+Tap.  
+Tap.  
+Tap.  
+I froze.  
+The moose lowered its leg.  
+I stared at it.  
+Then I laughed nervously.  
+“Okay. That’s fucking weird.”  
+It tapped again.  
+Three times.  
+Exactly the same.  
+I looked around the empty lobby, half expecting someone to jump out and tell me I was being pranked.  
+Nobody did.  
+The moose pressed its nose against the glass.  
+Then it lowered its head.  
+That’s when I noticed something around its neck.  
+At first, I thought it was a wildlife tracking collar.  
+But it wasn’t.  
+It was blue.  
+A thin strip of fabric hanging loosely beneath its throat.  
+There was something white attached to it.  
+A rectangle.  
+I stepped closer.  
+The moose shifted slightly, and the object swung into the light.  
+It was a plastic employee badge.  
+I recognized the logo.  
+North Fork Lodge.  
+And underneath it, printed in black letters, was a name.  
+**TREVOR MILLER**  
+I didn’t move.  
+I couldn’t.  
+My brain was trying to come up with an explanation that didn’t involve what I was looking at.  
+Maybe somebody had put it on the animal as a joke.  
+Maybe Trevor had dropped his badge and it somehow got caught on the moose.  
+Maybe I was so tired that I was hallucinating.  
+Then the moose lifted its head.  
+And looked me directly in the eyes.  
+“Trevor?”  
+I felt ridiculous saying it.  
+The moose didn’t move.  
+“Is that you?”  
+For a moment, nothing happened.  
+Then it lowered its head.  
+And raised it again.  
+Once.  
+Slowly.  
+A nod.  
+I took two steps backward.  
+“Nope.”  
+The moose pressed its nose against the glass.  
+“No. Absolutely fucking not.”  
+It lifted its leg again.  
+But this time, instead of tapping, it began scraping against the dirt and gravel beneath the window.  
+At first, I thought it was just pawing at the ground.  
+Then I realized it was making deliberate movements.  
+Straight lines.  
+Short curves.  
+It kept stopping, looking at me, and starting again.  
+I moved closer to the glass.  
+There were marks in the dirt.  
+They looked like letters.  
+I stared at them.  
+The first word was messy, but readable.  
+**HELP**  
+The second word took longer.  
+The moose scratched at the ground several more times.  
+Then stepped backward.  
+I looked down.  
+**HELP ME**  
+I stood there with my mouth open.  
+Then I heard footsteps behind me.  
+“Ryan?”  
+I spun around.  
+Margaret was standing in the hallway.  
+Fully dressed.  
+Hair perfect.  
+Smiling.  
+It was 2:51 in the morning.  
+“Margaret?”  
+“Good morning.”  
+“What are you doing here?”  
+“I could ask you the same question.”  
+I stared at her.  
+“I’m working.”  
+“Of course you are.”  
+She looked past me.  
+Toward the window.  
+Her smile disappeared.  
+Only for a second.  
+Then she looked back at me.  
+“Have you been interacting with the wildlife?”  
+I swallowed.  
+“No.”  
+She studied me.  
+“Are you sure?”  
+“Yeah.”  
+She walked toward the window.  
+I stepped aside.  
+The moose was gone.  
+I hadn’t heard it leave.  
+Margaret looked down at the ground.  
+At the two words scratched into the dirt.  
+For several seconds, she didn’t say anything.  
+Then she turned toward me.  
+“Ryan.”  
+“Yeah?”  
+“Please remember that employees are not permitted to feed the wildlife.”  
+“I didn’t feed it.”  
+“Good.”  
+She looked outside again.  
+“Some of them become very attached to the property.”  
+I didn’t answer.  
+She adjusted the sleeve of her jacket.  
+“And sometimes they have difficulty accepting that their employment has ended.”  
+I felt my stomach drop.  
+“What?”  
+Margaret smiled.  
+“Nothing. You should get back to your audit.”  
+She started walking away.  
+Then stopped.  
+“Oh, and Ryan?”  
+“Yeah?”  
+“Don’t worry about Trevor.”  
+I stared at her.  
+She hadn’t mentioned Trevor.  
+Not once during that conversation.  
+And neither had I.  
+“He’s adjusting,” she said.  
+Then she disappeared into the hallway.
+
+I didn’t go back outside.  
+I didn’t even go near the windows.  
+I sat behind the front desk until the morning shift arrived, pretending to work.  
+At six, I went straight back to employee housing.  
+I locked my door.  
+Closed the blinds.  
+And tried to sleep.  
+I couldn’t.  
+Every time I closed my eyes, I saw that name tag.  
+I kept thinking about the way the moose had nodded.  
+And about what Margaret had said.  
+*He’s adjusting.*  
+Around noon, I finally got out of bed.  
+I decided I was going to report the whole thing to security.  
+Not the part about Trevor being a moose.  
+Just the fact that someone had apparently attached an employee badge to a wild animal.  
+That was something normal people could investigate.  
+I got dressed and walked back toward the main lodge.  
+On the way, I passed the maintenance shed.  
+Big Jim was standing beside it.  
+The enormous bull moose.  
+He was eating leaves from a bush.  
+I tried to walk past without getting too close.  
+Then he lifted his head.  
+And looked at me.  
+For some reason, I stopped.  
+He stared at me for several seconds.  
+Then slowly turned toward the maintenance shed.  
+There was a woman standing beside the building.  
+Margaret.  
+She was looking directly at us.  
+Big Jim lowered his head.  
+Not toward the ground.  
+Toward her.  
+Almost like he was bowing.  
+Margaret raised one finger to her lips.  
+I stopped breathing.  
+Then she smiled.  
+And Big Jim turned back toward me.  
+That’s when I noticed the faded blue fabric hanging beneath his enormous neck.  
+It was almost completely hidden by his fur.  
+But there was a white rectangle attached to it.  
+Another employee badge.  
+I couldn’t read the name from where I stood.  
+I don’t think Margaret wanted me to.  
+I turned around and walked back to housing.  
+I didn’t report anything.
+
+It’s now June 30.  
+The employee bus doesn’t come until September 15.  
+I have seventy-seven days left here.  
+Seventy-seven days of working overnight, living on property, and pretending that my missing coworker isn’t wandering around the hotel on four legs.  
+I don’t know what Margaret is.  
+I don’t know what happened to Trevor.  
+And I don’t know how many of the moose around this place used to be people.  
+But about twenty minutes ago, I received an email from management.  
+**Subject: Upcoming Staffing Changes**  
+*Ryan,*  
+*Due to recent personnel adjustments, we will be expanding your overnight responsibilities.*  
+*Your performance has been excellent, and we believe you are ready for additional leadership opportunities.*  
+*Please stop by my office before your next shift.*  
+*I would also like to remind you that early departure from the property requires management approval.*  
+*We value employees who honor their commitments.*  
+*Warm regards,*  
+*Margaret Vale*  
+*General Manager*  
+I was about to delete it when another message arrived.  
+This one came from Trevor’s personal email address.  
+I recognized it because he’d sent me a couple of stupid videos earlier in the season.  
+There was no subject.  
+No greeting.  
+Just six words.  
+**DON’T LET HER PROMOTE YOU.**  
+And underneath that:  
+**I CAN STILL REMEMBER MY HANDS.**

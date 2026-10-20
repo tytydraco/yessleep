@@ -8,6 +8,8 @@
 
 [\[Part 6\]](https://www.reddit.com/r/nosleep/comments/1x6gqc5/im_a_furniture_mover_my_buddy_convinced_me_to/)
 
+[\[Part 7\]](https://www.reddit.com/r/nosleep/comments/1xaca6b/im_a_furniture_mover_my_buddy_convinced_me_to/)
+
 I didn't sleep much Saturday night. Toby, somehow, slept fine.
 
 I finally dropped off on the couch near dawn, and when I opened my eyes again, he was standing about six inches from my face, asking whether we had pancake mix. I made pancakes and let him eat them in front of the TV. He had already moved on from yesterday, and that was the part I couldn't wrap my head around. He asked if Uncle Henry was coming over later. Nothing about the wardrobe, or about hearing me scream his name from somewhere impossibly far away. When he'd finished, I told him to stay on the couch for a few minutes while I checked something in the garage. The kitchen chair was still wedged under the handle, and the deadbolt was still thrown. I dragged the chair out of the way.

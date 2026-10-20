@@ -8,6 +8,8 @@
 
 [\[Part 6\]](https://www.reddit.com/r/nosleep/comments/1x6gqc5/im_a_furniture_mover_my_buddy_convinced_me_to/)
 
+[\[Part 7\]](https://www.reddit.com/r/nosleep/comments/1xaca6b/im_a_furniture_mover_my_buddy_convinced_me_to/)
+
 They arrived a few days later, just after ten in the morning. I know the scene most of you were picturing after my last post, but there were no sleek grey sedans or men in dark suits. It was just a standard four-door with a dented rear bumper. Two people stepped out onto my gravel driveway dressed in casual clothing.
 
 The man looked to be the older one of the two, wearing a quilted jacket and carrying a thermos in one hand. The woman beside him looked to be in her mid-twenties, her hair tied back, a canvas bag over her shoulder that clinked faintly when she moved. She looked like a nurse on her first week of night shifts. 

@@ -1,0 +1,101 @@
+Every year, a day or two before the day of days, the town’s favorite holiday that they treat like a sport, the Halloween broadcast would play on a random radio frequency. Some people would try and figure the frequency out beforehand, try and catch the start of it, but most would assign their kids to scramble the radio dial until they picked up a signal. Our parents were crazy about it. Every year, on the twenty-ninth of October, they would sit my brother and I in front of a few radios to play with the dials until we heard something other than the three outlaw country stations. 
+
+My lucky radio was my Spider-Man alarm clock. Right on the eve of the eve of all hallow’s, I caught it. 
+
+Like every year, it was hosted by…someone. Nobody knew who he was, but he had a raspy, man’s man voice. A Kurt Russell, an Eastwood, Elba or any number of Eds or Ethans. Maybe even a Joe Pesci. Take your pick. Your tone. We would always argue about it, who it sounded like. My brother, Cory, was always adamant that it sounded the most like the guy from the Goosebumps intro. 
+
+Reader beware, you’re in for a scare. 
+
+I still can’t decide what he sounded like, after all this time it’s hard to remember, from that day until tonight I’ve started unplugging all the radios the moment the air gets that autumn chill and the indescribable scent that comes with it. The smell of going to buy school supplies, picking out a costume, leaves in the air. 
+
+Anyways.
+
+The radio picked the voice out of the warble and it was the first year that I caught the beginning of the broadcast. Even today, I’m baffled by how he decided to start it off. 
+
+“*Ring-a-ding-ding, it’s time for your treats and tricks! Let’s see…I suppose I’ll start with the good houses, right? I heard from a little ghoul that all the houses on Nimrod Avenue have full size bars, and to take extra care to stop at one-oh-one, they’ve got the soda slide. Make sure to watch your step going up though, Mrs. Mcgillicuddy just broke her hip on the uneven sidewalk. Here’s hoping that that doesn’t disrupt too much tomorrow night!”* 
+
+I punch my brother in the arm, he’s too busy staring dumbfounded at the fact that I found the broadcast before he did to remember to write down this vital info. How are we going to plan a proper trick or treat route if we can’t remember the good spots?! He starts scribbling on a lawyer pad. “You’re getting all this, right?” I asked. 
+
+He turns the pad, in red ballpoint, a bright FUCK YOU has been scribbled. 
+
+“*Part two of our broadcast is what houses to stay away from! Unless you really want to have a bad time.*” The voice stops for an uncomfortable amount of time before resuming, making us vibrate in anticipation, not noticing the slight disruption in the background of the dead air. I think about that moment all the time. There was noise, yes, and it seems important now, but I can’t remember enough of it to tell. “*All of these houses can be found, or rather, avoided, on Wendy Lane. To start us off, one-thirty-seven gives out raisins, but this will be their last year giving out treats before the accident. Ten-oh-one won’t give you back. Ten-one-ninety-one will give you a bible and an apple. Ten-twenty will have their porch light on but no one is home. Ten-eleven is haunted, and not in a fun way. Twenty-two has a haunted house with a moral, so that can be skipped. Let’s see…ten-thirty has a wonky doorbell, but they also don’t want you to knock so play it by ear. Finally, one-oh-one has stupid decorations and should be avoided at all costs.”* 
+
+“Did you get all that?!” I interrogate as he scribbles.
+
+“He’s going so fast!” 
+
+We share a quizzical look as the voice takes another long pause, this one also having some kind of noise in the deep background. This one I remember, a deep, rhythmic thumping. “*Don’t touch that dial now, it’s time for your lucky numbers!”* He sounds out of breath. “*Eleven. Sixty. Twenty-two. Six. Twelve.”*
+
+He takes a deep breath and we lean in with anticipation. We don’t notice that every radio gains the hum of the inhale. Every radio turns on and blares the last number. 
+
+“*TEN-THIRTY.”* 
+
+Our ears clamped onto the sides of our heads at the sudden volume, missing the lead up to the show’s outro. I managed to peel my hands from my head in time to hear it. 
+
+“*That, boys and ghouls was this year’s broadcast. I’ll catch you next year! If you don’t make it there, then I’ll be seeing you soon.”*
+
+---
+
+Trick or treating started for us the next day after dinner time, around seven. Our block always sucked, so we skipped it. With me clad in my pirate costume and him in his lazy, almost too old to even go trick or treating slasher mask, we hit a couple of houses along the way to Nimrod Avenue to get the good bars. These houses were fine, nothing special. The only one I really remember is the house with the refrigerator box out front that had a guy hiding inside of it that had made me pee my costume the year before. 
+
+What a dick. 
+
+Long story short, we made it to Nimrod Avenue in record time but sure enough, the block was swarmed with all the other kids in town who had listened to the broadcast, or heard it from friends, or a friend of a friend of a friend who has an uncle that works at the broadcast station and says that radio guy is actually Elvis. Thankfully, there were still some good bars left, and some good soda, which I’m still a little surprised about. Not so much the soda, only a few kids were brave enough to climb across the fenced off sidewalk paving stone that tripped up Mrs. Mcgillicuddy to get their random pick of a variety pack. The fact that any of the houses still had candy bars when we got there was the real shocker, even for halloween, a town the size of mine would have to be giving out free lottery tickets and smokes to get a crowd like that.
+
+Actually, it was Nimrod Avenue. A few houses probably were. 
+
+Oh my god, *that’s* why there were so many parents tagging along there too! 
+
+I’m getting away from things. 
+
+After a very short three hours, our pillow cases were filled to the brim with all manner of goodies. Candy corn, odd shaped lollipops, far too many sour candies for my young, unrefined palate to appreciate at the time and oddly, a single green apple. If you are wondering now if the green apple is related to the last halloween I spent with my brother, push that thought from your mind. It was just an apple. 
+
+Not even a very good one. 
+
+“Should we see what those houses on Wendy Lane are like?” My brother asked as we stepped back out into the night, just as the sodium street lights blinked on. One by one as we walked past. 
+
+“Which ones?” 
+
+“Well, they’re all bound to have candy.” He shrugs, pulling out the crumpled legal paper that he was taking notes on. The back of it still stained with the bright red FUCK YOU. “But we could check out the haunted house, the haunted house with a moral and that house with the wonky doorbell…” he traces his finger on the page, “ten-oh-one, we can shout in a window. Sound good?” 
+
+I nodded enthusiastically, foam pirate hat nearly capsizing as I did. 
+
+Radio Guy had been right. The house wasn’t haunted in a fun way, and the haunted house with a moral was closed by the time we got there. From the looks of things the moral should have been ‘don’t throw a shitty haunted house, otherwise it will get egged.’ 
+
+We stand in front of the house with the wonky doorbell. All things considered, it was a normal enough house. Red gable roof, white siding, picket fence, paved walk up to the door, one that has been decorated lazily with a sheet of plastic with a graphic of a beckoning skeleton. “Here we are. Ten-oh-one. You first.” He nudged me, making me nearly trip on the attached fabric boots of my pirate costume. 
+
+“Nuh-uh! This was your idea! You go first.” I draw my fake plastic sword. “Lest I cleft you in twain. Avast!” He puts his hands up in fake surrender. 
+
+Looking back now, I’m grateful that I got to know him long enough that we started being friends, and not just family members. How lucky I was to see him find me funny. “Alright, alright, I’ll go first. Don’t shiver your timbers. You have to come up the steps with me though.” 
+
+“Why?” 
+
+“I’ll look like a crazy person if I’m just shouting on the steps by myself. Come on!” He leans forward with a sly grin. “Or are you too scared of a little old porch?” 
+
+He had catered to my deep love of pirate lingo. I had no choice but to join him on the porch. 
+
+“The doorbell looks fine to me,” he said with a shrug when we got up the steps. 
+
+I looked at it. Sure enough, it was lit up as if it had power, and was even decorated. One of those light up eyeballs that you have to press to ring the bell. Before I knew it, he was reaching for the eye. 
+
+The eye emitted a light green hue from the cheap LED on the inside of it that illuminated his finger as it reached towards it. Inching closer and closer. He smiled a shit eating grin as he took his sweet time reaching for it, trying to build suspense. “*AHHHHHHHH!!!”* He faked a yell that spurned a jump from me just as his fingertip reached the pupil. “Hm.” 
+
+A short, nothing noise came from him as he didn’t meet the resistance he was expecting to find. The blackness of the pupil was a deep hole that extended inwards to the doorbell. Maybe it went so deep that you could crawl all the way into the bowels of the house. 
+
+He pulls the tippy tip of his finger out and tries to depress the plastic iris to ring the bell. No dice. “Maybe the button is inside it?” 
+
+I wish I never said that.
+
+He pushes the tippy tip of his finger back into the pupil and begins to insert it deeper, sliding it in to the first knuckle before he noticed. Noticed that the circumference of the pupil grew hundreds of tiny teeth like a Lamprey. Before I could warn him they clamped down and started to chew. Gnashing and gnawing quicker than he could pull his hand away, quicker than I could react. They chew harder and faster, faster and stronger than a six year old like myself could have done anything about. Within a second of the teeth sprouting I was left alone on a bloody porch with an eyeball that let out a horrible belch that smelled of rotten meat, burnt hair, and all manner of candy. 
+
+---
+
+That was nearly twenty years ago now, and now I write this as I watch my kids play with a few radios to find the broadcast, and maybe another voice has joined Radio Guy’s shifting persona, maybe I’ll hear it. As I read and reread what I’ve written, I can’t help but realize that maybe if Cory hadn’t gotten the house number wrong he would still be with me, he’d be a good uncle, be a good brother. 
+
+When my kids came of trick or treating age, I worked it out with a few other helicopter parents that we would have our own private trunk or treat type event on the thirtieth where we can keep a close eye on them and they can still have their fun. I *know* that doing it the day before Halloween will keep them safe, just like I *know* that if we went to the right house and rang the right doorbell, Cory would still be here. 
+
+
+
+After all, 10/30 is my lucky number. 
+
+  

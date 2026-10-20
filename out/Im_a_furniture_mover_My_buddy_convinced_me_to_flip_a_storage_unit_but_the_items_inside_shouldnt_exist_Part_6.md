@@ -8,6 +8,8 @@
 
 [\[Part 5\]](https://www.reddit.com/r/nosleep/comments/1x31pvs/im_a_furniture_mover_my_buddy_convinced_me_to/)
 
+[\[Part 7\]](https://www.reddit.com/r/nosleep/comments/1xaca6b/im_a_furniture_mover_my_buddy_convinced_me_to/)
+
 The day after CATALOGUE left, nothing happened in my house. For weeks there'd been talking radios, moving reflections, and new things on my workbench. Now there were forty-one objects gone. The dresser, the tank, and the portrait were still waiting on a transport crew. I checked the wardrobe repeatedly that night, listening for creaks or voices. 
 
 I had a lot of time to think this week, and I want to be honest that I hated it.

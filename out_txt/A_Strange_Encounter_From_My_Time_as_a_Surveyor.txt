@@ -1,0 +1,234 @@
+We did the vast majority of our work during the day, mostly because it
+was dark out there when the sun set. No artificial light for miles -
+unless you counted our shoddy diesel-generator camp lights that were
+unreliable at the best of times, and what little natural light we
+would’ve gotten was perpetually strangled out by a near-constant cloud
+cover. Even with the benefit of daylight, the snow fucked up our
+visibility something fierce and one wrong move could lead to a series of
+wrong moves that could then either lead to you sliding on your ass down
+a sheer cliff or falling into some godforsaken ice pit to freeze to
+death.
+
+Well, at least the pay was good.
+
+We were surveyors, working out of █████ at the time on a corporate
+contract. The company, mind you, was American, but they themselves had
+some sort of contract with the government out here to build a research
+station in the mountains. We had the actual building plans, but we
+weren’t really privy to what the actual purpose was. If I had to guess,
+it was probably weather monitoring, maybe geological data. I worked on
+the preliminary stages of a couple similar facilities before - albeit in
+less isolated spots, and we did… mostly the same thing there. Map out
+the site, take some altitude readings, gauge the general structural
+soundness of the surrounding area, and send that data off to our
+engineers. I could go into the specifics of it all, the software we
+worked with, how to calibrate an altimeter, or how to properly utilize a
+laser rangefinder to determine the distance between two distant points -
+but I won’t bore you with that. Being bored with the specifics was my
+job.
+
+Ordinarily we’d use satellite imaging to simplify a lot of this stuff,
+but █████’s national security was pretty tight and considering we were
+technically international, that whole thing was no bueno. It wasn’t like
+they were full-on isolationist black-out-the-map, but… not far off. Took
+a lot of clearance for us to even get in here without too many
+restrictions. A few of our team actually had to stay back home thanks to
+minor infractions or nebulous red flags. You’d think that they wouldn’t
+care quite so much about this kind of secrecy, considering their borders
+expanded vastly in either direction - the product of countless subsumed
+nations, eventually coalescing into a whole either by force or
+desperation - and most of that land was completely empty save for snow
+and rocks.
+
+Well, it was no skin off my back either way. Just meant we had to do
+more by hand.
+
+For the most part, save for the occasional supply drop, we were on our
+own. There were no roads - even the eventual facility was to be served
+by helipad primarily - and the nearest city was maybe a hundred miles of
+barren tundra away. The only people outside of our direct team that we
+came into contact with were a number of indigenous ████ people, who
+maintained a largely traditional, disconnected lifestyle explicitly
+protected by the government. I’d quietly thought this was odd, as they
+historically certainly didn’t care to protect the cultures of those who
+at one time lived independently in places that would later cease to
+exist, dissolved and assimilated and integrated into their great
+economic machine. Maybe their ways were preserved as a form of cultural
+pride, or maybe it was penance for some great tragedy - an unspeakable
+evil inflicted upon them in times long past, having since been forgotten
+and normalized by the march of time.
+
+Well, the ████ were a strange people anyway. Skin and hair both as pale
+as the moon - with eyes that didn’t stare, but lingered slightly too
+long on whatever they were looking at. Curious and hungry. We didn’t
+interact with them terribly often, but their villages dotted the
+foothills and plateaus, and occasional contact was an inevitability.
+They weren’t territorial or aggressive, mind you - for the most part
+they just watched, their children particularly taking interest in our
+strange equipment and puffy polyester jackets, their eyes watching in
+awe from underneath the thick, flowing cloth that swaddled them as
+though they were witnessing some great secret.
+
+Among our number in the camp was a guide. This man was of their tribe,
+but had left in young adulthood to pursue a life among the glittering
+towers of the distant cities. He was in his middle ages now, but still
+knew how to navigate the mountains like the back of his hand, those same
+strange eyes working to great effect in discerning which identical
+patches of snow contained either solid footing or a lethal drop beneath.
+He was indispensable, and in the few instances we did have to
+communicate with the native population, he would facilitate contact and
+serve as a translator - the majority of them had no knowledge of the
+English language, after all. He was a quiet man, though he was not
+unfriendly, and often shared in food and drink with the rest of us after
+a long day trudging through the snow.
+
+On occasion, should the weather unexpectedly grow in intensity when we
+were far from the camp, he would negotiate with the locals and have it
+arranged for us to stay the night in one of their villages. As they
+frequently traveled from village to village themselves, stopping and
+resting as they traversed the wastes, each of their villages had a small
+building to house wayward travelers. They were well-insulated with furs,
+and the wooden walls were carved with strange, beautiful patterns.
+Silent as ever, they provided us with food and drink. Largely dried
+meats and an unfamiliar - yet pleasant - liquor that tasted sweet. Each
+morning, our guide spoke to them in their language once more, and each
+morning we left without issue.
+
+It was one of these nights that I thought to ask him about his culture,
+the culture of the strange mountain tribe that had silently watched us
+for months now. Ordinarily, he did not like to discuss such things, and
+I did not like to ask - but the liquor had seemingly loosened both of
+our tongues that night. He told me two things. First, he explained that
+they believed in a sort of magic. Not the kind you read about in fantasy
+novels or the kind that a teenager would try to invoke in their house by
+saying shit into a mirror - but an ancient magic, an evil magic that
+flowed through all things of flesh and leaf and stone and could awaken
+at any time. I asked what this actually meant in practical terms, and he
+told me that it was the reason for their passive observance. They
+believed they were particularly susceptible to its influence, and they
+were always on alert for that which did not make sense - a sign of the
+terrible thing.
+
+Then, paradoxically, he told me something that - at least to me -
+certainly did not make sense. He said that time did not matter to them,
+and that their history, their folklore, were actively shaped and
+remodeled by experiences in the present. To that, I said that most
+people did that, because that’s just how culture works.
+
+He shook his head. It was more than that. He gave an example, using one
+of our colleagues - a safety guy named James who, at the time, was still
+back at the base camp. He said that, if James were to walk into camp and
+begin interacting with the locals, it would be as though James had
+always been there. He would have an invented history, an active
+integration into their stories, their childhoods, and maybe their
+ancient past. Each member of the tribe would seamlessly integrate this
+into their own history, a collective rewrite using knowledge of what
+existed in the current time to supplement the past. Likewise, if one of
+their villages were to be destroyed in a great avalanche, perhaps they
+would rewrite history so that it never existed at all. Stricken from the
+record, along with its denizens. Maybe they would weave a tale about how
+the village was destroyed by an agent of the “evil magic”, a nameless
+figure they would later contextualize as the next stranger to visit
+town, who would be met with fear and violence. This, he claimed, was a
+way of fooling the magic, which also did not care about time. False
+histories would trick it, and keep it from interfering with their lives.
+
+This just left me with more questions than answers. I asked him if he
+still believed the same, and he laughed, telling me that “Time’s arrow
+flies a strange path.” I think I honestly understood less than I did
+before, because I didn’t know what that meant. Either way, I then asked
+another question. I asked him, considering he had spoken to the
+tribesmen, what role they had given us in their story. He said that I
+would have to ask them myself, as they did not say - beyond the apparent
+fact that they did not ascribe us the role of an adversary. We stepped
+outside of the hut and he drew a few small symbols in the snow. Those
+symbols, as he informed me, meant something along the lines of “Who
+speaks the outer language?”, and that I may be able to find someone who
+is able to speak English who could tell me.
+
+I was still somewhat intoxicated, so maybe I was just ballsy at the
+time, but I was curious enough now that I felt like I had to know. It
+was dark out, suffocatingly so, but the village was aglow with the flame
+of a large bonfire at its center, which a few of the strange tribesmen
+lingered near still, drinking and watching the children run about in
+circles. I approached them, and they stopped - all their eyes now
+curiously examining me with that same bizarre look. I crouched down in
+the snow and traced the same symbols the best I could, and their eyes
+turned towards each other now, speaking softly in an odd tongue I’d only
+heard from a distance before. A woman, the one closest to me, pointed to
+a hut around the edge of the village, the windows alight with the
+flicker of a fire still burning inside. I realized I didn’t have a way
+to say “thank you”, so I hoped a brief nod would suffice.
+
+I brushed aside the furs draped over the hut’s entrance and saw an
+elderly man inside, crouched by the hearth, bundled in cloth marked with
+more strange lettering. Whether he was worn by the elements, or just by
+age, he looked impossibly old. Wrinkles creased like the waves and
+trenches of a great ocean, framed by a beard white as the snow outside.
+He turned to me, his head rotating slowly and with great effort. To my
+surprise, the man smiled warmly - the first glimmer of emotion I had
+seen from these people - welcoming me to sit in near-perfect English. I
+did so, taking a seat on a fur laid out on the opposite end of the
+hearth. I told him his English was very good, and asked him where he
+learned it.
+
+At this remark, a strange emotion - a mixture of nostalgia and
+confusion - crossed his face, subduing his smile and settling his
+rippling flesh for a moment. He told me that I had taught him English,
+back when he was a young man. Well, that was obviously not correct,
+because I didn’t know this guy and I’d never been here before. Never
+even been close - this was my second time in Europe period and the first
+time was a week in Italy for a wedding. He was also easily pushing 80
+while I was 32, so that was off the table. I supposed, in the moment,
+that this was my “story”, that someone had come to the village, taught
+him English, and left. Now, I was filling that role.
+
+I decided I would play along, and I pushed a few more inquiries towards
+the old man. Why did I teach him English? Why was I in the village?
+Maybe I was being an asshole, “culturally insensitive”, if you will, but
+this was slightly amusing and I thought that if I kept asking more
+specific questions, eventually he would trip up. To my surprise, he did
+not. He told me that I came to the mountains as a traveler, seeking
+refuge from the oppressive night. I stayed with his tribe for a time,
+and taught them my own tongue as a means of payment - though none was
+necessary. Though most of his peers were now long-gone, the
+proliferation of English having largely disappeared with it, he had
+never forgotten the language - as I had told him a story in English
+once, before I vanished back into the darkness from whence I came, and
+he did not wish to forget it.
+
+I asked him what the story was, and his expression changed again, his
+smile fading into a more downcast, imperceptible emotion. Something I’d
+never seen before. He told me that he couldn’t tell me the story,
+because I had made him promise to never tell it again. I asked why, and
+he just said that, when I told him the story, I did not like the ending.
+Neither did he. It was a terrible ending, and one that both of us wished
+to forget. He smiled again, sadly this time. He was happy that I had
+forgotten, but he never had. I apologized, which in hindsight was insane
+because I had never told this guy a story in my life, but he told me
+that there was no need. Someone needed to know the ending, and he was
+just happy to see me again after all these years.
+
+I sat with the old man a while longer, listening as he recounted various
+other stories from “my” time at the camp - all unfamiliar and
+impossible. None of them were the story. Eventually, the hearthfire
+began to die down, and I bid the old man farewell. As I pushed aside the
+furs that sealed out the frigid mountain air, he said something very
+strange. He told me that he wished I brought my dog along with me this
+time, because it was a very friendly and beautiful dog that danced and
+played with the children in the snow and he very much would’ve liked to
+see him again, much as he was hoping to see me again before he passed. I
+didn’t know what to say to this, so I just apologized again. I told him
+that the dog was old, and could not make the trip. He understood, and I
+went back to my hut, where I slept and left the next day. A month later,
+we left █████ altogether, and I never saw the old man again.
+
+The thing is, I never had a dog. Not as a kid, not as a 32-year old
+surveyor. Not until 8 years later, when my wife would bring home a Husky
+pup from an animal rescue. A pup that grew into a very friendly and
+beautiful dog that very much liked children, and very much liked to
+dance and roll in the snow on cold winter nights, when the moon was high
+in the sky and the snow was gently falling, a thousand glimmering flakes
+matting his fur.
+
+Strange coincidence, that’s all.
