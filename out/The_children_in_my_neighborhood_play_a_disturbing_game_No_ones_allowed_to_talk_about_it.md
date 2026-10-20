@@ -1,0 +1,231 @@
+If you want nightmares for days, come to my neighborhood on a Wednesday afternoon. It ALWAYS happens on a Wednesday afternoon. I don’t know why.
+
+I first noticed it months ago. I was driving home after work and saw a bunch of kids dancing in a field of grass. It looked like they were playing a game of *Ring Around the Rosie.* 
+
+I thought nothing of it and continued on my way.
+
+The next time I saw them, it felt more disturbing. The children were gathered in a circle, staring at something lying in the center of them. I pulled over to investigate and saw that it was a man. He looked dead.
+
+The children began holding hands and chanting. It was hard to hear what they were saying, but once I got closer, I could make it out: “Dead man, dead man, come alive when we get to number five. One, two, three, four, five!” 
+
+When they got to five, the man got up.
+
+***
+
+I ran into my eccentric neighbor the next day. 
+
+“Morning, John.” 
+
+“Nice to see you, Michael.”
+
+“Have you noticed those strange kids playing in the field?”
+
+As soon as I said those words, John’s eyes went wide with panic. “It’s not good to talk about them.”
+
+“Why not?”
+
+He wouldn’t answer me. 
+
+“I don’t recognize any of them. Do you know who their parents are?”
+
+“Just forget that you saw them and go back to your normal life.” He turned and abruptly went inside. 
+
+“Wait!” I called after him, but he wouldn’t come out. 
+
+I shook my head, confused by his reaction. 
+
+Turns out no one in our neighborhood wanted to talk about those kids. 
+
+At a yard sale the following week, I tried asking one of the ladies about them. She immediately got up and hopped into her car, telling me never to speak with her again.
+
+A quick search online didn’t pull up anything either. It appeared that everyone was terrified. The very mention of the children seemed to bring a curse.
+
+I decided to solve the mystery for myself. If there were a bunch of kids running around doing creepy stuff, I wanted to know about it. 
+
+So, the following Wednesday, I called out sick and camped out in my car, determined to see them again.
+
+Around two o’clock, they started wandering into the field. There were twelve of them. 
+
+For the first time, I was able to see what they really looked like. Each was dressed in clothes from different time periods. One boy wore overalls and a flannel shirt, like some farmer’s kid during the 1930s. One girl wore a blue dress and had pigtails, like a pioneer’s daughter from the 1800s. Another boy was a Wintu dressed in traditional garb. It was all so strange. 
+
+But what shocked me most was that one girl was carrying something dead in her arms. It looked like a cat.
+
+The kids formed their circle and the girl placed the dead animal in the center. Then they held hands and began to chant, “Dead cat, dead cat, come alive when we get to number five. One, two, three, four, five!” 
+
+You can guess what happened. 
+
+The cat got up.
+
+By now, my curiosity was piqued. Who were these kids? Could they really bring dead things back to life? If so, this was the biggest discovery since… forever!
+
+I got out of my car and ran toward them. “Hey, kids!” 
+
+None of them seemed to notice me.
+
+“Listen!”
+
+I reached one of the girls, grabbed her tiny shoulders, and shook her gently.
+
+“Why are you doing this?!” 
+
+She just looked at me with her frosty blue eyes. They were like a shield of ice on an arctic lake. I felt cold standing next to her, like I had stepped into a tundra. My hands burned. I pulled them away.
+
+“Please… tell me…”
+
+She pointed to the cat in the middle of the circle. Like hers, the feline’s eyes were frosty blue, so blue, in fact, they resembled jewels.
+
+The creature’s back was arched and its tail was raised, signaling that it thought I was a threat. The cat hissed and darted down the street.
+
+Without another word, the kids turned and vanished into the forest.
+
+***
+
+On the way home, I reran the images through my mind, confused. *This can’t be real. Magical powers don’t exist.* 
+
+I wondered how long these kids had been coming out here and performing their rituals. Also, where did all those people and animals go after being resurrected?
+
+I searched everywhere for the cat, but I couldn’t find it. Trust me. I drove all over the neighborhood and asked dozens of people for help.
+
+I told neighbors that I’d adopted a new pet and had lost it. If they could just let me into their backyards so I could search for it, I’d appreciate it. 
+
+I scanned almost every inch of our community and found nothing. That little frosted feline had gotten away. 
+
+When I got back to my house that evening, tired and groggy from all the searching, I heard a *tap tap tap* against the sliding door. 
+
+I gasped as I turned and saw… a man tapping his finger against the glass. 
+
+Just like the cat, his eyes were bright blue, almost like Christmas bulbs were embedded in his skull. Whenever he breathed, he left a stain of cold frost against the glass. 
+
+I stood there in horror, watching him as he slammed his palms, trying to get in. 
+
+After several minutes, he backed away and disappeared from sight. I could hear his footsteps shuffling outside as he circled my house, inching toward…
+
+*The front door!*
+
+I hurried over and locked it.
+
+I thought about calling the police, but what would I say? “Please help! There’s a frozen man outside my house, trying to kill me!”
+
+I watched as my door shook, praying that whoever this person was wouldn’t get inside.  
+
+Eventually, the man stopped and left. I darted to a window and watched him wander down the street. 
+
+He was heading toward the field.
+
+Obviously, I didn’t sleep much that night. 
+
+***
+
+The frozen man didn’t return. I considered it a warning sent from those kids to keep me from visiting them.
+
+For a while, it worked. 
+
+Over the next few weeks, life went back to normal. I didn’t look into the rituals anymore. 
+
+I stayed at work late and drove home in the evenings to avoid seeing them. But then, as the days went on, my thoughts began to gnaw at me… if this was real… if they could cheat death, I needed to know about it. 
+
+My parents had died when I was young. My brother had perished just a few years ago in a car accident. If I knew how to perform this ritual, I could stop anyone I loved from ever dying again. 
+
+These kids knew something about the afterlife, and I needed it. So, even though I was terrified…
+
+I took off the following Wednesday. I went to the local costume store and bought some clothes that made me look more appropriate for an older time period. 
+
+If I was going to make contact again, I at least wanted to look the part.
+
+I arrived at the field before noon. 
+
+It was around one when the kids started to wander out of the forest. Each was dressed in their usual period clothes. Some wore outfits that even looked like mine. 
+
+Two of the boys, who had to be around ten and eleven, were carrying a girl's body. She was dressed in regular, modern clothes, like she had just gotten out of school.
+
+I waited in silence as the kids formed a circle. Everything in me screamed to leave, but I didn’t. I had to see this ritual through.
+
+At first, the children didn’t seem to acknowledge me. But then, one gathered on my right, and another on my left. 
+
+I was stunned. 
+
+They were allowing me to be part of their gathering!
+
+My outfit must have worked!
+
+The kids took each other’s hands. My heart pounded as I reached out mine. I nearly passed out when the boy and girl next to me took hold of them.
+
+I looked at my companions, but they did not smile. Their hands felt like ice. It hurt to even touch them, but I had to see this through.
+
+The two older boys placed the girl’s body in the center of the circle. I stood there in silence and… 
+
+... glanced down at the girl. She must have been ten years old. She was beat up. A nasty bruise marked her forehead. Like the cat I had seen weeks ago, she looked dead.
+
+After a few moments, the children started swaying their hands back and forth. I joined in, making the same erratic motions. They chanted, raising their voices: “Dead girl, dead girl, come alive when we get to number five.”
+
+I joined in once they started counting: “One, two, three, four, five!”
+
+I screamed at the top of my lungs, horrified yet thrilled to be a part of this experience. 
+
+But as soon as the words left my mouth, I felt a burst of cold energy shoot through me. It felt like a brain freeze had cut through my entire body. 
+
+I gasped in pain and side-eyed the pioneer girl beside me. She opened her mouth in an ever-widening shape, spewing frosted air all over me. 
+
+I groaned and buckled under the icy temperature. 
+
+I glanced around the circle. Now all of the children were opening their mouths, allowing freezing air to stream out.
+
+I ripped my hands free and hugged myself, trying to keep warm, but it did nothing. 
+
+I looked down into the center of the gathering. 
+
+The bruised girl’s eyes were open. She was sitting up, like a newborn, trying to understand her new world.
+
+She looked right at me… and opened her mouth… and joined in with the others.
+
+I fell to my knees and curled up into a ball as the icy gusts blew over me.
+
+“Someone… please…” was all I could say… “help me…” 
+
+Then I shut my eyes. 
+
+***
+
+When I opened them again, John was standing over me, shaking his head. 
+
+“You fool,” he said. “You stupid fool.” 
+
+I looked at the field. The children were gone, but there were strange, body-shaped markings of white frost spread throughout the area. 
+
+“A few more seconds and they would’ve killed you.”
+
+I looked at John’s hands. They held a weapon of some kind: a medieval-style crossbow.
+
+He slung it over his back and extended a palm toward me, helping me stand.
+
+My body ached from all the freezing temperatures I had endured. I felt stiff and sore. I looked at my hands. They were pink from frostbite.
+
+“I told you not to investigate them.” 
+
+“What are they?”
+
+“I suggest you leave. I’ve bought you a few days. That’s all. Once they reanimate, they’ll come looking for you.”
+
+I didn’t know what else to do, so I followed him back to his place.
+
+Those children must have been evil spirits who dwelt somewhere in that forest. I had stupidly allowed myself to become a part of their ritual. Why? So I could conquer death? How could I have been so reckless?
+
+My body felt like ice as I limped along. My bones ached. My lungs seemed to freeze with each breath. I wondered how long these side effects would last. Days, months, years?
+
+“You have the mark now,” John said, motioning to the frostbite on my skin. “You need to get somewhere warm.”
+
+*A bath,* I thought. *A warm bath.*
+
+I glanced back at the field and wondered where all the kids had gone. John must have killed them, turning them into those frosted shapes.
+
+I tried to think of where I could go. 
+
+My closest relative lived three states away. But was that far enough? Would the children find me there? 
+
+As we continued on, I caught movement out of the corner of my left eye. 
+
+I turned and noticed… a dark shape flitting across the top of a neighbor’s fence.
+
+It was gone before I could get a good look, but I swear, it was that cat.
+
+I imagined its frosted eyes watching me, recording my every move.

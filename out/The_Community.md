@@ -36,15 +36,15 @@ After a few minutes of polite small talk, he led us down the street to show us t
 
 Adam leaned in close to me while Wagner stepped into the kitchen. "Darling, don't set your heart on this place just yet," he whispered quietly. "Look at it. We can't afford a place like this. It’s a multi-million-pound house."
 
-When Wagner strolled back in, Adam put his hands in his pockets. "Mr. Retsinis, it's incredible, but... what’s the asking price?"
+When Wagner strolled back in, Adam put his hands in his pockets. "Mr. Wagner, it's incredible, but... what’s the asking price?"
 
-Retsinis smiled warmly, resting his hands behind his back. " three hundred  thousand pounds. That covers the property outright, as well as lifetime community contributions for bills and council taxes."
+Wagner smiled warmly, resting his hands behind his back. " three hundred  thousand pounds. That covers the property outright, as well as lifetime community contributions for bills and council taxes."
 
 My jaw almost hit the hardwood floor. £300,000? For a five-bedroom detached house with all utilities covered?
 
 "What's the catch?" Adam asked, his tone instantly guarded. "Nobody sells a property like this for 300 grand. What's wrong with the structure? Or the land?"
 
-Retsinis’s smile didn't flicker. "No catch, my dear boy. The developers behind The Commons aren't interested in market speculation. We simply require young, lovely, respectable couples like yourselves to enrich our community. Crime doesn't exist here. You can raise your future children in a completely safe, loving, and controlled environment."
+Wagner's smile didn't flicker. "No catch, my dear boy. The developers behind The Commons aren't interested in market speculation. We simply require young, lovely, respectable couples like yourselves to enrich our community. Crime doesn't exist here. You can raise your future children in a completely safe, loving, and controlled environment."
 
 It sounded like a dream. Too good to be true, obviously, but when we told our parents, they were so thrilled for us that they pooled their savings to gift us the £300,000 cash.
 

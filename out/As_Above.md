@@ -1,0 +1,51 @@
+You don't have to open too wide or say ah and this won't hurt a bit, okay sweetie?” Nurse Sue said with a gentle smile, her brow a little furrowed with concentration. “No shit, bitch.” I thought to myself. “I just need a few little skin cells from the inside of your cheek, there we go. Not bad at all, huh?” She asked, now beaming cheerily.
+
+I didn't say what I'd like to say, instead I just smiled back and shook my head no. She carefully placed the long wooden stick, cotton tip first into a clear plastic bag with some bright red and black labels printed on it. It also had some stickers, probably with my personal information on it.
+
+How such a fucking twit got a nursing degree is baffling, at least she’s pretty. I'll give her that, not like the bitch who created this whole mess. That lying freak is hideous. The police dragging me into it like this is an insult to injury. I don't believe any of the bullshit they're saying. The maternity test results will start exposing her lies at least, once they’re back. Neither the hospital staff or police have told me how long that will be. They don't tell me anything, but I've pieced a lot together myself.
+
+On the short walk out of the hospital back to the police cruiser we passed the nurse's station. Where a bunch of women in a variety of colorful scrubs stood around in pairs and little groups, chatting with one another. Their clucking was so damn loud it was impossible not to overhear snippets of conversations. “First maternity tests I've ever heard of in this place…” “Oh he definitely did it, have you heard the…” “Poor little girls…” “How many children do you think…” “and have you seen her…”.
+
+Stupid bitches don't have a clue. Her. No one even calls her by name, probably because she's lying about it. She doesn't deserve a name. She's little more than an animal from what I've seen and overheard since all of this started. I don't believe she's some missing girl and there is no chance I came from that beast, no matter who she is.
+
+I saw the missing girl's picture on the TV at grandma's, but she changed the channel when she noticed I was watching. She was a bit younger than me in the picture, but it looked old. She had light brown hair, dark brown eyes and an average smile. Just a normal looking girl. Nothing like the lady from the basement, she looked like a monster. The whole town is talking about it, I bet the whole country is since it's all over the news.
+
+Megan was standing next to the police car, waiting for us looking anxious and sad. When her gaze found me she brightened a bit. She has gotten even whinier than usual since this started. She clings to me all the fucking time if I let her. She cries in her own bed at night so bad she throws up. So grandma makes me let her sleep in my bed. She hugs me the whole night so I barely sleep. I've never needed a lot of sleep, but it still pisses me off.
+
+The whole situation pisses me off. The police must be doing a shit job to not have this all figured out by now. I understand tests take time, in labs and stuff, but it's already been weeks. They're taking forever at the house, too. Digging the basement up, supposedly. I haven't been back since the night it all happened. Grandma makes sure not to take that route no matter where we go, she never drives past home. A kid at church told me they found dead bodies down there, I told him he's a moron. The longer the cops drag this out the more rumors people will spread.
+
+Before the cop even gets the door open for us Megan grabs my hand, squeezing it. I just let her, it beats her crying if I tell her to leave me alone. Holding her hand makes it difficult to climb into the car and slide over for her to get in next to me. When she does she lays her head against the top of my arm, sniffling. Even when she isn't crying she sniffles and sighs constantly.
+
+She looks just like me, but we are nothing alike. She's sensitive and weak, I'm not. “Would you ladies like to stop and grab some lunch before we take you home, maybe some burgers and fries?” I wanted to scream at him “That's not our home, you destroyed that.”, but I bit my tongue and glanced down at Megan. She gave me a look like “Say yes”, but was too shy to just say it herself.
+
+“Yes, if you don't mind. We're really hungry.” I told him. He's a fat, bald, tall man. His partner in the passenger seat is a very tough looking woman, she doesn't talk as much as he does. I don't remember their names, we've seen so many cops lately it's impossible to remember them all. Probably the whole damn police force in Wesker Michigan, I thought staring out the window as he began to drive.
+
+When this started I hammered them with questions every chance I could. “Why did you arrest our dad?” “How long will he be in jail?” “When can we see him?” “Why didn't you arrest the woman who broke into our home instead?” “Is she who she says she is” “what will happen if she isn't?”
+
+I didn't bother to ask what will happen if she is, because there's just no possibility she is. No matter the cop or the question they just tell me some shit along the lines of stop asking questions, we aren't going to answer any. They word it politely, but it's what they really mean.
+
+“These are adult issues that we will handle” is what our grandma keeps saying. Then she goes into sappy speeches about loving us and our dad no matter what, and how much he loves us. Nothing helpful from any of them because we're kids. They treat us like we're stupid because we're young. I'll be fifteen in a few weeks, Megan will be ten in a few months. I wonder if it will all be over by Dad's and Megan's birthdays in January, it definitely won't be by mine.
+
+If not, I guess things won't change very much anyway. Grandma only lives a few blocks from our house. It's the same town, the same school district, she even goes to the same church dad takes us to. Our grandpa died before Megan was born, so it's been just dad and grandma all our lives anyway.
+
+Our mom died when Megan was little, I don't remember her. Dad doesn't talk about her very much, not like dads in movies with dead wives. There's no pictures of her framed and displayed or anything like that. There are a couple of pictures in some old albums stored in the hall closet.
+
+When I got old enough to ask about her dad told me where to find them. I looked, satisfied my curiosity, and put them back after. She was young and pretty, but unremarkable. When Megan got older I showed her, she cried and asked why she died. Our mother died in a car accident, like a lot of people do. I told the police about those photos when they first talked to us, so did grandma apparently. Because I overheard a cop tell her that the girl in the photos was just one of dad's old high school girlfriends and that the pictures don't prove anything.
+
+No one has said it to me outright, but it's obvious the police think that the woman in the basement is our mother, that she's some missing girl. The name she told them when she got to the hospital was a girl who was taken when she was a kid.
+
+How these idiots think dad kept her all those years and had babies with her I have no idea. I've been in our basement a million times. Megan and I have lived in that house all our lives. The basement is just a basement, dark, dirty storage. No bodies, no kidnapped little girls held captive. No monsters, not until she broke in.
+
+—----------------------------------------------------------
+
+There was no longer a monster in Morgan and Megan's basement, because he had been poisoned. Although the girls both believed their father was in jail, he was actually in a hospital. Their grandmother and the police had thought it best to withhold this from the children for now. They're under enough stress without knowing the seriousness of their father’s condition.
+
+The police had also chosen to keep it out of the news. As far as everyone knew he was being held in solitary confinement at the local lock up while they tried to figure this situation out. He was actually in critical condition, far away in a private room at U of M, under heavy guard. Kept alive by a series of machines and medication, for now. Unable to answer police questions.
+
+Like Morgan, the police had been piecing the events together themselves. Without the suspect conscious and his victim all, but mute there was no one to ask. Their investigation had told them quite a lot, though.
+
+Like how the original blueprint of the family home claimed a much larger basement than current measurements accounted for. That was because on the back wall of the basement, behind a large pantry style cabinet was a door. Neither of the girls had ever seen before.
+
+Unsurprisingly, two young girls hadn't spent a lot of time exploring a cold, dark basement. It was no doubt a scary place for little girls. An irony not lost on investigators while they documented the small cell on the other side of that hidden door. Where a different little girl had also grown up in that house.
+
+Their real mother, now in the hospital recovering since her rescue, had spent nearly half of her life in that cell. Alone below, while the family above grew, from her.
