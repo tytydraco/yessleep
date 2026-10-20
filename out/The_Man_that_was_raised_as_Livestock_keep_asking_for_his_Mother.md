@@ -1,0 +1,875 @@
+It all started here
+
+https://www.reddit.com/r/nosleep/s/9YR8vFMJsR
+
+The first time I heard him call for her, I was on the linoleum floor of the hospital room, my palm resting on his scalp. He was a man—older than me, with gray in his beard and knees that didn’t straighten all the way. There were scars across his back like old leather straps. But when I ran my fingers through his hair, he went still. His eyes closed, and he leaned into my hand like a dog that’s been kicked too many times and doesn’t know what gentleness is supposed to feel like.
+
+Then he turned his head toward the door and made this sound—low, guttural, almost a moan. “Ma,” he said. Then again, “Ma.”
+
+The doctor and I just looked at each other. We didn’t get it at first. Then it clicked.
+
+“She’s coming,” I told him. “She’s on her way.”
+
+His whole body jolted. He scrambled up so fast he almost took me out at the knees trying to get to that door.
+
+I’ve replayed that moment every night since.
+
+My name’s Cal Mercer. I run a demolition crew. Last Thursday, we broke into a room that wasn’t on the blueprints at the old Coldwater Packing plant. Inside was a man in a pen. Not a cell—a pen. Straw on the floor, a metal bell on the wall. He had a tag in his ear like cattle do. It read 17-B.
+
+We found photos tucked behind a loose cinderblock. One showed him as a kid, maybe four or five, asleep against something huge. The thing holding him had skin like pale rubber and six fingers. The boy was smiling in his sleep.
+
+I ended my last post there because what comes next isn’t just about him. It’s about me. And Sam. And how fucking easy it is to lie to someone who wants to believe you.
+
+The cops held us until sundown. They took statements, bagged our tools as evidence, told us not to come back.
+
+I sat in a folding chair by the loading dock, watching uniforms come and go. Every time one looked my way, my stomach tightened.
+
+Sam usually can’t shut up. That day, he was quiet. Just sat there rubbing his hands like he was trying to wipe something off.
+
+“You think he knew?” Sam asked finally. “What was happening to him?”
+
+“He knew we weren’t them,” I said.
+
+Sam held up his hand. There was blood dried under his thumbnail from where he’d grabbed the man’s arm to keep him from bolting back inside.
+
+“He ate like my kid does when she’s starving,” Sam said. “Just… grateful.”
+
+I didn’t say anything.
+
+“You remember his face when you gave him that second granola bar?”
+
+I nodded.
+
+“Whole life in a cage,” Sam said, voice thick. “And a fucking granola bar makes him light up.”
+
+We sat there for a long time after that.
+
+Then Sam said, “There were three pens, Cal.”
+
+“I saw.”
+
+“Two were empty.”
+
+Yeah. I saw that too. Saw the fresh straw, the full feed bags stacked against the wall. Enough for more than one.
+
+When they let us go, Sam got pissed because they kept our inspection camera. It was borrowed. Expensive.
+
+I snapped at him—”Who gives a shit about the camera? We just pulled a person out of a fucking box.”
+
+It was a cheap shot. I’m behind on payments for the skid steer. Using my personal card for diesel. I didn’t tell him that. Instead I made him feel like an asshole for worrying about losing a tool we can’t afford to replace.
+
+He didn’t fight back. Just said, “All right, Cal,” and kept loading the truck without another word.
+
+I should’ve apologized.
+
+I didn’t.
+
+Driving home, my daughter Nora called.
+
+“Are you okay?” she asked. “People are saying you found bodies.”
+
+“Just one man,” I told her. “He’d been living there awhile.”
+
+“Was he scared?”
+
+I remembered the screaming. The way he clawed at the concrete when we dragged him toward daylight.
+
+“Terrified,” I said.
+
+“But you helped him?”
+
+“Tried.”
+
+“That’s good, Dad.”
+
+She still says things like that. Still thinks I’m someone worth saying it to.
+
+I told her I’d take her to that photo exhibit Saturday. She asked if I was sure—like she was already preparing for me to cancel.
+
+“I’m sure,” I said.
+
+After we hung up, I sat in the driveway with the engine off and thought about that little boy in the photograph—asleep in the arms of something that wasn't human.
+
+I wondered if anyone had ever made him a promise before.
+
+And if he would've believed them if they did.
+
+I could tell she wasn’t particularly impressed with me.
+
+She wanted to know why we’d opened the concealed door instead of contacting the property manager, whether we’d moved anything inside the enclosure, and exactly how the man had reacted when Sam struck the railing with his flashlight.
+
+I explained everything again.
+
+When I described the man dropping onto his knees and covering his head, she stopped writing.
+
+“Did he do that before or after you opened the enclosure?”
+
+“Before.”
+
+“And the gate was still locked?”
+
+“Yeah.”
+
+“Did he look toward the gate when he heard the noise?”
+
+I thought about it.
+
+“No. He just dropped down. Like he knew what was coming.”
+
+“What did you think was coming?”
+
+I shrugged.
+
+“Something bad, I guess.”
+
+Vale looked at me for several seconds.
+
+“Did either of you strike him?”
+
+I felt my face get hot.
+
+“No.”
+
+“I’m asking because we need to establish what happened.”
+
+“We didn’t hurt him.”
+
+“All right.”
+
+I leaned back in my chair.
+
+“Look, I know we shouldn’t have gone into that room without calling somebody. I know we probably screwed up your investigation by opening the gate. But we found a grown man lying in his own piss inside a fucking livestock pen. We weren’t going to close the door and wait around until somebody told us what to do.”
+
+She let me finish.
+
+Then she said, “I wasn’t suggesting you should have.”
+
+I felt like an idiot.
+
+That was becoming a recurring problem.
+
+She opened a folder and slid a photograph across the table. It showed the little room behind the pens, the one with the padded chair and all the pictures on the wall.
+
+“We’ve established that somebody was using this room recently. There was fresh food packaging, a working heater, and cleaning supplies that don’t appear to have been there long.”
+
+“So whoever kept him there could still be around?”
+
+“Possibly.”
+
+“What about the pictures?”
+
+“What about them?”
+
+I tapped the photograph.
+
+“The thing holding him. Have you figured out what that is?”
+
+She watched me for a moment.
+
+“We’re examining everything we recovered.”
+
+“That’s not what I asked.”
+
+“I know.”
+
+I was starting to understand why she was a detective.
+
+She could tell you absolutely nothing while making you feel like you’d just had an entire conversation.
+
+Then she asked whether I’d be willing to visit the man at the hospital.
+
+Apparently, he’d been causing problems.
+
+He’d pulled out an IV, refused several meals, and bitten a nurse when she tried to remove the identification band from his wrist. Nobody had been able to get him to communicate, but he’d responded to a recording of my voice from one of the officers’ body cameras.
+
+“Responded how?” I asked.
+
+“He became calmer.”
+
+I stared at her.
+
+“You’re telling me he recognizes me?”
+
+“We think he might. The doctors believe a familiar person could help.”
+
+I didn’t particularly want to see him again.
+
+I know that sounds awful, but I hadn’t slept much the night before. Every time I closed my eyes, I saw him crouched in the straw or remembered the enormous hand wrapped around that little boy.
+
+Part of me wanted to go back to tearing down buildings and pretending none of this had happened.
+
+But then I thought about how he’d looked at me when I’d given him water.
+
+“Yeah,” I said. “I’ll go.”
+
+The hospital had put him in a private room away from the busier parts of the floor. A social worker met me near the elevators and introduced me to Dr. Nwosu, one of the physicians overseeing his care.
+
+She was a small woman with tired eyes and a surprisingly direct way of speaking.
+
+Before we went inside, she explained that they still didn’t know how much language he understood.
+
+“He appears to recognize certain sounds and routines,” she said. “But his responses aren’t always consistent. We’re being careful not to assume he lacks understanding simply because he can’t communicate in ways we’re familiar with.”
+
+“Can he talk?”
+
+“He’s made several vocalizations. We haven’t identified any reliable words yet.”
+
+“What about his legs?”
+
+Her expression changed.
+
+“There’s extensive damage to his joints. Some of it appears to have developed over many years.”
+
+“Can you fix it?”
+
+“We’re still assessing him. Physical therapy may help, but I don’t want to promise you something we can’t deliver.”
+
+She showed me through a small observation window in the door.
+
+The man was sitting on a mattress on the floor.
+
+They’d moved the hospital bed against the wall after he repeatedly tried to crawl underneath it. He was wearing a hospital gown, although he’d pulled it halfway off one shoulder, and somebody had given him a thick gray blanket.
+
+He was rocking gently with his knees tucked beneath him.
+
+Every few seconds, he rubbed a corner of the blanket against his mouth.
+
+He looked smaller than I remembered.
+
+I asked how old he was.
+
+“We don't know. Our estimate is somewhere in his early to mid-forties.”
+
+"Jesus. He's older than me."
+
+She nodded.
+
+For some reason, that made everything feel worse.
+
+I'd spent the morning complaining about unpaid bills and a sore back. This man had lived four decades inside a room smaller than my garage.
+
+Dr. Nwosu explained that his health was unusual in several ways.
+
+He had nutritional deficiencies, old injuries, and the kind of muscle and joint changes you'd expect from prolonged confinement. But he also showed evidence of medical care.
+
+Some of his injuries had been treated properly. Several of his teeth had restorations that required specialized equipment, and there were surgical scars that appeared to have healed cleanly.
+
+I asked if that meant somebody had been taking him to a doctor.
+
+"Not necessarily," she said. "Only that someone with access to medical knowledge and equipment treated him."
+
+"Why would somebody do that and then keep him locked in a pen?"
+
+She looked through the window.
+
+"I wish I knew."
+
+Then she opened the door.
+
+The man didn't notice us immediately.
+
+He was sitting with his back against the wall, staring down at the blanket in his lap. His hair had been washed, and somebody had trimmed a few particularly tangled sections of his beard.
+
+He looked almost ordinary from that angle.
+
+Then he shifted, and I saw the way his legs bent beneath him—not like human legs should bend, but like something kept too long in too small a space until it grew into its confines permanently. The bones seemed wrong beneath skin mapped with scars both old and new—some clean surgical lines, others ragged like something had torn at him once and healed badly without proper care except where it mattered most for keeping him functional as livestock must be kept functional so they don't spoil before their time comes due—
+
+Dr. Nwosu kept his voice low. “Hey there. Someone’s here to see you.”
+
+The man looked up. His rocking stopped. For a few seconds he just stared, then made a soft noise in his throat and started crawling toward me.
+
+I got down on my haunches. “Hey, buddy.”
+
+He halted about two feet away. His eyes went from my face to my hands, then he ducked his head like he was waiting for a blow.
+
+I thought I’d scared him, so I eased back a little.
+
+But then he came closer before I could figure it out—just leaned in and pressed his forehead right into my open palm.
+
+I froze.
+
+He stayed like that, just this gentle, steady pressure against my hand.
+
+From the doorway, Dr. Nwosu said, “I think… I think he wants you to pet him.”  
+I moved my fingers slowly through his hair. His eyes closed immediately and a deep, pleased sound came from his throat. I kept rubbing, and he moved closer until his cheek rested against my knee. For a few minutes, he seemed completely happy. I don't know how to explain what it felt like—a grown man with a gray beard and scars all over his body responding to the kind of affection you'd give a dog. The worst part was how natural it seemed to him. No embarrassment, no confusion. He wanted somebody to pet him, and when I did, he relaxed completely.
+
+I remember looking at his hands resting on the floor. The knuckles were thick with scarred skin, the palms looking more like the bottoms of someone's feet than hands. I wondered how old he'd been when he stopped walking upright. Had somebody forced him to crawl? Punished him for standing? Or had he simply grown up in a place where nobody ever showed him how a human being was supposed to move?
+
+I kept thinking about the picture of him standing as a toddler. At some point, he'd been able to walk. Someone had taken that away from him.
+
+After a while, he lifted his head and looked toward the door. Then he made a noise I hadn't heard before—three soft sounds, a pause, then three more. His eyes stayed fixed on the doorway.
+
+I looked at Dr. Nwosu. "That's what he was doing when you brought him out of the pen?"
+
+She nodded. "He's been doing it regularly."
+
+"What's it mean?"
+
+"We aren't certain."
+
+He made the noise again, and this time I heard something underneath it—something close to a word. Something like "muh." He looked at me. "Muh-duh."
+
+I felt my stomach tighten.
+
+Dr. Nwosu crouched beside us. "Can you say that again?"
+
+The man glanced at her, then back toward the door. "Muh-duh."
+
+I stared at him. "Is he saying mother? Do you think—" I thought of the photographs—that enormous pale arm wrapped around him, holding him while he slept.
+
+Without really thinking, I asked, "Are you looking for your mom?"
+
+His whole expression changed. His eyes widened and he made a sharp, excited sound. "Mom!" he repeated, then began calling louder: "Muh-duh! Muh-duh!" He scrambled toward the door so quickly he almost fell backward. He grabbed the handle and tried to pull himself upright, but his legs trembled beneath him. He made a frustrated whining noise when he couldn't reach properly.
+
+Dr. Nwosu moved toward him. "Easy now, it's okay."
+
+He ignored her, staring through the little window in the door and making that calling sound over and over.
+
+It was horrible to watch. He looked excited at first—almost joyful—but when nobody appeared, he became agitated. He scratched at the door and tried to push his fingers beneath it.
+
+When Dr. Nwosu gently guided him away, he began crying—not screaming or throwing things, just crying. He sat on the floor looking toward the hallway, making those soft noises between sobs.
+
+I tried to comfort him but he pulled away.
+
+It took almost ten minutes for him to settle down.  
+“That’s our working assumption.”
+
+I stared at the words.
+
+Somebody had trained him.
+
+Not just taught him to do things, but studied exactly how he responded to punishment and rewards.
+
+They’d documented how much he ate, how well he slept, and how he reacted when separated from whoever cared for him.
+
+There was even a note about his vocal behavior.
+
+Prolonged isolation produces persistent calling. Appetite decreases until caretaker contact is restored.
+
+I thought about him crying against the hospital door.
+
+Vale clicked to another page.
+
+The folder crackled in my hands, the paper inside the color of old teeth. It was a growth chart, but it tracked things that had nothing to do with a child. Height. Weight. Notes on compliance.
+
+Some of the lines were just numbers. Others made the cold coffee in my gut lurch.
+
+**Resistance to positioning: Moderate.**  
+**Correction response: Satisfactory.**  
+**Unassisted standing: Discouraged.**
+
+I leaned in until my nose almost smudged the screen. “Unassisted standing?” My own voice sounded foreign.
+
+Vale didn’t move.
+
+I read it again. They didn’t just let him stay down. They trained him to stay down.
+
+Further down, another line.  
+**Quadrupedal mobility established. Further correction unnecessary.**
+
+I shoved the laptop. It screeched across the tabletop. My throat felt like it was packed with sand. Yesterday I’d felt sorry for a man who couldn’t walk. Now I knew they’d beaten it out of him.
+
+“Why?” It came out raw, like a cough. “Why would you do that?”
+
+Vale just shook her head, slow, and opened another window. Dozens of folders, each labeled with a cold string of numbers and letters. 12-G. 08-C. 22-F.
+
+Her cursor hovered, a nerve twitching in her wrist, then clicked. The screen bloomed with a high-resolution nightmare. An infant, splayed on bare concrete, its skin mottled and raw.
+
+Another click. An old woman, skeletal, curled on soiled straw, a metal tag stapled through the loose skin of her wrist, the number 43-B stark against the bruised flesh.
+
+Another.
+
+The same featureless gray walls, the same rust-streaked feed trough bolted to the floor like an altar.
+
+A woman sat against the wall, a toddler’s face buried in her neck, an older child’s head a dead weight in her lap. All three wore the steel bands. The woman was staring directly into the lens, her eyes not pleading, not even sad, but utterly hollowed out, two voids where a soul should have been.
+
+“Have you found them?” I asked. “Any of them?”
+
+“Not yet.”
+
+“How many are there?”
+
+“Twenty-nine confirmed individuals.”
+
+The number just hung there. Twenty-nine.
+
+“Jesus Christ. Where are they?”
+
+“We’re working on that.”
+
+Heat prickled up my neck. There were pictures of kids behind bars and she was talking about “working on it”.I jabbed a finger at the woman frozen on the screen. “Those kids. Are they alive?”
+
+“I don’t know.”
+
+“How old is that picture?”
+
+“We’re still establishing dates.”
+
+I had to turn away from the glow of it, from her calm face.
+
+“I understand you’re upset,” she said, her voice low and flat. “So am I. But yelling at me won’t find them faster.”
+
+She was right. I hated that she was right. I muttered something like sorry.
+
+She gave a tight nod and pulled up a new scan—handwritten notes on cheap lined paper.  
+**Subject: 17-B**  
+At the top: **Birth**
+
+“He was born there?”
+
+“It appears so.”
+
+I kept reading.  
+**Dam: 09-A**
+
+I knew that word from my grandpa’s farm. A dam is a breeding female.
+
+My eyes stuck on the number. “They logged his mother like she was stock.”
+
+Vale didn’t say no.
+
+Further down.  
+**Weaning**  
+**Stock**  
+**Breeding Cycle**  
+A list of infant IDs under 09-A’s number.  
+Some had dates next to them.  
+Others had one word: **Culled**
+
+I looked at Vale, my voice dropping into something quiet and mean. “These are fucking livestock records.”
+
+“That is one interpretation,” she said carefully.
+
+“One interpretation? What other one is there? They weighed babies like calves. They put his mother in a breeding cycle.” My hands were trembling on the table edge. “They broke a man until he thought crawling was normal and eating from a trough was dinner.” The words tasted like metal. “They kept him in a goddamn pen.”
+
+Vale waited until I was done, her own calm finally fracturing to show the exhaustion and dread underneath.“I agree the evidence points to systematic… husbandry,” she said, spitting the word out like it was rotten.“But we don’t know who, or how many, or where the others are now.”
+
+She shut the file. Her knuckles were white where she gripped it. "There's something else," she said, her voice dropping so low I had to lean in. "Behind the refrigeration unit downstairs. A reinforced passageway. It's not on any of the prints."
+
+My throat went tight. "A basement?"
+
+"Could be."
+
+"You go in?"
+
+"No." She finally looked up from the desk, and her eyes were flat, exhausted. "Structural's shaky. There's live power running to it." She let that hang between us for a beat. "And fresh scuff marks on the floor leading in."
+
+I remembered the warm, damp air that had sighed out from behind that broken section of wall. The lights still on down the hall.
+
+Someone was still using this place.
+
+"How far back does it go?"
+
+"Don't know."
+
+I swallowed. "Could there be more people?"
+
+Vale didn't blink. "Yes."
+
+It was the first straight answer she'd given me all day. She looked as hollowed out as I felt.
+
+Before I left, I asked if Sam could swing by later to grab our gear once her people were done.
+
+She told me the site was still an active investigation and that neither of us should come within a block of it.
+
+I promised we wouldn't.
+
+I meant it when I said it.
+
+When I got home, there was a text from Nora asking if we were still on for the photography thing tomorrow.
+
+I thumbed back a yes, pick you up at ten, just like we planned.
+
+Then I sat on the couch and pulled up the photos from Coldwater Packing on my phone.
+
+Don't know what I was looking for. Maybe just wanted to see the place looking normal again—like it had when we first rolled up. Just another rotting building.
+
+Scrolled through shots of the loading dock, rusted electrical panels, busted refrigeration units. All boring as hell.
+
+Then I found one Tyler had snapped of Sam near the processing line.
+
+Sam had his hands on his hips, staring up at a section of overhead track with that pissed-off look he gets when something isn't where it's supposed to be.
+
+Behind him, against a concrete wall, was some old piece of machinery crusted with rust.
+
+And near the floor, half-hidden behind it, a rectangular metal grate.
+
+I zoomed in.
+
+The grate was painted the same shitty gray as the wall. There was a dark stain beneath it, like something had seeped out for years. The screws holding it in place looked new.
+
+I stared at the photo until my eyes hurt.
+
+Then I sent it to Sam.
+
+“You see this?”
+
+He wrote back five minutes later.
+
+“Yeah saw it yesterday”
+
+“What is it?”
+
+“Vent probably”
+
+I typed again.
+
+“Vale says they found something under the building.”
+
+No answer.
+
+A few minutes went by.
+
+Then my phone buzzed.
+
+“I know.”
+
+I sat up straight.
+
+“What do you mean you know?”
+
+Nothing.
+
+I called him.
+
+Went straight to voicemail.
+
+Tried again.
+
+Same thing.
+
+I was starting to get pissed when Nora called. Her voice was too bright. She asked if we could do lunch at that little Italian spot near the museum instead of downtown. I told her yeah, fine. My thumb kept tapping the screen where Sam’s last message glowed.
+
+She started telling me about this photography project she’s doing for school. Shooting abandoned places—old houses, empty stores. Normally I’d half-listen while scrolling through emails or thinking about work. But today her words hooked into me. She said these dead places hold onto little pieces of the people who left. A coffee cup on a sill. A kid’s drawing taped to a door. Like the buildings didn’t know they were empty yet.
+
+I thought about those photos tacked up behind the pens. That padded chair sitting alone. Blankets folded neat at the foot of each cot. Somebody made a home there. Or something did.
+
+Nora stopped. “You still there?”
+
+“Yeah, sweetheart.”
+
+“You got quiet.”
+
+“Long day.”
+
+She hesitated. “You’re not gonna have to work tomorrow, are you?”
+
+“No. I’m all yours.”
+
+“Promise?”
+
+I closed my eyes.“Promise.”
+
+After we hung up, I made a sandwich and tried to watch TV. Couldn’t focus. The bread tasted like nothing. Around ten, I checked my phone again. Still nothing from Sam. I was about to call his wife when he finally rang. 10:47. I remember because I looked at the clock and thought about giving him shit for calling so late.
+
+“Hey asshole,” I answered.
+
+He didn’t laugh.
+
+“Cal.”
+
+His voice was all wrong—thin and stretched.
+
+“What is it?”
+
+“Listen to me.” He was whispering. There was an echo behind him, and underneath that, a steady plink… plink…like water dripping in a deep place.
+
+“Where are you?”
+
+A pause.
+
+“Coldwater.”
+
+I sat up.“What?”
+
+“I’m at the plant.”
+
+“Are you fucking insane?”
+
+“Cal, just listen.”
+
+“Sam, it’s a crime scene.”
+
+“I know.”
+
+“Then what are you doing there?”
+
+He took a shaky breath.“Came back for that grate.”
+
+I stood up.“Jesus Christ, Sam—why?”
+
+“Wasn’t gonna go in. Just wanted to see where it led. There’s a service crawlspace under the loading dock.” I could hear him moving. The gritty scrape of his boots on concrete.“Thought maybe there was an access panel. Then I heard something.”
+
+I stopped looking for my keys.“Heard what?”
+
+“Crying.”
+
+The whole room got quiet.“Where?”
+
+“Under the floor.”
+
+“Did you call the cops?”
+
+“No.”
+
+“Why the hell not?”"Sounded like a cat at first. Weird little noise through the vent. Got closer… then I heard ‘help’."
+
+I rubbed my forehead hard."Sam, get out and call 911."
+
+"I yelled through the grate—nothing. There's a hatch under the dock. Wasn't locked."
+
+My stomach turned."Tell me you didn't go down."
+
+Silence."Sam."
+
+"I'm already down here."
+
+I grabbed my keys."Goddammit—get back outside."
+
+"Just wait—"
+
+"No—I'm calling Vale."
+
+"Cal—I can hear them."
+
+I froze."Them?"
+
+Nothing for a long time.
+
+Then through the phone—faint—a wet, hitching sound. Couldn't make out words. Just crying. A kid.At least that's what I thought.Sam whispered, "You hear that?""Yeah.""That's what came through the grate."There was another sound—
+
+A metallic scraping sound echoed down the line. Sam’s breathing hitched. “Hello?” he called out, his voice bouncing off unseen walls. “Is someone there?”
+
+The soft crying cut off.
+
+“Sam, get out of there. Now.”
+
+He didn’t listen. “Hey—I’m not gonna hurt you. I’m here to help.”
+
+Something clanged against metal. I heard him jump back. Then, under his breath: “Holy shit.”
+
+“What is it?”
+
+“There’s another room back here.”
+
+I pressed the phone hard against my ear. “What kind of room?”
+
+“Like a cell. There’s a door with one of those reinforced windows.”
+
+“Don’t open it.”
+
+“There’s someone in there.”
+
+A cold weight settled in my stomach. “Who?”
+
+I could hear him shifting, his breath coming quicker. “A woman.”
+
+I remembered the photos Vale had shown me—a woman on concrete, two kids huddled close.
+
+“Is she hurt?”
+
+“I don’t know.”
+
+“Can she see you?”
+
+“Yeah.”
+
+A beat of silence. Then Sam said, “She’s just sitting on the floor.”
+
+“Sam, listen to me. Back away and call for help.”
+
+No answer.
+
+“Sam?”
+
+“She’s wearing one of those wristbands.”
+
+My blood went still. “Like Seventeen?”
+
+“Yeah.”
+
+Another pause. Then Sam spoke up, louder this time. “Ma’am? Can you hear me?”
+
+Something rustled in the background.
+
+“Ma’am, I’m gonna get help, okay? We’ll get you out.”
+
+A faint sound came through—soft, almost like sighing.
+
+Sam went quiet for a long moment. Then, barely a whisper: “Cal?”
+
+“Yeah?”
+
+“She’s smiling at me.”
+
+I didn’t know what to say. “Okay.”
+
+“No—you don’t get it. She’s smiling like she knows me.”
+
+Another scrape of metal. A sharp click.
+
+Sam’s breath stopped.
+
+“What was that?” I asked.
+
+Nothing.
+
+“Sam?”
+
+I heard him step back. Once. Twice.
+
+“Cal… there’s someone else down here.”
+
+My grip on the phone turned slick. “Who?”
+
+“I don’t know.”
+
+A new sound came through—low, dragging, wet. Like something heavy being pulled across grit.
+
+Sam muttered something I couldn’t catch. Then: “Jesus Christ.”
+
+I was already sprinting toward my truck. “Sam, get out!”
+
+No response.
+
+“Sam!”
+
+The woman made a sound again. Clearer now. A light, airy laugh—like a slow leak from a tire.
+
+Then Sam yelled, “Stay back!”
+
+Something heavy hit the floor. A horrible scrape followed by wet slaps—like raw meat hitting concrete.
+
+I heard him running—hard, panicked steps echoing off close walls.
+
+“Sam! Talk to me!”
+
+He was gasping, sucking air like he’d been gut-punched. He managed four words before his voice shattered: “What the fuck are you?”000
+
+A crash—glass or metal breaking.
+
+Sam screamed—not scared, but shocked pure animal terror—cut short like his throat had been torn out.
+
+Then silence. Thick. Wet.
+
+I stood by my truck, phone glued to my ear, heart slamming against my ribs so hard I tasted metal.
+
+I kept yelling his name.
+
+Nothing.
+
+But the line was still open.
+
+For a few seconds, all I heard was the faint buzz of the connection and something else now—a drip… drip… drip hitting concrete near where Sam must have fallen.
+
+It sped up. Spread.
+
+Then footsteps.
+
+Slow. Heavy. Not human.
+
+Each step landed with purpose—a dense, final sound.
+
+They stopped near Sam’s phone.
+
+I held my breath.
+
+A soft clicking sound came through, close to the mic. Two clicks. Pause. Two more.
+
+Just like Seventeen when he got nervous.
+
+Calling.
+
+The thing standing over Sam’s body was calling for something.
+
+My legs buckled. I dropped onto the truck’s running board, jeans soaking up cold rainwater I didn’t feel.
+
+I tried one last time: “Sam?”
+
+No answer.
+
+But then—breathing.
+
+Right into the microphone.
+
+Slow, wet pulls of air through fluid-clogged lungs. Each exhale rattled, but under it—a faint mechanical whirring, like an old motor struggling to turn.
+
+Then I heard a low noise.
+
+It sounded like the cooing noise you’d make to a spooked horse. Gentle. Reassuring.
+
+Then the line went dead.
+
+I called Sam back. Voicemail. Tried again. Nothing.
+
+My hands shook dialing 911. I told the dispatcher my friend was inside the old slaughterhouse, that I’d just heard something happen to him over the phone. She asked if I knew who did it.
+
+I almost told her. About the photos on my phone. The pale limb with too many joints. The six fingers. The boy curled against something that looked like it was made of wax and bone. I said I didn’t know.
+
+She asked where I was. Said cops were already rolling toward the property. I told her I was home. She said stay there.
+
+I didn’t.
+
+I grabbed my keys and got in the truck.
+
+Stupid, I know. I should’ve waited. Looking back, almost every choice I made was wrong.
+
+But Sam had been with me eleven years. Helped me start the company when I had nothing. Worked for free when we were slow. When my wife left, he came over with a six-pack and let me bitch on the porch for three hours.
+
+Now he was under that building.
+
+I’d heard him scream.
+
+I wasn’t staying home.
+
+Ten minutes down the road, my phone rang.
+
+I swerved hard reaching for it.
+
+Sam’s name glowed on the screen.
+
+I answered. “Sam?”
+
+Silence.
+
+“Sam—where are you? Talk to me.”
+
+Nothing.
+
+I pulled onto the gravel shoulder, engine idling. “Sam, the police are coming. Just tell me where you are.”
+
+A rustle came through the speaker. Dry, like straw shifting.
+
+I held the wheel tighter. “Sam?”
+
+A low exhale. Wet. Soft.
+
+Then a voice.
+
+Not right—not like a person’s. Like something that had heard words but never felt them in its own mouth. The spaces between syllables were all wrong. Some parts hissed with too much air; others clicked deep in the throat.
+
+It spoke slow.
+
+“Good.”
+
+I didn’t move.
+
+A few seconds passed.
+
+“Good.”
+
+Another sound—a scrape, like plastic dragging over mic mesh.
+
+Then, softer than anything, a tone so tender it froze the blood in my veins:
+
+“Good boy.”
+
+The call dropped.
+
+I sat there on the shoulder, phone in hand, staring at nothing.
+
+I called Sam again. And again. Must’ve tried a dozen times before I reached the Coldwater gate.
+
+He never picked up.
+
+He still hasn’t.

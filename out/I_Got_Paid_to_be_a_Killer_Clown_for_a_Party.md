@@ -42,7 +42,7 @@ I got right back to work once he left, noting that he didn’t even order any fo
 
 Not the first time I was put off by his behavior, as just a week later, he finally got back to me. And in the nick of time, too, I had gotten fired the very same day he reached out again. No clue how or why, but I called, and they said I was off the schedule. Now, I needed the cash for next month’s bills, in case I couldn’t find a replacement. 
 
-When he called, it was from an unknown number. Since I was expecting him to somehow reach out, there was an inkling that it wasn't just some scammer. Picking it up, sure enough, it was Landon. His tone was no less chipper than last time. He explained that he'd provide a costume, and his shed to set up. “Set up what?” I asked. 
+When he called, it was from an unknown number. Since I was expecting him to somehow reach out, there was an inkling that it wasn't just some scammer. Picking it up, sure enough, it was Lake. His tone was no less chipper than last time. He explained that he'd provide a costume, and his shed to set up. “Set up what?” I asked. 
 
 And he said, “Anything you wanna bring.” I didn't have anything I would have brought. It just helped the chill work its way down my spine. I was going to inquire even more, but he cut me off, “Whatever it is… Just know that I have you covered! I've got tons of props already! Some of it is *real* horror memorabilia!”
 
