@@ -1,0 +1,425 @@
+I’ve tried everything: melatonin, sleep therapy, and even prescription temazepam.
+
+
+
+Nothing worked. I just couldn’t sleep.
+
+
+
+My insomnia started about a year ago, and since then, my life has been a blur of sleepless nights and drowsy days. During the day, I felt like I was underwater. Everything was fuzzy and distant, and I was constantly afraid I'd fall asleep at work or behind the wheel.
+
+
+
+Nighttime was worse. I'd lie in bed with my eyes wide open, staring at the ceiling, watching the hours tick by.
+
+
+
+On a good night, I'd get two hours of sleep.
+
+
+
+It was late fall when I found myself mindlessly wandering the streets at 3 AM after fighting and losing the battle for sleep. I dragged myself through the sleeping town; the cold autumn air pricked my face as the town's streetlights flickered above my head. In the distance, the warm fluorescent glow of a lone store lit up the darkness.
+
+
+
+The sight was comforting to me, and like a moth to the flame, I was drawn to the warmly lit storefront. It was a pharmacy. I stood outside for a moment, staring at the store. Though I wasn’t far from home and had walked this way before, I had never seen it before.
+
+
+
+Entering the store, I was greeted by a musty yet sweet smell and calming jazz flowing out of the small radio that sat on the checkout counter. The man behind the counter lowered the newspaper he had been reading and gave me a warm smile.
+
+
+
+“Welcome in. Let me know if you need any help”
+
+
+
+He was a chubby man who appeared to be in his mid-forties; a comb-over tried in vain to cover his balding head.
+
+
+
+“Thanks,” I replied weakly as I headed to the back of the store.
+
+
+
+Glancing back, I noticed the man watched me for a moment before returning to his paper. I browsed the aisles, my eyes lazily moving from various pills to overpriced snacks. I had no plans to buy anything, really; I was there to kill time before trying to sleep again. Almost by habit, I found myself in the sleep-aid section. It was there that something caught my eye.
+
+
+
+On the bottom shelf was a small package. It was different than the other products; there was no listed price on the shelf. Reaching down, I picked one up to examine it. A lone mustard-yellow pill sat securely in a plastic cocoon fastened to a cardboard backboard, which was colorfully designed with a cartoon bear sleeping in a bed with three Z’s rising from it. The product's name was written across the board in yellow print.
+
+
+
+“Doc Harden’s Goodnight.”
+
+
+
+Underneath, in smaller print, was the slogan:
+
+
+
+“You never know where a good night's sleep will take you.”
+
+
+
+Further down on the cardboard in a bright red circle, it claimed
+
+
+
+“One pill is good for six months!”
+
+
+
+I stared blankly at the package in my hand; this clearly was a gag; no sleeping pill is good for six months. But at the same time, it was compelling, and I had tried everything that doctors had suggested; nothing was working, so what’s the harm in trying? These were the thoughts in my mind as I made my way to the front.
+
+
+
+I tossed the package onto the checkout counter; the man behind the counter looked down at it and then to me.
+
+
+
+“Can’t sleep, eh?” he said with a slight smile
+
+
+
+“Yeah.” I shrugged
+
+
+
+“Are you sure you want this one?” he asked
+
+
+
+“I’ve tried everything else, why not?”
+
+
+
+He shrugged.
+
+
+
+“Whatever you say, man.”
+
+
+
+“What’s the price?” I asked as I reached for my wallet.
+
+
+
+He smiled
+
+
+
+“Tell you what, if it helps, come back tomorrow and pay; if it doesn’t help, don’t worry about it.”
+
+
+
+“Alright, thanks,” I said as I put the package into my pocket and headed out the door.
+
+
+
+ “See you next time.” He said as the door closed behind me.
+
+
+
+It was after 4 when I got home. Shuffling my way into the kitchen, I pulled out the pill and stared at it. Its burnt yellow color revealed the occasional sparkle of glitter from within it. Filling a glass of water, I ripped the pill from the package, popped it into my mouth, and washed it down with water. Taking my shoes off, I entered the bedroom and plopped onto the bed.
+
+
+
+It was noon when my ringing phone woke me. I was on the floor about three feet from my bed, but despite that, for the first time in a year, I felt rested and refreshed. I found my phone on the nightstand and answered it.
+
+
+
+“Hello?” I said with a yawn.
+
+
+
+“Ryan, are you ok?” It was my boss, Marie.
+
+
+
+“Oh shoot, sorry, Marie. I slept through my alarm. I’m on my way."
+
+
+
+“Well, it’s good to hear you’re sleeping. Don’t worry about it, just get here when you can.”
+
+
+
+“I will, thank you.” Hanging up, I quickly changed and brushed my teeth before hopping in my car and heading to work.
+
+
+
+That day was amazing. I had forgotten how enjoyable life was when you have a full night's sleep. I felt alert and aware. On my way home, I decided to stop by the pharmacy and pay for the pill since it seemed to be working. When I came to the place I had been walking the night before, there was no pharmacy. I walked around the block twice, then explored the two surrounding blocks as well, but there was no pharmacy anywhere in the area.
+
+
+
+Confused, I returned to my car
+
+
+
+“Must have been in a different spot,” I muttered and drove towards home.
+
+
+
+After cooking some dinner and enjoying a show, I hopped in the shower and prepared for bed. For the first night in a long time, I could barely keep my eyes open, and there was no battle for sleep; my body surrendered before my head hit the pillow.
+
+
+
+Sunlight and distant chirping birds woke me up; it was late morning, and I was lying on the living room floor. I looked around, confused; this wasn’t where I had fallen asleep, and I didn’t remember leaving the bed.
+
+
+
+Pulling myself off the floor, I walked up the stairs to the bedroom.
+
+
+
+“Must have been sleepwalking,” I thought as I entered the bedroom.
+
+
+
+My phone had three missed calls and a voicemail from Marie.
+
+
+
+“Where are you? Your shift started at 8. Get here soon.” I could tell she was frustrated.
+
+
+
+I looked at the time; it was a little after 10.
+
+
+
+“Crap,” I muttered as I hurried to get ready.
+
+
+
+At 10:45, I pulled into the parking lot at work. Rushing in, I was greeted by an annoyed Marie.
+
+
+
+“Where’ve you been?” she asked coldly.
+
+
+
+“I’m sorry. I overslept; I’m trying a new medication, and it’s working a little too well.”
+
+
+
+She sighed.
+
+
+
+“Look, I know you’ve had a hard time these last couple of months, but when you’re supposed to be here, we need you here.”
+
+
+
+I nodded.
+
+
+
+“I know, I’m sorry.”
+
+
+
+“This is your last warning; don’t let it happen again.”
+
+
+
+I hurried to clock in.
+
+
+
+“Got it.”
+
+
+
+That night, I set several alarms and planned to go to bed earlier in hopes of waking up on time. I lay in bed staring at the ceiling; I could feel myself growing drowsy. I resisted, but my eyelids were far too heavy. As they closed and I drifted off, I could have sworn I heard the creaking of footsteps in the hallway.
+
+
+
+When I woke, I was in the basement. The clock on the wall read 1:30.
+
+
+
+“Oh Crap” I sighed as I ran up to the bedroom.
+
+
+
+My phone was in its place on the nightstand, and there was one missed call and a voicemail.
+
+
+
+“Sorry, Ryan, you were more reliable when you weren’t sleeping. No hard feelings; hope you get better.”
+
+
+
+I clenched my jaw in anger.
+
+
+
+“Damn it,” I yelled to myself.
+
+
+
+I spent the day binge-watching bad TV shows. I made up my mind to try to resist the effects of the pill, so I stayed on the couch playing video games. But right when the clock hit nine, a wave of exhaustion consumed me. My limbs felt like they were made of stone, and my eyes seemed to close on their own. Too weak to fight it anymore, I tossed the controller onto the chair beside the couch and stuck my phone into my pocket. My eyes closed for the final time, and as my mind fell into slumber, the last thing I remember was feeling the couch shift as something sat next to me.
+
+
+
+I didn’t know where I was when I woke. The sounds of wind in the trees, birds, and insects singing told me I wasn’t in my home anymore. I rubbed the sleep from my eyes and looked around. I had been lying in tall, unkempt brownish grass littered with yellow and red leaves. Bare trees surrounded the small clearing I had been lying in. It was cold; the wind blew, sending a chill up my already shivering back. I spun in a circle, hoping to see something familiar, but there was nothing, just trees.
+
+
+
+Panic was setting in; I stood there shivering in a T-shirt and sweatpants, only socks covered my feet. I pulled my phone from my pocket; it had one bar. There were two notifications from my doorbell camera; the first had recorded movement from the night at 3:03 AM. I opened the recording and watched as the sleeping me clumsily exited the house and walked off the porch and half ran, half stumbled down the yard and disappeared into the night. I watched it again and noticed something strange. I was holding out my left arm in front of my body, as if someone was leading me by the hand.
+
+
+
+I watched the way I was moving; it looked like someone pulling on my arm and dragging me behind. Closing that recording, I opened the second one, which was captured at 4:45 am. It was short, about five seconds; the camera caught the front door opening and closing by itself.
+
+
+
+“What the hell?” I muttered as I watched the short video three or four more times. A cold burst of wind reminded me where I was, and I opened Google Maps on my phone and found out I was about 8 miles from my home in the woods that surrounded the town. The walk home was slow and miserable. On the outskirts of town is a small hardware store; it was midday by the time I reached it, and my feet were freezing. I stumbled inside and bought some steel-toed boots, which were about the only shoes they sold, a thick jacket, and a few hand warmers. I was about to check out when an idea entered my head.
+
+
+
+I searched the store and finally found zip ties; I picked out a pack of their thickest ones and then went to check out. It was late afternoon when I finally made it home. Cautiously, I entered and quickly made my way to the kitchen, grabbing the biggest knife I owned. I checked every room in the place, and no one was there. Relieved to find no one, I turned my attention to locking every door and window. Night came faster than I wanted, and I soon felt myself becoming sleepy.
+
+
+
+Entering my bedroom, I lay down on the bed and took two zip ties and used them to tie my right wrist to the headboard, hiding the kitchen knife under my pillow just before sleep overpowered me.
+
+
+
+What woke me was pain in my right arm and the sound of furniture scraping across the floor. Instinctively, I first looked to my right hand. The zip ties were tearing deep into my flesh of my hand; they had dug in and were shredding my skin as whatever held me pulled harder. Deep red streams of blood were running down my forearm and dripped onto my pillow right next to my head. At that same moment, I felt something else: strong, bony fingers wrapped around my left ankle.
+
+
+
+I swallowed and slowly looked down towards my leg; there, at the foot of the bed, was a tall, bone-thin, vague shape of a man. Its skin was grey and damp, and its arms were far too long for its body; one hand was wrapped around my ankle as it tried to pull me towards the door. It glanced back at me, and I caught a glimpse of its pure black eyes with tiny white pupils; a wide smile split its face, revealing crooked, dirty teeth.
+
+
+
+I screamed and grabbed the knife under my pillow, violently swinging it in the air. It turned to face me, a look of shock on its face, as if it didn’t expect me to be awake, but it was quickly replaced by a smile; it then released my leg and calmly backed towards the door. It gave a little wave and then walked out, shutting the door behind it.
+
+
+
+The moment the door closed, I worked to cut the zip ties. Adrenaline made it quick work; setting into my slippers, I opened the bedroom window and climbed out, lowering myself down and dropping the remaining four feet, twisting my ankle in the process, but that didn’t stop me I limped my way down the street as fast as I could.
+
+
+
+I found myself mindlessly limping down the streets at 3 AM after fighting and losing the battle for my house. I dragged myself through the sleeping town; the cold autumn air pricked my face as the town's streetlights flickered above my head. In the distance, the warm fluorescent glow of a lone store lit up the darkness.
+
+
+
+It was the pharmacy.
+
+
+
+The same one that started all this, the one I couldn’t find in the daylight.
+
+
+
+I flung the door open and was greeted by the same musty-sweet smell and calming jazz. The same man was behind the counter; he lowered his newspaper and smiled.
+
+
+
+“Welcome back. How are you sleeping?” he asked in a pleasant tone.
+
+
+
+I stared at him for a moment.
+
+
+
+“How do I make it stop?” I whispered as I stared at him unblinking.
+
+
+
+He stared back with a warm smile, though the muscles in his cheeks twitched slightly.
+
+
+
+“Did you take the pill?” he asked.
+
+
+
+“Yes.”
+
+
+
+“Well, the effects last six months,” was his direct reply.
+
+
+
+My eyes lowered to the floor.
+
+
+
+“Where is it taking me?” I asked without looking at him.
+
+
+
+He chuckled.
+
+
+
+“You never know where a good night’s sleep will take you.”
+
+
+
+I yawned.
+
+
+
+“Looks like your still tired, you should probably get going.”
+
+
+
+Another yawn followed.
+
+
+
+He pointed down the street.
+
+
+
+“There’s a hotel down the street, if I were you I’d head there.”
+
+
+
+I couldn’t look him in the eyes but I was sure he was smiling widely. I turned to leave.
+
+
+
+“Sir.” He said as I reached the door.
+
+
+
+I turned back to him.
+
+
+
+“You owe us $13.49 for the pill.”
+
+
+
+I clenched my jaw and walked back to the counter to pay.
+
+
+
+“Sweet dreams.” He said as I exited.
+
+
+
+I'm writing this as a warning: if you see anything made by Doc Harden, avoid it.
+
+
+
+I'm in a hotel now. I don't think the thing ever intended to take me back home. It was waiting for me to fall asleep again.
+
+
+
+I can barely keep my eyes open. I wanted to write this before sleep claims me.
+
+
+
+Because I don't know where it will take me.
