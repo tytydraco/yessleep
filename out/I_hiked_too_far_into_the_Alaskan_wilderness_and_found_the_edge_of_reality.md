@@ -1,0 +1,49 @@
+Have you ever noticed how your eyes play tricks on you when you look at the horizon? It feels like the world is endless. You get in a car, drive for days, weeks—and the road just keeps going. They taught us in school that the Earth is a round ball floating in space. We take it for granted. We assume it is all real.  
+   
+I believed that too. Until last summer, when I decided to get as far away from people as possible.  
+   
+I threw a tent in the trunk and headed north, deep into the Alaskan wilderness. I wanted to go where there are no roads, no GPS, no cell service—just a wild forest for hundreds of miles. I hiked for two days along old, abandoned logging trails, navigating only by a compass. It was all the same: spruce trees, moss, gray boulders, and a complete, crushing silence.  
+   
+Everything went to hell on the third day, when I turned back.  
+   
+I’d been walking south for a few hours when I noticed a strange feeling. The birds weren't singing. Not at all. The wind wasn't moving the tops of the trees. The forest around me felt... too perfect. Every tree stood exactly where it was supposed to, but when I looked closer, I realized the bark pattern on the birches was repeating. Identical. Like they were stamped from a mold.  
+   
+Then I tripped and fell face-first into the moss.  
+   
+There was no pain. Instead of soft, damp earth, my face hit something hard with a dull, plastic thud. I sat up, shoved my fingers deep under the green carpet, and pulled.  
+   
+The turf peeled away from its base with a light crack, like old linoleum. Beneath it, there was no soil, no roots, no worms. Just smooth, matte, gray plastic.  
+   
+In a panic, I lunged for the nearest spruce. I pulled out my knife and sank it into the trunk with all my strength. The blade chipped against the core with a nasty screech. I yanked the knife back out—not a single drop of sap bled from the cut. The inside of the tree was completely hollow. Just molded plastic wrapped in a thin layer of fake bark.  
+   
+I wasn't in a real forest anymore. I don't know where the real Alaska ended, but I had crossed a line into something that wasn't meant for human eyes.  
+   
+In a blind, frantic panic, I ran. I completely lost my bearings, sprinting blindly through the fake brush until my lungs burned. Suddenly, the forest ahead just stopped.  
+   
+There was a wall.  
+   
+A massive, towering vertical slab made of the same cold, gray material. The forest ended right against it, like wallpaper in the corner of a room.  
+   
+I walked closer, breathing heavily, and pressed my palm against the smooth, dead panel. That was when the real horror hit me—the silence. I gasped for air, and the sound of my own breath didn't travel. It didn't fade into the trees. It hit a flat, dead boundary above and snapped straight back down into my ears, muffled and flat, like I was shouting into a pile of heavy wool blankets. I was trapped in an enclosure. A cage designed to look like the wild.  
+   
+And then, the structure shifted.  
+   
+It wasn't a sound at first. It was a low-frequency, seismic vibration that rattled the bones in my chest. Something outside was moving along that wall, taking heavy, tectonic steps that made the plastic trees shudder. It was checking on the perimeter. And at some point, the deep vibrations stopped right in front of me.  
+   
+I froze, afraid to breathe. And suddenly, right above my head, came a terrible, grinding sound.  
+   
+A thin strip of light appeared in the smooth gray wall. Something outside, with massive, unimaginable fingers, was picking at the seam between the panels, trying to look inside. A blast of wild, dead cold and mustiness hit me from the gap, so intense it knocked the breath out of me. It was the air from whatever world lies outside this room.  
+   
+I cowered on the plastic moss, covering my head. I felt the weight of a gaze. Someone or something was peering through the crack right now, looking at me like a child looks into a jar of bugs.  
+   
+I didn't pass out. The world didn't fade to black. Instead, my foot simply hit empty air. One second I was pressing my back into the gray panel, and the very next millisecond my boot slammed into the solid, crumbling asphalt of the highway where I had parked days ago. The transition was instantaneous, without a single frame in between. The forest was gone. I was just placed back where I was "supposed" to be.  
+   
+Now I'm sitting in my city apartment, staring at the concrete walls. I haven't left my room in three days.  
+   
+The worst thing happened this morning. I walked to the window and looked up at the sky. The sun was shining as usual, but in the very center of the blue sky, right above the high-rises, I clearly saw something I had never noticed before.  
+   
+Up there, at a huge altitude, a thin, barely visible layer of gray household dust stretched across the light. It wasn't a cloud. It was settling on the inside of a lens, or a ceiling.  
+   
+I stared at it for hours until it finally hit me. The air always feels so heavy and stagnant in this city for one simple reason. They just haven't dusted the sky in a very, very long time.  
+   
+I need you guys to do me a favor. If anyone is near the northern logging trails in Alaska, or even just walking through a local park today—go to the trees. Dig your fingers into the dirt. Hit the bark with a rock. Tell me it's real. Tell me you found soil and sap. Because I can't shake the feeling that whatever put me back in this apartment is still watching through the glass. 

@@ -1,0 +1,119 @@
+There is this thing on the wall of our apartment. I think it's always been there, I just hadn't noticed it before.
+
+It's circular, like a smoke alarm, though yellowed a bit with age. The plastic is the cheap, 80s kind that will crack if you look at it wrong. It has one red light, right in the center, that is always on. It's never made a sound, never chirped before like a smoke alarm needing a battery change. It's just always been kind of...there.  
+
+One night, about a month ago, my husband and I were jolted out of sleep by the sound of a loud alarm. It's hard to describe it, apart from the fact that it was loud and unlike anything I'd ever heard before outside of a movie. This sounds insane but the closest I can come to describing it is like a mix between the siren on an aircraft carrier announcing an incoming missile attack, and when a laboratory alerts workers about a biohazard. It was that loud.
+
+After reassuring ourselves that it hadn't been an Amber Alert or severe weather warning from our phones, we got up to investigate, blinking in that confused, immediate post-sleep way. It had sounded like it had come from the hall, so that's where we went. The thing was there, on the wall, like usual, except the red light was blinking. Blink. Blink. Blink. Once every second or so.
+
+There was no smoke, no steam heat, nothing that would have set it off, if it had been a regular fire alarm. The other two in the house were silent.
+
+Then the alarm sounded again. That's the last thing I remember before waking up the next morning, in bed.
+
+My husband woke up at about the same time and we immediately began talking of the events of the night before. He also recalled hearing the alarm for a second time, but couldn't remember anything after that.
+
+Later that day, I sent a picture of the thing to our landlord. I didn't expect much; he wasn't exactly the most accommodating of landlords. He claimed it was a run-of-the-mill smoke alarm and said the loud noises might be a battery issue.
+
+After closing out of the message, I pulled out the kitchen stool and climbed up to reach the thing. The red light was still on, though not blinking anymore. There was no writing, no factory label, not even a "danger" warning against removing it. I put my hands on either side of it and twisted. Nothing. I twisted harder. Still nothing. I twisted hard enough that any normal piece of plastic would have cracked. Nothing. There wasn't any sort of give to the device, no flexibility. It was like trying to move a stump or a boulder. 
+
+I gave up. If the alarm woke us again, I told myself, I'd beat it off the wall with a broom.
+
+Nothing happened for the next few days, though I could barely sleep out of worry it would happen again. I hated loud noises, and my nerves were shot.
+
+Then, one night, it happened. The alarm blared. I sat bolt upright, my heart in my throat, and looked over at my husband, whose chest was rising and falling like he'd run a mile, his eyes wide. 
+
+I threw off the bedclothes and stomped to the kitchen. I'd be damned if I let this thing continue to ruin my sleep. I was exhausted and I didn't have the luxury of sleeping this late-night fright off tomorrow morning. I grabbed the broom from its place between the fridge and the wall and came back to the hallway, where my husband was standing, rubbing his eyes.
+
+I raised the broom into the air and brought it down with a crack onto the thing. Nothing happened. The light was blinking and continued to blink, lazily, almost, as if completely unconcerned by my assault. I hit it again. Again. Again.
+
+And then the alarm went off for the second time. And again we awoke the next morning, remembering nothing.
+
+I called up the landlord and explained I couldn't get the thing off the wall or turn it off, and then I brought up the possibility of a carbon monoxide leak due to the blackout incidents. That mobilized him, and he came over that evening to take a look. He brought a portable carbon monoxide monitor and went room to room, finding nothing of concern. Then he came to stand beneath the thing. He didn't reach up to touch it. He just stood below it, a finger over his lips as if considering a challenging mathematical equation.
+
+He asked if I'd tried to take it down, which I confirmed. He asked how many times it had woken us up. And then he asked something strange. He asked if we'd heard anything coming from the thing between the alarms.
+
+"Like what?" I asked.
+
+He shrugged and started heading towards the door, assuring me he'd contact the company about the issue. It was unclear what company he was talking about.
+
+We aren't too friendly with our neighbors. One of them is a college student who thinks 3am is a good time for a toke and a loud Bob Marley session and the other is an elderly woman who has called the landlord on us twice over suspicions that we're keeping an unauthorized cat in the apartment. Still, I wanted to make sure we weren't crazy. I went to the elderly woman's apartment and asked her if she had heard the alarm the night before, and several days ago. She said, suspiciously, that she had not. I then asked if she a spare minute to check something out at our place. Clearly eager to confirm the presence of the illicit cat, she agreed.
+
+I brought her to our hallway and pointed up at the thing, asking her if she had anything like this in her apartment. She said she did not. I explained to her about the alarm and how it had been driving us nuts and how the landlord had been no help.
+
+"Did you hear anything? Between the alarms?" she asked me as she stared up at it, her eyes wide and unblinking. I said I had not. She nodded, still staring hard at the thing, then apologized for not being able to help me, and left. 
+
+I decided to take matters into my own hands. The stress of having it there, the possibility of it going off again randomly in the middle of the night was too much to bear. I climbed up again onto the kitchen stool with a butter knife, trying to slip the blade between the thing and the wall. It had to have been painted over or something because there was no seam. It appeared to have molded into the wall, becoming part of it.
+
+That didn't deter me. I started to chip away at the plaster, digging carefully at first and then gouging it recklessly as I tried to get the blade in. Finally, after I have no idea how long, I managed to wedge the blade under the thing. I jiggled and jimmied, attempting to separate it from the wall, but it was like trying to remove a suction cup--the opening resealed every time I moved the knife.
+
+After several minutes, sweat beading my forehead, I was able to pry it off. 
+
+I don't know what it was expecting to be behind it. A camera? A secret lab? A portal to another dimension?But it was just...wall. I laughed to myself as I looked down at the thing in my hands, lightweight and inoffensive, and hiding nothing inside it but a crusty battery and tangle of wires. The red light was still on. I took it to the sink, put it under the faucet and turned on the water. We had two other smoke detectors. We'd be fine.
+
+That's how my husband found me, chuckling to myself as I drowned the alarm. 
+
+Three nights later, the alarm went off again. Like the other times, we woke up, looked at each other in confusion and went into the hallway.
+
+The thing was on the wall, looking none the worse for wear. The damage I'd done to the wall seemed to have disappeared and the red light blinked at us in a mocking way. How had it gotten back up there? After I'd destroyed it, I'd put it in the trash, and then took the trash out, and the garbage truck had come the next day. It wasn't possible. It wasn't possible. And yet there it was.
+
+I looked at my husband, tears pricking my eyes. He looked back at me in dumb horror.
+
+And then the alarm went off again. When we woke up the next morning, we clung to each other as I heaved massive sobs into his chest.
+
+We took the day off from work to discuss what to do. We could leave, stay at a hotel for a few days. We didn't have any family close by and we'd need to stay in the area for work. But that would be tough to swing on our budget, and the thing would likely still be there when we got back. 
+
+My husband suggested we get a camera. That way, we could at least figure out what was happening to us after the second alarm.
+
+He bought two of those tiny, inexpensive nanny cams that would upload the footage to our phones. We spent the rest of the day figuring out how to position them. We settled on having one facing the bed and one positioned in the hallway.
+
+We also discussed the timing of the alarms. There didn't seem to be any rhyme or reason to them. They had happened anywhere from midnight to 4am. There was no identifiable spacing between the days. Once had been on a weekend, twice on weekdays. It seemed random, which only added to the apprehension. But, when it happened again, at least we would be able to solve part of the mystery. 
+
+Nothing happened for several nights. But we'd been lured into a false sense of security before. I would stay awake until the wee hours of the morning, eyes wide and staring at the ceiling, waiting. I could feel my husband beside me. He was faking sleep, I knew. His body was as rigid as mine, his breathing as uneven. Every night we lay that way.
+
+I kept replaying the conversations I’d had with the landlord and our neighbor. When the alarm came next, would I hear something? Had they been telling me, indirectly, what would happen? What to look out for? It felt like I was supposed to hear something, like I needed to listen. That if I listened, I would hear what I needed to hear. Something would be revealed and I would understand. And then I could sleep again.
+
+The alarm went off again one night. Again, we got up to investigate. And this time, I listened. I listened because I wanted to hear. There was something I needed to hear. There was something I needed to know and I would learn by listening. I reached out a hand towards the thing and felt my husband do the same thing beside me. But I heard nothing. And then the alarm went off again.
+
+The next morning, our eyes popped open at the same moment. My husband grabbed his phone from the nightstand and with shaking hands opened the app to view the camera footage from our bedroom from the night before. He scrolled to the moment we jumped out of bed and walked out into the hallway, at 3.12am. At 3.15 we walked back into the room. My husband went to his side of the bed and I went to mine. We just stood there, facing outward from the bed towards the walls, eerily still, no fidgeting. This went on for several minutes. We cast incredulous glances at each other and went back and forth reassuring each other we had no memory of this.
+
+As I squinted down in disbelief at the phone, I noticed something. I saw my mouth moving. I told my husband to turn up the volume as loud as it would go, but I had been whispering and we couldn't make out the words.
+
+Suddenly, very slowly, and at the exact same moment, we had lifted our arms out to the sides, forming Ts with our bodies. Then, we had begun to move in lockstep. In sharp, precise motions, we brought our hands to our chests, then pushed the hands together and outwards in a bladelike motion, then raised our arms over our heads, where we held them for several long minutes. My husband pointed out that he, too, had begun whispering something but we couldn't hear what he was saying, either.
+
+After a while, we began the movements again, with the motions remaining crisp but going faster and faster until finally, exactly 32 minutes after we had re-entered the room, we dropped our arms at the same moment, lay down and curled up to sleep. We watched it again and again, my stomach roiling as I saw myself perform the movements and whisper the words that I couldn't hear and had no meaning to me…but which began to make a strange sort of sense in my head. And the movements…the symmetry, the precision. It was beautiful, in an odd way. The whispers coming from our mouths were a comfort. While indecipherable, they were like a caress to my ears.
+
+We sat in silence for a long time after that, exhausted and confused and frightened. We agreed that it was an impossible situation, that this shouldn't, couldn't be happening. That we needed to find a way out. But though we expressed these ideas, we slowly realized that we didn't have a way out. We couldn't leave. There was always a reason not to, though it was challenging to articulate. We had to stay, of course, we had to stay. There was no choice. It was our duty to stay. We had to finish it.
+
+We didn't know what "it" was, but it needed to be finished.
+
+Over the next couple of days, we slept little and did not leave our room. Even during the day, we were afraid we would miss something important, something that we had been missing when we were at work or at the store or on a walk. Something was happening inside the house and we had to be there to see it. Cameras would no longer work. We had to see it ourselves. We had to hear it.
+
+I spent much of the time going over and over the movements I had seen myself doing in the video. We would both rewatch the video, noting the symmetry, the perfection with which we carried out this odd yet vitally important ritual. 
+
+At one point, something inside told me we could make the moves more perfect. My hands, for example, should be more pointed during the blade motion, but due to a childhood injury, I couldn't straighten one pinky. I ran to the kitchen and came back with the shears and explained my wishes to my husband. It took quite a long time and naturally it was agonizing, but my husband was able to sever my pinkies from both hands. As I sobbed and cradled my hands to my chest, I begged him to even out the work by cutting off the first knuckles of the middle fingers, as it was longer than the others, as well as my thumbs. It was painful, but it was also right.
+
+The alarm did not go off but we waited for it, obediently. Ready. Willing.
+
+The next day, as we watched the footage, I told my husband that while my voice sounded crisp and sharp in the footage, he sounded like he was mumbling. Perhaps it would be a good idea to figure out how to improve his pronunciation. After sitting with it a while, we decided it would be better if he didn't have lips.
+
+We giggled over it, over our silliness of not understanding before, because it now seemed so obvious. He used the kitchen shears on himself as we sat, face to face. When he began screaming after the first cut, I held his face with my remaining fingers and told him how beautiful he looked, how perfect. Soon there was just blood and sinew and his white, white teeth, ready to say the words. 
+
+The alarm did not go off but we waited for it, obediently. Ready. Willing.
+
+My hands were red and white and yellow and excruciating but I was joyful. My husband's nose went the same way as his lips, both of us agreeing his head needed to be more streamlined. He had helped me to cut the layer of skin, fat and muscle from my underarms, which I saw had jiggled nastily as I performed the motions in the video. We had stopped eating because the kitchen was close enough to hear the alarm but far away from where we needed to be when it went off.
+
+The alarm did not go off but we waited for it, obediently. Ready. Willing.
+
+I’m not quite sure how many days it has been. My husband has been unable to get out of bed. He has soiled himself several times and I am disgusted with him, the piss and shit leaking onto the floor as he moans into his pillow. Doesn't he understand? Doesn't he understand that he won't be ready if he goes on like this? You don't see me complaining, you don't see me wallowing in my own feces as I wait, patiently. The room stinks of shit and rot but I can't open the windows, because I might not hear. I might not hear what it has to say and I have to hear. I have to.
+
+He is hot to the touch now. I know we must do this together but the thing will understand that there was nothing I could do. It will understand. How sad it is, to perfect oneself, to overcome so much and then stumble at the finish line. Because we are close, I can feel it.
+
+The alarm goes off that night. I rise, ready, excitement making me tremble or maybe that is the blood loss and lack of food and sleep but I am ready. My husband does not rise with me, though I see him rock back and forth in the attempt. If he will not come with me, I will go alone.
+
+I walk out into the hallway. The eye blinks down at me, benignly, like it's welcoming me, like it's finally awake and saying hello. Hello. Hello. Hello.
+
+I stare up at it. I can hear it. I can hear it, it's trying to talk to me. It's telling me all the things I've always wanted to hear, I'm sure of it. I get closer. It's not a whisper so much as it is waves of sound that I can't parse, like a language that's close enough to English to recognize but far enough away that I can't make sense of it.
+
+But I have to make sense of it, I must. I step closer. Yes, I think it's becoming clearer now. I can hear it. It's saying my name like a lover.
+
+The alarm goes off a second time.
