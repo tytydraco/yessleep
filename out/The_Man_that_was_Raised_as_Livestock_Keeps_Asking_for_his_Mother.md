@@ -1,0 +1,661 @@
+Where it all started: https://www.reddit.com/r/nosleep/s/3aTVJJnyAm
+
+The first word I heard Seventeen say was “Mother.”
+
+I was sitting on the floor of his hospital room when it happened. He had his forehead pressed into my palm, and I was running my fingers through his hair. His eyes were closed, his breathing had slowed, and for the first time since we’d pulled him out of that slaughterhouse, he looked comfortable.
+
+Then someone walked past the door, and everything changed.
+
+He jerked his head up. His eyes followed the footsteps into the hallway, and he made the humming noise I’d heard at Coldwater. His mouth barely opened. The sounds came out low and breathy, one after another.
+
+“Hmm. Hmm. Hmm.”
+
+I asked whether he was looking for somebody. He studied my face, then opened his mouth and forced out a word.
+
+“Mother.”
+
+It was rough and uneven, as though he hadn’t spoken in years. I asked if he was looking for his mother, and his face brightened. He began trembling and grabbed my forearm with both hands, nodding so hard I was afraid he’d hurt his neck.
+
+I didn’t know what to say. He was looking at me with so much hope that I couldn’t bring myself to tell him I had no idea where she was.
+
+So I told him she was coming.
+
+Maybe I thought it would calm him down. Maybe I just couldn’t stand his expression. Whatever my reason, I watched him believe me, and I’ve had trouble living with that ever since.
+
+He scrambled toward the door before I could stop him. His legs couldn’t support him, so he moved on his hands and knees, dragging one foot behind him. He hummed faster, glancing back every few feet to make sure I was following. He was smiling. There was something awful about seeing a grown man that happy over something I’d said without thinking.
+
+A nurse came down the hall with a cart, and Seventeen raised himself onto his knees and reached toward her.
+
+“Mother?”
+
+She stopped and looked at me. I tried to explain, but Seventeen had already caught the hem of her scrub top.
+
+She crouched and asked whether he wanted help getting back to bed. He studied her face so intently she stopped talking. Then his smile disappeared. He leaned sideways to look past her into the hallway.
+
+“Mother?”
+
+Nobody answered.
+
+He tried to crawl around her, but I caught him under the arms. He fought to get free, twisting toward every door that opened, every pair of shoes that passed. I kept telling him it was okay, although I was the reason he thought somebody was coming.
+
+Eventually he stopped struggling and sank onto the linoleum. He began making a thin, breathless sound. At first I thought he was trying to speak again, but his shoulders started shaking.
+
+He was crying.
+
+I sat beside him and reached for his shoulder. He knocked my hand away. When I tried again, he covered his head with both arms and curled against the wall, fingers spread across the back of his skull and elbows pressed together until I couldn’t see his face.
+
+A few minutes earlier he’d been leaning into my palm. Now he wouldn’t let me touch him, and I couldn’t tell whether he was angry or afraid he’d done something wrong.
+
+The nurse called for help. Between the three of us, we got him back to his room. He watched the doorway until someone closed it, then turned toward the wall.
+
+I stayed another twenty minutes. Once, he lifted his head when somebody spoke outside, but when the footsteps passed, he lowered it again. He never looked at me before I left.
+
+That happened Friday afternoon.
+
+By Friday night, Sam was missing, and I was beginning to understand that the worst thing we’d done at Coldwater Packing might not have been opening that hidden door.
+
+It might have been taking Seventeen away.
+
+For anyone who didn’t read my first post, my name’s Cal Mercer. I’m thirty-eight, divorced, and I run a small demolition company that’s been two late payments away from going under for most of the past three years.
+
+Last Thursday, my crew and I were doing preliminary work at an abandoned meat-packing plant called Coldwater Packing when we found a room that wasn’t on the building plans.
+
+There were three livestock pens inside. In the last one was a man who’d apparently spent most, if not all, of his life being kept like an animal. He wore a leather wristband with a metal tag stamped 17-B. His hands and knees were covered in thick calluses, and his legs were so badly deformed he couldn’t stand properly.
+
+We got him out, although he fought us almost the entire way.
+
+Behind the pens, police found what looked like a caretaker’s living quarters, along with photographs of Seventeen growing up. One showed him as a little boy, asleep against something enormous and pale. Whatever held him had six fingers, and the boy was smiling.
+
+I keep coming back to how relaxed he looked in that photograph. His weight was resting completely against that thing. Whatever it was, he trusted it enough to sleep in its arms.
+
+The police kept us at Coldwater until late Thursday afternoon. They took statements, photographed our equipment, and made us leave some tools behind while they processed the building.
+
+Sam was pissed about the inspection camera. It was borrowed, and neither of us could afford to replace it.
+
+“It’s fifteen hundred bucks, Cal. I borrowed it from my brother-in-law,” he told me while we loaded the equipment they’d released.
+
+“They’re not keeping it forever.”
+
+“That’s easy for you to say. You don’t have to explain to Hector why his camera’s sitting in an evidence locker.”
+
+I was sitting on the loading dock, trying to get the smell of that room out of my nose. I hadn’t eaten since breakfast, my back hurt, and I could already picture the county refusing to pay us for the day’s work.
+
+I snapped at him and asked who gave a shit about a camera when we’d just found a person living in a fucking cage.
+
+Sam stood there with a ratchet in one hand and a canvas tool bag in the other.
+
+“Yeah, Cal. I was there.”
+
+He went back to loading the truck.
+
+I knew I’d been an asshole. Hell, I’d used my personal credit card to fill the truck that morning because our business account was empty. Sam had a family and bills of his own. But instead of apologizing, I sat there feeling sorry for myself until he came back and leaned against the dock beside me.
+
+“You notice something about those other pens?” he asked.
+
+I said they were empty, but he shook his head.
+
+“The straw was clean. Both troughs had food in them. Somebody changed the bedding recently.”
+
+He rubbed at a dark stain on his hand. He’d washed it twice, but whatever it was had worked into the cracks around his knuckles.
+
+“So where’d the others go?”
+
+I didn’t have an answer.
+
+A deputy stood outside the loading bay while another officer stretched crime scene tape across the entrance. Sam watched them for a moment.
+
+“What are we supposed to do if there were children in those other pens?”
+
+“We don’t know anybody else was there.”
+
+“There were three pens, Cal. Two had fresh bedding and food. Somebody was taking care of something in there.”
+
+“That doesn’t mean there were kids, Sam.”
+
+He gave me a look I’d seen plenty of times. “Don’t act like I’m stupid because you don’t want to think about it.”
+
+That shut me up.
+
+We waited until they let us leave. I kept looking toward the loading bay, remembering the water in those troughs. There’d been dust on almost everything in the building, but the water had been clear. Somebody had filled them recently.
+
+I hadn’t mentioned that to Sam.
+
+He drove the equipment truck, and I followed in my pickup. I called him twice on the way home. The first time he didn’t answer. The second time he said he was almost back at the shop. I thought about apologizing, but somehow ended up asking him to make sure Tyler locked everything up.
+
+That’s the sort of thing I do. I recognize when I’ve been an asshole, spend half an hour thinking about it, and avoid doing the one thing that would make it better.
+
+My daughter called while I was sitting in the driveway. Nora’s fifteen. She lives with her mother, and lately our conversations have consisted mostly of me promising to show up for things and her pretending she believes me.
+
+“Are you okay?” she asked.
+
+Her mother had seen a post about Coldwater on Facebook, with police cars and an ambulance. I told her we’d found somebody and he’d been taken to the hospital.
+
+“Was he hurt?”
+
+I started to say he’d be okay, then realized I didn’t know.
+
+“He’s getting taken care of.”
+
+She wanted to know what had happened. I told her the police were investigating and I couldn’t discuss it. That was true, although I was grateful for the excuse.
+
+After a pause, she asked whether I had to work all weekend.
+
+“I don’t think so. Why?”
+
+“Nothing. Just asking.”
+
+I knew that tone. She’d wanted to ask me something and changed her mind. I offered to do something with her Saturday, and she said she’d let me know. We talked about school for another minute before she said she had homework.
+
+Afterward, I sat in the driveway thinking about how easily I’d managed to disappoint her without actually doing anything wrong that day.
+
+I showered until the water went cold. Beneath the rotten-meat smell of Coldwater had been something sour and almost sweet, like spoiled milk, and I couldn’t get it out of my nose. I washed my hair twice, then put everything I’d worn that day in a garbage bag outside.
+
+That night, I dreamed I was back in the room with the pens. The first two were empty. Seventeen sat in the third with his back to me, humming. I called his name, and he turned around.
+
+He had a woman’s face.
+
+I woke around four with my heart pounding and didn’t get much sleep afterward.
+
+Friday morning, Detective Vale called and asked whether I’d visit the hospital. Seventeen had been getting agitated whenever the staff tried to move him from the floor onto the bed. He retreated from medical equipment and covered his head when people approached. Someone on his care team thought seeing a familiar face might help.
+
+I wasn’t thrilled about going back, but I kept thinking about how frightened he’d been when we took him out of the plant. Vale said a social worker would be there and nobody expected me to do anything except talk to him.
+
+When I arrived, he was sitting on a blanket beside the hospital bed. Someone had given him gray sweatpants and an oversized T-shirt. His hair had been washed, and his fingers were bandaged.
+
+Without the dirt and leather band, he looked different. Not normal, exactly, but less like a figure from the slaughterhouse and more like a terribly neglected man. I could see the gray in his beard and the deep creases beside his eyes. He was older than I’d realized.
+
+The nurse said he’d hardly eaten. He’d drink from a cup if somebody held it for him, but when she’d offered him a spoon, he’d dropped it and crawled under the bed.
+
+I crouched a few feet away and said hello. He watched me before moving closer, sniffing my fingers and pressing the top of his head into my palm.
+
+I didn’t know what else to do, so I scratched his hair.
+
+That’s how I ended up sitting on the floor when he spoke.
+
+After what happened with his mother, I left the hospital feeling worse than when I arrived. A nurse assured me he’d settle down. I kept seeing the way he’d covered his head when I tried to comfort him.
+
+Vale was waiting near the elevators. She’d heard what happened from the social worker, and I told her about the word he’d used.
+
+“He understood me. He thought I was going to bring her.”
+
+“What exactly did you tell him?”
+
+When I admitted I’d said his mother was coming, Vale frowned.
+
+“Cal, we don’t know who his mother is.”
+
+“I know that now.”
+
+“No. I mean we don’t know whether the person he calls his mother is related to him. We don’t even know if that’s what he means by the word.”
+
+I asked whether they’d identified anyone from the photographs. She said not yet, but there were some things she wanted me to see. Investigators were trying to map modifications to the building, and my crew had been through areas that weren’t on the drawings.
+
+She asked me to stop by the county’s temporary investigation office. I had nothing waiting at the shop except bills and customers asking when their jobs would be done, so I agreed.
+
+The office was fifteen minutes from the hospital. Vale took me into a conference room where another investigator had spread old construction plans across the table. Someone had left two cups of coffee near the window, and the room smelled of burnt coffee and overheated carpet.
+
+Vale explained that some alterations at Coldwater were relatively recent, but others were old enough that nobody could tell whether they’d been part of the original construction. She wanted help identifying equipment and passageways that weren’t shown on the plans.
+
+Before we started, she showed me several photographs from the room behind the pens. She asked whether I recognized any machinery or background details.
+
+One showed Seventeen as a little boy on a stained mattress. His hair was unevenly cut, he held a plastic cup in both hands, and a number had been written on the wall behind him.
+
+Another showed a child standing in a doorway. I couldn’t tell whether it was a boy or girl. The child wore an oversized hospital gown, with a band around one wrist. One hand was raised slightly, as if someone out of frame had told the child to wait.
+
+The third photograph bothered me most.
+
+An elderly woman sat against a concrete wall with her knees pulled to her chest. She wore a nightgown, and her hair covered most of her face. I thought she was sleeping until I noticed her hands pressed tightly against her ears. Beside her was a metal bowl, and a folded blanket lay just beyond her reach.
+
+I asked whether they’d found her. Vale said they hadn’t identified her, then turned the photograph over. There were letters, numbers, and a date on the back. Similar markings appeared on the other photographs, but investigators didn’t know what they meant.
+
+One of the records recovered nearby mentioned an individual identified as 09-A. The entry was filed beneath a heading that read “Maternal Contact.”
+
+I asked if that meant they’d found Seventeen’s mother.
+
+“It means somebody associated 09-A with maternal contact,” Vale said. “We don’t know anything more than that.”
+
+She let me look at a photocopy while the other investigator checked the plans. Most of it was columns of abbreviations. Some entries recorded meals. Others listed periods of separation, corrections, and something called affection privileges.
+
+I asked about the last one.
+
+“We’re still working through the terminology.”
+
+I read what I could. Somebody had recorded how long Seventeen could be separated from his assigned caretaker before he stopped eating or began calling out. There were times written beside those entries, sometimes down to the minute. In another column were measurements of how quickly he settled when physical contact was restored.
+
+One entry described affection being withheld after “noncompliance.” A number beside it showed how long the punishment had lasted.
+
+The paperwork reminded me of something I’d read about training dogs. You rewarded a behavior you wanted repeated. Whoever wrote these notes hadn’t treated Seventeen’s distress as something to comfort. They’d treated it as a useful result.
+
+I remembered him pushing his head into my palm at the hospital. I’d scratched his hair because he seemed to like it. Somebody else had been keeping track of how long they could deny him that touch before he’d do whatever they wanted.
+
+Vale said there was no proof the individual listed in the records was his biological mother. They didn’t know who or what had been photographed holding him as a child, or whether 09-A had ever cared for him directly.
+
+I thought about him crying at the hospital door. Maybe he wanted the person listed in the records. Maybe he wanted whatever had those six fingers. For all I knew, he’d never met the woman who gave birth to him.
+
+I was staring at the photograph of the little boy when Vale asked whether I was all right. I said I was, and she folded the papers away.
+
+Then she showed me the building plans.
+
+I recognized the old refrigeration section, the corridor where we’d worked, and the hidden room. Vale pointed to another space behind one of the large refrigeration units, several rooms from the pens. Investigators had found a reinforced access point that seemed to lead beneath the processing floor.
+
+I asked whether there was a basement.
+
+“Possibly. We haven’t determined the extent of it.”
+
+The floor was unstable, and part of the area still had live electrical service. They were bringing in structural and utility specialists before going any farther. That made sense. I’ve seen a rotten floor drop out from under a man who thought he was standing on solid concrete.
+
+“You’re telling me there’s another part of that building nobody’s been inside?”
+
+“Not yet.”
+
+“And you think somebody else might be down there?”
+
+“We have to consider it.”
+
+The access point had been concealed behind machinery. It wasn’t on the drawings, and there were fresh marks on the floor nearby, as though something heavy had been moved through the area. They couldn’t tell what, or when.
+
+I remembered the new wiring we’d found, the lights burning in that corridor, and warm air coming through the hidden door. Somebody had spent money keeping Coldwater running long after it closed.
+
+I’d walked through the place complaining about the stink and making jokes with the guys. Now I wondered whether somebody had been beneath our feet the whole time, close enough to hear us.
+
+Before leaving, I asked whether the building was secured. Vale said officers were controlling access, and neither Sam nor I was to go near it. I promised we wouldn’t, and I meant it.
+
+When I got home, Nora had texted about lunch at the little Italian place near the museum on Saturday. I said yes, then sat on my couch going through the photographs from Coldwater.
+
+Most showed ordinary demolition problems: rusted machinery, damaged supports, electrical panels somebody had repaired badly. I stopped on one Tyler had sent to our crew’s group chat Thursday morning.
+
+Sam stood under an overhead meat track with his hands on his hips. Behind him, a large machine sat against a concrete wall. Close to the floor, partly hidden by the machine, was a rectangular metal grate.
+
+I zoomed in. The grate was painted the same dirty gray as the wall. Most of the paint had chipped, exposing a dark stain beneath it, but the screws looked new. The machine’s feet had left pale scrape marks on the concrete, as if it had been moved recently.
+
+It was close to the area Vale had shown me on the plan.
+
+I sent Sam the photo and asked if he’d noticed the grate. Five minutes later he replied that he’d seen it Thursday. When I asked what it was, he said probably a vent.
+
+I mentioned the passage Vale had found beneath the processing floor.
+
+Several minutes passed before he answered.
+
+I know.
+
+I asked what he meant. When he didn’t respond, I called. Straight to voicemail. I tried again and stared at his last text. Sam wasn’t a cryptic-message kind of guy. He was more likely to call and explain something for twenty minutes when two would’ve done.
+
+I considered driving to his house, but Nora called before I made up my mind.
+
+She was working on a photography project for school. Her assignment was abandoned places: boarded-up storefronts, old houses, businesses with sun-faded signs. She’d been taking pictures with her mother and had found a house with furniture visible through the front window.
+
+“There’s a coffee mug on the table and pictures on the walls,” she said. “It’s weird because it looks like somebody should still be living there.”
+
+I pictured the room behind the pens. The lamp, the rug, the blanket folded over the chair. Somebody had made a home in that building, or something close enough to one.
+
+Nora stopped talking. “Dad? Are you even listening?”
+
+I apologized. She asked if I had to work Saturday. I said no and offered to pick her up for lunch. She agreed, provided I didn’t get busy and forget.
+
+“I won’t.”
+
+“Promise?”
+
+“I promise, Nora.”
+
+There was a little pause before she said she’d see me tomorrow. She sounded almost surprised that we’d made a plan.
+
+After we hung up, I made a sandwich and tried to watch television. I kept checking my phone. Sam had read my last message, but he hadn’t replied.
+
+At 10:47, just as I was about to call his wife, he finally rang. I remember the time because I looked at the clock and thought he was about to give me shit for calling him so late.
+
+I answered by calling him an asshole, which usually would’ve made him laugh.
+
+This time he didn’t.
+
+“Cal? Something’s wrong.”
+
+His voice was quiet and strained. Behind it was an echo and a steady, hollow dripping, like water falling into a metal sink.
+
+I asked where he was.
+
+“Listen to me for a second.”
+
+“Sam. Where?”
+
+“Coldwater.”
+
+I stood so quickly I nearly knocked over my drink.
+
+“What the hell are you doing? That’s a fucking crime scene.”
+
+“I know. Just listen, okay?”
+
+He sounded scared enough that I stopped yelling.
+
+He asked if I remembered the grate in Tyler’s picture. I did. During our exterior inspection Thursday, Sam had noticed an old drainage culvert on the creek side of the property. Brush and a retaining wall almost concealed it. A metal grate covered the opening, and the screws looked newer than the surrounding concrete.
+
+He thought it might connect to the system inside the building. When I’d told him about Vale’s discovery, he’d gone back to look.
+
+He’d parked along an overgrown service road near the creek, well away from the police cars at the main gate, and followed the bank to the culvert. Somebody had cut through its grate and attached it again with newer hardware. Behind it was a maintenance passage running beneath the loading dock.
+
+I asked if he was still outside.
+
+He hesitated.
+
+“Sam. Tell me you didn’t go in.”
+
+“I wasn’t going to. I just wanted to look, but I heard something.”
+
+“What?”
+
+“Somebody crying.”
+
+I went into the kitchen to find my keys.
+
+He’d heard the noise through the grate. At first he thought it was a cat, but then somebody called for help. He’d dialed 911, and the dispatcher told him to stay outside and wait for officers. He agreed.
+
+Then he heard the voice again.
+
+“It sounded like a little kid, Cal. They kept saying they wanted to go home.”
+
+I closed my eyes. “Jesus Christ, Sam.”
+
+“I thought if I could find them, I’d tell the cops exactly where to go.”
+
+He’d removed the grate and crawled inside. The culvert widened beneath the dock, with electrical conduits and old pipes sagging from the ceiling. At the end was a hatch partially concealed behind a rusted panel.
+
+He opened it, heard the crying more clearly, and climbed through. Instead of another drainage pipe, he’d found a passage leading farther beneath the plant.
+
+“Did you find whoever it was?” I asked.
+
+“No. I followed the sound, but it kept getting farther away. I thought I was going the right direction.”
+
+He’d gone through several corridors. Some were blocked by pipes or old machinery. Others opened into rooms full of equipment he didn’t recognize. He’d assumed the passages connected in a loop.
+
+They didn’t.
+
+Now he couldn’t find the hatch.
+
+I told him to retrace his footprints. He’d tried, but water covered parts of the floor, and every corridor looked the same. He said he was going to call 911 again, but he’d called me first because I knew the building.
+
+“Those rooms aren’t on the plans, Sam. I don’t know what’s down there.”
+
+“I know. I just…”
+
+He stopped talking. Beneath his breathing I heard water dripping, each drop carrying a longer echo than before. He’d been moving farther into the building while we spoke.
+
+“What if it’s somebody’s kid?” he asked.
+
+I thought about the photographs Vale had shown me. The little boy against that enormous pale figure, the child in the doorway, the elderly woman with her hands over her ears.
+
+Sam had a daughter too. Lily was eight, and he’d always worried about everything from what she ate to whether the bus driver checked the back seats. Once he’d driven almost forty minutes home during a job because Lily called to say she’d forgotten her stuffed rabbit before a sleepover.
+
+I understood why he’d gone inside. I also wanted to shake him.
+
+“You’re not helping anybody if you get trapped down there.”
+
+“I thought I could get them out before somebody came back.”
+
+“Before who came back?”
+
+“I don’t know. Whoever’s keeping them here.”
+
+I told him to stop moving. I was going to contact Vale, and he needed to stay wherever he was until the police found him. He agreed, but he was breathing harder now, and I doubted he’d heard half of what I’d said.
+
+Then he went quiet.
+
+“Sam?”
+
+“Wait.”
+
+A faint noise came through the speaker. I thought it was interference until it came again, a small, wet hitching sound, like somebody trying to cry without being heard.
+
+It sounded like a child.
+
+Sam whispered that it was the same noise he’d heard at the grate. I told him not to follow it, but his boots were already scraping over concrete. The crying grew louder as he approached.
+
+“Hey,” he called. “I’m not going to hurt you. I’m here to help.”
+
+The crying stopped immediately.
+
+Something clanged, and Sam swore. He’d found another room, he said, with a reinforced door and a little window like the ones we’d seen upstairs. I told him not to touch it, but he was already looking through the glass.
+
+“There’s a woman in here.”
+
+I asked if she was hurt. He couldn’t tell. She was sitting against a wall with her legs tucked beneath her, and she hadn’t moved since he’d approached.
+
+“Can she see you?”
+
+“I think so.”
+
+He raised his voice and told her the police were coming. I heard a faint rustling, but no answer. When he asked whether she’d been calling for help, something scraped against the other side of the door.
+
+“Cal?”
+
+“Yeah?”
+
+“She’s wearing one of those bands.”
+
+My mouth went dry. He said it was on her wrist, just like Seventeen’s, but he couldn’t see the number. Her head was tilted at an uncomfortable angle, and she wasn’t attempting to stand or come closer to the glass.
+
+I told him to back away and tell the police where he’d found her. Whatever condition she was in, he couldn’t help her alone.
+
+He didn’t respond.
+
+“Sam, are you listening?”
+
+“Something’s wrong with her.”
+
+By then I’d reached my truck. I stood beside the driver’s door, gripping the phone so tightly my fingers ached.
+
+“What do you mean?”
+
+“She’s smiling.”
+
+“Maybe she’s relieved somebody found her.”
+
+“No, Cal. She’s not looking at me.”
+
+“Then what is she looking at?”
+
+I heard his shoes shift on the concrete before he answered.
+
+“The hall behind me.”
+
+There was a metallic click, followed by a dragging noise. Sam turned. For a few seconds I heard only the steady dripping of water and his breathing.
+
+“There’s somebody down here,” he whispered.
+
+“Can you see them?”
+
+“Not really. My flashlight won’t reach.”
+
+Then I heard it too.
+
+At first I thought something heavy was being dragged along the floor. There was a hard slap against concrete, a scrape, then another impact farther along. Whatever was moving didn’t seem to use both sides of its body in the same way.
+
+Sam said something under his breath. He’d moved the phone away from his mouth, and I could barely make it out.
+
+“Jesus Christ.”
+
+I climbed into the truck and told him to get the fuck out. He didn’t answer. His breathing was coming through his open mouth, and the noises were getting closer. I could distinguish each movement now: a hard impact, a dragging scrape, a pause, then another.
+
+Sam took several steps backward.
+
+Then the woman laughed.
+
+It was a short, airy sound that I heard clearly through the phone. There was something almost relieved about it, like she’d recognized whoever was approaching. I don’t know why that frightened me more than if she’d screamed.
+
+A second later, Sam shouted for something to stay back.
+
+Something hit metal hard enough to make me pull the phone away from my ear. I heard him stumble, followed by scraping and several rapid impacts against the floor. Then he was running. His boots struck concrete, his breath broke into sharp gasps, and whatever followed him made those same uneven noises, only faster.
+
+“Cal!”
+
+I told him I was there. I asked where he was, whether he could see an exit, whether he could find somewhere to shut a door. He couldn’t seem to hear me.
+
+I’d known Sam for eleven years. I’d seen him break his wrist, take a wrench to the face, and fall through rotten flooring into a basement full of sewage. He’d almost lost two fingers in a hydraulic lift accident and still joked with the paramedics. Even when he got scared, he usually had something smart to say afterward.
+
+There was nothing like that in his voice now.
+
+Another crash came through the speaker. Something heavy hit the floor, and I heard Sam scrambling to get up. His boots or hands slipped repeatedly against something wet. Then he said four words that I’ve heard in my sleep ever since.
+
+“What the fuck are you?”
+
+He screamed.
+
+I’ve heard men scream when they’ve been badly injured. I know the sound someone makes when a machine catches a hand or a floor gives way beneath them. This was different. It sounded as though Sam had seen something so far outside his understanding that he couldn’t do anything except scream at it.
+
+Then he stopped.
+
+There was a dull thud, a brief scrape, and silence.
+
+I got out of my truck without realizing I’d moved. I stood with the driver’s door open, calling his name and telling him I was coming. I begged him to make any noise at all so I’d know he was alive.
+
+Water kept dripping somewhere in that underground room. I could hear it falling in the distance, but Sam didn’t answer.
+
+Then something made a wet tapping noise much closer to the phone. There was a scrape against concrete and the sound of something shifting its weight.
+
+The footsteps returned.
+
+They came more slowly this time, with that same hard impact and softer drag. They approached until whatever made them seemed to be standing directly beside Sam’s phone.
+
+I stopped talking because I wanted to hear what was happening. Some stupid part of me still hoped he’d fallen and somebody had come to help him.
+
+Something breathed into the microphone.
+
+It wasn’t Sam.
+
+The breaths were wet and irregular, with a little click between them. Every few seconds something brushed against the phone. I heard a scratch that reminded me of a fingernail moving across its plastic case.
+
+Then came a sound I recognized.
+
+“Hmm. Hmm. Hmm.”
+
+The humming stopped for a moment, then started again. I’d heard it in the slaughterhouse when we tried to get Seventeen outside, and at the hospital when he thought his mother was coming.
+
+I told myself it could be something mechanical. There was still power in parts of Coldwater. Pipes could knock. Old motors could whine. I knew none of those things made sense, but I needed there to be some other explanation.
+
+Another sound came through the speaker, deeper and louder. It might have been a voice, but I couldn’t make out any words. It was close enough to distort the microphone, and beneath it I heard a faint vibration, almost like a motor running somewhere in the room.
+
+The humming stopped immediately.
+
+There was a pause, followed by a wet, rattling breath. Then someone began making a quiet, reassuring noise.
+
+It was the sort of soft murmur you’d use to calm a frightened animal. It rose and fell in an affectionate rhythm. Whoever made it sounded patient, almost tender, as though whatever had just happened to Sam was finished and there was no reason for anyone to be upset anymore.
+
+I stood beside the truck listening to that sound until I realized I’d been holding my breath.
+
+I called Sam’s name once more, but nobody answered. A moment later the line went dead.
+
+I called him back twice and got voicemail both times. My hands shook so badly I nearly dropped the phone dialing 911.
+
+I told the dispatcher my friend was trapped beneath Coldwater Packing. I described the creek-side culvert, the hatch beneath the loading dock, the woman behind a locked door. I told her something had approached him and I’d heard him scream before the call ended.
+
+She said officers had been dispatched after Sam’s earlier call and asked whether he’d been attacked.
+
+“I think so.”
+
+“Did you hear another person?”
+
+I thought about that photograph, the huge pale hand across the sleeping boy, and its six fingers.
+
+“I don’t know.”
+
+She asked where I was. I told her I was at home, about fifteen minutes from Coldwater. She told me to stay there and promised officers would contact me as soon as they knew more.
+
+I said okay, then got into my truck.
+
+I know how stupid that was. I’ve replayed the decision a hundred times, and I still don’t know whether I would’ve done anything differently.
+
+Sam had been with me eleven years. He’d helped me start the company when I couldn’t afford an employee, worked weekends without pay when we were broke, and never complained about the hours we put in trying to keep the business alive.
+
+When my wife left, he showed up with a six-pack and sat on my porch while I complained about things that were mostly my fault. He didn’t offer advice. He just listened. Later, when I moved out, he stood in Nora’s empty bedroom holding a cardboard box she’d left behind and asked if I wanted him to put it in the truck. I told him to leave it. He didn’t ask why.
+
+He was the closest thing I had to a brother. I’d heard him scream, and I wasn’t going to sit at home wondering whether he was dying somewhere I might be able to reach him.
+
+I was about ten minutes down the road when my phone rang.
+
+Sam Ortega.
+
+I glanced at the screen and almost drove off the road. I pulled onto the gravel shoulder and answered before the truck stopped, asking where he was and whether he was hurt.
+
+Nobody answered. There was a little rustling, followed by a dry scraping noise. I told him the police were coming and that he only needed to tell me where he was. Something rubbed against the microphone.
+
+Then came a low exhale, wet and uneven, with a click at the back of the throat. I called Sam’s name again. For a moment I thought I could hear another person breathing farther away.
+
+A few seconds passed before somebody spoke.
+
+At first I thought it might be Sam. The voice was low and rough, and the first attempt came out so strangely that I couldn’t understand it. Whoever was speaking seemed to be struggling with the sounds, as if the mouth making them wasn’t accustomed to forming words.
+
+Then it tried again.
+
+“Good.”
+
+The word stretched oddly, with a pause before the last consonant. I sat gripping the steering wheel, listening to that wet, deliberate breathing.
+
+“Good.”
+
+Something shifted against the phone. I heard a faint scrape, then the careful intake of another breath.
+
+“Good boy.”
+
+It was softer this time. Almost affectionate.
+
+The call ended before I could respond.
+
+I sat on the roadside while cars passed. Somebody honked because my headlights were shining toward the opposite lane, but I barely noticed.
+
+All I could think about was Seventeen leaning into my hand at the hospital, closing his eyes when I scratched his head. I remembered those records too. The feeding schedules. The corrections. The notes about how he responded to affection.
+
+Whoever had kept him knew what made him happy and what frightened him. They’d measured how long they could leave him alone before he started calling out. They knew exactly when to comfort him, and when not to.
+
+The records didn’t describe affection as something a caretaker gave him out of love. They described it as a privilege he could lose.
+
+I wondered how often Seventeen had been frightened or hurt before somebody finally stroked his hair. How many times he’d learned that being good meant getting touched gently instead of punished. And how desperately he must have wanted to see the person who decided which he deserved.
+
+Maybe he really did love whoever raised him. Maybe that person loved him too, in whatever way something capable of those things could understand love.
+
+Or maybe he’d been taught that the person who hurt him was also the only one who could make the hurting stop.
+
+I remembered the woman behind the reinforced door. She’d sat motionless while Sam promised to help her, then smiled at whatever came down the hall. I wondered if she’d been relieved to see it, and what someone would have to do to a person to make her react that way.
+
+There was something else about the second call I couldn’t shake. The voice hadn’t sounded angry or excited. It hadn’t threatened me. It had sounded pleased with somebody, and I couldn’t stop wondering who.
+
+I called Sam again. It went to voicemail. I listened to his recorded greeting without leaving a message, then remembered the loading dock, the borrowed camera, and the way he’d looked at me when I pretended those empty pens didn’t mean anything.
+
+He’d been right to worry. Our last conversation face-to-face had ended with me making him feel like an asshole over fifteen hundred dollars.
+
+I started the truck and drove the rest of the way to Coldwater.
+
+Police cars filled the lot. Officers moved around the loading dock with flashlights, and an ambulance sat near the entrance with its rear doors open. I pulled beside a patrol car and told an officer who I was. He said somebody needed to speak with me, but I wasn’t allowed past the gate.
+
+I kept looking toward the building while he talked. Officers went in and out of the loading bay. Somebody called instructions over a radio. One officer hurried toward the ambulance, and for a second I thought they’d found Sam. But he only spoke to the paramedics before returning to the building.
+
+Nobody brought Sam out.
+
+I explained about the culvert and the hatch. The officer said they already knew, that teams were searching the accessible areas and specialists were on their way to examine the lower levels. I asked whether they’d found the woman behind the door. He wouldn’t tell me. When I asked if anybody had heard someone calling for help, he told me to wait by my truck.
+
+I wanted to grab his shirt and make him understand that Sam might still be alive down there. Instead, I walked away because there wasn’t a damn thing else I could do.
+
+From behind the windshield I watched flashlights move through the broken windows. I knew the upper floors better than most of the people searching them. I could see the rusted loading bays and the old refrigeration units rising above the roof. I knew which doors stuck and where the concrete was cracked.
+
+Sam was somewhere beneath all of it, and I had no idea how to reach him.
+
+I tried his number once more. It rang once, then went to voicemail.
+
+“Hey, it’s Sam. Leave a message.”
+
+I’d heard that recording a thousand times, usually without waiting for the beep. This time I listened to the whole thing.
+
+I told him I was outside and the cops were there. I said I didn’t care what had happened or what he’d done, and I just needed him to let me know he was okay.
+
+Then I sat with the phone against my ear, remembering the day we bought our first equipment truck. Sam had stood in my driveway grinning because we’d somehow convinced a bank to lend money to two guys who barely knew what they were doing. I remembered him bringing baby Lily into the shop and introducing her as our new supervisor. I remembered how often he’d answered when I called, even when I didn’t have anything important to say.
+
+Before I hung up, I added something I should’ve said the day before.
+
+“I’m sorry, brother.”
+
+I waited at the gate while officers disappeared into Coldwater one after another. Every time somebody came out, I looked for Sam behind them. I kept expecting to see him limping toward the ambulance, pissed off and ready to tell me what an idiot he’d been.
+
+I would’ve given anything to hear him complain about that camera again.
+
+Sam never called back.
+
+He still hasn’t.
