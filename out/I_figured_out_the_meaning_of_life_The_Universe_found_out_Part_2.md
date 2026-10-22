@@ -5,7 +5,7 @@ The Human–Universe Relationship:
 3. Moments of faith or divinity, glimpses of looking behind the veil, and instances of synchronicity can be indications of both a good and bad timeline. 
 4. The universe feeds off you in both good and bad timelines. Survive
 
-[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/1wtstye/i_figured_out_the_meaning_of_life_the_universe/)
+[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/1wtstye/i_figured_out_the_meaning_of_life_the_universe/) [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1wy91yu/i_figured_out_the_meaning_of_life_the_universe/)
 
 I made a decision to go for a walk, almost on a whim. I can do what I want. One of the perks of being me. 
 
