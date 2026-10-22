@@ -18,7 +18,7 @@ Since my dad moved to editing he never comes down here. He has an office upstair
 
 Well, I tried it. It lasted for 2 days before my dad started sneezing and wheezing and my mom got suspicious. I rehomed Buddy pretty quickly without them noticing, and heartbroken I knew I would have to give up the dream until I moved out in a few years.
 
-However, a couple months later, I discovered another breed, a mutt, if you will, that I know for sure my dad's no allergic to. I tested it out before I got it. I planted contaminated things around the house, small things he wouldn't think about. Dad didn't so much as sniffle. That's when I knew this would work.
+However, a couple months later, I discovered another breed, a mutt, if you will, that I know for sure my dad's not allergic to. I tested it out before I got it. I planted contaminated things around the house, small things he wouldn't think about. Dad didn't so much as sniffle. That's when I knew this would work.
 
 So I went to the dumpster behind the janky Burger King a few miles from my school. I drove, illegally, and waited for the rascal to show up. I'd been watching for a stray, something without paperwork that my parents could track, and I found the perfect one. He had soft brown hair and chocolate eyes, and the cutest bark that almost sounded like laughter. I knew he would be perfect, and I was more than happy to rescue him.
 

@@ -8,15 +8,15 @@ We haven't spoken out loud since. Rent, trash, wifi, all of it goes through text
 
 You need to understand the apartment. It's a railroad style place. One long hallway, with rooms branching off it. Front to back: living room, bathroom, Sean's room, my room, kitchen. One straight line.
 
-The hallway is narrow. When two people meet, somebody turns sideways and slides past. Now it's the worst three seconds of my day. I look at the floor, turn my shoulder, hold my breath. I haven't looked Sean in the face in months. 
+The hallway is narrow. When two people meet, somebody turns sideways and slides past. Now it's the worst three seconds of my day. I look at the floor, turn my shoulder, hold my breath. I haven't looked Sean in the face in months.
 
 This past weekend I woke up around 2 AM needing to pee. I never use the hall light. I go by feel, my right hand on the wall.
 
 Five steps in, the hallway got tighter.
 
-You know how you can feel someone standing too close in the dark, a second before they touch you? That. Then a shoulder against mine. A hip. An arm dragging slowly down the length of my arm as they turned sideways to fit, exactly the way we always do.
+You know how you can feel someone standing too close in the dark, a second before they touch you? That. Then a shoulder against mine. A hip. An arm brushing my arm as they turned sideways to fit, exactly the way we always do.
 
-I screamed. A short, high, stupid scream.
+I screamed. A short, high, stupid scream.  It was a familiar experience but I wasn't expecting it so late at night, in the pitch black dark.
 
 Sean didn't flinch. Didn't say sorry or anything. He just kept going, steady and unhurried, toward the kitchen.
 
@@ -94,8 +94,8 @@ I checked the drawers, the sink, under the stove. Nothing.
 
 I texted Sean and told him what happened. He sent a selfie from his sister's porch in Virginia, squinting into the sun. He'd driven down Friday.
 
- I called the police. They said there was no forced entry. They photographed the counter took prints from the knives. I'm still waiting on the results.  
-  
+I called the police. They said there was no forced entry. They photographed the counter took prints from the knives. I'm still waiting on the results.
+
 But here’s what I can’t stop replaying. Whoever it was passed me the way Sean does. Turned their shoulder. Took the same few inches. They went around me like they’d done it a hundred times. And I never looked up. I never look up. For all I know, it wasn’t the first time.
 
 I know I should leave but I don't have a somewhere else.
