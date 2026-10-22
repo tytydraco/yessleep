@@ -1,0 +1,183 @@
+I'm Sanne, 29. My sister Eva is 32. We've always been close. After our parents died we only had each other, and I think that bonded us in a way that's hard to explain to people with a normal family.
+
+I'm typing this in a bathroom stall at a gas station off the highway, because I don't dare sit anywhere else. My phone is at 9%. I'm trying to keep this short, but it's not going to be short.
+
+Eva is down to earth. A little boring, honestly, and I mean that lovingly. She's an accountant, she plans her groceries by the day, and she's the only adult I know who has never had a parking ticket. If Eva says she'll be there at six, she's there at five to six.
+
+That's why I thought at first that I was losing my mind.
+
+**It started with a weekend**
+
+In September Eva went away for a weekend with some coworkers. A team retreat in the Ardennes, cabins in the woods, campfire, the whole deal. Honestly she didn't want to go. On Friday night she texted me: *"I'm in a cabin with seven people who talk about padel. Get me out of here."*
+
+Sunday evening she was on my doorstep, as we'd agreed. I had made pancakes, because that's our tradition after a bad weekend.
+
+"Hi," I said, opening the door.
+
+"Hi," said Eva.
+
+She said it at exactly the same moment as me. Not earlier, not later. My mouth opened and her mouth opened and the word came out as if we'd rehearsed it.
+
+I laughed. She laughed too. A fraction of a second after me.
+
+"That's funny," I said.
+
+"That's funny," she said.
+
+I thought she was teasing me. Eva does that sometimes, she repeats what I say in an exaggerated voice until I get mad. Only this time she didn't use that voice. She said it in my tone. My exact tone, with the slight crack on "funny" that I've had since I was a teenager.
+
+I didn't say anything about it. We ate pancakes. She ate them the way she always does, edges first, then the middle. But I noticed something that I could only put into words later.
+
+She looked at me before she did things. Before she picked up her fork. Before she lifted her glass. As if she wanted to see how it was done.
+
+**The answer before the question**
+
+The second time was three days later. I called her during my break at work.
+
+"Hey, I wanted to ask if you could—"
+
+"Yes, Thursday works," said Eva.
+
+I was going to ask if she could come for dinner on Thursday. That was exactly my question. I hadn't said it yet.
+
+"How did you know?" I asked, half laughing.
+
+"What?"
+
+"That I was going to ask that."
+
+It was quiet on the line for a moment. I heard her breathing. Very regular. Too regular, like a metronome.
+
+"You always ask on Thursday," she said then. "It's just logical."
+
+I didn't always ask on Thursday. I had never once asked on a Thursday.
+
+But fine. People who know each other guess things. That's what I told myself. I told myself a lot of things in those weeks.
+
+**It got worse**
+
+It happened so gradually that every time I found a reason not to mind.
+
+Eva started answering before I finished speaking. First once per conversation, then more often. She answered questions I hadn't asked. I'd be sitting next to her on the couch thinking, *I wonder if she wants coffee*, and without my saying anything she'd get up and make coffee. Black, with a splash of milk, the way I drink it. She always takes hers with sugar.
+
+But the worst part, and this is the hardest to explain, was that she started to sound like me.
+
+Not just my words. My way of sighing. My "hm" when I'm thinking. One evening I was sitting next to her on the couch and I had to cough, and half a second later she coughed. The same dry cough, the same spot in the breath.
+
+I said, "Eva, could you stop that?"
+
+She looked at me. Her eyes didn't blink. She said, in my voice, with my exact slight irritation:
+
+"Eva, could you stop that?"
+
+Then she smiled. It wasn't her smile. Her smile is crooked, with more teeth on the left side. This one was symmetrical. Neat. As if someone had traced a smile from a photograph.
+
+I laughed along, because what else do you do. I said she was scaring me. She said I was scaring her too. I think she meant it, though I can't explain why that gave me goosebumps.
+
+**The closet**
+
+I went to her house that week. I said I was going to water her plants, which was a weak excuse. Really I wanted to look around.
+
+Eva was at work. Or well, she had said she was at work. I have a key.
+
+The house smelled different. Not dirty, the opposite. Too clean, like a hospital hallway. All the mirrors were gone. I only noticed in the living room, where above the cabinet there was a pale rectangle on the wallpaper where the big mirror used to hang.
+
+In the bathroom the mirror on the medicine cabinet was covered with newspaper. Taped down neatly along every edge.
+
+I was about to leave when I saw something lying on the bed in the bedroom. A notebook. One of those old exercise books with a lined cover, like we had at school.
+
+I opened it. The first page was covered in my handwriting.
+
+Not Eva's imitation of my handwriting. *My handwriting.* My slanted a's, my long-crossed t's, the little loop under the g that I got from my dad. Every line had the same sentence, a few hundred times:
+
+*Hi, I'm Sanne.*
+
+On the second page it said: *Hi, I'm Sanne. Hi, I'm Sanne. Hi.*
+
+On the third page was a list. Things I say. *"That's funny." "Hm." "Nice work." "I need to think about it."* There were arrows next to them. Next to *"Hm"* it said: *chin up, eyes to the left.*
+
+At the last line the pen had been pressed so hard the paper had torn.
+
+*Eva was not like this. Eva was quiet. Don't be too much.*
+
+I dropped the notebook.
+
+"That's not for you."
+
+I turned around. Eva was standing in the doorway. I hadn't heard her come in. She still had her coat on and she was wearing my face.
+
+That's the only phrase I have for it. She didn't have my face, of course, she had her own face. But she had my *expression*, the worried and sweet and slightly caught one, and it was right down to the millimeter. It didn't fit her either. Like someone else's coat.
+
+"Eva," I said. "What is this?"
+
+"I'm still learning," she said.
+
+"Learning what?"
+
+She didn't answer. She walked toward me and I stepped back against the dresser, and she stopped an arm's length away. She studied me. From my shoes to my hair. It was a long look, and I had the feeling she was storing everything.
+
+"May I?" she said. She took my hand. Her fingers were cold, and she turned my wrist over, examined my nails, the small mole under my thumb.
+
+"Eva, you're hurting me."
+
+"Eva, you're hurting me," she said, and let go.
+
+I left her house without my jacket. I think I ran.
+
+**What the coworker said**
+
+I didn't go to the police. What was I supposed to say? That my sister can copy my handwriting? That she's been acting strange since a weekend away?
+
+I did call Eva's coworker Mirjam. I had her number from a birthday party. I asked if the weekend in the Ardennes had been fun.
+
+"Which weekend?" said Mirjam.
+
+"The team retreat. In September."
+
+It went quiet. Then she said slowly: "Sanne, there was never a team retreat. Eva took those days off. She said she was going to see you."
+
+I sat on the edge of my bed. "That's not right," I said. "She texted me from a cabin."
+
+"I can only tell you what she said," said Mirjam. "She was strange on Monday, though. She walked in and asked how you say 'good morning.' I thought it was a joke."
+
+I hung up. I picked my phone back up and scrolled to the texts from that weekend. The cabin, the padel. I read them again. And for the first time I saw what I hadn't seen before.
+
+I could have written that text myself. The sentence structure. The word choice. She sounded like me.
+
+In 32 years Eva had never said "Get me out of here." That's what *I* say.
+
+At that moment my phone rang. Eva. I didn't answer. It rang again. I didn't answer. Then a text came in.
+
+*"I'm at your door."*
+
+I walked to the window. I have a small living room, one floor above the street. Down below Eva stood under the streetlight, her phone in her hand, looking up. Straight at my window. She waved. I didn't wave back.
+
+Then she did something I'll never forget. She raised her hand, put it against her own face and slowly pulled up the corners of her mouth. One side. Then the other. Until it was right.
+
+Until it was crooked. With more teeth on the left side.
+
+That was Eva's smile. That was exactly it. She had found it again.
+
+Then she started walking. Not toward the front door, but to the side of the building, where the fire escape is.
+
+I left through the back window. I don't want to think about how.
+
+**Now**
+
+I've been sitting here for two hours. I left my car three streets away and took the bus, then hitched a ride, and now I'm here. My phone is off, except right now.
+
+I just got a message. From an unknown number. It's a voice message, seven seconds long.
+
+I didn't dare play it at first. I did anyway.
+
+It's my voice. My voice, with that crack. It says:
+
+*"I'm typing this in a bathroom stall at a gas station off the highway, because I don't dare sit anywhere else."*
+
+It's the first sentence I wrote in this post. I typed it here less than ten minutes ago.
+
+I can hear someone waiting outside the stall door. Breathing very regularly.
+
+And now I hear her softly saying something.
+
+It's what I'm typing right now.

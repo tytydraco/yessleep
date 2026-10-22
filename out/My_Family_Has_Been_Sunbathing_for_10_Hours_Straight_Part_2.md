@@ -1,13 +1,12 @@
-\[Part 1\] (https://www.reddit.com/r/nosleep/s/DGu7ldMEaK)
+\[Part 1\] ([https://www.reddit.com/r/nosleep/s/DGu7ldMEaK](https://www.reddit.com/r/nosleep/s/DGu7ldMEaK))
+
+\[Part 3\] (https://www.reddit.com/r/nosleep/s/1qeemWKtkO)
 
 Thank you all for reading my story. Thank you all for believing me. I want to add a little clarification to my last post.
 
 1. My name is Andrew.
-
 2. The events I described in my last post were from many years ago. I was 12 at the time of the events and am now 28.
-
 3. Despite having told my story many times to many authorities and people I thought were my friends, no one believed me. I didn’t think it was worth sharing my story anymore, but I felt the need to write out in detail what, looking back, was the worst day of my life. I want my family to be remembered. I want my town to be remembered. Because according to the State of Minnesota, the town of Goldfield never existed, and neither did my mom Maggie, my dad Chuck, my sister Carmen, or anyone else who called it home.
-
 4. I’m not originally from Goldfield. My parents moved us there from South Carolina because it was known for its colder weather, cloudy skies, and early sundowns, the perfect combination for a kid with my condition to live comfortably. Everyone I knew from Goldfield grew up there, so I haven’t been able to make contact with anyone who lost family there. I don’t want to give up hope of proving their existence. I can’t give up. Maybe one of you knows something about this and can help me. Maybe I am truly alone.
 
 We will continue the story from exactly where I last left off. The moment I saw my family sitting in the backyard, facing the bright sun, unmoved from when they sat down nearly 20 hours before.
