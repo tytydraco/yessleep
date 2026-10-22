@@ -1,0 +1,129 @@
+[\[Part 1\]](https://www.reddit.com/r/nosleep/s/Ah3N1mK7I1) [\[Part 2\]](https://www.reddit.com/r/nosleep/s/faElvYQ6c9)
+
+I’ve deleted and re-written this bit maybe a thousand times now. By some fucking miracle I’m not in handcuffs yet, but I suppose I will be soon.
+
+My friend, his name is- was Josh, he answered me shortly after my post yesterday. He offered to introduce me to his church’s priest. I never was honest with him about why. I should have been, fuck, I should have told him first.
+
+The church was way up in Manoa, deep in the lush, rain-soaked valley. It wasn’t some grand structure, but a humble little classroom in the area recreation center that the church rented.
+
+I wasn’t sure if it was my fever or my nervousness but I felt awful, like I had the worst flu I’ve ever had.
+
+When I thought to myself, wondered, if Ruile’s presence was killing me, I saw flashes of insects, caterpillars mostly, as they entered their cocoons. Ideas of change and metamorphosis tinged with aspects of the Sun flooded my mind.
+
+And, strangely, the image of a pristine garden, acres of pristine paradise rivaling the beauty of the Ko‘olau’s, seemingly untouched by mankind.
+
+After my brief and confusing conversation with Ruile we arrived at our destination. The typically rainy valley was uncomfortably dry as yesterday’s strange heatwave carried into today, further exacerbating my excruciating fever.
+
+The doors opened and blasted me with the nostalgic scent of old carpets, like the old blue ones that every kindergarten classroom had back in the day. The Priest’s office was in  the far corner of the repurposed classroom.
+
+“Joshua?” A frail but gentle voice called from out of view, “I thought I said for you to wait, the city’s declared a wildfire warning-“
+
+The figure that stumbled out from the back office paused as he saw me. He was small, likely no more than 5 feet. He had a slight hunch about him and was dressed in a rather casual attire, as opposed to the white robes and fancy hats I had assumed.
+
+“Father, this is Damien,” Joshua said, introducing me.
+
+I bowed awkwardly.
+
+The Priest just continued to stare, frozen in an unrecognizable expression. The sun shone brightly behind us, casting our imposing silhouettes against the far wall behind the frail old man. For a moment I could swear I saw wings in my shadow.
+
+“Father?” Joshua called out.
+
+This appeared to have snapped The Priest out of whatever stupor had gripped him.
+
+“I- ah yes, Joshua,” he replied, clearing his throat, “this is your friend?”
+
+“Hi, uh, sir- Father- sir,” I stumbled over my words.
+
+A warm, gentle smile washed over his face, slightly stiff but not lacking in the comfort it provided me.
+
+“Come, my child, we can speak in my office,” he said, gesturing for me to follow, “Joshua, please wait for us here, I believe your friend would like to speak with me alone.”
+
+Joshua obliged, finding a chair in the corner nearest to the entrance and whipping out his phone.
+
+“Father, I-“
+
+He stopped me before I sat down in his office.
+
+“How long has it been?” He asked me, his eyes full of an intensity hardly befitting of an old man.
+
+“How long since, what exactly?” I replied, oblivious to my own condition and entire reason for coming out here.
+
+“The possession,” he muttered frankly.
+
+Ah, that.
+
+“Almost two weeks now,” I replied.
+
+Funnily enough, I actually can’t remember the exact day it happened. The past few days have blurred together in a collage of barely distinguishable sequences of cause and effect.
+
+“Then there’s little I can do to help you,” he replied solemnly, a dark expression crossed his face.
+
+“What do you mean? Like you can’t exorcise it?”
+
+“You can’t exorcise an Angel, because it’s there with your permission,” he spoke as his eyes fell into the shade of his brow, “and that one, you couldn’t even hope to get that one out.”
+
+“You know what’s inside me?” I asked, “it calls itself Ruile, but-“
+
+I gave you my name, you know who I am.
+
+“That is not its name, at least, not how it’s written nor said.”
+
+Only you must know of who I really am.
+
+“Then what? Who? Why the hell are you acting all weird? Why can’t you just be straight with me?”
+
+Because that knowledge could kill us both.
+
+“Because that could kill me.”
+
+“Then what do I do?!”
+
+Nothing, this is a problem for me to solve.
+
+“Nothing, this is a problem only I can solve.”
+
+Flustered, reaching my limit, a surge of emotion welled up within me. No, not emotion, something else. Something far stronger, something not belonging to me.
+
+The Priest quickly reached to grab something from his pocket.
+
+In the instant that he did so, a blade of righteous flame erupted from my winged silhouette and cut across the room, cleaving the priest in half. The smoldering embers of his form ignited fires from the papers strewn all over his office. I couldn’t bear to look at his bisected form, nor could I bear the thought of the look on his face.
+
+Instead I calmly made my way out of the office to where Joshua sat, blissfully unaware of the events that had just transpired, seemingly hypnotized by his phone screen. I opted not to bother him, rather, I felt compelled to ignore him and march out of the church and not look back.
+
+I could smell the roaring inferno as I walked down the valley back home. I watched the Fire Engines race up the narrow and winding valley roads to the blazing recreation center. i felt the sun peel away any sense of anonymity and safety. I felt as if by standing in the sun’s light that all of my sins were made known to those who looked upon my form.
+
+I clearly made it back home to type this out and post this. I assume it’s only a matter of time before the police knock on my door.
+
+Maybe that’s for the best, there’s no denying it now. Even if it wasn’t my intention, I killed someone, probably even killed Joshua, and it’s clear that it is not safe for me to live amongst the rest of humanity.
+
+I don’t plan on doing anything rash, I plan on letting judgement come to me as it will all those who fall under the light of the sun. I will not run from it, I shall embrace it.
+
+Ruile, though I know now that is not your name, what luck that I of all people was to be your vessel. If God is truly dead, then what has become of heaven? What of the souls of our loved ones who have returned to Our Creator? What awaits us after death?
+
+My child,
+
+Truth, truth is what awaits us all. Fragmented, dissolute, of oblivion we are born and to such we shall return. Paradise shall be reborn anew and to it we shall all return. The day is soon upon us, heralded by the trumpets of the wind, one more shall fall.
+
+Know this as, for we are all from, Truth, the light of day brought forth by The Regent of The Sun,
+
+R U I L E
+
+The Cardinal of The South,
+
+U I L E R
+
+The Guardian of The Gate, who alone wields the key,
+
+I L E R U
+
+The Flaming Sword of God’s Judgement,
+
+L E R U I
+
+Font of Wisdom and Prophecy,
+
+E R U I L
+
+Fourth of the Four Archangels, Earth be thy domain, heed my name, know thy purpose,
+
+U R I E L
