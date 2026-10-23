@@ -74,7 +74,7 @@ Almost immediately, I panicked and threw myself at the sticker-covered door to t
 
 I pounded on it with all my returning strength but it didn’t budge. Just like the figure had said, I was to be confined to this room for God knows how much time.
 
-Agitated, I started thinking abc over all the people who might have put me in here. It didn’t take long for me to settle on the one rude thing I’d done in recent memory. That slow old woman from the grocery store.
+Agitated, I started thinking abc over all the people who might have put me in here. It didn’t take long for me to settle on the one rude thing I’d done in recent memory. That slow older woman from the grocery store.
 
 She did this to me.
 

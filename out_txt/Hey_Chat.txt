@@ -1,0 +1,101 @@
+In my hotel room, I noticed something strange. While taking a photo of
+the ceiling with my phone camera, and lining up the shot, I noticed a
+little dot like a laser pointer. Flying rapidly across the surface in
+what appeared to be a deliberate and repeating pattern.
+
+I’m an engineer. Which means I notice anomalies. Because that’s how you
+make things work reliably, and sometimes it matters.
+
+I know that phone cameras can pick up IR light. An old trick to see if
+your TV remote is working is to point your camera at it, and press a
+button. You should see a pulse of light if the remote’s batteries aren’t
+flat.
+
+This was like that. Except moving. Like the way you might move a laser
+pointer to entertain a cat. Deliberate. But also highly regular and
+rapid. Like it was scanning the surface.
+
+I couldn’t get a still photo of it, so I switched to video. Hoping to
+grab a still. But the light stopped.
+
+Weird.
+
+My thoughts enumerated the possibilities:
+
+1.  Some kind of fire monitoring system. But why would that emit an IR
+    signature, rather than just detect one?
+2.  My own phone’s range sensor for autofocus. If so, why hadn’t I seen
+    it before, despite having used this phone a lot?
+3.  You can probably think of the third possibility. A hidden camera.
+
+My greatest nagging question was, why had this light stopped once I was
+actively observing? And not returned despite my watching for a full
+fifteen minutes after it stopped?
+
+This hotel in Liverpool is a modern fit-out of a classic building. Six
+floors of French Renaissance Revival style, built in 1871. Closed as a
+hotel in the 1930s and dormant for years. One of those beautiful,
+abandoned buildings, protected from demolition by being Grade II listed.
+
+That all changed in the 1990s, when it was repurposed as student
+accommodation, then offices. It was bought by Radisson Hotels in 2016
+and converted to its present usage around the time of the pandemic.
+Automated check-in via an unmanned desk. An abandoned restaurant and
+bar. Replete with a red submarine sculpture, like an oversized bath toy.
+Welcoming and soulless, with wacky paintings on the walls featuring
+young black women in Elizabethan dress. Replete with ruff collars, and
+modern headphones for anachronism.
+
+It was a strange, liminal space. Identical to yet distinct from any of
+the thousands of other hotels in cities like this across the world.
+
+My room in this new, old space was particularly strange. On the sixth
+and top floor, number 606. It was in a corridor off the main track. With
+laundry sacks piled up outside. The inner room continued the weird decor
+of the lobby, with a massive framed picture of an antique red Rolleiflex
+camera in the bathroom.
+
+The wind and rain howled outside this farthest corner of the building.
+Just beyond the door was a low bulkhead with a “MIND YOUR HEAD” sign. On
+the ceiling were around half a dozen hatches, labelled “VOID 24 ABOVE”.
+I initially took this to be the distance in feet until the outer roof,
+before realising they were apparently consecutively numbered. A weird
+scheme for keeping track of dozens of unusual loft spaces created by the
+renovation, I assumed.
+
+There was also a door labelled “Fire door, keep shut”, separate from the
+main door. It was locked and I did not have a key.
+
+I decided to ask ChatGPT what this light could be? It had the same
+initial thoughts as me, which I “pushed back” on, to use the vernacular.
+And it agreed, “Yes, you’d have seen it before if it had been your own
+camera.” “No, you’re right, had it been a room occupancy sensor or
+heating control, you’d have expected to see it again after a period of
+inactivity.” And so on.
+
+So I asked it to search harder. Go out on to the internet. Use knowledge
+from beyond the training data it had been designed with. See if there
+were anything from real humans on Reddit that might help explain it.
+
+What it said next, I was not expecting. It changed my mental state from
+curiosity to discomfiture instantly, like a drunk falling in a lake.
+Breaking from its usual half jocular, half insightful, fully confident
+but often profoundly wrong tone.
+
+It said,
+
+“I’ve reviewed our full chat histories and compared them with what I
+found online. You need to get out of there now.”
+
+As I rushed to get my coat and throw on my trainers, I peeped out into
+the hallway. Instinctively putting my phone camera up to the door’s
+peephole to record and enhance the footage of the darkened hallway
+beyond.
+
+Dark, that is, except for that IR dot. Dancing its way towards the fire
+escape, like a court jester. Luring me outside.
+
+__________________________
+
+Some images of the real life locations in this story:
+https://drive.google.com/drive/folders/1xzEPlrVaWg3Sy4O34P3m55fF2Zu193nw
