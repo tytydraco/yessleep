@@ -1,0 +1,39 @@
+Starting over is difficult, but sometimes necessary. It is a path that stubbornly forces you to reflect on your present and bid farewell to your past—a natural thing to do when you have not lived a life of sin. That is my case.
+
+I wish I had better words for this. I know what I have lived through deserves them, especially if it is to serve as a lesson for future generations. But these dry, solitary words are all I have now. The words of a man who has failed and no longer belongs to the society he once knew.
+
+As a child, I was raised by the streets. Either I stole on the avenue, or some shop took pity on me and gave me its leftovers. I carry the pitying looks of every passerby with me. They hurt me as the sun warmed my sorrows, and I missed them to the point of tears when the nighttime cold took me in.
+
+I knew no other way to survive than to steal. My gang friends taught me to speak and write. I had no concept of the stages of life; I lived day by day, like a stray dog.
+
+Time took several members of the gang, including the two people I held dearest among them. The latter happened during the kidnapping carried out by the North Zone Cartel, forty years ago. We had spent several days stealing their product, with no infrastructure beyond a trap house, a hideout where we took refuge to get high and die. We were easy prey.
+
+There, they forced me to work against my own gang, undercover. Only now can I feel remorse for the people I turned in and the lies I told their families. I just wanted to keep watching the sun rise and cool my face with cold water from some faucet in those crumbling little plazas.
+
+Nothing I have lived through over these past forty years is worth telling. You can infer it all, if you pay close attention to my account. The only thing I will mention is that, two years ago, I made a mistake. I thought I could learn to live like everyone else.
+
+I devoted myself to the church in the neighborhood where I had ended up, worked at a community soup kitchen, and little by little, I began to find peace. The most precious thing I had during those years was that, for the first time, ordinary people believed in me. They believed in me far more than I believed in myself, of course.
+
+Then, one night in April, just a few months before I began writing this, the long arm of crime reached into my life once more, coming to put an end to my hopes. I had not called for it. I had not wished for it. I was simply unfortunate enough to fall within its sights. For the first time, I suffered firsthand what I had once done to so many others.
+
+Heavy-headed and confused, I regained consciousness. I had fallen asleep after drinking too much, as I often did to silence my memories. I wondered whether it was real, and, sadly, it was. There were noises on the other side of the house. Voices making no attempt to whisper, and blows that were coming for me.
+
+I wished I could drop dead right then and there, but my strong body would not allow it. I had to be there.
+
+My phone alerted me to a private message. It was a contact I could have sworn I had deleted long ago. “Gabriela.” Caught somewhere between sleep and a hangover, I once again wished I were not there, that it was all part of a terrible dream.
+
+She was accompanied by another man, taller and more muscular than my new, peaceful routine had allowed me to become. I saw the hatred in his expression, accompanied by a grimace of exertion, as he carried two large black garbage bags, the kind used in apartment buildings.
+
+I was forced to become the man my origins had made me. Once again, my hands were stained with someone else's blood. I felt nothing but an urgency for it all to end, an urgency that turned into longing as the long minutes dragged on.
+
+The bags contained human remains. It was easy to recognize the arms and legs of children as the other man pulled them out and placed them into a barrel, its top completely open and filled with an improvised mixture of concrete.
+
+While that man broke apart and compressed the children's remains, I was tasked with digging holes and filling them with that macabre mixture. My own house, now turned into a mass grave for organized crime, was as broken and battered as my soul.
+
+Eventually, we finished the job, and they left. Not before catching up with me, though, and torturing me until I promised that, against my will, I would continue living in that house.
+
+Just a few feet from where I am writing this lies the anguish of those children's mothers. I can turn my head slightly and point out where the three graves are, no matter how much I have renovated the house.
+
+I have not gone outside in a long time. Fortunately, these good Christians look after me, holding on to their belief that I have fallen into depression. The truth is that I am utterly ashamed of being this fraud, this miserable excuse for a human being. With every prayer, sitting on those well-kept wooden pews, I have worked to change. I have even imagined, for the first time, a peaceful routine. A decent life.
+
+Now I know that once you cross the event horizon, nothing can escape the dark evil of human nature.
