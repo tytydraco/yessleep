@@ -1,0 +1,162 @@
+I’m not normally a rude person. 99% of the time, I would be polite and understanding as ever. Someone just caught me on a bad day.
+
+And that one bad day cost me years of my freedom.
+
+My parents didn’t raise me to be rude. And for the most part I wasn’t and tried to keep that empathy and grace in mind when I was interacting with people—friends, family, neighbours. I was a nice dude—back then, at least. But we all have our occasional irate moments. You’ll feel guilty for getting short with someone, but it’s not like anything worse comes from it.
+
+That’s what I thought, anyway.
+
+It was such a mundane interaction. I was standing in the line for the self-checkout at the grocery store—I’d popped in on my way home from work to pick up some things. I had grabbed my items quickly, as I wanted to get home for my favourite show on TV. But now I was being held up by a slow middle-aged woman at the only available checkout machine in front of me.
+
+At first, I gritted my teeth and tried to be patient. Like I said, I was normally a chill guy.
+
+But the minutes wore on and on, and the befuddled woman continued to fiddle with the machine, unaware of how to scan and weigh and bag her groceries. Was it the first time she’d ever used a check-out? Did she have no personal awareness of the people waiting behind her?
+
+Bemused, I looked down at my watch. I would have to leave now if I was going to make my program in time.
+
+Snippiness started to creep into my normally relaxed demeanor and I sighed loudly, hoping she’d take the hint and pull it together. Didn’t work. I tapped my foot pointedly instead. Didn’t work either. Either she couldn’t hear me or she had no shame. I was definitely going to be late to watch my show now.
+
+Finally, I snapped and shouted at the schoolmarm-looking lady.
+
+“Look, if you don’t know how to use a self-checkout machine then could you *please* get the hell out of line and find a service desk?!” I complained. “Some of us have places to be!”
+
+The matronly woman looked up, startled at my interjection. 
+
+“Oh, I’m so sorry dear” she stuttered back. “It’s just these machines are so confusing and I was sure I could work it out if I ju-”
+
+Now I’d had it.
+
+“Jesus, idiot boomer, it’s not rocket science—it’s grocery shopping. Get out of line and stop wasting everyone’s time!”
+
+She was visibly embarrassed by this, stammered an apology and quickly bundled her grocery items before tottering off to the service desk, her face down. I immediately felt guilty for my outburst—that wasn’t the kind of person I was. 
+
+But I held the apology in my mouth so I could hurriedly scan my groceries through and set off driving home. At least this way I could still catch most of my show.
+
+I didn’t know it at the time, but that’d been my last chance to save myself.
+
+As I was leaving the grocery store, out of the corner of my eye, I thought I saw her snapping a picture of me. But I barely noticed—as I mentioned, I was kind of in a hurry.
+
+What was the worst some haughty old woman would do? Repost my photo on some mommy Facebook group page to get shamed into contrition by seniors? I felt a bit bad but not *that* bad. I thought that would be the last I thought about that encounter.
+
+I was getting into my car the next day to go to work when I felt it. 
+
+A rag slid over the front of my face so smoothly it was like it was being done by a professional. I inhaled reflexively and tasted chloroform. There was no time to scream before I blacked out, the vision of my car and masked assailant quickly fading out.
+
+However long later, I regained consciousness. I wasn’t in the parking lot anymore. Rising from the floor in the same clothes I’d been wearing, I saw that I was in a room instead. It was a bright and colourful room with foam mats and cartoon pictures on the walls. It was furnished like some kind of children’s playroom.
+
+The exception to this was one wall of the four-walled room. Instead of the blues, greens, pinks, yellows of the rest of the jubilantly decorated room, this wall was a stark white. In front of it was a high stool, the kind a kid might sit on with their legs dangling off the ground. It looked like that would be the case if I sat in it, it was that tall.
+
+Before I could get to my feet—I was still groggy coming off of the sedative—I heard a whirring sound from the other end of the room. A boxy TV monitor, like those from my own childhood, emerged from the wall itself as a panel retracted. The TV screen sputtered to life, the way that an older TV screen would.
+
+Then a fuzzy figure wearing the colourful shirt, tie and slacks of a teacher appeared on the screen. Behind their smiley face masks, they addressed me.
+
+“Hello there Joaquin. As you can see, we’ve sent you to your room without dinner. This is for your own good.”
+
+The person behind the mask spoke in a regular, friendly but firm voice, the way an educational authority figure might. The way they might speak to a child.
+
+“We understand that “time-outs” are normally for kids, and you’re an adult“ the figure continued on the static-y screen. “But we at Firm Hand Co believe that if you act as immaturely as a kid, you should be treated like one.”
+
+“For any time-out to be effective, the recipient needs to understand why they’re being given it. We hope by now that you know why you’re here. You’re here because, several days ago, you were rude. It’s not nice to be rude. That’s not how we treat people, is it?”
+
+My face scrunched up in confusion. I woke up in this strange, childlike room because…I was rude to somebody? 
+
+“After someone informed us of your behaviour towards them, we stepped in to provide some discipline for you. We transported you to a secure, faraway location where we house all adult miscreants. You’ll find that adult time-outs are much like kid time-outs: it’s time away from other people to think about what you did, since you don’t know how to be nice to other people.” 
+
+“The key difference, however, is that adult time-out is *longer*—since adulthood is longer. And you should know better.”
+
+The anonymous figure standing on the screen tilted their head slightly. Their tone was that of addressing a misbehaving child, but their body language was menacing in a way adults were to each other. My stomach began to lurch at the words I was being told, not wanting to believe they were true. I would be in this bizarre room for *longer*?
+
+“We at Firm Hand Co want you to take this time to reflect on what you’ve done. When you’ve decided to have an attitude adjustment, we can restore your privileges—of *freedom*. Be good.”
+
+With those ominous yet patronising words, the screen cut out and slid back into the wall.
+
+Almost immediately, I panicked and threw myself at the sticker-covered door to the room.
+
+I pounded on it with all my returning strength but it didn’t budge. Just like the figure had said, I was to be confined to this room for God knows how much time.
+
+Agitated, I started thinking abc over all the people who might have put me in here. It didn’t take long for me to settle on the one rude thing I’d done in recent memory. That slow old woman from the grocery store.
+
+She did this to me.
+
+She must have had her family members kidnap me and lock me in her basement, I wholeheartedly believed. There was no way that spiel about an evil company and isolated location could be true. If I just made it beyond this garish door, I could force my way out of her house and be in my city again.
+
+However, when two more figures in smiling masks and faculty attire arrived hours later, I began to think differently.
+
+Each held a baton with them, so I didn’t think about fighting back. Not now, I wouldn’t. First I would let them lead me outside to wherever they were taking me. Then, once I was out of the basement proper, I would make my mad dash from that hag’s evil kidnapping family.
+
+But I wasn’t in a house basement. Instead, I was led down a long colourful hallway with that same childish print. Cartoon animals like giraffes, tigers and bears on walls of different patterns—it was like being some kind of kindergarten maze.
+
+They took me to a door for the showers—comically small as if they were designed for kids as well. These would be my only trips outside of my room. And there would be no escape yet from the labyrinthine maze—not yet.
+
+Days began to pass with me confined to my sickly rainbow room. 3 times a day, a kid’s meal tray was slid through a slot on the door. In it was always various mashed-up slop—a puree that might be fed to a small toddler, not a grown adult. The insane playroom schtick seemed to permeate every aspect of this place. 
+
+It would drive me mad—if the injustice and loneliness didn’t do it first.
+
+Being escorted out of my room after weeks of this sordid routine, I finally saw another person in line for the shower. The first non-captor I’d seen in what could have been over a month—I’d been tracking the days with a crayon on the wall.
+
+The coarse-haired man looked slightly younger than me, also wearing regular clothes that looked like they hadn’t been washed in weeks. When the guard wasn’t looking, I addressed him.
+
+“What is this place? Is—is it true what that video said? Why are you here?”
+
+I had so many questions. More questions than I’d ever had for another person in my life. I’d never appreciated the sight of another human more than I did after my isolation. Denzel anxiously whispered his responses to me after checking the corridor was clear.
+
+He had played his music out loud on his phone while on the bus. A fellow passenger had chided him and asked him to turn it down. They had also sicced Firm Hand Co on him to teach him a lesson.
+
+Days later I met another guy in line for the bathroom, the young ginger fellow Rian. This guy had neglected to tip his delivery driver when he ordered takeout one day. The next day, his delivery driver had contacted Firm Hand and “delivered” him here for his trouble.
+
+Their stories were eerily like mine. In addition to the benign mistakes, neither really knew how long they’d been there. Months, or years even. There was also a level of irony to their situations. Denzel had no electronic devices to play music loudly on here, while Rian didn’t have any fast food to order.
+
+And I, ever impatient, had forever now to wait for my release.
+
+Firm Hand Co certainly had a sick sense of humour.
+
+What they were doing was worse than prison—it was solitary confinement. As the inordinate time spent confined in my room agonisingly passed by, escape began to solidify as a thought in my mind. One day, while waiting for the tiny shower room, I was left unguarded. 
+
+I made a break for it, down the repetitive, neverending juvenile corridors. Door after door I passed, with cute little nametags in Comic Sans lettering. There must be hundreds of people in time-out here. Surely, I could make it out though, if I just made it to a-
+
+And that’s when I passed the window.
+
+A small, unbreakable, square window—not big enough to fit through but clear enough for me to see how hopeless my endeavour was.
+
+We were on an island. All I could see out that window was the dark, raging sea. Firm Hand hadn’t been lying when they said we were isolated. Hollow, I returned to the shower door.
+
+My hope died after that moment. A mountain of time lay ahead of me and entire months began to blur together. I stopped keeping track of the days on the wall. A year could have passed or a decade could have. Every day, I tried to entertain myself by talking to myself—specifically, to the plush toys in the room. I also tried exercising on the foam, jigsaw-shaped mat.
+
+None of this could keep my thoughts from raging at the woman who put me here.
+
+People were put in solitary in prison for crimes, not tiny social faux pas.
+
+An immeasurable lot of time later, I met a new person in line for the shower, a blonde, frightened-looking girl. Emilia looked barely older than 20. Her crime to land her in this lurid hell?  
+She’d scolded her barista for messing up a coffee order. Firm Hand had kidnapped and scolded her. Irony again. Unlike the others, though, she’d accepted her fate.
+
+“I deserved to be sent here” she murmured remorsefully. “Revenge is what teaches us right from wrong.”
+
+Then she entered the shower area. She never came out. I discovered her inside, clutching the broken piece of her tray she’d used to end her life.
+
+That was what really broke me, more than the endless days of monotony in that Cocomelon-esque cell. I no longer tried to entertain myself with the room’s playtime decor. Instead, I took to sitting on the time-out stool, staring at the empty white wall in front of me. A welcome relief now from the condescending babyish confines.
+
+Perhaps this was all I was—blank emptiness. Perhaps that’s all that lay ahead. Perhaps this was the lesson we were supposed to learn in time-out.
+
+I raised the broken tray piece, that I’d snapped off earlier, to my throat. This was where I would end my seemingly infinite sentence. 
+
+Suddenly, the TV re-emerged from the wall—for the first time since I’d woke up here God knows how long ago.
+
+“Congratulations!” the fuzzy masked figure exclaimed. “You’ve reached the end of your time-out—a predetermined time of 731 days exactly. Firm Hand Co hopes you’re ready to behave yourself. Now how about a hug, pal?”
+
+A hug? 
+
+Then an arm with a chloroform rag was wrapped around my neck again.
+
+I awoke back in my house—the one I’d lived in before the playroom. The date on my computer confirmed what my captor had said. I’d been held captive for 2 years. My sentence had ended, by sheer coincidence, seconds before my self-execution.
+
+My freedom was sweet and not taken for granted by me. From then on, I was always polite, always tipping, always using my manners—specifically, when I asked people for information. Eventually, I found the information I was looking for.
+
+The dark web user site of Firm Hand Co.
+
+It confirmed everything I’d been told in captivity. People found their way here when someone was rude to them. Rudeness wasn’t criminal according to them, but it should be punished. All that was required was a snapshot of the offender, and a payment that determined the duration of their stay.
+
+I’d been lucky that the middle-aged woman could only afford jailing me for 2 years.
+
+Now, I just need to survey that grocery store and snap a picture of my own, of the woman who put me in time-out. Being slow at checkout, holding people up, is also a form of rudeness. She could do with a long karmic time-out as well. After all…
+
+Revenge is what teaches us right from wrong.
