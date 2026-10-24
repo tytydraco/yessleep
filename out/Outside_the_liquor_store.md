@@ -1,0 +1,347 @@
+ my cars headlights illuminate a cloud of white gray smoke as it billows up to the sky, and I follow the source back down, it looks like the scrawny frame of a 19 to 20 year-old boy. he’s leaned up against a faded red brick wall that is the liquor store, the lights of which have long been burnt out, since before even I was of age to have a reason to step foot inside.
+
+“Hey miss?” A soft and low sound is released from the boys mouth, his lips half hanging on to the last inch and a quarter of an American Spirit.
+
+I look up from my iPod to meet his eyes and wait for him to continue but I’m stopped dead in my tracks. 
+
+His eyes glint back at me reassuringly, their deep amber reminiscent of the mosquitoes you’d see trapped in such a substance in a science museum.
+
+Gathering my composure I attempt my reply but can only muster a pitchy 
+
+“Hmm?”
+
+He flicks what remains of the end of his cigarette into the gutter, the embers dancing to the ground, slowly following the white/brown filter 
+
+“That was my last cig, would it be alright if you snagged me a pack from inside? I’m good for it I swear.” He reaches into the pocket of his burgundy flannel and pulls out a crumpled 20 dollar bill, holding it between his middle and pointer.
+
+It was only just 8 months ago I would’ve found myself asking the same, the legal age for purchasing tabacco being raised to 21 was hell for a lot of people my age. The mood swings from the withdraw are no joke. 
+
+“Come on, take pity” the left corner of his tanned face upturned into a small smirk as he waved the twenty left and right. 
+
+“Keep the twenty” I wave him off and hear a low groan from his direction as I make my way into to the dingy liquor store.
+
+“Caroline long time no see see!” 
+
+“Yes John I did in fact see you last night, good one.” I roll my eyes at the repetitive greeting, it reminds too much of own father.
+
+“Pack of camel-“
+
+“Crush yes mam I know I know”
+
+I pause for a moment
+
+My hands resting on the cold metal of the counter 
+
+And glance out the window where the boy is now visible 
+
+“And a pack of spirits”
+
+—-
+
+I pull my car up to the liquor store, head lights glaring through the front doors. 
+
+A half step to the right of said doors sits the boy, yet again. No smoke this time. His boney knees wrapped in black skinny jeans held close to his chest. The grey hood of the burgundy flannel pulled over his head. 
+
+I shut off my car but leave the lights running, I can see the boys face much clearer but as I exit the drivers side he shies away. 
+
+I make my way to the glass doors, pulling open the one closest to him, stepping one foot inside. 
+
+“Miss.”
+
+I freeze at the sound despite my intention to ignore him. 
+
+“One more time for me, would ya?” He raises his hand to me, what looks to be the same twenty as before held in a fist. 
+
+I grab the 20 without a second thought and move for the register.
+
+But I have to backtrack, I meant to head to the beer fridge. 
+
+Taking two steps back I turn right and begin scanning the rows of beer for corse light.
+
+I grab my 6 pack and make my way back to the register. 
+
+“Caroline you’re too kind! Thiss beer? For me!”
+
+“Crush’s and the Americans again”
+
+John pouts at my refusal to play along and hands over the two packs while I swipe my debit card. 
+
+On my way out I toss the kid his pack and set the twenty back down next to him.
+
+——-
+
+Buckets of rain pound down on my windshield. Loud and heavy, like the clouds are ringing out washcloths together.
+
+The defroster on my car has been broken since the summer but I’ve had no reason to fix it, well until right now. 
+
+My windshield is fogging up so bad it looks like opalescent stained glass. 
+
+But the liquor store is hardly a mile from my house, I could make it there and back newly blind. 
+
+I once again pull up to the same two doors. The shine of my headlights being cut up by endless droplets of rain.
+
+And there is the boy again. The same burgundy flannel and black skinny jeans. Scrunched up, against the wall, desperately trying to shield himself from the downpour under the thin overhang of the old liquor stores roof. 
+
+He must he freezing. Maybe this time I can spare a beer too. 
+
+I climb out of the drivers side, opening my umbrella and awkwardly maneuvering my way out while trying to stay dry. 
+
+Closing the car door I turn and make my way inside. 
+
+“Miss…”
+
+Without even thinking about it, I stop and turn to him. 
+
+“Can you snag another for me? And take the 20 this time, please..”
+
+“No problem” I grab the 20 and hand him my umbrella.
+
+He hesitates a moment before reaching out for it, his demeanor still unsure. 
+
+“Well I’m not gonna take it inside to drip all over John’s tile, it’s a slipping hazard.” Hardly a real reason but a reason enough to convince him to take it. 
+
+This exchange gave me a better look at him.
+
+His cheek bones tall and sharp, his chin small but prominent, and nose and eyebrows like the main actors in those movies from the 40s. 
+
+A handsome young man all be it a little frail. 
+
+I make my way inside, this time in search of an affordable 12 pack, brand irrelevant if I plan on sharing.
+
+I catch sight of a 12 pack of corse on sale and thank the powers that be. 
+
+I purchase my contraband and turn to head out
+
+John shouts after me 
+
+“Caroline… don’t give him much more I don’t trusts that kid, give a bear some honey ya know?”
+
+“It’s give a mouse a cookie..” I half mutter as I cross through the door back into the downpour.
+
+I reach to hand the boy his change but as I’m looking at my hand I realize I’m short about a 5 and 3 ones
+
+“I- oh my god I’m such an idiot, I must’ve bought my 12 pack with your 20 I’m so sorry”  
+He meets my reach and takes the 2 ones left over. I look up at his face and for some reason he has that smirk again. 
+
+“Not a problem miss” his amber gaze locks with mine. 
+
+“I’ll pay you back next time I swear” 
+
+“No matter, I’ve owed since the first two encounters no?” He reaches for a coors, eyes still locked with mine, I shrug.
+
+“I guess that’s true but still I’m sorry, I didn’t ask.”
+
+“No need” he cracks open the coors, tucks the umbrella under his arm pit to steady it over our head, opens his pack of spirits, slips one into the right corner of his mouth and leans forward. 
+
+His face mere inches from mine, eyes focused still on mine. 
+
+“Miss..?”
+
+“Huh?” I manage to stammer out.
+
+“A light if you could?”
+
+“O-oh right.” My hands reach the clear plastic yellow lighter in my coat pocket before the words reach my tongue.
+
+I light his cigarette as he stuffs the spirits pack in his pocket and hands me back over my umbrella. 
+
+He takes a long drag from his cigarette and exhales, turning his head upward, dark hair falling back and eyes closed, bathing in the ecstasy of what looks to be his first smoke of day, and it’s 10pm. 
+
+“Thank goodness for you miss.”
+
+“Aren’t you cold?”
+
+“Not a bit. Don’t worry yourself with me miss.”
+
+—-  
+I pull up to the liquor store. Headlights useless in the airs thick fog after rain. 
+
+But I can still see him standing there.  
+His long, thin frame, leaned up against the brick wall. 
+
+The lights inside the liquor are all shutoff apart from the security lights that line the walls, the yellow-green glow hardly lending any light to what lies outside the thick windows. 
+
+I sit in my car for what feels like half an hour but could only be a few minutes, the old and idle engine choking in 27 second intervals. 
+
+I cut the engine and start to argue with myself.
+
+He’s alone. He’s a stranger. He’s thin. He’s a stranger. He’s so young. Just like you. He has to be freezing. 
+
+I step out of the car, squinting at him through the heavy air. 
+
+“Miss..? It’s a bit late for you to be out all by yourself is it not?” He cocks his head in interest. Hands stuffed in their pockets, one leg bent, foot against the wall behind him.
+
+“It’s 20 degrees out here you can’t make it in skinny jeans and a flannel.”
+
+“I told you not to worry yourself with me miss..” he shakes his head in disapproval.
+
+I feel the unrelenting urge to hop in my car and go back home but I push back. He’s almost the same age as me and all alone here to freeze. 
+
+“I’m not just going to let you turn into ice crystals out here, I have an apartment up the road, you take the couch for the night. And stop calling me miss wer basically the same age.” I ball my mittens into fists fighting to urge to abandon him there, why I can’t say, perhaps I’m afraid? 
+
+“It seems your mind is inchangeable, so I will obey.” He stands up straight, looking taller than before, but bowing his head in mock submission.   
+   
+I climb back into the safety and warmth of my car and unlock the passenger. He follows suit.
+
+——-   
+I park in my assigned spot. Headlights illuminating the dark parking garage beneath my apartment building. I turn my head to him. He is sat comfortably, head back against the seat but half leaned on his right hand so he can watch the world from the window. His knees leaned opposite each-other, one on the door and one against the center console. 
+
+He’s handsome. 
+
+——-  
+We ride the elevator up to my floor. He seems to make an effort to not stand uncomfortably close in the small and obviously not up to date space. 
+
+The elevator doors open awkwardly slow. He follows as I walk down the door lined hallway before stopping at mine and unlocking it. 
+
+It’s warm inside, I’d left the heater on when I left to get him. I’m not sure of the last time he had the privilege of central heating. 
+
+“You can hold up there. I’ll grab you some blankets and a pillow.” I gesture to my deep green sofa and pass to the hall closet I keep my linens in. 
+
+He stands perched in the doorway looking uncomfortable, still just outside the threshold. His expression blank apart from his amber eyes locked once again on mine. 
+
+“C-come in already… you can’t sleep in the hallway” I say before I can even begin to wonder what he’s thinking. 
+
+He smirks his small smirk, removes his muddy boots and walks over to his temporary bed. I can’t even hear his footsteps, he must weigh just about nothing. 
+
+“Help yourself to anything in the kitchen, I really don’t mind, I have to be up early so I’ll be asleep soon but feel free.” 
+
+I turn back to him. He’s sat on the couch, hands in pockets, head back as it had been in the rain. Hair brushed back, eyes closed. His knees widely apart again, spilling over to two cushions, but his feet meeting back on the ground. 
+
+Yes, handsome. But a stranger just the same.
+
+I hand over the makings for his bed and turn away to mine, locking the door behind me.
+
+——-
+
+I don’t hear any footsteps.
+
+I don’t hear a creak in the floor.
+
+I don’t hear the quiet breaths of a skulker.
+
+But I hear my doorknob rattling.
+
+In the pitch black of my bedroom.
+
+My eyes dart around for an escape.
+
+Two windows. But I’m on the fourth floor. 
+
+I don’t own any weapons. The best I have in my room is a the thick bible burning a hole in my nightstand that I’ve never bothered to open. 
+
+There’s nothing I can do.
+
+He is thin sure, but still significantly bigger than me, and I can barely lift 30 pounds. 
+
+I can fight it sure but to what use.
+
+It’s hopeless
+
+I’m
+
+Helpless
+
+Just the same as before. 
+
+I accept it.
+
+Even before the door opens, I’ll have to, if I’ll ever make it through. 
+
+The door opens.
+
+I watch through slitted eyes as his silhouette moves towards my bed through the darkness, practically gliding, and begins to lean toward me.
+
+His longs fingers graze over my jaw, down my chin, down my throat. The winter cold still lingering on his skin, raising goosebumps along where he makes contact on mine.
+
+I gaze up at him, he stares back, no emotion shown in his sticky eyes. 
+
+“Please… just don’t make it hurt..” I open my legs to him, praying to whoever will listen that he’ll have some mercy. 
+
+He freezes. 
+
+“What?”
+
+“Just do it. Get it over with please.”
+
+His icy fingers still lingering over my larynx. 
+
+“How do you- what?”
+
+“I know it’s what you’re here for, of course it is. I was naive to think.. just please..”
+
+My body begins to tremble against my wishes.
+
+He swallows, his eyes wild, pupils filling out his former iris. 
+
+He reaches for my blanket and gentle pulls it away from my already shaking body. 
+
+He gazes down at me. Taking in the crime scene that is my skin. 
+
+Scar layered over scar laced across my inner thighs, my breasts. My most intimate body parts, mutilated.
+
+“Dear God..” 
+
+He’s stumbles backward. Tripping over my night stand, nearly falling but catching himself before impact. 
+
+I take the chance to cover myself and make a move for the door. 
+
+But I’m tangled in my bed sheets. I leap for freedom and am pulled down by my ankle, slamming against my metal bed frame and crying out in pain. 
+
+He makes a jump for me and I scream in terror. 
+
+I can feel my skin leaking hot, thick, liquid where I made contact with the sharp metal corner. 
+
+He lets out an animalistic growl and covers my mouth, stifling my inevitable cries for help he wraps his other hand around my back, holding the sheets covering me in place. 
+
+I stare up at him, eyes so wide I can feel them drying up. 
+
+But he’s turned away from me.
+
+“That’s— I would.. I couldn’t.. dear god I would never do something so— it’s just cruel, I would never do something so disgusting.”
+
+I begin to cry, sob really, loud heavy gasps for air under his large icy palm. 
+
+He won’t look at me.
+
+“I wasn’t— Jesus fuck it’s just monstrous. I was just so hungry, I would never..”
+
+Hungry? 
+
+*Hungry?*
+
+He turns his face to me, his amber eyes that of a true predator, and I the prey. The dim light of the hallway shines on his tanned face. He parts his lips. 
+
+With the little light I have I examine his mouth, his teeth. They’re different.
+
+Wrong.
+
+His canines and the two before elongated, sharpened. 
+
+His nostrils flared, pulling his lips back over his gums like a hyenas warning growl. 
+
+He looks as though he wants to pick me clean. 
+
+“You obeyed so easily, but with more than I’d even asked, you were such an easy choice” he avoids my gaze and begins to shake his head. 
+
+“But that.. I could never do that. I just needed to feed, and you made it so EASY” He whips his head back around to me, staring me so hard in the face I could scream “and I could make you forget, you wouldn’t even have remembered.”
+
+I’m trembling uncontrollably. Unable to speak, I can barely squirm under the strength of his grip.
+
+“Even now, your bleeding right into my hands, I didn’t even have to touch you, I could just bring it to my lips, all the works been done!” He speaks wildly, unpredictable inflection and volume, like he’s gone fully mad.   
+“But look at you! I couldn’t- I can’t, it’d be despicable! You’re a lady a true lady god damned it. FUCK.” He tosses me off 
+
+His eyes I once found comforting zero in on the pool of blood now staining my bed room carpet. He’s frantic, on his hands and knees, begrudgingly crawling toward the crimson puddle. 
+
+“RUINED completely RUINED! Because WHY? THEM. They say we’re monsters you know.”he keeps his face at the floor, unable to look away from the liquid “They say we’re killers, brutal murderers. But they’re the true evil.” He dips his long fingers into it, staining his hands like a criminal, and brings it to his mouth. Long drips of blood falling away back to its mother pool.
+
+ “But I can make you forget. I can take it away. Them. They never leave.” He licks away at the blood on his hands, a starved dog who’s found a feast in a dumpster. Desperate. 
+
+——-
+
+I park in front of the liquor store.
+
+Sun glaring through my windshield.
+
+I still can’t bring myself to step inside again.
+
+I hope someday soon that will change. 
