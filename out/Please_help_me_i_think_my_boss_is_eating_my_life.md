@@ -1,0 +1,374 @@
+I'm posting this here in the hope that somehow, someone reads it and can maybe help me. I don't have much hope really as the internet is frozen. Not frozen in the typical sense, everything still works, but I've long given up hope of anything updating. I've waited too long to really believe that can happen anymore. I'm a solid eighth through wikipedia now, but of course I have to sneak in the time to do this between check ins from Steven. He's always lurking nearby, but I've all the time in the world for that now. Time is all I have left.
+
+The first time I noticed something was wrong was the clock that hangs on the wall behind my desk, but I don't think that's where it started. No I'm almost certain it started with my commute.
+
+It was innocent enough. A bizarre and unsettling sensation to be sure, but like deja vu, innocent enough. I had arrived at work suddenly, like waking up, and realized I had absolutely no memory of the trip. I had obviously made the trip. Put my turn signal on, stopped at red lights, braked round the corners. But any conscious recollection or memory of it was gone. Like I was on auto-pilot. Like I was a zombie.
+
+  
+
+
+Like I said, innocent enough. Weird, but not unheard of, especially on long familiar drives. But that's where it began. I'm sure of it.
+
+I work in an office and it's not terribly important what precisely I do. Suffice to say it's technical, involves a lot of spreadsheets and numbers and files and pointless meetings, and could harshly be described as drudgery. The work really isn't too bad by itself, but what really turned the needle over from boring tedium into crushing drudgery was Steven. My boss.
+
+  
+
+
+Steven
+
+  
+
+
+Steven was the kind of handsome broad-smiling middle aged man one could see starring in a toothpaste commercial. Perfect white teeth in a practiced smile. Piercing blue eyes that looked right through you without ever seeing a thing. Empty and beautiful. Ugly and full of plastic lies. Even after what I've done to his once perfect Mr. Fantastic face his teeth are still the same. Even without lips I can still tell he's smiling.
+
+  
+
+
+No the first time I noticed something was wrong was the clock. It's a beige analog affair. Slightly out of place in the otherwise pristine grey drop-tile ceiling office I work out of. Or in... now... I suppose. It lives on the wall behind my desk, three employee of the month plaques hung proudly beneath it. This job was supposed to be my stepping stone. I had a chance encounter with some of the higher ups and had made such an impression on them that the words promotion and west coast transfer were mentioned. It felt so real at the time, and maybe I was being naive but I considered myself a corporate climber. I had already strode through the majority of the other junior associates and now had taken a lateral transfer with plans to aim for C-division senior. I was a climber. But Steven saw me, and he hated me immediately.
+
+Steven saw me. He knew I was a climber aiming higher and he had no intention of allowing that to happen. He knew, I knew, and he knew I knew. I could see his hate coming from a mile away but I had dealt with office sharks before. I knew what his plan was. I had to be perfect. Any mistake, any slip-up, any breath of defiance or frustration and my ladder would be cut short under his perfectly shined oxfords.
+
+This is why I had taken with saccharine gusto to every task Steven dumped on me and never outwardly complained in the slightest. No I had to keep my mounting loathing for him inside. So I'd smile. I'd turn about in my chair. I'd lean back facing the window with a random file and practiced pensive look as if I were deep in thought, and I'd count.
+
+  
+
+
+One Nantucket
+
+  
+
+
+Two Nantucket
+
+  
+
+
+Three Nantucket
+
+  
+
+
+I gave myself to one hundred Nantucket, a minute forty, to compose myself. Then I'd swivel back to my desk with a bright face, as if I'd just solved whatever problem I was considering and get back to work. It happened so often I could time it perfectly with that beige clock without even looking. I'd glance at its red second hand and know exactly where it'd be when I looked back at it. It was like a little game I played with myself. Not very fun, but it helped calm my seething distaste.
+
+  
+
+
+All that to say that when at 5:17pm. On the Thursday of my daughter's 5th birthday. And Steven strode in. I noticed.
+
+He dropped a stack of DTF reports onto my desk
+
+“Hey superstar! Hate to do this but I just gotta have these prepped and ready to send out tomorrow first thing! thanks for being a team player! Say happy birthday to your daughter for me!”
+
+I smiled, shot him a pair of finger guns I pretended were real, and swiveled towards the window.
+
+The second hand was two ticks past twelve.
+
+I stared blindly at the memo in my hands and counted.
+
+  
+
+
+One Nantucket
+
+  
+
+
+Two Nantucket
+
+  
+
+
+Three Nantucket
+
+  
+
+
+I breathed deeply and swiveled back, glancing at the clock and stopped. The second hand should have been two ticks past seven, but it wasn't.
+
+  
+
+
+It was barely rounding three.
+
+  
+
+
+My daughter was asleep by the time I got home. Maybe I should have quit right there. No, I definitely should have quit right there. But how was I supposed to know? How would anyone be supposed to know?
+
+  
+
+
+  
+
+
+Suddenly it was Monday. Jenny, my Jenny, was understandably upset I missed her party. I'd like to say I was more hurt having missed it than she was missing me, in a way that a child can't really understand... but that's only a half truth. I hated myself for missing her party, and a parent's failure to live up to their own expectations is a pain no child could really wrap their heart around. But as we get older, we forget so much, and it's like the children we were retreat into the dark corners of our minds until one day there's only an unintelligible echo, felt but barely remembered. And so the pain of her daddy missing her birthday, while understandable, is a pain a grown-up heart, my heart, is too... too small maybe, or too full already, or maybe too distant now to grasp the enormity of. I try too, but my own hurt gets in the way. I can't tell if that's normal anymore, or if I've too much hate now to feel anything else.
+
+  
+
+
+I tried to make it up to her.
+
+  
+
+
+We had a special weekend. I took her to Adventure Mountain. We got pictures together with Benny Beaver, ate three foot churros, and rode every ride she was brave enough to. I know because I have the pictures on my phone. But that was all I had. The memories simply weren't there, only the knowledge that it had happened. And in every picture, we both wore pained smiles, knowing that it wasn't really the same. Too little. Too late.
+
+“Hey there's my main man! There's time for scrollin phones later, up and at em!”
+
+Said Steven flashing his perfect plastic smile as he swept in the front doors past me. On reflex I shot him a finger gun and a forced grin and followed him inside.
+
+Then we were in the elevator together and he asked me about my weekend. Fuck you Steven. Fuck you for pretending to care about my life. But then again, now, maybe he does care, maybe he likes knowing, knowing im missing it. Fuck you Steven. But despite my loathing, my love overcame. Quickly I was telling him about Jenny, her love of watercolor and messes, how impressed her science teacher is, how her mother's eyes light up and the little wiggle of her hips when she gets down on the floor to see what jenny's reading. I'm not sure why I told Steven any of these things, but when the elevator doors dinged open I looked up from my rambling and caught eyes with him.
+
+His smile was still fake, but his eyes were genuine. For the first time I think I saw true delight in those eyes. The delight of a sadist looking at dying roadkill.
+
+  
+
+
+I felt cold, and I was back at my desk.
+
+  
+
+
+The next real thing I noticed was the coffee.
+
+  
+
+
+The missing memories are obvious in hindsight, but at the time, at the time. I cant remember what I thought at the time. Maybe I was afraid and in denial, like finding a new lump someplace sensitive and pretending its nothing. It was so long ago. Memory is a funny thing.
+
+  
+
+
+I walked out of my office past ten employee of the month plaques and got a cup from the drip machine in the break room. The pot was visibly steaming. Too hot to drink. So hot it hurt to hold the cup, we were always out of cup sleeves, so I rushed back to my desk to put it down. It steamed merrily as Steven leaned in from the door-frame and dropped the Wilson account onto my desk with a knowing wink. He gave a satisfied clap of his hands and strode away as I gave him a thumbs up with a fake can do smile.
+
+The Wilson account was a grenade. But I was a bomb defuser. There was no heaven or hell anywhere where he would have the satisfaction of pulling one over on me. So I dug into the perilous account with ferocious intensity.
+
+I had resolved the D-Stock issue, and made sufficient contact with Mrs. Wilson to know that her husband was only interested in the Portsmouth properties if they could be sub-loaned. I dug into the easement cases for the county and reached for a sip.
+
+Immediately I spat out the fiery coffee, slamming the still steaming cup to my desk and splashing its burning contents all over my hand. Cursing I cradled my rapidly reddening hand and rushed back to the break room. Gentle release came slowly as the cool tap water bathed my pink wrist.
+
+“Hey there trooper! Wounded in battle?” Steven joked as he stepped towards the steaming pot.
+
+Fuck you Steven. I forced a laugh as I took a bandaid from the first aid station and pulled it across a blister that had formed on the inside of my wrist. I responded in a jovial tone.
+
+“Keeping calm and carrying on as the brits say”.
+
+Steven laughed his false laugh, but the smile in his eyes was real. He poured a steaming cup and drank a long draft of it with a satisfied sigh.
+
+  
+
+
+I was back at my desk and there were three missed calls from the county and a message that if I still wanted those records I'd have to call tomorrow and not to waste their time again. My coffee was ice cold.
+
+  
+
+
+There was an employee of the year plaque on my wall and a shelf filled with commendations and certificates when jenny turned 6. I strode over to the printer for my resignation letter. We had her birthday party at bounce park and apparently I had broken my ankle catching her. The pictures were shot in bursts, like poorly done stop motion. First her surrounded by friends, then a bounce, then a higher bounce, her look of fear and flailing arms high above the other children, then her in my arms and me on my back, and then some close ups of my foot purple and swollen. Her crying over her prone dad and me laughing through a painful smile. Then ice cream together at a hospital, all of us laughing together. My letter slowly peeked from the machine line, by line, by line, by line, by line.
+
+I looked away from my phone as the machine beeped angrily. “Refill paper tray” it's robotic voice demanded, so I walked back to the supply room for another ream. I slipped the fresh ream into its hungry jaws and drifted back through my photos, distant as starving children in a charity commercial.
+
+“Kids am I right?” Steven laughed as he slapped my back.
+
+I startled.
+
+“Yeah that's what it's all about," He continued. "Wouldn't be worth coming in if not for them”.
+
+I looked up from my phone. A letter was printing out of the machine. Steven was looking over my shoulder, steaming cup in hand. I looked up past his lying smile to his eyes, staring at my phone and saw a distant twinge of... something. Jealousy maybe? Longing? Hunger? For a moment, there was more to him. But that moment passed quickly as his gaze drifted back up to mine, and that sinful eagerness returned.
+
+  
+
+
+The machine beeped angrily.
+
+  
+
+
+“Refill paper tray” its robotic voice demanded,so I walked back to the supply room for another ream .
+
+  
+
+
+“Oh yeah” I said, forcing a jovial smile as I bent to slide in another ream. “She's my whole world”
+
+  
+
+
+“Good man” said Steven, his gaze boring into me. “Still though, nice to come here and get away from the ol' ball and chains!”
+
+  
+
+
+Fuck you Steven.
+
+  
+
+
+Steven laughed and strode away sipping his steaming cup as I waited for a report to finish printing. The machine beeped angrily.” Refill paper tray” it demanded, so I walked back to the supply room and retrieved another ream.
+
+  
+
+
+The room was silent save the gentle buzz of the projector, the disinterested eyes of my coworkers glossed over and empty as I hit the next slide. Jenny was 9. Steven smiled from the corner to my right, his features half hidden in the blue glow save his shiny white teeth. I explained that LG gap returns were up three percent since last quarter, indicating to the graph on the slide. With mock enthusiasm I clicked to the next slide and relayed HQ's commendations for our performance and their new higher expectations. The projector clicked again to an old color coded org chart as I began to explain the new q-strat transfer. I clicked to the next slide and the words died in my mouth.
+
+Instead of the new org chart, there was a photo, a selfie. My wife and I were sitting in swimwear on a beach, smiling under an umbrella. My arm was around her bare shoulders, her hand was on my thigh, and a large colorful drink was in her other hand. I stuttered and looked out at my assembled coworkers, but they just stared back at the screen blank and glossy as ever. I clicked to the next slide.
+
+Her and I in a dimly lit restaurant, a noodle strung from my mouth to hers, like Lady and the Tramp. It was her favorite movie. My heart quaked as involuntarily I tried to whisper her name, but only a dull wheeze came out. I couldn't remember her name. Did I ever know her name? A tear dropped to my cheek as I clicked again. She was blushing, covering herself with a silky blanket in a large bed and holding a hand in front of her face, stark white with the camera's flash.
+
+“We'll come on champ, don't leave us hanging! What about the new q-strat?”
+
+I turned to look at Steven, smiling at me from the side. I gave a panicked smile and nodded, the words of my presentation began unfolding from my dry tongue like a roll of stenographers tape.
+
+“The lateral q-strat should allow for b-better cross team vision cohesion” I said lamely.
+
+I clicked and her lips were pressed against my sex. The dimples of her hips visible just behind the top of her cherry red hair. The words of the presentation fell out of me mechanically as I clicked from slide to slide. Tangled sheets and naked flesh, eyes filled with desire and contentment, orgasmic smiles. My love clicked by in silence unbroken save for my own monotonous drone on the importance of track reports. The presentation ended, the lights came up, the room emptied, and Steven shot me a pair of finger guns as I stood numb and empty.
+
+“Great job man! Way to keep the team energy up! You're a natural leader!”
+
+  
+
+
+I was drunk. Somewhere between a little and very. Cheerful garlands clashed with the bare grey walls. The room was loud with moderate chatter. Jenny is 13, and smiles embarrassed next to an awkward faced boy in the back seat of a car I don't recognize. I must have taken these. I think I might have been teasing the boy. The pictures were evidence for the police if he tried anything funny. That seems like something a father might say when chaperoning a first date right?
+
+I had lost track of her. Jenny and her mother had come to the office christmas party. Looking at the picture I could see the strained smile on my face as steven's big fake grinning arms wrapped around my family. I dropped my phone, looking up and around with breathless panic. My coworkers milled about in clutches of drab neutral tone mutterings. Like clouds. My head swam and I had the notion I was lurching sideways but couldn't quite do anything about it. I called out her name but to my ringing ears my voice sounded like play-dough extruding. I heard a “hey!” and caught a glimpse of long red hair dashing past a soaked button up. The owner of the button up grumbled angrily as I pushed past him into the conference room.
+
+Steven was surrounded by some suits. Their laughter was as fake as he was. Panic and fear and anger mixed. I tried to conceal a wheeze. I pulled myself up straight and strode over.
+
+  
+
+
+“hey boss. Did you see a girl run by here?”
+
+  
+
+
+perfectly square crystal clear ice cubes clinked about his scotch as he turned to me. His perfect toothy smile even wider and brighter than usual.
+
+“You mean a skirt?” steven boomed across the tepid party. “or” his voice suddenly restrained and friendly, “ a girl?”. His tone had the slightest lick of something that sent my heart pounding in my chest. My breath squeezed out, my throat tight as a needle.
+
+  
+
+
+“a girl” I rasped.
+
+  
+
+
+Steven smiled. “oh yeah buddy, she just left through there. That one's yours?”
+
+  
+
+
+I didn't answer. I just looked through the door steven had pointed too and the dark empty nothingness beyond it. I could feel his hungry gaze on my back as I stepped through.
+
+  
+
+
+The copier beeped. Refill paper tray, so I did.
+
+  
+
+
+How was this happening?
+
+  
+
+
+I was in the breakroom and the coffee was too hot.
+
+  
+
+
+Where was the time going?
+
+  
+
+
+I hung another plaque on my wall.
+
+  
+
+
+Where was I when it went?
+
+  
+
+
+Steven congratulated me on closing the byers account.
+
+  
+
+
+Was I here? In this office? Was there anything outside this place at all?
+
+  
+
+
+One Nantucket, Two Nantucket.
+
+  
+
+
+I was back at my desk.
+
+  
+
+
+I had stopped working.
+
+  
+
+
+There was always more. More reports, more meetings, more presentations and conference calls and at some point I had stopped pretending to care. I can't remember when but at some point I had stopped even pretending to work. I expected to be reprimanded, written up and fired. I hoped for it, prayed for it even. But It never happened. I would sit there staring at my screen until boredom and desperation cajoled me into action and I would type and call and circle back until whatever meaningless bit of drivel Steven gave me was complete. Then Steven would saunter in and give me more. Always with the same false smile and the same genuine delight in his eyes. I couldn't hide my dead eyes from him any longer.
+
+  
+
+
+“There's my main man'arino! Got the Fisk account for you when you're done with those DTF reports! I know I can always count on you!”
+
+  
+
+
+I snapped
+
+  
+
+
+I leapt across the desk at him, grabbing one of the employee of the year plaques that had piled up into stacks around my office and tackled him. He fell with me atop him. When I smashed the plaque into his beautiful perfect face again and again his arms raised placatingly. Again and again and again I smashed the edge of that plaque into him. Blood splattered with every strike as skin split and began to tear away. There was a crunching sound as his skull broke open and grey brain matter was sent flying across the thin carpet. I don't know how long I stayed there. I laid blow after blow into his ruined skinnless face, screaming and crying at him.
+
+His arms continued to wave lazily the whole time. As if he were saying “whoa buddy”.
+
+I was exhausted.
+
+I slumped back against the desk and observed the bloody mess that was my boss's head. Then, casually, as if there was nothing wrong in all the world, Steven got up.
+
+The shreds of his face lay about our feet alongside bits of brain and skull fragments. But Steven was unbothered. He just smiled a perfectly white bloody lipless smile at me..
+
+  
+
+
+I stared up at him, too crushed and hopeless to move.
+
+  
+
+
+“Little wound up huh champ! Maybe you should take some time off and see that family of yours! There's more to life than just work ya know!”
+
+  
+
+
+And with that he strode out of my office without a care.
+
+  
+
+
+I wanted to die, but...
+
+  
+
+
+Jen is going off to college. I'm still the same. He's still here, popping in every few hours to drop off another load of cases to review. His face as raw and red and bloody as the day I stripped it away from him. I can't remember when it happened. Maybe it was hours ago, or maybe it was years. Everything is always the same here. I know I still leave, I know I still have a life outside, because I always have new pictures. But if I can't remember taking them, can I really say those things happened? If I can't remember my life, am I really living one at all?
+
+  
+
+
+Please help me, I just want to go home.
