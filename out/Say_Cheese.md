@@ -1,0 +1,101 @@
+"An old man was found dead in his home this morning in Pummel Hill. Foul play is suspected."
+
+This isn't me, I know myself... I'm a good person.
+
+And yet it's there. I can sense it, the right side of my mouth nearly imperceptibly curled upward.
+
+*Found dead, found dead...* The words reverberated in my head as the muscles in my cheek relaxed.
+
+I had been starting to smile. It made no sense, but I knew it was true. I had zero ill will toward anyone, and yet there it was again.
+
+That smile.
+
+I first noticed it weeks ago. It was innocuous enough.
+
+"Well, they just let Jim go."
+
+He was my coworker of 20 years. I knew him about as well as any work friend, without crossing into being "real friends". We'd get lunch together. He had told me about his family, his wife and his two sons. I knew about his dream to move to Arizona for retirement. I quickly made my way over to him and offered my sincerest condolences.
+
+"Hey man, keep your head up. This isn't the end of the world. I know you, and you're gonna be fine."
+
+He seemed to take it to heart.
+
+"Keep in touch," he said as he grabbed my shoulder and walked away.
+
+I sat down in my office, defeated. Jim? Fired? Just like that? I zoned out as I took in the scenery outside my office window. Suddenly, I snapped out of it.
+
+I was smiling.
+
+Why... was I... smiling? Jim was my friend. I cared about him. I didn't want him to get fired! His family! His financial situation was already dire. This would be disastrous for them. I told myself it was just psychology. A nervous smile, maybe? Suddenly, a thought passed through my mind.
+
+*I was glad he was gone. Less competition.*
+
+That wasn't me! How sick. It didn't even make sense. My position was more or less guaranteed at the company anyway. But still... I thought it.
+
+Was I glad Jim was fired?
+
+Unfortunately for me, it didn't stop there. It began to creep up more and more often.
+
+A dead squirrel on the sidewalk, my lip twitched. I pushed the very idea of it away.
+
+When my neighbor's car was taken, she sobbed. She confided in me. I had known her for years. She told me she didn't have the money to get a new one, and she was afraid of taking public transit. She had no idea what she was going to do. I hugged her and tried to assure her everything would be fine. Something would work out.
+
+I was distraught for her, but I couldn't help but notice... when she first told me, I felt almost a spark of joy. I tried my best to hide it. I couldn't let her see me smile while she cried.
+
+But it was there, if only for just a second. It made no sense to me. I hated that this had happened to her, but all the while I felt that smile creep up as quickly as I shut it down.
+
+Then there was the story about the bus crash in Ecuador. Apparently, it was horrendous. I shook my head as the newscaster reported the story. I sat there in quiet contemplation, thinking about how fragile life really is, and there it was... a wide grin stretching across my face.
+
+Am I a monster?! I pushed the thought away as soon as I realized what I was doing.
+
+"ENOUGH!" I yelled into my empty apartment.
+
+What is this? I thought in desperation. I'm a good person! I've never wished harm on anyone. This was a pattern now, too much to ignore. I started thinking I should talk to someone, a professional, a counselor, anyone... but what would I say? I think I'm turning into some sick freak who takes pleasure in the misfortune of others! No way.
+
+Then last week, I was driving home when a song I absolutely hated came on. It had to be one of the dumbest songs of the 2010s. I felt myself grow agitated at the stupid, phony hook repeating in my ears. How was this song so popular?
+
+I hit a red light and waited at the intersection. It was dark and raining lightly. I don't know how long I sat there, but when I snapped out of my daze, the light was green. I was tired and sort of driving on autopilot. I heard the hook of the song repeating in my ears.
+
+Suddenly, I snapped out of it again. Not only was I listening to the hook, I was singing along to it... loudly.
+
+What the? I truly hated this song. What was I doing? I quickly shut the radio off and sat in the frigid discomfort of what had just happened. I was singing along with that garbage, and with enthusiasm! Something was really starting to feel off. I thought back over the last month and the smile that kept creeping up.
+
+I was scaring myself.
+
+After reading a bunch of threads here, I checked my house for carbon monoxide. Nothing. I eventually went to my doctor and we did several blood tests. Basically, he told me that unless there was something actually wrong, he couldn't do anything for me. He couldn't diagnose "misguided feelings," but if I wanted, he could put me in touch with a specialist.
+
+I declined.
+
+I noticed it happen again last night, but this was different. An ad for some stupid movie came on. It looked ridiculous. I remember thinking that movies lately are so bad, but as the trailer went on, I noticed myself getting more and more engrossed in it.
+
+"Heroes standing against the darkness!" the trailer voice proclaimed boldly. It was so stupid, but... I couldn't help but feel... proud? Like I was proud of the heroes?!
+
+"When everything seems lost, you need hope!" the voice said triumphantly. I felt a twinge of sadness and then a swelling of emotion as the music crescendoed.
+
+"This is so cheesy..." I said timidly, my emotions betraying my mind.
+
+"YOU WILL NEVER STOP US, EVILDOER! NEVER!" the hero shouted as he broke through his trap and began flying toward the screen.
+
+"YES! AWESOME! THAT IS SO AWESOME!"
+
+I was shouting... it was me that was shouting.
+
+And then the tears started.
+
+"That was so friggen cool," I said, whimpering, my face now wet... and yet, in between whimpers, I felt that familiar contortion... the smile.
+
+What is this? Why was I crying over a movie, and a stupid one at that? I didn't even like superhero movies! The crying and smiling stopped, and I found myself on the floor, confused as to what was happening to me.
+
+I don't know how long this will go on for, but it's only getting worse. I know it sounds like maybe I need to see a professional, but I swear there's something else going on here. I'm fine, I really am, but these reactions just need to stop happening.
+
+The way it's going, I'm starting to get nervous. I keep zoning out, and these outbursts are concerning. But the thing is, I'm fine. I'm completely fine.
+
+I haven't even mentioned the ringing. At first, I thought it was tinnitus, but it stops when I cover my ears. Sometimes I think I can hear it from the other room, but whenever I go looking for it, it seems to move somewhere else.
+
+It's probably just stress. There's been a lot going on lately.
+
+I've been looking at this old photograph of me and my ex-girlfriend. They look really happy together. But no matter what I try, I can't remember what happened to them...
+
+I keep looking at it.
+
+It makes me smile.

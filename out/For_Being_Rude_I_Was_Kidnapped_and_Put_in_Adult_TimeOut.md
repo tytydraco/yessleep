@@ -66,7 +66,7 @@ My face scrunched up in confusion. I woke up in this strange, childlike room bec
 
 The anonymous figure standing on the screen tilted their head slightly. Their tone was that of addressing a misbehaving child, but their body language was menacing in a way adults were to each other. My stomach began to lurch at the words I was being told, not wanting to believe they were true. I would be in this bizarre room for *longer*?
 
-“We at Firm Hand Co want you to take this time to reflect on what you’ve done. When you’ve decided to have an attitude adjustment, we can restore your privileges—of *freedom*. Be good.”
+“We at Firm Hand Co want you to take this time to reflect on what you’ve done. When you’ve waited long enough to have an attitude adjustment, we can restore your privileges—of *freedom*. Be good.”
 
 With those ominous yet patronising words, the screen cut out and slid back into the wall.
 
@@ -126,8 +126,7 @@ None of this could keep my thoughts from raging at the woman who put me here.
 
 People were put in solitary in prison for crimes, not tiny social faux pas.
 
-An immeasurable lot of time later, I met a new person in line for the shower, a blonde, frightened-looking girl. Emilia looked barely older than 20. Her crime to land her in this lurid hell?  
-She’d scolded her barista for messing up a coffee order. Firm Hand had kidnapped and scolded her. Irony again. Unlike the others, though, she’d accepted her fate.
+An immeasurable lot of time later, I met a new person in line for the shower, a blonde, frightened-looking girl. Emilia looked barely older than 20. Her crime to land her in this lurid hell? She’d scolded her barista for messing up a coffee order. Firm Hand had kidnapped and scolded her. Irony again. Unlike the others—endlessly pleading with and apologising to our captors to no avail—she’d accepted her fate.
 
 “I deserved to be sent here” she murmured remorsefully. “Revenge is what teaches us right from wrong.”
 
