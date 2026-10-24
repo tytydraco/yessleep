@@ -1,0 +1,287 @@
+The first email arrived at 6:43 on a Tuesday evening.
+
+Subject: SECOND NOTICE — QUIET HOURS VIOLATION
+
+Apparently, I'd been repeatedly banging on my bedroom wall at 1:16 a.m. on Wednesday.
+
+It was still Tuesday.
+
+I assumed someone had entered the wrong date. My building has one of those tenant portals where you pay rent, submit maintenance requests, and receive passive-aggressive reminders about not putting cardboard in the trash chute.
+
+I replied that the incident hadn't happened yet and went back to making dinner.
+
+At 1:16 that night, something knocked three times on my bedroom wall.
+
+I remember the time because I was already awake. I'd spent an embarrassing amount of the evening wondering whether something would happen, which is ridiculous considering how often the management company screws up its paperwork.
+
+The knocks were loud enough to make the framed photograph above my nightstand tilt sideways.
+
+Three quick bangs. All at the same height.
+
+I put my ear against the wall.
+
+Nothing.
+
+Then I did what any annoyed apartment dweller would do. I banged back.
+
+There was a pause.
+
+Something struck the wall hard enough to knock the photograph off its hook.
+
+I slept on the couch.
+
+The following afternoon, another email arrived.
+
+Subject: THIRD NOTICE — QUIET HOURS VIOLATION
+
+Incident date: Thursday, 12:38 a.m.
+
+Description: Prolonged scraping noise, consistent with heavy furniture being moved across the bedroom floor.
+
+I called the property manager.
+
+Her name is Denise. She's probably in her fifties and has worked in the building longer than I've lived there. She's nice enough, although she has a habit of saying "interesting" when she means "I'm not dealing with this."
+
+I explained the dates.
+
+"Interesting," she said.
+
+I told her about the knocking.
+
+"Could be a neighbor."
+
+I explained that my bedroom shares a wall with the old service shaft, not another apartment.
+
+"Well, sound travels."
+
+I asked her to check who was submitting the complaints.
+
+She said they were anonymous.
+
+I asked if she could at least confirm they were coming from an actual tenant.
+
+She told me she'd look into it.
+
+That evening, I moved my bedroom dresser against the opposite wall. It's a cheap six-drawer thing from IKEA, but it's heavy when it's full. I figured if somebody was playing an elaborate prank, I wasn't going to cooperate by leaving the furniture where it was.
+
+At 12:35, I sat on the bed watching it.
+
+Nothing happened for two minutes.
+
+Then I heard a faint dragging sound.
+
+I thought it was coming from the apartment above me.
+
+It wasn't.
+
+The bottom drawer of my dresser was sliding open.
+
+Very slowly.
+
+I got off the bed.
+
+The drawer stopped.
+
+I approached it, pushed it shut, and stood there with my hand against the front.
+
+At 12:38, the entire dresser moved.
+
+Not much. Maybe three inches.
+
+But it moved toward me, against my hand, with enough force to shove me backward.
+
+The legs made a horrible grinding sound on the laminate.
+
+I stumbled against the bedframe. Before I could stand up properly, the dresser moved again.
+
+This time I saw something.
+
+There was a gap between its back panel and the wall. Just a narrow strip of darkness.
+
+For half a second, four pale fingertips appeared around the edge of the dresser.
+
+They curled against the wood and pulled.
+
+I ran.
+
+I didn't stop until I reached the street. I was barefoot and had left my phone upstairs. A guy walking his dog asked if I was okay.
+
+I told him someone was in my apartment.
+
+He called the police for me.
+
+Two officers checked every room. Nobody was there. The windows were locked, the front door hadn't been forced, and the old service shaft was sealed behind plaster.
+
+One officer examined the dresser.
+
+He pointed out four long scratches on the back, near the corner.
+
+"Probably happened when you assembled it," he said.
+
+I hadn't assembled it. I'd bought it secondhand.
+
+I didn't mention the fingers.
+
+I stayed with my friend Sam that night.
+
+The next morning, Denise finally called.
+
+She sounded different.
+
+Apparently, she'd asked the company that operates the tenant portal to investigate the complaints.
+
+They couldn't find another tenant associated with them.
+
+The reports were being submitted from my own apartment.
+
+"That's impossible," I said.
+
+"I know."
+
+"Doesn't that mean somebody has my password?"
+
+"That's what we thought. But they're not coming through your account."
+
+I asked what that meant.
+
+She said the reports were coming from a registered device assigned to Unit 3F. My apartment.
+
+Except the building only has one registered device per unit, and mine was sitting in my pocket.
+
+She'd asked their support team to disable the other device.
+
+They couldn't.
+
+It had been removed from the system in 2019.
+
+I asked her what kind of device it was.
+
+She said she didn't know.
+
+I haven't been back inside the apartment.
+
+Sam helped me arrange for a moving company to collect my things. I gave them permission to throw out the dresser rather than take it.
+
+They refused to enter the bedroom.
+
+The crew leader called me and said something was wrong with the floor.
+
+He said the dresser was sitting in the middle of the room, but there were deep scratches extending from its legs all the way to the bedroom doorway.
+
+Like somebody had been dragging it back and forth for hours.
+
+He wanted to know what I'd done to the floor.
+
+I told him to forget the dresser and take whatever was already packed.
+
+He hung up.
+
+About five minutes later, he called again.
+
+I could hear men shouting in the background.
+
+"Is there somebody living in that wall?"
+
+I asked him what he meant.
+
+"There's a gap behind the baseboard. Somebody keeps sticking their fingers through it."
+
+Then the call disconnected.
+
+I've tried calling him back. His company told me the crew finished my job and went home. They refused to give me his personal number.
+
+My belongings arrived yesterday afternoon.
+
+One box was missing.
+
+It contained the framed photograph that had fallen off my bedroom wall.
+
+I'm mentioning this because of what happened last night.
+
+At 10:14 p.m., Sam received a noise complaint.
+
+Not me. Sam.
+
+He doesn't live in my building and has never used its tenant portal.
+
+It came to his personal email address.
+
+Subject: FIRST NOTICE — QUIET HOURS VIOLATION
+
+Incident date: Friday, 11:52 p.m.
+
+Description: Repeated knocking from inside the bathroom wall.
+
+Sam forwarded it to me, then called the management company listed at the bottom.
+
+Their office was closed.
+
+At 11:50, we were sitting together on his couch. The bathroom door was open. We could see the sink and part of the shower curtain.
+
+At 11:52, something knocked three times.
+
+Sam stood up so quickly he knocked his glass off the coffee table.
+
+We both heard it.
+
+The knocking came again.
+
+And then the shower curtain moved.
+
+There wasn't a breeze. The bathroom window doesn't open.
+
+The curtain simply pushed outward in one place, about four feet above the floor.
+
+Five narrow shapes pressed against it.
+
+Like someone was holding their hand flat against the fabric from the wrong side.
+
+Sam grabbed his keys. I grabbed my shoes.
+
+We got into his car and drove to a motel about forty minutes away.
+
+We've been here since midnight.
+
+I was beginning to think we'd finally gotten away from it.
+
+Then, about twenty minutes ago, another email arrived.
+
+This one came directly to me.
+
+Subject: FINAL NOTICE — QUIET HOURS VIOLATION
+
+Incident date: Saturday, 3:24 a.m.
+
+Description: Sustained banging against interior door. Occupant repeatedly requested assistance. Door remained closed.
+
+It's 3:11 right now.
+
+Our motel room has a bathroom near the entrance and a connecting door beside the television.
+
+Sam checked the connecting door when we arrived. It was locked. The front desk confirmed the room next door is unoccupied.
+
+I've pushed the desk against it anyway.
+
+I didn't want to write any of this. Sam says posting it is stupid and I should just try to sleep.
+
+But I noticed something while moving the desk.
+
+There's a white envelope on the carpet, almost completely hidden underneath the connecting door.
+
+It's addressed to me in the same typeface as the complaints.
+
+I pulled it out using the edge of a room-service menu.
+
+Inside was the photograph from my bedroom.
+
+The frame is broken.
+
+Someone has written a time on the back.
+
+3:24.
+
+I haven't told Sam.
+
+I can hear somebody moving furniture on the other side of the connecting door.
+
+The room is supposed to be empty.
