@@ -1,8 +1,6 @@
 *Hopefully writing will help it stick this time.*
 
-
-
-Last night, I fell asleep in my apartment. When I awoke, I could still feel my fiancées hair on my face, hear the rumble of traffic outside and see the warm light of the lamp behind my eyes. But as I opened them this morning that mirage gave way to white LED lights, coarse bed sheets and blank walls. Raising my head, I took in the space. The room was bare, there were two beds, one being mine and another across from it, stripped of its sheets. And between the beds was a wooden bedside drawer atop which was a Saint James bible. That was the breadth of my new space, a far cry from the homely Manchester apartment I had been just before. The curtains were drawn but from behind them white light bled out, it was the middle of the day. There was a throbbing behind my eyes, like the shock of my new surroundings was causing my mind physical pain as it struggled to make sense of it. I was holding my head in my hands as someone opened the door opposite me and entered. A young woman, dressed in a green nurse’s uniform, her hair tied back lazily, she seemed tired and stressed. She paid no notice of me as she silently placed a Styrofoam container on my bedside. “Where am I?” I finally spoke as she turned to leave. She turned back and gave me a distressed look “What do you mean Nick?” She knew my name and spoke gently, as though we knew each other, but no matter how much I strained my eyes on her, nothing was coming to me. Seemingly taking in my confusion and panic, she once more turned to leave.
+Last night, I fell asleep in my apartment. When I awoke, I could still feel my fiancées hair on my face, hear the rumble of traffic outside and see the warm light of the lamp behind my eyes. But as I opened them this morning that mirage gave way to white LED lights, coarse bed sheets and blank walls. Raising my head, I took in the space. The room was bare, there were two beds, one being mine and another across from it, stripped of its sheets. And between the beds was a wooden bedside drawer atop which was a King James bible. That was the breadth of my new space, a far cry from the homely Manchester apartment I had been just before. The curtains were drawn but from behind them white light bled out, it was the middle of the day. There was a throbbing behind my eyes, like the shock of my new surroundings was causing my mind physical pain as it struggled to make sense of it. I was holding my head in my hands as someone opened the door opposite me and entered. A young woman, dressed in a green nurse’s uniform, her hair tied back lazily, she seemed tired and stressed. She paid no notice of me as she silently placed a Styrofoam container on my bedside. “Where am I?” I finally spoke as she turned to leave. She turned back and gave me a distressed look “What do you mean Nick?” She knew my name and spoke gently, as though we knew each other, but no matter how much I strained my eyes on her, nothing was coming to me. Seemingly taking in my confusion and panic, she once more turned to leave.
 
 “I’ll go get Dr Arnold!”
 
@@ -58,10 +56,6 @@ Behind me, a slender man slips into the queue, his pinkie plunged deep into his 
 
 “You need to come right nowwwwuhh!” such unnatural squealing from a man of his age sent a shiver through me. The gaunt man behind me finally retracted his finger from his nose, on the end of it now stood about a marble sized globule of snot, blood and filth. I couldn’t hold back my disgust and gagged. Seeing this the man behind me shivered with glee and in one smooth motion lurched forward, smearing the snot on the back of my neck.
 
-
-
-
-
 I exploded, the shock seemed to expel the fog I had found myself in and for the first time since I woke, I saw clearly. This is not where I belong! I am not mad! I need to get out of here! I surged forward to the front of the line and ripped the phone from the whining man’s hands. To this the man lets out a piercing scream like that of a schoolgirl and began beating on the back of my skull as I tried desperately to tap in my home number.
 
 “Nick!” the nurse called to me; the disappointed tone of her yelling reminds me of my mother.
@@ -69,9 +63,6 @@ I exploded, the shock seemed to expel the fog I had found myself in and for the 
 “Hand the phone back now!”
 
 The older man grabbed me by the hair and smashed my skull into the wall. I felt blood run down my eyebrow line and my vision blurred. I turned and swung back at him with the phone forcing him to fall back. Security began to close in on the commotion and just in time pulled the man back as he went back at me. “Please! I just need to use the phone!” I mustered through my haze and began again tapping in the number. As the phone began to dial, I slumped back against the wall exhausted.
-
-  
-
 
 “I just need to call her!” I whimpered, I had begun to cry now. Security sedated the older man and began towards me. The nurse pushed through the crowd and gestured for them to stop, desperately trying to deescalate.
 
