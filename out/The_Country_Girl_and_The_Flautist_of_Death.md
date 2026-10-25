@@ -1,0 +1,97 @@
+The giant maw of the cave yawned at my back as I stood by the edge of the cliff, an icy wind blowing between the rocks and chilling the back of my neck. From within, I heard the soft crumble of stones hitting the ground, the whisper of air moving through small holes and skating over sheer walls.
+
+In front of me, three of the cavers stood chatting amongst themselves. They were all kitted out in the usual gear; padded jackets, knee and elbow pads, helmets with torches, and packs containing food, water and first aid supplies. I had a similar pack of my own, though the contents were slightly different.
+
+One of the cavers glanced towards me, probably wondering why I was standing apart, but I didn’t meet their gaze, looking instead towards the sky. A thin veil of cloud hung over us, though the air was dry and blustery. Small pieces of rock and chalk skittered around my ankles as I shuffled my feet.
+
+After a few more minutes, the final two members of the group arrived. After a couple of standard safety checks, everyone was ready to head inside.
+
+I waited until they were poised at the opening of the cave before clearing my throat. “I’m, um, not feeling too good,” I told them, letting my shoulders sag a little. “I think I might sit this one out.”
+
+One of the explorers stepped forward to examine me. She squinted at my face, then nodded. “You do seem a little pale,” she said. “Want me to wait with you? I can walk you back to town.”
+
+I quickly brushed off her concern, feeling a twinge of guilt. “No, no. I’ll be okay. I’ll just stay out here and get some fresh air. You guys go on ahead.”
+
+There was a bit more back-and-forth before I finally managed to convince them to start the expedition without me. One by one, the cavers disappeared into the gaping mouth of the cavern, leaving me by myself. I watched and waited until the darkness had swallowed each of them, then straightened in relief.
+
+With only the wind as my companion, I walked over to one of the large fragments of rock and sat down. And began to wait. I heard the distant voices and footfalls of the cavers fade further and further away, until silence was all that remained. Resting my chin against my hand, I traced the jagged outline of the cliffs until my eyes started seeing faces amongst them, then looked away with a sigh.
+
+I had been doing this for almost a year now. Joining cave expeditions only to wait outside, never actually entering the caverns. It wasn’t a fear of what lay inside, but rather an expectation of what I might encounter outside.
+
+I had first discovered the incident a few years ago. I had been scrolling through old news forums when I came across an article about an expedition that had happened two decades ago, where a group of cavers had entered a treacherous cave system. During the exploration, it began raining heavily, and water quickly flooded the cave entrance, trapping the explorers inside. Sadly, all of them died that day. But while the story was tragic, what had intrigued me the most was the photograph that accompanied the report. It was an image of a group of rescuers standing at the entrance of the cave during the incident, rain pouring down from the sky and the ground around their feet completely flooded. But in the top left corner, standing a short distance away from the rescue team, was a strange figure shrouded in grey. As soon as I noticed the figure in the photograph, a strange chill touched my spine, as if I was seeing something I wasn’t supposed to. The photo was old and the quality wasn’t the best, but I could tell the figure didn’t fit the narrative. I scrolled down to the comments to see if anyone had mentioned it, but there wasn’t a single reference to the strange grey apparition. So I showed the photograph to one of my friends, curious to see what he thought about it. When he told me there was no figure there, I thought he was playing a prank, but his face was decidedly serious. No matter how many times I pointed to it, he insisted that there was nothing there. Just an empty spot in the left corner by the crumbling cliffs.
+
+Confused and intrigued, I showed the same image to several other friends and acquaintances, but nobody else was able to see the strange grey figure in the corner of the photo. I examined it in multiple formats—physically and digitally—under different lights and different conditions, but the figure was visible every time. I hesitated to call it a person, because it was too vague and indistinct to really tell, with no distinguishing features other than it had a humanoid shape and was draped completely in grey. It definitely wasn’t a smudge, or a blur, or a lens flare, because someone else would have noticed it. There was definitely something there. Something that, for whatever reason, only I could see.
+
+The mystery only grew, so I started digging deeper. I was thoroughly entranced by this grey figure. I wanted to know who it was, or what it was, and why it was only visible to me. I was convinced there had to be more to it.
+
+I sequestered myself away and spent days pouring over old articles, digging through records and scrolling through video reports on the incident until I finally found evidence that I wasn’t going crazy. That I wasn’t losing my mind over a simple grey smudge on a photograph.
+
+Buried in the archives, I found a video from the time of the incident, of the same rescue team standing at the entrance of the cave. The photograph must have been an extraction from the footage, or at least taken at the same time, because it was almost the same composition as the video. Being almost twenty years old, the footage was grainy and shaky, but it was clear enough for me to see the figure in grey, standing exactly where it did in the photograph. It wasn’t a trick of the light or an illusion; it really was there.
+
+In the footage, the rescuers were talking about possible extraction methods for the cavers trapped inside the tunnels, but nobody addressed or interacted with the figure. It was like they hadn’t even noticed it. Even in real time, this thing had been invisible to them.
+
+The footage, while low resolution, was still of slightly better quality than the photo, and I noticed a few details that hadn’t been clear in the image. The figure was holding something up to its face—what appeared to be a flute, or some kind of similar instrument. I turned the volume up to max, and was just about able to hear the soft but haunting melody it played, barely audible over the sound of the rain. I spent hours listening to the tune, isolating it from the rain, running it through apps and programs in an effort to try and identify it, but it came up empty every time. It was a melody that was not known to the database. A completely isolated and individual song. A song known only by this mysterious figure.
+
+Eventually, I showed the video to those same friends and acquaintances, certain they could not deny what was right in front of their eyes. But as with the photo, none of them could see the figure with the flute. They could not hear the melody it played either. Only the rain, as it gushed into the cave, and the panicked voices of the rescue team realising they could not save the trapped cavers.
+
+Frustrated that nobody could give me any answers, I decided to seek them out myself. By searching in person for the figure in grey.
+
+The location of the cave was widely known as a popular spot for adrenaline-junkies and professional explorers, and it wasn’t difficult to learn the basics of caving—enough to pass as an experienced caver.
+
+For almost a year, I had been visiting this very cave, joining expeditions only to wait outside in the hope of encountering the grey flute-playing apparition from the video. So far, after participating in almost two dozen excursions, I’d had no such luck. But this time, things felt different.
+
+As I waited, the wind seemed to pick up, bristling through my clothes and making my hair stand on end. A few rocks crumbled from the side of the cliff, showering me with dust. Above, the veil of clouds thickened, shadows encroaching along the ground around me. I felt in the air that something was going to happen.
+
+My heart felt tight in my chest as I scanned the entrance of the cave, then the cliffs above, for any sign of the grey shadow. I listened for the soft, melancholy sound of a flute. But all I heard was the wind whispering through the tunnels behind me.
+
+The hours passed, and I heard and saw nothing. But the goosebumps never left my arms, and I wasn’t one to give up so easily.
+
+I hadn’t heard any sign of the explorers in the cave either, and assumed the group must have gotten quite far inside. I felt a brief flutter of guilt in my chest, but quickly squashed it. They all knew the risks involved with caving. No matter what happened, their safety was their own responsibility. I had to detach myself from that, even if it felt cruel.
+
+A shadow fluttered in and out of sight on my left, and I froze, my heart jerking into my throat. Scrambling to my feet, I moved away from the cave entrance and lifted my gaze. Standing a little way up the cliff, on a jutting platform, was a figure cloaked entirely in grey shadow. The very same one from the photo. The one nobody else could see.
+
+Goosebumps covered every inch of my skin as I stared at it in amazement. Just like in the video, I could see no face, no features. It wore a hooded grey cloak that cast a deep shadow over where its face should be. Its silhouette was human, but only in the vaguest sense. Despite its appearance, I got the overwhelming feeling that this thing was not human, but rather something else entirely. Something supernatural. An entity of sorts, that only appeared at specific times and conditions. And after years of searching, I had finally found it.
+
+I watched, my shoulders tensed with silence, as it withdrew an exquisitely ornate flute from within the folds of its cloak. The instrument was silver and almost transparent, as it was made of glass or crystallised water, and incredibly beautiful. The figure brought the flute to its hooded face, and began to play.
+
+The sound was instantly familiar; the same song I had spent so many hours listening to, and it sent my heart racing.
+
+I looked up to the sky just as the clouds opened, and rain began to fall. At first, only small, delicate droplets of water splashed against my cheeks, but the rainfall gradually began to grow heavier. I sent a regretful look towards the cave entrance. The group was already far too deep inside for me to warn them. Their fate was already sealed, and there was nothing I could do about it. Another tragedy to be buried in the archives.
+
+Moving slowly, in the fear that I might spook the figure, I began to climb the cliff. There were plenty of footholds and platforms, and scaling it was easy enough. I wanted to be close enough to hear the melody above the downpour.
+
+The rain was cold and lashing, soaking through my gear and chilling me to the bone, but I barely noticed. All I cared about was the figure before me; the one I had been chasing all this time.
+
+If it noticed me, it didn’t react. It didn’t cease playing the flute, or even turn in my direction. It was like I was as invisible to it as it was to everyone else. I had spent many sleepless nights wondering why I was the only one who could see it, if it was down to brain chemistry, visual receptors, a curse, or something else entirely. But in the end I had realised it didn’t matter. Some things happened for no reason at all, and this was one of them.
+
+I stopped climbing when I was close enough, standing on a small rocky outcrop a few metres away. The rain blurred my vision, almost obscuring the figure as it blended into the grey clouds behind it, but I could still see the outline of its instrument. Hands trembling from the cold, I reached into my bag, and pulled out a flute of my own.
+
+I had only learned how to play the flute just over a year ago. After hearing the melody on the video, I had taken lessons in the hope that I might be able to learn the same song. But I had never been able to replicate it precisely; there was always a wrong note, an incorrect key. It was difficult enough trying to imitate a tune through a twenty-year-old video, especially with the rain distorting the sounds. The only way I was going to correctly learn the song was by imitating the source itself.
+
+I stood and listened for some time to the melody. The rainfall grew heavier, soaking through my clothes and numbing my skin, the water drumming ceaselessly against the ground, but I was able to isolate the figure and its song. My eyes never strayed from its fluttering cloak, or the flute, or the grey-covered fingers that deftly played the instrument.
+
+Then, when I felt confident enough, I raised my own flute to my lips and began to play. I tried to mimic the melody as best as I could. It was tricky at first, trying to find the exact notes, the pounding rain distorting the sounds, but I copied the figure’s movements with my own fingers until our melodies eventually began to sync up, becoming the same.
+
+I don’t know how long I stood there in the pouring rain, playing the haunting song. The figure didn’t react or respond to me once. If it heard me playing the same tune, it didn’t show it. We stood apart, our songs binding together as the rain fell from the clouds above. The cave would have been flooded by now. The cavers, if they hadn’t managed to find an air pocket, or elevated ground, would probably have drowned. But still, I kept playing.
+
+The sky darkened. The clouds festered. The rain kept falling, soaking into the ground, pouring down the rocks, gushing into the cave.
+
+I lost myself completely in the song, almost falling into a trance. The only things that existed were me and the flute and the melody at my fingertips. I no longer even noticed the figure. It became a grey blur on the edge of my vision, just another shadow.
+
+I finally snapped out of it once the rain stopped. I ceased playing the song with a start, glancing around frantically, but the grey figure had already gone. Vanished without a trace. The heavy silence settled around me, reminding me I was now alone.
+
+The cold hit me at the same moment, and my body began to shake violently. Every inch of my skin was soaked by the rain, water dripping from my shoulders and hair. I was standing in a large puddle where the rainwater had collected around my feet, my toes numb inside my shoes. There was no sound from inside the cave, but for the water still trickling down into the entrance.
+
+I put the flute away and began to climb down from the cliff. The rocks were slick from the rain, and I slipped a few times, but I finally managed to reach the ground, which was also dangerously flooded. I splashed through the water as I slowly headed away from the cave. As soon as I reached town, I would call for a rescue team—if any of the cavers were still alive—and then I would leave. My job here was done.
+
+It was time to return home.
+
+A week later, I was back in my homeland; an agricultural region that had been suffering from a severe drought. The land beneath my feet was bone-dry and cracked, the fields were barren, the crops dead and the people starving.
+
+After spending hours watching that video of the mysterious grey figure, I had drawn one conclusion: that its flute song had been responsible for the rains that had flooded the cave. And now, I would do the same. Only, instead of bringing death, I would restore life.
+
+As soon as I arrived home, I went out into the midst of the fields and stared at the cracked earth, baking under the brazen sun. The wilted grasses, the fruitless seeds, the unattainable harvest.
+
+I pulled out my flute and, just like the grey figure atop the cliff, I began to play the same melody. Within moments, clouds appeared overhead, casting a deep shadow over the ground, and the first trickle of rain began to seep from the sky.
+
+Under my song, the rain fell, soaking into the barren soil and nourishing all the life within.
