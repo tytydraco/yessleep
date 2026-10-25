@@ -1,0 +1,39 @@
+I grew up on the north side of Chicago. A perfectly fine, regular, boring life. The details don't matter too much, I guess. What matters is that my whole life, my parents really only had one hard rule: don't walk by the lake at night, and especially not if you're drunk. 
+
+It made enough sense to me that I never really questioned it. I don't know if you've ever been to Chicago, but Lake Michigan is a force. And there's enough lore that floats around, especially about young men, who get drunk and wander out to the lake or the river and never come back. The more pragmatic think it's because they fall in and drown. Every few years on social media someone makes up a story about a serial killer -- believable enough in a big city, but I've never felt unsafe walking home from the train at night. 
+
+I stayed here, of course, grew up and only moved a handful of miles away from my parents. Plenty to do up here, and plenty of access to the L and the beach. And a good enough group of friends, including Peter. 
+
+Peter's my best friend. He's a transplant, but he's all right. He's been in Chicago for five or so years now, met his wife here, got a condo and a dog together. Even though I've been here longer, he's introduced me to some great places. Including a bar that's down a way from us, but that's essentially become our watering hole. We go there once or twice a week, easy, stay late, chat with the bartenders, meet interesting folks from the neighborhood and everywhere else. Peter's really the life of the party. He's one of those people who's just always happy. Or at least he was, before last week.
+
+I still don't know what happened. I don't even know how to explain it. I guess that's how I ended up here, writing to the void, just having to get it out. I mean, Jesus. Maybe it was a dream. That's the only thing that makes sense, if I'm to maintain any semblance of the life I had before. 
+
+We were at the bar, just like always. The bartender Jake's wife is about to have their first kid, a daughter. Peter started saying he and Cait were going to start trying soon. Just guy talk, sitting around about how we're all getting a little older and dustier, but our lives have all been going all right. And then we left, just like always, started walking east to the train. And then Peter said, "Hey, why don't we go to the lake?"
+
+Look. I'm in my thirties now. I know what my parents told me, but I wasn't that drunk and I know how to handle myself. It's not like Peter and I were falling all over each other. We had a nice buzz, the kind you get when you're having a great night. It's been a warm October, we didn't even have sweaters. And the week before there had been some big news reports about how waves on the lake had hit 20 feet. Of course I wanted to go see it. I repeat, if you've never seen Lake Michigan, she's a flipping force. An inland sea, pitch black stretching out to the horizon until she meets the stars. Hundreds of shipwrecks beneath those waters. Of course I wanted to go bask in her beauty. 
+
+So we went. Walked east, made our voices echo in an underpass, came out to the lake front trail and the concrete beach just south of Montrose. Like I said, I'm in my thirties, I'm going through my birding phase, so I told Peter about the bird sanctuary, about the piping plovers. And he said, let's go look at the harbor. Let's go look at the lake. We could see her as we came up, not as violent as the week before but still churning. Dark clouds that night, and a sharp wind, and some waves that sprayed over the side of the concrete pier. We sat for a while. That's what I remember: sitting and chatting and walking and looking out at the water. 
+
+We'd been talking for a while and were getting ready to start walking back up north. All I did was go to take a leak. Peter made some dumb joke and I didn't even laugh, I just said something like, *oh, practicing for when you're a dad?* and he said, *I can't tell you, man. It's the one thing I've always wanted.* 
+
+And that's the last thing Peter ever said to me. 
+
+I can't tell you exactly how I knew something was wrong. I was maybe thirty feet away from where we'd been, tucked behind a big old honey locust, looking at some spent peanut shells that someone'd thrown for squirrels. And I just *knew*. I don't know what to tell you. The air changed. It got meaner, somehow. My hair all stood up, like someone was watching me. My heart started going, all on its own, and everything inside me said that I had to get out of there. I had to get back to Peter and we had to go, *now*. 
+
+Then there was this sound, man. Like rusty hinges, and a screaming baby, and a grass blade whistle all in one. The sound bubbled and foamed. I thought, shit, there's a coyote or a wolf or something out here, in the middle of the city. But it wasn't a howl, really. It was so much worse. I've never heard anything like it: like a train wheel grinding off the metal, but coming out of a throat, something that was clearly animal.
+
+But Peter wasn't alone. There was someone on the concrete with him. A man. But not a man -- twice as big, but on all fours, with skin or fur or something loose and mottled around its trunk. The sound was coming from its mouth. It was facing toward me, but also away. I couldn't quite tell, if it had legs or arms or both. Its movement was incorrect, not like any animal I've ever seen, not like physics would support. Like God had put it together backward, or drunk himself. Or like God hadn't put it together at all.
+
+Peter was yelling, scrambling away. And the creature stood up, and made some sort of movement across Peter's chest, and Peter just dropped. I heard his head hit the concrete. Even with that monstrous fucking screech, it's the worst thing I've ever heard, the sound of your friend's skull hitting stone. 
+
+I couldn't move. I couldn't yell. My brain was all over the place but my body just stood there. The man...he closed in on my friend, and I heard this smacking sound. This horrible, wet gurgling. And I must have finally moved. Because the thing arched up and turned, or maybe it had always been that way, and looked directly at me, with eyes that had no pupils or iris, just big reflective circles where the light hit.
+
+The creature made its sound again. My brain came back online, all at once. I ran.
+
+I thought for sure I was dead. There was no way I could outrun that thing. But I ran, out toward the city, down the streets, past cars and other walkers, and I only stopped when my heart and my legs and my lungs *made* me. Alive, somehow. But I abandoned my friend. Peter. Fuck.
+
+In the age of smartphones, I hadn't even thought to call someone. What kind of friend am I? Maybe he hadn't been dead. Maybe I could have done something. Taken a video. Anything but run like a coward. But I did it then: I called for help, I called 911, I called Cait. It was one in the morning, maybe two. The buzz had worn off but I was shaking like I'd never felt warm in my life. 
+
+Cait picked up on the second ring, like she'd been up waiting for Peter to come home, like she knew immediately something was wrong. And before she could ask or say anything, after she'd said hello, I said, *Cait, something happened. Peter and I went down to the lake. And something happened. God, Cait, something happened to Peter.* 
+
+How do I even say this? How can I ever trust anything I know again? On the other end of the line there was silence. Then, very softly, Cait said, *Jamie, what are you talking about? Peter just walked in.*
