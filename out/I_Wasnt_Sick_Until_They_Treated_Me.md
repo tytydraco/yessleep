@@ -14,7 +14,7 @@ Walking, and walking, and walking.
 
 At some point in my delirium, I decided to bushwhack through the woods. The thorns and stumps bashed my legs as I maneuvered through the dense brush. To be honest, I had no idea what I was doing then and I still don't.
 
-It couldn't have been too long, maybe an hour or so, when I approached the large PRIVATE PROPERTY sign. Again my delirium betrayed me as I made my way onto the massive secluded property. For some reason, the rules didn't apply to me then.
+It couldn't have been too long, maybe an hour or so, when I approached a large PRIVATE PROPERTY sign. Again my delirium betrayed me as I made my way onto the massive secluded property. For some reason, the rules didn't apply to me then.
 
 That was my mistake.
 
@@ -86,7 +86,7 @@ At first, it started simply enough, a typical medical examination, but then thin
 
 Then she poked my inner elbow for over a minute, but I was still so dazed and out of it all I could do was wonder if it was strange or if I was really thinking clearly. After that she pulled out a little green LED or something on stick and started waving it around my body.
 
-I wish I could convey how delirious I was, but I really couldn't tell how bizarre it was at the time. What happened next is what ruined my life. She began to attach strange metal rods all over my body while calibrating her machine.
+I wish I could convey how out of it I was, but I really couldn't tell how bizarre it was at the time. What happened next is what ruined my life. She began to attach strange metal rods all over my body while calibrating her machine.
 
 "Well..." she said coldly. "Are you ready for everything to change?"
 
@@ -112,7 +112,7 @@ The days started to roll on. I mostly ignored everyone; the guy who constantly s
 
 The first night they gave me some medication. I wasn't allowed to refuse. They said it was a small dose of antipsychotic. I didn't want to take it, but I did. I knew I was fine and my only goal was to get out of there. At least that was until the third night when the pills they gave me were completely different, and then the fifth night they gave me a shiny black pill. The seventh a purple one.
 
-"Okay, these are not my pills," I said adamantly... After arguing with them for ten minutes and them calling the doctor in with faux concern, I conceded I was 'wrong' and just took the pills. For as long as I was in there the pills kept changing. One night they gave a cup with nothing in it. I didn't take the bait I just smiled and pretended to gulp them down.
+"Okay, these are not my pills." I said adamantly... After arguing with them for ten minutes and them calling the doctor in with faux concern, I conceded I was 'wrong' and just took the pills. For as long as I was in there the pills kept changing. One night they gave a cup with nothing in it. I didn't take the bait I just smiled and pretended to gulp them down.
 
 They still hadn't stopped calling me Greg, and to top it off whatever they had done with that machine, and the pills was really starting to affect me. It was like I was absorbing every single problem my ward mates told me about. The floors felt unstable, the temperature was constantly too hot or too cold, and every time I passed a mirror I had to fight not to stare at my reflection.
 
@@ -122,9 +122,9 @@ That night they blared music from the loud speakers in my room, bizarre ambient 
 
 "Never mind..." I said, refusing to give in to whatever this was.
 
-The next morning one of the other patients Ray, came up to me and invited me to play table tennis on the veranda. I wasn't really up for it but he seemed genuine enough, so I let my guard down. I was paranoid of what ailment he would describe that would start effecting me.
+The next morning one of the other patients Ray, came up to me and invited me to play table tennis on the veranda. I wasn't really up for it but he seemed genuine enough, so I let my guard down. I was paranoid of what ailment he would describe that would start affecting me.
 
-"They don't want us to get out of here..." he said somberly.
+"They don't want us to get out of here..." he said bitterly.
 
 "There's something not right about this hospital," he said under his breath as the ball pinged back and forth over the net.
 
@@ -152,9 +152,9 @@ I looked out of my window. There's so much that happened at that time, I can har
 
 I ignored them. I ignored everything that was happening in that madhouse. I know you won't believe me but I wasn't crazy... at least not when I went in. I just wanted to walk... but ever since the pills and that machine nothing seemed the same. Ray was right, there was something wrong with this place.
 
-I swiped my phone's pattern and to my surprise, the screen flashed multiple times. I tried again to the same result. Someone had been in my phone and changed my login. It had been set to SOS mode. I was certain of it... was it Phillipe ? What was he was telling me?
+I swiped my phone's pattern and to my surprise, the screen flashed multiple times. I tried again to the same result. Someone had been in my phone and changed my login. It had been set to SOS mode. I was certain of it... was it Phillipe? What was he was telling me?
 
-I began to investigate my phone for any sign or clue. I knew that what it was he was trying to send me a message. I checked my notes app... there was a note I had never seen and absolutely didn't place myself.
+I began to investigate my phone for any sign or clue. I knew he was trying to send me a message. I checked my notes app... there was a note I had never seen and absolutely didn't place myself.
 
 THE KILLING FLOORS: IDAHO HOSPITAL CARNAGE
 
@@ -192,11 +192,11 @@ That night I would break out. The part that confirms to me that Phillipe was hel
 
 \*\*\*
 
-I can't remember how I made it home. I must have just walked the entire 30 miles. My feet were black in the morning. I was completely sore. I locked my doors and looked out a crack in my blinds to see if they were looking for me but no one ever did.
+I can't remember how I made it home. I must have just walked the entire 20 miles. My feet were black in the morning. I was completely sore. I locked my doors and looked out a crack in my blinds to see if they were looking for me but no one ever did.
 
 At first I laid low. I constantly expected to be apprehended by the police. I wore disguises in public and frequently checked my surroundings. There were never any police. However, they were there, the men in the black suits. I started seeing them everywhere, in alleys or on the bus. When I confronted them they simply ignored me or walked away.
 
-In saying all of that, what they did to me in there has still not gone away. I am constantly afflicted by various ailments. I am shot with vibrations while I sleep in the same locations as where the metal rods were. My body temperature is constantly fluctuating and my feet are constantly feeling the wobble of the ground below.
+In saying all of that, what they did to me in there has still not gone away. I am constantly afflicted by various ailments. I am shot with vibrations while I sleep in the same locations as where the metal rods were. My body temperature is always fluctuating and my feet are constantly feeling the wobble of the ground below.
 
 Whatever this is, it was created when they put that device on me. Whatever pills they gave me did something to my chemistry. After the first incident, things just got worse and worse. Eventually I was taken back to another hospital after I went off on one of the men in suits following me.
 
