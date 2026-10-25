@@ -1,0 +1,917 @@
+# [Click here to see part 1!](https://www.reddit.com/r/nosleep/s/9d4TIa6IU2)
+
+# ##Update 4: I don't know what's real anymore
+
+I don't know how to explain what happened yesterday.
+
+Actually, I'm not even sure I can properly explain what's happening right now. I'm writing this because I need to put it all somewhere, and I can't talk to anyone about it.
+
+After my last update, I tried doing what my wife suggested and getting some rest. I took a few days off work. She seemed relieved when I told her, and I thought maybe it really was what I needed.
+
+For a few days, things seemed to get better.
+
+My leg still hurt, but I managed to sleep a little more. I stopped looking for explanations for everything and tried to enjoy spending time with my kids. We played games, watched movies, and went out to eat. My wife said I seemed more relaxed.
+
+Maybe I was.
+
+I don't know anymore.
+
+Yesterday morning, I woke up with the feeling that I'd forgotten something important. It wasn't a specific memory. It was more like when you leave the house and feel like you've forgotten something, but you can't remember what it is.
+
+I got up, went to the bathroom, and washed my face.
+
+When I looked in the mirror, I thought there was something strange about my eyes.
+
+I can't explain it. They looked too sunken, like I was looking at someone who hadn't slept in weeks.
+
+I stared at my reflection for a few seconds. I blinked, rubbed my eyes, and looked again.
+
+Everything was normal.
+
+I figured I was just tired.
+
+In the kitchen, my wife was making breakfast. I asked if she'd slept well, and she said she had. We talked about ordinary things, about what we'd do that day and about the kids.
+
+Everything was normal.
+
+Until she turned to face me.
+
+For a split second, I saw a third eye in the middle of her forehead.
+
+I'm not joking.
+
+It was a real eye, open and wet, staring directly at me. I could see the iris, the pupil, even the movement of the eyelid. It wasn't a shadow or a mark on her skin. There was an eye where no eye should have been.
+
+I took a step backward and hit the counter.
+
+My wife jumped.
+
+"What's wrong?"
+
+I looked again.
+
+The eye was gone.
+
+She was staring at me, worried, asking if I was feeling sick. I couldn't answer. I just kept looking at her forehead, waiting for it to appear again.
+
+She touched my arm.
+
+I pulled away.
+
+That's when I realized how I must have looked. My own wife, the woman I'd been living with for years, was trying to help me, and I was acting like she was going to hurt me.
+
+I apologized. I told her I'd stood up too quickly and felt a little dizzy.
+
+She suggested I go back to bed.
+
+I agreed.
+
+But before I left the kitchen, I looked back.
+
+She was still watching me.
+
+And for a second, I had the impression she was smiling at me with a mouth that was far too wide.
+
+\---
+
+I stayed in the bedroom until almost noon.
+
+I tried to sleep, but I couldn't. Every time I closed my eyes, I saw that eye in my wife's forehead.
+
+I know how this sounds. If someone had told me something like this a few weeks ago, I probably would've thought they needed medical help.
+
+Maybe I do.
+
+I just can't explain what I saw.
+
+Around noon, I got up to look for my kids. I could hear their voices somewhere in the house, so I went looking for them.
+
+I walked down the hallway and noticed a door I'd never seen before.
+
+It was a narrow, white door between the kids' bedroom and the bathroom. I'm certain it hadn't been there before. I've lived in that house for years. I know how many doors there are in that hallway.
+
+I stood there, staring at it.
+
+I thought maybe it was the door to some built-in cupboard I'd never noticed. It seemed like a reasonable explanation, so I walked over and turned the handle.
+
+On the other side was another hallway.
+
+The same hallway.
+
+The same walls, the same flooring, the same lighting. The bathroom door was on the left, and the entrance to the kids' bedroom was farther down.
+
+Except I was looking at the hallway I'd just come from.
+
+I could see myself standing in front of the door, my back turned, one hand on the handle.
+
+It took me a few seconds to understand what I was seeing.
+
+Then the other me turned his head.
+
+I couldn't make out his face. It was as if the image had been erased, leaving behind a smooth surface where his eyes, nose, and mouth should have been.
+
+I slammed the door so hard the handle hit the wall.
+
+I stood with my back against it, breathing rapidly, trying to convince myself I'd seen something that wasn't there.
+
+I don't know how long I stayed like that.
+
+When I finally stepped away, the door was gone.
+
+There was nothing but a plain white wall.
+
+I ran my hand over the surface, looking for a crack or a mark. Nothing.
+
+I started calling for my wife.
+
+I didn't care if she thought I was acting strange anymore. I needed to talk to someone.
+
+She didn't answer.
+
+I called again, louder this time.
+
+Then I heard laughter coming from the living room.
+
+It was my daughter's laugh.
+
+I practically ran in there.
+
+Both kids were sitting on the couch, watching TV. My wife was beside them, looking at her phone.
+
+I stopped in the doorway.
+
+For a few seconds, I felt such overwhelming relief that I almost started crying. They were there. My family was there. It had all been in my head.
+
+Then my daughter looked at me.
+
+She stopped laughing.
+
+Her brother kept staring at the television, but she slowly turned her body toward me and stared.
+
+"Dad?"
+
+"Hey, sweetheart."
+
+She tilted her head.
+
+"You're late."
+
+I sat down beside her.
+
+"Late for what?"
+
+She didn't answer. She turned back toward the television.
+
+My wife asked if I was feeling better. I said I was, although I wasn't sure what being better even meant anymore.
+
+I sat there with them, trying to pay attention to the show.
+
+That's when I realized the television was turned off.
+
+The screen was black.
+
+But the laughter was still coming from it.
+
+I looked at my wife.
+
+She was still looking at her phone.
+
+I looked at my son. He was smiling at the blank screen.
+
+And my daughter started laughing again.
+
+It wasn't a loud or shrill laugh. It was her normal laugh, the same one I'd heard countless times before. But this time, the sound seemed to be coming from very far away, as if she were in another room, another house, somewhere I couldn't reach.
+
+I got up and unplugged the television.
+
+The laughter stopped.
+
+Nobody seemed to notice.
+
+"What are you doing?" my wife asked.
+
+I didn't answer.
+
+I went over to my daughter and knelt in front of her.
+
+"Hey, sweetheart. Look at me."
+
+She turned her face toward me.
+
+Her eyes were open, but something was wrong with them. They looked like a doll's eyes, fixed and shiny, completely devoid of expression.
+
+I took her hands.
+
+They were cold.
+
+"Are you okay?"
+
+She didn't answer.
+
+"Sweetheart, it's me. It's Daddy."
+
+Nothing.
+
+Tears started welling up in my eyes.
+
+"You know me, don't you?"
+
+She kept staring at me.
+
+I squeezed her hands a little tighter.
+
+"I'm your dad. I love you, okay? You love me too, don't you?"
+
+For a moment, I thought she was going to answer.
+
+Her lips moved.
+
+But the voice that came out didn't sound like my daughter's.
+
+"You're still here."
+
+I let go of her hands.
+
+I don't know if it was her tone, the words, or the way she looked at me. All I know is that, in that moment, I was certain something was terribly wrong with that child.
+
+My wife appeared behind me.
+
+"What are you doing?"
+
+I slowly stood up.
+
+She was smiling.
+
+The third eye had returned.
+
+This time, it didn't disappear when I blinked.
+
+The skin around it slowly split open, like a mouth trying to breathe. The eye moved, following my steps, while the other two remained fixed on my face.
+
+I screamed and ran for the front door.
+
+I had to try the lock three times because my hands were shaking too badly.
+
+When I finally managed to get outside, I stopped on the sidewalk.
+
+And I wished I hadn't.
+
+The street was wrong.
+
+I don't know how else to describe it. The houses were tilted, some to the left, others to the right, as if they'd been built on a surface that was folding in on itself. The streetlights bent in impossible directions. The sidewalk stretched ahead, but somehow looked like it was going both uphill and downhill at the same time.
+
+I looked at the house across the street.
+
+It was identical to mine.
+
+Not similar. Identical.
+
+The same facade, the same windows, the same front door, even the little crack near the garage.
+
+I looked at the house next to it.
+
+Identical, too.
+
+And the next one.
+
+And the one after that.
+
+The same houses repeated as far as I could see, one after another, like badly made copies of a single image.
+
+The sky seemed far too low. There were no clouds, no sun, nothing I could recognize. Just a flat, gray surface that looked like it was pressing the houses down.
+
+I started walking.
+
+I didn't know where I was going. I just needed to get away from that street.
+
+I passed one house, then another, then several more. All of them identical.
+
+I looked behind me.
+
+My house was still right in front of me.
+
+I hadn't gone anywhere.
+
+I started running.
+
+The pain in my leg became unbearable. Every step felt like something was tearing through my body. Even so, I kept running until I stumbled and fell to my knees.
+
+When I lifted my head, I was standing in front of my door.
+
+My front door.
+
+The same one I'd just walked through to leave the house.
+
+I don't remember turning around.
+
+I don't remember walking back.
+
+I was just there.
+
+I started pounding on the door, screaming for my wife, my kids, anyone who could explain what was happening.
+
+The door opened.
+
+My dad was standing on the other side.
+
+He looked at me with an expression I couldn't understand.
+
+"You shouldn't have gone outside."
+
+I tried to push past him, but my dad grabbed my arm.
+
+"Let go of me! What's happening?"
+
+He didn't answer.
+
+He looked at the street behind me, then turned back to face me.
+
+"You've been here a long time."
+
+My stomach dropped.
+
+"How long?"
+
+My dad opened his mouth to answer.
+
+But before he could say anything, every light in the house went out.
+
+The darkness was absolute.
+
+I heard my wife scream somewhere inside. Then I heard the kids crying.
+
+I tried to go inside, but my dad was no longer holding my arm.
+
+I called out to him.
+
+Nobody answered.
+
+I took a few steps into the house, feeling along the wall for the light switch. When I finally found it, I flicked it several times.
+
+Nothing.
+
+Then I heard a voice behind me.
+
+"Dad?"
+
+It was my daughter.
+
+I turned around quickly.
+
+She was standing in the hallway, illuminated by a light that seemed to come from nowhere.
+
+This time, her face was normal.
+
+She looked scared, like any child who wakes up in the middle of the night and finds her dad lost inside the house.
+
+I held out my arms to her.
+
+"Come here, sweetheart."
+
+She walked toward me.
+
+I hugged her so tightly I was afraid I might hurt her. I buried my face in her hair and started crying.
+
+"It's okay. It's okay. Daddy's here."
+
+She didn't say anything.
+
+I held her, repeating those words, because I couldn't think of anything else.
+
+Then I felt something wet trickling down my neck.
+
+I pulled my face away.
+
+My daughter was crying blood.
+
+There were no injuries, no cuts. The blood was simply streaming from her eyes, running down her cheeks and staining her clothes.
+
+She was still hugging me.
+
+And, right next to my ear, she whispered:
+
+"You promised you'd come back."
+
+I let go of her.
+
+The hallway began to stretch.
+
+The walls moved farther apart, the ceiling rose, and the front door grew more and more distant. I tried to run toward it, but my legs felt like they were stuck to the floor.
+
+I heard my wife calling my name.
+
+I heard my son crying.
+
+I heard my dad saying something I couldn't understand.
+
+And underneath all those sounds, I heard the siren again.
+
+This time, it didn't sound like it was coming from the street.
+
+It sounded like it was everywhere.
+
+The noise grew louder until I had to cover my ears. I fell to my knees, screaming for it to stop.
+
+Then, suddenly, everything went silent.
+
+I opened my eyes.
+
+I was sitting on the living room floor.
+
+The lights were back on. The television was playing. My wife was in the kitchen, and my kids were playing on the rug.
+
+Everything looked normal.
+
+I slowly stood up.
+
+I looked down the hallway. There were no doors other than the ones that had always been there.
+
+I looked at my wife. Two eyes.
+
+I looked at my kids. Normal faces.
+
+I went to the window.
+
+The street was straight.
+
+The houses were all different.
+
+I stood there for a long time, trying to understand what had happened.
+
+Maybe I'd had some kind of episode. Maybe I needed medical attention immediately. I don't know.
+
+But there was one thing I couldn't ignore.
+
+I couldn't remember leaving the house that morning.
+
+I couldn't remember going to work, buying groceries, or taking my kids anywhere.
+
+I couldn't remember the last time I'd walked through that front door.
+
+I went to the calendar in the kitchen.
+
+Then I looked for my phone.
+
+Then I looked at the photographs on the shelf.
+
+I tried to find something that would tell me how much time had passed.
+
+I couldn't.
+
+I went back to the living room and sat on the couch.
+
+My wife asked if I wanted something to drink.
+
+I said no.
+
+She went back to the kitchen.
+
+I sat there, listening to the sound of dishes, the kids' footsteps, and the television playing in the background.
+
+Everything so familiar.
+
+Everything so normal.
+
+And for the first time since all of this started, I was afraid of something that had nothing to do with my wife's eyes, the repeating houses, or the crooked street.
+
+I was afraid that I didn't know how long I'd been living there.
+
+Because when I tried to remember the last time I'd left that house, I couldn't find a single memory.
+
+And I started to think that maybe my dad had been right.
+
+Maybe I'd been there for a very, very long time.
+
+And maybe it was time to leave.
+
+\---
+
+# Final update
+
+I didn't sleep that night.
+
+At least, I don't think I did.
+
+After everything that happened, I sat in the living room, staring at my house. The walls were normal. The furniture was where it always was. The TV was off, and there was nobody standing in the hallway, watching me with those impossible eyes.
+
+Everything seemed to have gone back to normal.
+
+But I couldn't stop thinking about my daughter.
+
+The blank expression on her face. The way she'd stood still while I hugged her. The blood streaming from her eyes.
+
+I don't know how to explain what I felt in that moment. I don't think I've ever been more afraid in my life. And yet, when I think about that scene, fear isn't the first thing that comes to mind.
+
+It's longing.
+
+I miss a child who, as far as I knew, was sleeping in the next room.
+
+I needed to talk to someone. I needed to hear a normal voice, someone who could tell me I wasn't losing my mind.
+
+I picked up my phone.
+
+I thought about calling my wife, but she was home. I thought about waking up my dad, but I didn't want to scare him. For a few seconds, I stared at the screen, trying to decide who to call.
+
+That's when my phone started ringing.
+
+The name that appeared on the screen made me forget what I'd been thinking about entirely.
+
+Mom.
+
+I just stared at it.
+
+My mom.
+
+It had been so long since I'd seen her name on my screen that, for a moment, I couldn't even understand why it was making my chest feel so strange.
+
+Then I remembered her.
+
+Not a specific memory. Not a birthday or a conversation. It was more like a door had opened inside my head, revealing a place I hadn't visited in a very long time.
+
+My mom walking me to school.
+
+My mom sitting beside me when I was sick.
+
+My mom waiting for me to come home.
+
+My mom crying in secret when my dad left.
+
+She'd been there for practically every important moment in my life. When I was a kid, when I became a teenager, when things started going wrong. Even when I pushed everyone away, she stayed.
+
+She was the one person who had never given up on me.
+
+And I couldn't remember the last time I'd spoken to her.
+
+The phone kept ringing.
+
+I answered.
+
+Or tried to.
+
+My finger touched the screen, but nothing happened. The phone kept ringing, displaying her name.
+
+I tried again.
+
+Nothing.
+
+"Come on, damn it... answer!"
+
+I pressed the screen so hard my fingers started to hurt.
+
+The ringing stopped.
+
+I stared at the phone, waiting.
+
+Then it started ringing again.
+
+Mom.
+
+My eyes filled with tears.
+
+For some reason, I was desperate to hear her voice. More desperate than I'd been to hear anyone else's voice in all those days.
+
+Maybe weeks.
+
+Maybe...
+
+No.
+
+That didn't make sense.
+
+I'd seen my mom recently. Hadn't I?
+
+I tried to remember the last time she'd been at my house.
+
+I looked around.
+
+There were no pictures of her with my kids. No pictures of us together. No gifts she'd given the children, no memories of a visit, no sign that she'd been part of the life I knew so well.
+
+I knew my mom existed.
+
+I knew her name, remembered her face, remembered her voice.
+
+But in that entire life I'd been describing, she simply wasn't there.
+
+My dad, who'd spent years estranged from me, was there. He had Sunday lunches with us. He played with my kids. My wife called him Dad, and my kids called him Grandpa.
+
+But my mom?
+
+The woman who'd practically raised me on her own?
+
+Where was she?
+
+The phone rang again.
+
+I stood up so quickly that the pain in my leg nearly knocked me over.
+
+"Mom..."
+
+My voice came out quiet, almost childlike.
+
+The call was still there, but the screen seemed far away. I stared at the phone and had the feeling that something stood between us, as if that little device were on the other side of a thick pane of glass.
+
+I tried calling her back.
+
+Her name disappeared.
+
+The screen went black.
+
+And in its reflection, for a split second, I saw my face.
+
+I was crying.
+
+Behind me, in the reflection, there was a woman standing in the kitchen doorway.
+
+My mom.
+
+I turned around immediately.
+
+Nobody was there.
+
+When I looked at the phone again, the screen had lit up.
+
+3:17.
+
+That wasn't possible.
+
+The kitchen clock also read 3:17.
+
+My stomach dropped.
+
+The phone started ringing again.
+
+Mom.
+
+This time, the sound seemed to be coming from everywhere. From the phone, the walls, the ceiling. The same ringtone, repeating, distant and close at the same time.
+
+Then I heard the sirens.
+
+Those damn sirens.
+
+I'd known that sound for years. I'd heard it so many times I should've gotten used to it by now. But I could never find the ambulance. I could never figure out where it was coming from.
+
+Now the sound was so loud it felt like it was passing straight through my bones.
+
+I covered my ears.
+
+"STOP!"
+
+The sirens didn't stop.
+
+The phone kept ringing.
+
+I pressed the screen again and again, trying to answer that call, trying to reach the one person I needed to talk to.
+
+"Mom, please! Mom!"
+
+The pain in my leg suddenly got worse. It wasn't the usual pain, the kind that had been with me since the accident. This was something much worse, a brutal pressure that shot up my leg and seemed to pin my entire body to the floor.
+
+I fell to my knees.
+
+The phone slipped from my hand.
+
+The screen lay faceup, just a few inches from my fingers.
+
+Mom.
+
+I reached for it.
+
+My fingers were trembling.
+
+I just needed to press one button.
+
+I just needed to answer.
+
+"Mom, it's me..."
+
+The sirens became deafening.
+
+For a moment, the living room disappeared.
+
+There was no white light. No mysterious voice explaining everything to me. No beautiful, neatly arranged revelation that made every detail finally fall into place.
+
+There was only a crash.
+
+The sound of metal crumpling.
+
+Glass shattering.
+
+And a pain so intense that it wiped out everything else.
+
+\---
+
+"Sir! Sir, can you hear me?"
+
+A man was kneeling beside the wrecked car.
+
+Shards of glass were scattered across the asphalt. The front of the vehicle was crushed, and the driver's door had been warped by the impact.
+
+The ambulance lights flashed across the twisted metal.
+
+"We need to stabilize his leg! Watch his left side!"
+
+Another paramedic approached, trying to keep the man still while assessing his injuries.
+
+"Sir, look at me! Can you hear me?"
+
+The man didn't respond.
+
+One of the paramedics checked his breathing and called out to him again.
+
+"Stay with me, buddy. Come on. Open your eyes."
+
+In the distance, traffic was beginning to back up. Someone was shouting at other drivers to move away. The team's radio crackled with broken instructions.
+
+The man moved his fingers.
+
+It was barely noticeable.
+
+"That's it. That's good. Can you hear me?"
+
+His eyes opened for a moment, unfocused.
+
+The paramedic leaned closer.
+
+"You've been in a car accident. Don't try to move, okay? We're going to take care of you."
+
+The man tried to speak.
+
+No understandable words came out.
+
+His gaze shifted to a point somewhere above the paramedic, as if he were looking for someone who wasn't there.
+
+"Easy. Stay with me."
+
+The man closed his eyes again.
+
+The paramedics continued working.
+
+The siren kept blaring.
+
+\---
+
+I woke up in the hospital.
+
+I don't know how much time had passed. My head hurt, my mouth was dry, and my left leg felt like it belonged to someone else.
+
+For a few seconds, I didn't recognize the place.
+
+Then I saw my mom.
+
+She was sitting beside the bed, holding my hand in both of hers. She looked exhausted. Her eyes were red, and there were tear stains on her face.
+
+When she realized I was awake, she stood up so quickly that the chair nearly fell over.
+
+"My son?"
+
+She squeezed my hand.
+
+"Oh my God, my boy..."
+
+She started crying.
+
+I tried to sit up, but the pain made me stop immediately.
+
+"Easy, easy! Don't move! I'll get the doctor."
+
+She pressed the button beside the bed, but she didn't let go of my hand.
+
+She stayed there, crying quietly, running her thumb over my fingers the way she'd done when I was little.
+
+I looked at her, unable to speak.
+
+Because, in that moment, I remembered everything.
+
+Not the distorted living room. Not the call I couldn't answer. Not the sirens that seemed to come from the walls.
+
+I remembered my mom waiting for me outside school.
+
+I remembered the night she stayed awake beside me for hours when I was sick.
+
+I remembered when my dad left and she had to pretend everything was okay so I wouldn't be scared.
+
+I remembered all the times I'd thought I had nobody in the world, even though I'd always had someone who never stopped being there for me.
+
+And I remembered something else.
+
+A house that didn't exist.
+
+A woman who loved me.
+
+A seven-year-old boy running around the living room.
+
+A four-year-old girl who called me Dad.
+
+I remembered her little hand holding mine. The way she'd laugh when I tickled her. The weight of her body against mine when I hugged her in that dark room.
+
+I remembered her face when I asked if she loved me.
+
+And I started crying.
+
+I couldn't stop. I couldn't even explain to my mom what was happening.
+
+She called my name, frightened, and stroked my hair.
+
+"It's okay, sweetheart. You're here. I'm right here with you."
+
+I wanted to believe everything was okay.
+
+I wanted to tell her I was sorry for forgetting her. I wanted to ask why she hadn't visited my house, why she didn't know my children, why I didn't have a single picture of her with my family.
+
+But there were no answers to those questions.
+
+Because that family didn't exist.
+
+That house didn't exist.
+
+That entire decade I remembered so clearly hadn't happened the way I believed it had.
+
+I hadn't spent those years as a husband and father. I hadn't built that life, watched my children grow up, or grown old beside that woman.
+
+I'd been in an accident.
+
+And somehow, while my body was fighting to survive, my mind had given me an entire lifetime to live.
+
+I don't know how to explain it. The doctors never gave me an explanation that made sense of what I remembered. I don't know if they were dreams, mixed-up memories, some kind of delirium, or something science hasn't quite figured out how to describe.
+
+I also don't know why that life felt so real.
+
+I only know that, to me, it was real enough.
+
+I loved that woman.
+
+I loved those two children.
+
+And I lost all of them.
+
+My mom stayed beside me while I cried. She didn't rush me or demand an explanation. She just held my hand, the way she'd done so many times before.
+
+At some point, a doctor came into the room. My mom spoke with him, answered his questions, and listened to his instructions. I barely paid attention.
+
+I was too busy trying to accept that, whenever I closed my eyes, I might never find my children again.
+
+The days that followed were difficult.
+
+My mom stayed with me through much of my recovery. The doctors treated my leg and explained the consequences of the accident. There was a lot I'd have to deal with, and a long recovery ahead of me.
+
+But none of that frightened me as much as the thought of forgetting.
+
+Because I started noticing that the memories of that life were changing.
+
+Some details disappeared whenever I tried to reach for them. My wife's face became less clear. I could no longer remember every conversation I'd had with my son.
+
+So I started writing things down.
+
+I wrote down what I remembered. The names I'd given my children. The games we played. The little things my daughter liked. The things my son used to ask me before bed.
+
+I wrote down everything I could, afraid that one day those memories would disappear completely.
+
+I don't know if it helped.
+
+Even now, sometimes I wake up in the middle of the night with the feeling that I've heard a child calling me Dad.
+
+Other times, I miss a woman whose face I can no longer quite put together.
+
+It's strange to miss people I've technically never met.
+
+Stranger still to know that, even after everything, part of me is still waiting to go home.
+
+My life didn't become perfect after the accident. I still had to deal with recovery, the problems I'd had before, and everything I couldn't explain. My mom stayed by my side. Little by little, I also began rebuilding my relationship with my dad.
+
+I don't know what's going to happen to me from here on out.
+
+But there's one thing I've learned.
+
+Sometimes, you can lose something without anyone around you understanding what you've lost. You can miss a place you've never been, a time you've never lived through, people who've never been there.
+
+And the worst part is that knowing this doesn't make the longing go away.
+
+I still remember my daughter hugging me.
+
+I still remember asking if she loved me.
+
+And even now, I can hear the answer I wanted her to give me.
+
+I don't know if I'll ever be able to forget that life.
+
+Maybe I don't even want to.
+
+Because, as much as it was an illusion, it was where I found everything I'd spent so long wishing for.
+
+A home to return to.
+
+A woman to love.
+
+Two children who called me Dad.
+
+A family.
+
+And I don't know if I'll ever be able to accept that all of it ended before it even began.
+
+All I know is that, whenever I think about the future, I still catch myself looking for them.
+
+I don't know where they are. I don't know if I'll ever feel anything like what I felt in that life again.
+
+But I'll keep looking.
+
+I'm going to find my family, one way or another.
