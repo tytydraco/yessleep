@@ -1,0 +1,53 @@
+Most of us have had to deal with bad roommates before, right? Whether it be an inconsiderate family member on vacation or an annoying sibling hogging all the hot shower water. Bad roommates are not uncommon, especially in today's world. The cost of living is sky high and rent keeps climbing, so I was keen on finding a roommate for my first year of college. After interviewing weirdos and borderline creeps, I found Jamie. He was a tall, lanky, socially awkward, but overall nice guy. So, I chose him as my roommate for my first ever apartment.   
+
+In August, he helped unload all my boxes from my car, helping me carry them up three flights of stairs to our apartment. He was always the first to volunteer to do the dishes. He never complained about cleaning the kitchen or the bathroom. He was quiet, amiable, and seemed like the perfect roommate. The only part I didn't love was how late he stayed up. 
+
+He was a night owl, staying awake all night long despite his early morning shifts before class. But what could I really say? He was the picture-perfect roommate I had dreamed of while scrolling through countless roommate applications over the summer. He wasn't ever too loud at night, and I could only hear the tv sometimes when he got really into watching anime. So, I let it be.   
+
+That was until I started hearing weird noises at night. 
+
+I was used to the creak of our old floorboards or the hum of the bathroom light, but I started to hear a faint scratching sound. 
+
+ ***Scratch Scratch Scratch.***   
+
+The next morning, I put out mouse traps. I assumed we had rodents crawling around in the walls, and that was the last thing I needed before finals.    
+    
+But after an entire week of hearing the scratching all night long, despite the traps I had put out, I finally asked Jamie if he heard it too. I figured he had to since he’d stay up all night long.  
+
+He glanced down the hall toward our bedrooms, before answering me, 
+
+ "Must be the rats. I've never heard anything. Hope your traps work."                                                         
+
+  
+I agreed, but his reaction felt off. Again, I was tired from sleepless nights so I just let it go. I hoped the traps would work too. 
+
+But the scratching continued.  
+
+I grew tired of it, and finally one night I covered my ears, squeezing my eyes shut, trying to force myself to sleep but the scratching just got LOUDER and LOUDER. Until it stopped. Relief washed over me. I could finally sleep.  
+
+***Scratch scratch scratch.***  
+
+I jolted upright in my bed. The scratching was closer now. I could hear footsteps in time with the scratching, moving down the hallway toward me. I watched as the flickering bathroom light trickled underneath my door was swallowed up step by step. Maybe it was Jamie playing a sick trick on me all along.  
+
+***Scratch scratch scratch.***  
+
+I heard my door handle jiggle. Thank God I locked my door out of paranoia each night. Then I watched as the lock turned over, frozen in place, as the handle followed.  
+
+The door slowly swung inward to reveal nothing. No Jamie. No intruder. Nothing.    
+ 
+
+I climbed out of bed. If Jamie wanted to mess with me, I'd give him a piece of my mind.    
+   
+I searched the apartment for twenty minutes. Checking his room, finding only dust. Checking our bathroom, only to find my shower products. I even checked the fridge, looking for the special chocolate Jamie always kept in there, yet all I found were my meal prep containers. I tried to remember the last time I had seen Jamie. I could picture him carrying my boxes up the stairs, doing the dishes, or watching anime on our couch.    
+   
+But that wasn’t right. My mom had helped me move in. I hated doing the dishes, so I installed a dishwasher. I didn’t even own a tv. I’d never put out applications for a roommate. I’d never interviewed anyone. I’d never met Jamie.    
+   
+***Scratch scratch scratch.*** 
+
+I turned towards the sound. It was coming from Jamie's bedroom.  
+
+***Scratch scratch scratch.*** 
+
+I didn't live alone. But I couldn't remember what I'd been living with.   
+
+I type this as I hide next to the fridge. Listening to that incessant scratching. I wish my traps had worked.

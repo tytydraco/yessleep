@@ -4,7 +4,7 @@ Tat and I had been working together remotely for fourteen years. That’s a long
 
 We lived on opposite sides of the country and had never met in person, but that does not mean we weren’t friends. We shared a lot with each other over the years about our struggles with depression, anxiety, and other deeply personal things. I truly loved her, and she was a fixture in my life.
 
-I received daily videos of my Godson, her French Bulldog, Damien. I got pics the day she picked him up and brought him home as a puppy. I was supposed to take him if anything happened to her, and in hindsight, this is where the foreboding began.
+I received daily videos of my Godson, her French Bulldog, Damien. I got pics the day she picked him up and brought him home as a puppy. I was supposed to take him if anything happened to her, and in hindsight, this is where the foreshadowing began.
 
 She would give me her flight information when she travelled so I could check whether she made it to her next destination without the plane crashing. We shared the kind of crippling anxiety that only friends could understand and laugh about. Anyone else would know we were nuts; but maybe she wasn’t actually nuts and *knew* her time was up soon.
 

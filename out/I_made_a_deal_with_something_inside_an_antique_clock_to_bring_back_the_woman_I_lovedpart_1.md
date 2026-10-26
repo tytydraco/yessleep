@@ -1,0 +1,337 @@
+I'm posting this in the hope that my story brings light to what happened, and so that many of you can learn from my mistakes.
+
+A year ago, three of my closest friends, Jack, Max, Alex, and I decided to gather at Jack’s house. He lived in a nice, quiet, textbook suburban neighborhood. The kind of place where you’d think nothing bad could ever happen.
+
+We were all hanging out in the living room. Jack and Alex were crammed next to each other on the two-seater couch, while Max and I each claimed one of the single armchairs. We spent the night laughing, getting drunk, and sharing some of our most embarrassing memories together.
+
+Eventually, the conversation drifted, and Max started poking fun at how out of shape Jack was.
+
+"Max, out of everyone in this living room, you have no right to talk about how unfit Jack’s performance was in the gym."
+
+Max scratched his belly under his shirt and snorted. "Right... is it because I'm fat?"
+
+Jack and Alex tried their best to hide their laughter. I rubbed the back of my neck, unable to stop a smile from breaking across my face.
+
+"Yes, Max. You eat double the amount a whole family eats at dinner."
+
+Instantly, both of them cracked up. Their boisterous laughter boomed through the room. Jack was wheezing so hard he fell to his knees, completely hunched over.
+
+"Fuck you guys," Max snapped, pushing himself up from the couch and walking toward the stairs. He paused, looking back. "Laugh all you want, JACK, but I'm about to turn your bathroom into a hazardous waste site so no one else can use it."
+
+"Oh, right! Jack, I brought you something," I said, standing up and walking over to the bag I’d left next to the front door.
+
+"Really?" Jack called out. "Is it a bottle of California Zinfandel? If so, you’re doing me a massive favor. Because based on the awful gas-leak sounds echoing from Max upstairs... I think I'm gonna need a drink."
+
+I hoisted the bag up and brought it over to him.
+
+"Unfortunately, no. I didn't plan for that."
+
+Alex chuckled shortly, setting his canned beer down on the coffee table. "Can't blame ya, Noah. No one can predict that fat bastard’s digestive system."
+
+Jack unzipped the bag and pulled out a large, heavy box. Pushing the empty bag aside, he placed the box on the table. His eyebrows knitted together in confusion.
+
+"Hey, Noah... what is this?" he asked, picking at the tape to open it.
+
+I sat back down across from the two of them and crossed my arms. "Well, that’s your birthday gift."
+
+"Noah... you do know my birthday was yesterday, right? You're a day..."
+
+"Late, I know," I cut in, waving my hand dismissively. "I was just completely overwhelmed yesterday. The boss had me stuck finishing a mountain of paperwork on the company's debt and income spreadsheets."
+
+Jack let out a deep exhale and grinned, a playful smirk breaking across his face.
+
+"Sounds rough. Don't worry, buddy, I forgive you," he said sarcastically.
+
+I couldn't help but chuckle. "Yeah, yeah. Anyway, happy birthday, Jack."
+
+We both leaned in for a quick, classic bro-hug, patting each other on the back before breaking apart.
+
+"So, what's actually in the box?" Alex asked, pulling the package toward his palms and inspecting it curiously.
+
+"It’s a clock. I bought it off some weird-looking antique shop. Thought it looked unique."
+
+Right on cue, the three of us heard the toilet upstairs flush. Max’s heavy footsteps echoed through the ceiling as he made his way down the stairs.
+
+"Man, that was a heavy one," Max groaned, rubbing his stomach as he walked into the living room. "Had to sweat my ass off fighting that battle."
+
+Almost instantly, a foul stench hit the room. I wrinkled my nose, violently waving my hand in front of my face to disperse the air.
+
+"Yeah, no shit it was heavy," Alex gagged, covering his nose with his hand in pure disgust.
+
+Ignoring Max, Jack finally pried the box open.
+
+"What the hell..." he muttered, his voice dropping into genuine bewilderment.
+
+"What is it?" Max asked, stepping up next to Jack to lean over his shoulder for a look.
+
+Jack reached into the styrofoam and pulled out the clock. It looked classy, the kind of ornate, fancy timepiece you’d expect to find in a gothic castle.
+
+But something was deeply wrong with it.
+
+The hands of the clock weren't metal. They looked entirely liquid, pitch-black, and soaked in a thick substance that resembled wet ink.
+
+TICK. TICK. TICK.
+
+The sound didn't just come from the clock. It seemed to echo violently against the very walls of the house.
+
+Suddenly, everything went dead quiet. The ambient whistling of the wind outside stopped completely. The faint, distant chatter of the neighbors vanished.
+
+The house was plunged into a vacuum of absolute silence, save for that heavy, rhythmic ticking.
+
+Every single one of us remained dead silent, tensed from the sudden disappearance of all sound.
+
+Jack was the first to break the stillness. His eyes twitched up at me, staring with a hard, aggressive intensity that made me incredibly uncomfortable. I noticed his jaw locking tight.
+
+"Noah... what is this?" he asked. His voice carried an acerbic tone, sharp and biting, even though he was trying to sound calm.
+
+I pinched the bridge of my nose, a heavy weight sinking into my chest.
+
+"It spoke to you... didn't it?" I asked, already knowing the answer.
+
+The clock had whispered to him, just like it did to me at that antique shop.
+
+Jack’s nostrils flared. He lunged forward so fast his hands shot toward me like a strike, wrapping a vice-like grip around my shirt collar. He yanked me forward until our faces were inches apart.
+
+"You... MOTHERFUCKER! What kind of deal did you make with that cursed object?!" Jack barked, spitting the words into my face.
+
+I couldn't do anything but swallow my shame and look away.
+
+"Whoa! Jack, calm down, dude! Max, a little help here?" Alex jumped up quickly, grabbing Jack's arms to tear him away from me.
+
+Max didn't move.
+
+He didn't say a word.
+
+His gaze was entirely vacant, completely disconnected from the room. He just stood there, motionless.
+
+"Alex! Get the fuck off me!" Jack roared, shoving him back. "You have no idea what that THING just whispered to my head."
+
+Alex stared at Jack as if he had just lost his mind.
+
+"W-what are you talking about, Jack? You sound insane right now."
+
+"I'm not crazy! I know it sounds stupid and impossible, but I..."
+
+Jack cut himself off, grabbing his head as he winced in sudden pain. He stumbled backward, collapsing onto the couch.
+
+"I am sorry, Jack..." I murmured, my voice completely drained, heavy with shame. "I had to. It was the only way to find peace in my life."
+
+Alex looked back and forth between us, utterly dumbfounded.
+
+"Noah, what the hell did you do?"
+
+Before I could answer, every single light bulb in the house began to flicker with violent, rapid speed.
+
+Jack, Alex, and I looked around in sheer bewilderment. I rushed back to the table, my eyes locking onto the face of the clock.
+
+"Th-they’re aligning," I breathed, staring at the liquid, ink-soaked hands. "Just like the whisperer told me they would. Twelve midnight..."
+
+"Whisperer? Noah, just what kind of shit did you bring into this house?" Alex muttered in pure bafflement.
+
+THUD.
+
+The three of us whipped our heads around.
+
+Max had collapsed, slamming onto the hardwood floor, completely unconscious.
+
+"Max?!" Jack shouted, shooting up from the couch to check on him.
+
+Then, the lights shut off entirely.
+
+Pitch blackness.
+
+A suffocating silence followed for a few agonizing seconds.
+
+When the lights suddenly hummed back to life, the bulbs weren't flickering anymore.
+
+But we weren't in the living room either.
+
+The smell of Max's bathroom break was gone, replaced by the sterile scent of industrial carpet and ozone.
+
+We were standing in a massive, sprawling airport terminal. The lobbies were completely empty, stretching out into dim corridors with not a single human soul in sight.
+
+All I knew for certain was that we had left our world for good.
+
+Before I could say anything, a crushing force collided with the side of my face.
+
+It was Jack’s fist.
+
+He knocked me clean off my feet. He’d landed a good one, leaving me dizzy on the floor as a high-pitched ringing flooded my ears.
+
+"Jack! Knock it off!" Alex yelled, stepping in and forcefully pushing Jack away from me.
+
+Jack stumbled backward a few steps. He glared at Alex, his teeth gritting, his eyes carrying an intense, erratic madness.
+
+"Alex... LOOK! Look at Max!" Jack pointed wildly toward one of the metal terminal benches.
+
+He must have carried him over there while I was blacked out.
+
+"Max isn't responding to me. God knows what happened to his head, but all I know is that he is the reason we're here!"
+
+Seeing the state of things, Alex looked completely overwhelmed. He rubbed his face, letting out a long, exhausted sigh before taking a deep breath.
+
+"Listen, Jack, I understand what you’re going through. You aren't alone in this, literally. But you being angry and losing your mind isn't going to help us escape. Just let it go for now... please," Alex begged, his voice sounding desperate and hollow.
+
+Jack tapped his boot against the polished marble floor, clicking his tongue in frustration.
+
+"Fine. Fine, I'll listen to you, Alex. But I'm only doing this for your sake and Max’s."
+
+Jack stormed off toward the benches where Max lay motionless, slamming himself down into a seat to clear his head.
+
+Alex walked over to me and offered his hand.
+
+"Come on. You took a nasty hit to the face."
+
+I grabbed his hand, and he hoisted me back up onto my feet.
+
+"Thank you, Alex," I mumbled, wiping a smear of blood from my lip. "I'm truly sorry for all this, I just..."
+
+"Noah, I only stopped Jack because what he was doing wasn't helping," Alex cut in, his eyes drilling into mine. "I need to know. What did you do?"
+
+I closed my eyes.
+
+He had every right to know the crushing weight of the truth.
+
+"Alex... remember April?"
+
+"Yeah," he replied, his brow furrowing in confusion. "What about her?"
+
+"Then you remember the accident. The day she died."
+
+Just uttering the words made me sick to my stomach.
+
+"I loved her, Alex. Her death completely broke me. I couldn't live in a world without her."
+
+Alex’s eyes widened in genuine shock at my confession.
+
+"You... loved her?"
+
+I nodded, staring blankly ahead.
+
+"She was the only light in my miserable life. But the thing is... she never knew. I was too terrified that if I told her, she'd hate me and push me away. So I just stuck around as a friend... until death took her from me."
+
+I gritted my teeth, taking a shaky breath to steady myself.
+
+"It's a long story, so I'll cut it short. I was depressed. Desperate to bring her back. I wandered into that weird antique shop out of pure curiosity, and that’s when I found it. The inky clock."
+
+A faint, hollow smile touched my lips as I looked down at my open palms.
+
+"I heard it call out to me. A whisper. When I approached the glass, I saw them. The whispers... the entities of this world. They promised they could bring her back to me. If..."
+
+"If what, Noah?" Alex barked.
+
+The patience was draining from his face, replaced by a sharp, irritated intensity.
+
+I hesitated. The guilt was suffocating, but I had to get it off my chest.
+
+"If I brought three other individuals... as a sacrifice. A toll for me to enter the inky clock's world. A world where they promised April was waiting..."
+
+I looked up from the floor to meet Alex's eyes, but the words died in my throat.
+
+The rest of the sentence froze in the air.
+
+The look on his face wasn't shock.
+
+It was pure, unadulterated disgust.
+
+"You disgust me," Alex whispered, stepping back as if looking at a monster. "No wonder May left your sorry ass."
+
+My heart skipped a beat. A cold sweat broke out across my neck at the mention of my ex-girlfriend. I flinched backward in deep shame.
+
+"A-Alex, I'm sorry, I..."
+
+"Shut the fuck up, Noah," Alex snapped, turning his back on me. "As soon as we get out of this place, you better delete my number. Delete everything. You're dead to me."
+
+Without looking back, he walked away, leaving me entirely alone in the empty terminal as he headed toward Jack and Max.
+
+I stood there, completely broken, isolated from them at a distant bench.
+
+I buried my face in my hands, hot tears finally welling up and spilling over.
+
+I fucked up...
+
+I'm such a miserable piece of trash. I’ll admit it to anyone, I have always hated how weak I was. In every single aspect of life, I was a coward.
+
+I was lucky enough to have them as my friends, people who actually cared about me... and now I was throwing them away for a ghost.
+
+For something I knew damn well I could never have again.
+
+"Hello there..."
+
+A hushed, bass voice echoed through the empty terminal. It was a low, rattling sound that sent an instant, icy chill straight down my spine.
+
+I froze, paralyzed by just how profoundly terrifying it sounded. I snapped my head up to look across the lobby at my friends.
+
+Jack and Alex looked like their souls had instantly left their bodies. Their faces had drained completely of color, turned a stark, translucent pale by pure horror.
+
+My body refused to stop shaking. Slowly, violently trembling, I forced my gaze to glance toward the side where the voice had originated.
+
+"A-ah... a-ahh..."
+
+My voice caught in my throat, a shaky, pathetic whimper.
+
+"W-what... what are you?"
+
+Standing under the harsh, sterile terminal lights was a towering nightmare.
+
+The figure easily stood over seven feet tall, completely dominating the space. Its skin was a sickly, pale grey, drawn tight over an emaciated frame. The eye sockets were far too large for its actual eyeballs, making it look as though it were permanently staring in rabid fury.
+
+But the mouth was the worst part.
+
+Its teeth were uncannily massive, exposed to the air because it had absolutely no flesh on its cheeks to cover them.
+
+A permanent, skeletal grin.
+
+Mats of jet-black hair traveled all the way down its back. Bizarrely, it wore a pristine black suit and matching black trousers.
+
+"Hmm-mmm... what am I?" the creature mused, its voice vibrating through the floorboards. "Well... I am what the whispers call..."
+
+It slowly began to spread its arms wide, inhaling the sterile airport air with a horrific, wheezing gasp.
+
+"...TERROR."
+
+The creature’s bulging eyes snapped down to lock onto me.
+
+"I came to claim the three you chose to sacrifice."
+
+It turned its neck with a sickening pop, shifting its gaze toward my friends.
+
+Jack and Alex were literally frozen in place, rooted to the spot by absolute dread.
+
+The entity began to stride toward them.
+
+It didn't rush.
+
+It walked with the casual, confident pace of a man who was simply picking up a food delivery.
+
+"I will feast," the creature whispered back over its shoulder, its exposed teeth clicking together. "You should leave now, Noah. Because I will kill you the very second I am done with them."
+
+The spell of fear broke.
+
+Panic took over.
+
+I immediately slammed my feet onto the marble floor and sprinted in the opposite direction.
+
+That was when the screaming started.
+
+The agonizing, guttural sounds of my friends' terror echoed violently behind me, bouncing off the high, empty ceilings of the airport. I started to sob uncontrollably as I ran, pumping my legs as fast as they could go.
+
+Through the air, I could hear them shouting my name.
+
+Cursing me.
+
+Begging me.
+
+Cursing me to hell.
+
+I couldn't look back. I couldn't watch them being torn apart.
+
+I was too weak.
+
+Too much of a coward to do anything to save them.
+
+All I ever wanted was to find peace.
+
+I guess this is the peace I deserve.
+
+This is what you get for conducting a deal that costs the lives of the only people who ever loved you.
