@@ -10,6 +10,8 @@
 
 [\[Part 6\]](https://www.reddit.com/r/nosleep/comments/1x6gqc5/im_a_furniture_mover_my_buddy_convinced_me_to/)
 
+[\[Part 8\]](https://www.reddit.com/r/nosleep/comments/1xfwrqb/im_a_furniture_mover_my_buddy_convinced_me_to/)
+
 Saturday was supposed to be the day I fought for more time with Toby.
 
 I had a folder and a proposal all set out, and now it was all for nothing. I called my lawyer from the driveway, and he said he’d already spoken to Alicia’s attorney, and everyone agreed to postpone. “The existing arrangement stands,” he said. “Ian, I’m going to say this once. Don’t make decisions about Toby just because she can’t object right now.”
@@ -330,7 +332,7 @@ Priest looked at Marshall. Neither answered immediately.
 
 Priest glanced toward the garage. “It's worth considering, provided Mercer approves the conditions.”
 
-Marshal continued. "We'd like to show it a sequence of images and sounds, then monitor the Interface for a response.” 
+Marshal continued. "We'd like to show it a sequence of images and sounds, then monitor the Interface for a response.”
 
 “And if it responds?” I asked.
 
@@ -701,4 +703,3 @@ I still didn't know what the creature wanted or whether it even understood what 
 But as I sat there listening to my son’s steady breathing, I found myself wondering something I hadn't considered before.
 
 Maybe it was [lonely.](https://www.reddit.com/r/AmoebaGold715/)
-

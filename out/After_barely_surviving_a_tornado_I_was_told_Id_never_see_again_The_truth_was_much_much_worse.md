@@ -18,21 +18,21 @@ She shot me a weak grin.
 
 “I hope so, love.”
 
-Funny how poignant the universe can be when it wants to punish you. I trusted my eyes over my gut, so, naturally, the storm took my vision, and I suppose there’s some small justice in that, but everything that happened *after* the tornado tore through our home? 
+Funny how poignant the universe can be when it wants to punish you. I trusted my eyes over my gut, so, naturally, the storm took my vision, and I suppose there’s some small justice in that, but everything that happened *after* the tornado tore through our home?
 
 There was no justice in that.
 
 None at all.
 
-\- - - - - 
+\- - - - -
 
-I woke up hazy, aching, unsure where I was, and when I opened my eyes, something was wrong. 
+I woke up hazy, aching, unsure where I was, and when I opened my eyes, something was wrong.
 
-There was nothing. 
+There was nothing.
 
-I *saw* nothing. 
+I *saw* nothing.
 
-Pure, unfettered blackness, no matter which way I turned my head. 
+Pure, unfettered blackness, no matter which way I turned my head.
 
 My breathing grew frantic. What was the last thing I remembered?
 
@@ -84,13 +84,13 @@ And I could’ve sworn I heard something, something that made no earthly sense.
 
 Hushed snickering from somewhere in the room.
 
-\- - - - - 
+\- - - - -
 
 Alone in that hospital bed, tethered to machines that were supposedly keeping me alive, I struggled to make sense of how much time was passing. With no shifting brightness to mark day from night, my internal rhythm became derailed. I developed the strange habit of calling nurses to my bedside just to read me their watch. Wasn’t much comfort, really. Time seemed to jump and skip in a way that made me decidedly uneasy.
 
 “It’s *4:03 PM*, Ray.”
 
-The voice was high-pitched, almost squeaky. Think she said her name was Andrea. 
+The voice was high-pitched, almost squeaky. Think she said her name was Andrea.
 
 “Hey, um, I know how this sounds, and I apologize, ‘cause I’m sure you have more important things to be doing, but…are you sure?”
 
@@ -138,7 +138,7 @@ Sharp tapping of knuckles against glass, urgent and slightly muted, like someone
 
 “Hah! You’re on the tenth floor, my dear. Unless you're close with a few angels, I doubt there’s anyone rapping on your window in the dead of night.”
 
-The doctor’s trademark cheerfulness melted away. Tiny sparks cascaded through my gut. I wondered if she was fiddling with the drainage tube.
+The doctor’s trademark cheerfulness melted away. Tiny sparks cascaded through my gut. Felt like she was fiddling with the drainage tube.
 
 “But if it keeps happening,” she paused, smacking her lips like she was working through a tough stick of gum, “please let me know.”
 
@@ -174,11 +174,11 @@ Without another word, he bolted, his echoing steps rapidly fading - a steady dec
 
 But not for long.
 
-That night, instead of knocking, I heard a soft, ticking creak: the unmistakable squeal of a rusty hinge being forced around its axis. 
+That night, instead of knocking, I heard a soft, ticking creak: the unmistakable squeal of a rusty hinge being forced around its axis.
 
-Then, I understood what Pete had done. 
+Then, I understood what Pete had done.
 
-He unlocked the window, and someone had entered, deft and delicate like a seasoned home invader. 
+He unlocked the window, and someone had entered, deft and delicate like a seasoned home invader.
 
 I pivoted my head, listening, trying to hear their approach over my own thumping heart.
 
@@ -188,11 +188,11 @@ No response.
 
 My mind began to spin. This was a mistake. I squirmed. Shifted. Waved my hands around, feeling for the intruder. It must have looked pathetic. I was a pinned moth wriggling futilely in its display box: weak, blind, and hopelessly impaled.
 
-Then, finally, I heard them. 
+Then, finally, I heard them.
 
-Not from across the room. 
+Not from across the room.
 
-Not from my bedside or in front of me. 
+Not from my bedside or in front of me.
 
 From *beneath* me.
 
@@ -304,7 +304,7 @@ A hollowed-out grave.
 
 And I wasn’t alone.
 
-Sitting in the corner, propped against the dirt wall like a discarded rag doll, legs straight, arms crooked, there was a corpse, freshly dead, bristling with violet pockmarks of early rot but otherwise intact. Their withered hands were adorned with countless silver rings, their cataract-stricken eyes were fixed directly on me, and their throat was…
+Sitting in the corner, propped against the dirt wall like a discarded rag doll, legs straight, arms crooked, there was a corpse, freshly dead, bristling with the violet pockmarks of early rot but otherwise intact. Their withered hands were adorned with countless silver rings, their cataract-stricken eyes were fixed directly on me, and their throat was…
 
 moving.
 
@@ -318,7 +318,7 @@ It was the client’s voice, repeating the same four words. Suddenly, I understo
 
 *“She’s your problem, now.”*
 
-*- - - - -* 
+*- - - - -*
 
 17 hours.
 
@@ -330,7 +330,7 @@ Not weeks, not months.
 
 Doctors claimed my survival was nothing short of miraculous. My guts were a disaster, whole lengths of bowel eviscerated, arteries severed to hell and back. I would’ve died from the internal bleeding if it weren’t for the rebar clotting off some of the bigger vessels. If it dislodged, I would’ve been dead in minutes. Rescuers arrived in the nick of time, too. The hollow grave they found me in? Airtight. *Perfectly* airtight. Against all reason, the tornado had excavated a 10-by-10-foot box of soil and deposited a continuous seal of debris on top. A lightless tomb with a limited supply of oxygen. The circumstance beggar's belief, and that’s just the beginning. The rebar was from my house, but rescuers found me at the complete *opposite* end of the cemetery, a good half-acre away. The fake hospital bed I was lying on? It was made from at least a dozen different coffins, none of which belonged to the woman entombed with me. No fucking idea who she is, by the way. I know she was the last person we buried, but that's about it. The funeral paperwork was forged. The client’s number was disconnected when I called. The list goes on, and on, and on…
 
-None of it matters, though. 
+None of it matters, though.
 
 Not in the end.
 
@@ -340,7 +340,7 @@ But Vivi’s missing. Presumed dead. Her right hand's been discovered. That’s 
 
 Been a few months since the tornado.
 
-I haven't found her yet, but I haven't given up, either. 
+I haven't found her yet, but I haven't given up, either.
 
 Every day, I dig. Doing it systematically, following the storm’s path of destruction, from the house outward. A Sisyphean venture, undoubtedly, but I need something to occupy my mind. When my hands are idle, I start thinking about my time in the grave. Sometimes about why that dead woman tormented me, dwelling on how she attempted to drive me so far into madness that I accidentally ended it all, but mostly, I think about those last few minutes.
 

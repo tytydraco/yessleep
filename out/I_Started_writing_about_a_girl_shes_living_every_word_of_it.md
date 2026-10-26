@@ -1,0 +1,60 @@
+I’m a ghostwriter. I work at Lifebook Memoirs, I make heirloom-quality family memoirs with personal interviews and audio highlights. Basically, I write about other people’s lives for a living, and I’m actually pretty good at it. However, I can’t get the feeling I need to do more, so in hopes of doing just that, around three weeks ago, I made a promise, one well written piece, no client, no deadline. Just me and I. So let me tell you how I began to write about this girl.
+
+I live in Rio. There’s a bus stop outside my home, and every morning at 7:40 exactly a girl stands there, thin as pencil lead, coughing into her sleeve, red lipstick, put on without a mirror, slightly off the edge of her mouth*.* Now if you had to ask me whether or not I was intrigued by her I’d be lying if I said no, She was objectively very pretty, and I think it was the best thing to get me out of this writers slump.
+
+ So that night I typed a page of pure invention. I imagined her being nineteen years old from some dry town in the northeast, I gave her a tragic back story, the parents died early on when she was around 2 from typhoid fever, and was raised by an aunt with a heavy hand and mean tempre. She worked as a typist like me, call me arrogant but I wanted some personality in here, anyway she wasn’t any good at being a typist however she liked it. After moving out of her aunts she rented room and shared with four other women who were all for some reason, named Maria. I gave her a passion of Rádio Relógio, the station that does nothing but announce the time between ads and trivia. I wanted it to give her a pitiful side I guess, I also gave her a taste for Coca-Cola. She had never had it but heard of it all the time. Anyway, after that I went to bed feeling like a I had gotten out of my slump. Now, in hindsight it was a little silly, I just was making things up just to get my creative side a jumpstart, honestly this wasn’t even going to be apart of a story it was just me practicing.
+
+But life works in mysterious ways, and with that I woke up the next morning, I followed the bus she went on. And no, I’m not a creep, I just want to write a good story. She worked at a trading office near the port. As a typist. I told myself I’d written that as a coincidence and didn’t think much of it other than it was funny.
+
+Later at lunch I sat next to her at a juice counter. She had a little transistor radio against her ear. The announcer gave me the time, and she smiled like she’d just found 20 dollars . Curiously I asked her what she was smiling about trying not to be obvious, and she told me “ I really enjoy the trivia at the radio station it also helps me remember the time since I don’t have a pocket watch.” I was shocked. She noticed my mouth open in bewilderment, “Are you okay mister?”
+
+I made some half assed excuse and said I was fine just thought of something, and she started to head out, I don’t know what took over me, maybe curiosity, maybe something else, but I stood up stammering and asked “wait where are you going?” she looked at me a little flustered, I mean how could she not I’d be worried if someone asked me that too out of nowhere. However, she was kind enough to humor me, I’m heading home, me and my roommates are having dinner tonight I’m cooking.”
+
+Roommates. There’s no way. “Oh, how fun. What’s their names?”  I asked
+
+“Uhm, well it’s funny you said that, They all have the same name”
+
+ 
+
+“Maria”  
+“Maria”
+
+ 
+
+We both said at the same time. I felt sick.  I hurriedly got up and walked away. She said something while I started walking away however I didn’t look back. That’s when I stopped calling it coincidence. I couldn’t help but test it later when I got home, I had to be overthinking it in some way. When I finally opened my door while huffing and puffing I typed into my laptop *She finds a coin on the sidewalk.* After that I went to bed barely containing my curiosity, In the morning I looked out my window in anticipation and exactly at 9:10am she bent down outside her building and came up with a coin. I typed: *She drops her bag in a puddle.* I watched it happen from across the street.
+
+I tried to stop. When I closed the laptop pressure built behind my eyes like the second before a sneeze, and then my hands were back on the keys and before I knew it four hours were gone. The page on the screen had a man in it that I had never written, Olímpico, a metalworker, Very arrogant who would tell her she was nobody and then leave her for a girl from her office. It was almost like a character synopsis. But that’s not what I wrote it changed. So I tested this.
+
+I tried to write something good to her. I tried to give her good luck maybe a raise at her job. A new friend. But it would change like something would blur it out and the letters transmutate into something malicious. I would type something on the screen for a minute, then the paragraph would reflow around it and it would be gone, Like something was feeding on the imaginary ink, and finally regurgitated what it thought it should’ve been all along. The story only kept what was cruel.
+
+The following week I heard wind from some gossip and online work forums about Olímpico before I’d typed a word of the breakup. “There’s a girl at work, Glória, She’s totally hitting on Olímpico, and he’s all over him” another person said “I thought he had a girlfriend” “If he did I don’t know her must be invisible haha.” I felt sick.
+
+ A couple days later maybe around Thursday? The next page was already on my screen when I woke up, though I promise you, really, I hadn’t typed it. It basically stated A fortune teller above a pharmacy would give a prediction, *you will be happy; a tall foreigner with light hair is coming for you.* I almost felt relieved, however then I remembered this doesn’t write anything but cruelty.
+
+I ran to her office. Her desk was empty. I found her on the corner outside the pharmacy, glowing, like someone had finally switched her on. “She says I’m going to be happy,” she said. “She told me about Hans.” I was confused, I thought it only typed cruel ideas, and why was she talking to me I new everything about her but she barely new me.
+
+The yellow car turned off the avenue, slow, with a hood ornament that caught the light. I realized too late. I ran. She saw me coming, and she wasn’t afraid. “You wrote me a good ending, didn’t you?” she said, and stepped off the curb like she was going to meet someone.
+
+A Visceral sound followed It sounded like stepping in a pile of creamy mac and cheese along with crunching of bones.
+
+ 
+
+She was dead.
+
+ 
+
+That was Friday. Nothing has typed itself since. This morning I opened the notebook to throw it out, and on the last page, in my handwriting, was one paragraph I did not write:
+
+*The writer has nothing left to write. Everything began with a yes, and he said his. He will not be there for the next page. Tomorrow, 7:40.*
+
+It’s 3 a.m and the Radio keeps repeating the same words over and over again “It’s the hour of the star”.  I’m posting this because I’m horrified If this joke of a paper only spits out truthfully cruel malice. Then I won’t make it, I don’t even have 24 hours left. I just wish I could have been a better writer. If I don’t update, you know why.
+
+ 
+
+ 
+
+ 
+
+ 
+
+Writer’s note (This is an r/nosleep adaption of the Hour of the star for a book project this is my first ever no sleep post and as for my project please send comments that roleplay you are reading this story as its real. Thank you!) 

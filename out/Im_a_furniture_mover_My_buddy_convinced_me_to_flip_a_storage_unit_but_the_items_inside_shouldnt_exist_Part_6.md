@@ -10,13 +10,13 @@
 
 [\[Part 7\]](https://www.reddit.com/r/nosleep/comments/1xaca6b/im_a_furniture_mover_my_buddy_convinced_me_to/)
 
+[\[Part 8\]](https://www.reddit.com/r/nosleep/comments/1xfwrqb/im_a_furniture_mover_my_buddy_convinced_me_to/)
+
 The day after CATALOGUE left, nothing happened in my house. For weeks there'd been talking radios, moving reflections, and new things on my workbench. Now there were forty-one objects gone. The dresser, the tank, and the portrait were still waiting on a transport crew. I checked the wardrobe repeatedly that night, listening for creaks or voices. 
 
 I had a lot of time to think this week, and I want to be honest that I hated it.
 
-I hadn't touched a drink in days. Not since that night with the radio. I still thought about Alicia's voice coming from it and how I'd sounded answering her. I'd spent so long telling myself our arguments had gone differently that hearing them again felt like being caught in a lie. Maybe the radio had invented some of it. But I remembered enough to know it hadn't invented everything.
-
-I wanted a drink more than once that week.
+I hadn't touched a drink in days. I still thought about Alicia's voice coming from the radio and how I'd sounded answering her. I'd spent so long telling myself our arguments had gone differently that hearing them again felt like being caught in a lie. Maybe the radio had invented some of it. But I remembered enough to know it hadn't invented everything.
 
 On Wednesday, I finally met with the family lawyer I'd been talking to for months. After depositing CATALOGUE's money, I called from the bank parking lot. For once, I could afford to retain him.
 

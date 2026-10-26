@@ -1,0 +1,73 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/1wwl46a/i_went_to_a_fortune_teller_and_it_changed_my_life/)
+
+Lights in different colors were covering every little piece of the scenery. People bumped into me and gave me annoyed looks that they spilled their drinks.The smell of food was so strong, intrusive, irritating my senses to the point of nausea. The music was loud, but the chatter of the crowd around me was even louder. In the far right corner a big clearly artificial construction towered over the whole square and glimmered in all the colors. A two-story tall Christmas tree.
+
+I couldn’t understand a word of what anyone was saying around me, as my agitation grew more and more. German. That I could recognize - these people were German. I looked around like it was my job. Frantic, impatient, scared. What the fuck? How did I end up here?   
+Before I could analyze any further, a serious mass of people came at my back like a wave, pushing me forward and carrying me towards the fake Christmat tree. I did not resist it much, as I quickly found out that it would be borderline suicidal to try and stay in place against the wave of wide-eyed, screaming faces. They were like scared cattle.
+
+Some of them were shredding their throats like said cattle during slaughter at the back end of the square. In a matter of seconds the push became absolutely unhinged, I was dragged to the side, close to one of the cute little wooden houses, the one selling some kind of pastries. The sweet smell and the warmth permeated my very soul as I landed on my butt on the cold wet ground. A vibrating sound made me lift my eyes off the floor. A huge roaring truck. Passing through the crowd like scissors cutting through rice paper. It looked as if I was trying to see through a thick forest, but the trees were moving, because they were humans. My gaze automatically followed the truck. A loud crash. Secondary breaking noises. The big flashy Christmas tree toppled over. The license plate was dangling on one side, “JD 767”. 
+
+People fell over me. Some were covered in sticky dark liquid. Some were crying and spewing gibberish. Others were rolling around like ragdolls. Some were trampling over the former like terrified hippos. One of these prepared to step on my face, trying to climb over the wooden construction behind me. The moment before his shoe tread hit my cheek, I took a sharp breath, preparing for my fate… and opened my eyes to my childhood room’s window. 
+
+My squeaky breaths were filling the room. I remember I looked at the street light, as I always lift my curtains to use the street light, thinking I must calm down before I wake up anyone else. My parents have had their fair share of worrying over me and this was the third night in a row that I have been having the same nightmare. The first night I woke up with a shriek and gave my mother a bit of a heart attack. She made us some chamomile tea and listened to me explain that I am fine and it was just a bad dream over and over. Calming her down seemed to be a good way to also convince myself it was nothing, so I continued doing the same thing the next day. 
+
+Seeing the truck plow through a bunch of innocent people in an incredibly realistic manner was not on my wish list as I was going to bed on day two, but here it was. Where did my mind come up with this? I have never been to Germany, let alone around Christmas.   
+I kept wondering this as I was going to bed last night. Maybe I was priming myself to repeat the nightmare by thinking about it excessively. And repeat it did. Third night in a row. 
+
+As my trembling began to subside I dug through the covers and below my pillow to find my phone. It struck me as important that I should write down this damn license plate, as it was the last thing I saw before my forceful wakings all three times I had the dream.  
+My phone slid out of the covers along with a small plastic bag, as if made for evidence collection. My fingers fumbled with it for a moment in the soft darkness. Maria’s lead piece. I had decided to sleep on it after all. Maybe it has something to do with the nightmares, I thought for the first time. Maybe I am just stupid, but I'll let you be the judge of that. The ritual was intense, maybe I was just psyched and had these bad dreams just because I knew this thing is underneath my pillow. To be honest I thought about this for most of the night, which looking back now was the least productive thing I could do. The next day I was beaten and in no position to cope with whatever was expecting me. 
+
+And what was expecting me was excited Dora. My mother has always valued family events as the most sacred, special moments in her entire life. She would guard them like a dog and make sure everyone is in a good mood and everything is just perfect. Which is why my underslept terrible-mood-don't-talk-to-me ass infuriated her on that warm Saturday morning.  She had organized a beach picnic as there would be a boating race in the river and according to her, we could have brunch and watch it. 
+
+"Paul, did you bring the blankets?", she roamed the house like her life depended on not forgetting something. 
+
+"In the Jeep." Dad's calm distracted voice, coming with a loud TikTok background was the absolute antithesis to my mother’s preparations. 
+
+"Ellie! Get dressed! Now!"
+
+God, how much I wanted to stay at home. I could still see the truck when I closed my eyes, I could smell the pastries and the wet ground smell of the guy's shoe a centimeter away from my face.  
+But ruining mom's picnic was going to bring more chaos, not less. I knew I would never hear the end of it and also it was the third day since the ritual. That meant I had to throw the lead piece over my shoulder into the river, as Maria advised. I went through the nightmares, now here seems to be the easy part. I put on old leggings and a rock band t-shirt I wore eight years ago for the last time. The benefits of losing weight, I suppose. 
+
+"Seriously, Ellie, what's that face? Are you not happy to come to the beach with us? I spent last night preparing the food and there will be a race and the weather is nice, which is rare for September…" Dora stopped her weak salesman pitch to take a breath and shake her head in disapproval at me. 
+
+I forced a caricature of a fake smile, which, I am sure, looked like a horror movie prop more than anything else. I kept thinking about the truck. At the time I didn’t realize how much emotional pull the nightmare had had on me. But now that I am telling the story of it, I can clearly see that I was shaken. 
+
+Mom was right about a single thing though. The beach was awesome. As underslept and grumpy as I was, the soft wind and the swoosh of the river felt incredibly soothing. I had grown up here, and I held many memories of laying in the trees’ shade, running on the rough sand, collecting pebbles and clam shells, even swimming in the river as a child. Coming to the beach was the one thing that would always put my soul to rest, that's what I thought then. Before the day unraveled. In fact, this was the last day I found the beach soothing and I am so sad that I lost that feeling. 
+
+Not to get ahead of myself, though. The moment we set foot on the beach, I said “I'll go deal with this thing here” and waved around the lead piece in my hand. My mother smiled and nodded enthusiastically. I stepped about twenty steps away, feeling like somehow this was supposed to be a personal thing. I looked at it and thought about the chicken that Maria slaughtered. The moment the thought popped up, I felt a little queasy. I took a deep breath. It was over though. Plop. I did imagine the lead piece sinking down amongst a bunch of algae and maybe some trapped trash, as the Danube is not the cleanest river and trash gets stuck everywhere. I hoped it would reach the bottom, but I didn't know why. I just thought it would be best.
+
+When I got back to my parents, a beautiful picnic had been arranged. There were little sandwiches, plastic cups for coffee and juice and of course, ice cream. My parents had chosen to set up the whole thing really close to the boat race, so we could hear and watch everything. The boats went past us to finish their laps and made waves in the water.
+
+"I always thought that this was an expensive hobby. " mom said. "Didn't Annie's brother do boat racing when you were little? "
+
+"Yeah." I said, distracted by my own thoughts. Lately I was spending too much time in my own head, thinking about being such a failure at thirty. I was sure it was not helpful, but had no idea how to stop it.
+
+"Well, they didn't have money, right? How did he do it?"
+
+"I think they use sponsors, mom. See, there are advertisements on the boats."
+
+She shrugged and let it go, biting down on one of the sandwiches she made. She was the only one eating them and I laughed a little inside, thinking about how she made all those for herself under the pretense that she's preparing a family event. Dora and food, a never ending love-hate story. 
+
+My mind drifted back to Annie's brother. When we were kids and he used to race, there was this story going around about a boy who fell from his boat and the boat's propeller nearly cut off his head, destroying his face in the process. At the time we thought it's just a scarecrow story to make youngsters be careful with the boats.   
+That day, watching the race, my brain did what it did on many occasions before. It's quite pathetic, but I promised to be honest here. My brain constructs these elaborate scenarios where I somehow end up saving people and generally being a hero. And on that particular September day, I needed that fantasy more than ever. So my brain made it as vivid as it could with the limited sleep I had managed to get. 
+
+I thought about how an incident like that would go and how I could participate in it. I decided that the coolest version would be if I was in another boat, racing. A girl racing boats - that sounded more badass than a woman in her thirties with no job, no money and no place to live. I imagined how another guy falls off his boat, and I, as the badass teenager I fantasized about being, would jump and go rescue him, only finding out he's mangled when I pull him out. And now, drumroll please, that would start my career as a paramedic and later a doctor - saving many, many lives. And if that happened, I would still be a badass at thirty, not this stupid version that was having picnics after nightmares. As embarrassing as it sounds to explain now, that's what my brain did for the better part of an hour. I guess I was not that interested in the boat race, since I kept replaying more and more detailed versions of this fantasy in my head. 
+
+"How long are they going to race for?" I guess mom wasn't that interested either.
+
+"Those are the last ones, the heaviest and most powerful category of boats. Then we'll go." said Paul, sipping on his cold coffee in a green plastic cup. 
+
+We heard the countdown one more time and three boats started doing their laps. Dora was gathering the used cups and leftover food.  
+I looked at my phone to see what time it was. The roaring of the boat engines was cut off. Bang. Loud, deafening crash. I didn’t want to look up and I don’t want to remember what I saw when I did look up. 
+
+To my right people were slowly gathering at the edge of the riverbank. “What happened?” “Are they okay?” The murmuring was slow, confused, scattered.   
+Right in front of our spot two boats had crashed. One hit the other from the side, leaving it almost snapped in two. Three-four people were swimming their way, trying to find the guy from the snapped boat. The other one just sat in his seat, covered in his own blood and looked around wide eyed. He knew. He didn't want to believe it, but he knew he had killed someone by accident.   
+“He's here!”  
+“Bring him to the shore! Bring him here! Quick!”  
+“Did anyone call for an ambulance? “  
+“Yes! Three calls already! They said they're coming.”
+
+I looked at the people speaking as if I watched a ping pong game. Someone was dragging the injured man through the water, leaving a trail of something behind. It could be anything, I tried to tell myself. They had their backs turned at us, so we couldn't see.  
+The moment they reached the shore and laid the man on the rough sand, my breathing stopped for way too long. I held my chest and gasped audibly until my mother came up from behind me to embrace me and turn me in the other direction, so I wouldn't watch.
+
+“We can't do CPR on this!” someone said. “There’s nothing left of his face!”
