@@ -1,6 +1,8 @@
-\[Part 1\] ([https://www.reddit.com/r/nosleep/s/DGu7ldMEaK](https://www.reddit.com/r/nosleep/s/DGu7ldMEaK))
+[\[Part 1\]](https://www.reddit.com/r/nosleep/s/DGu7ldMEaK)
 
-\[Part 3\] (https://www.reddit.com/r/nosleep/s/1qeemWKtkO)
+[\[Part 3\]](https://www.reddit.com/r/nosleep/s/1qeemWKtkO)
+
+[\[Part 4\]](https://www.reddit.com/r/nosleep/s/6cg12cL7fU) 
 
 Thank you all for reading my story. Thank you all for believing me. I want to add a little clarification to my last post.
 

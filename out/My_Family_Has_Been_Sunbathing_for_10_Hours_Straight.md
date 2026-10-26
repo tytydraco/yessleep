@@ -1,6 +1,8 @@
-\[Part 2\] ([https://www.reddit.com/r/nosleep/s/2iQo3RIoof](https://www.reddit.com/r/nosleep/s/2iQo3RIoof))
+[\[Part 2\]](https://www.reddit.com/r/nosleep/s/2iQo3RIoof)
 
-\[Part 3\] (https://www.reddit.com/r/nosleep/s/1qeemWKtkO)
+[\[Part 3\]](https://www.reddit.com/r/nosleep/s/1qeemWKtkO)
+
+[\[Part 4\]](https://www.reddit.com/r/nosleep/s/6cg12cL7fU)
 
 "Today we have a somewhat historic weather report for you all. It seems summer wanted one last goodbye before the start of the cold season. Tell us about it, Jason."
 

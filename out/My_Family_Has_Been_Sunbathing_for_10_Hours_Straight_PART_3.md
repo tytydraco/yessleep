@@ -1,7 +1,8 @@
-\[Part 1\] (https://www.reddit.com/r/nosleep/s/DGu7ldMEaK)
+[\[Part 1\]](https://www.reddit.com/r/nosleep/s/DGu7ldMEaK) 
 
-  
-\[Part 2\] (https://www.reddit.com/r/nosleep/s/2iQo3RIoof)
+[\[Part 2\]](https://www.reddit.com/r/nosleep/s/2iQo3RIoof) 
+
+[\[Part 4\]](https://www.reddit.com/r/nosleep/s/6cg12cL7fU) 
 
 I flinched as the sunlight hit my visor. Muscles tensed, I stood still in my backyard, waiting for the poison of the sun to take over my mind once more and sit me down in my rightful place next to my sister.
 
