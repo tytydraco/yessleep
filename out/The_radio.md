@@ -1,23 +1,21 @@
-I(22F) always loved having old/vintage things, i would go in abandoned houses and find whatever I could. That changed last month, when I was exploring a house that was built In 1935, I found this old rackety radio that still somehow works, it was mostly static so I kept it as decoration on the shelf in my living room with most of my vintage stuff, 
+I(22F) always loved having old/vintage things, i would go in abandoned houses and find whatever I could. That changed last month, when I was exploring a house that was built In 1935, I found this old rackety radio that still somehow works, it was mostly static so I kept it as decoration on the shelf in my living room with most of my vintage stuff,
 
 until a few weeks ago I heard a word, “hello!” In that fake television voice from the mid century, and during that time period more and more broadcasts started to happen, most of them were just talking about the weather or stuff going on, but in the past few days it’s gotten creepier,
 
-It would say stuff like “please” in a tone that sounds like whining in pain and then static sounds. I never really minded it, honestly I liked being on edge, until recently, i have a great pyrenees named goose. and three days ago I heard the radio make a barking sound and then a whining noise, that’s Goose’s exact tone. 
+It would say stuff like “please” in a tone that sounds like whining in pain and then static sounds. I never really minded it, honestly I liked being on edge, until recently, i have a great pyrenees named goose. and three days ago I heard the radio make a barking sound and then a whining noise, that’s Goose’s exact tone.
 
-Panicked, I ran into my room where Goose was sleeping on his bed, I must’ve startled him because he got up and licked my knee, I gently grabbed his collar and took him into the living room and turned off the radio and sat on the floor and cuddled him for a whole hour 
+Panicked, I ran into my room where Goose was sleeping on his bed, I must’ve startled him because he got up and licked my knee, I gently grabbed his collar and took him into the living room and turned off the radio and sat on the floor and cuddled him for a whole hour
 
-until my fiancé(24M) Uran, came home, worried, he asked what happened and I told him nothing happened and said I got scared, he just chuckled and embraced me and Goose. yesterday I turned the radio on and I heard my fiancé laughing at my joke and saying “SHUT UP BABY!” In a playful tone, 
+until my fiancé(24M) Uran, came home, worried, he asked what happened and I told him nothing happened and said I got scared, he just chuckled and embraced me and Goose. yesterday I turned the radio on and I heard my fiancé laughing at my joke and saying “SHUT UP BABY!” In a playful tone,
 
 but when I was about to unplug it he, or it, said “Don’t.” In a flat tone, I got filled with dread and unplugged it, but then my  Alexa started playing some old-timey Jazz song and a man singing “baby you can listen to my radio \~ make my dreams come truee\~ I’d fall in love with you!”
 
-then the radio came back on, still unplugged, singing the same song but different lyrics, “baby I know you hear me\~ just tune my channel on And sing that pretty song.” I was shaking in fear and it kept getting louder and louder until I screamed “STOP IT!” And fell to my knees it had finally stopped, 
+then the radio came back on, still unplugged, singing the same song but different lyrics, “baby I know you hear me\~ just tune my channel on And sing that pretty song.” I was shaking in fear and it kept getting louder and louder until I screamed “STOP IT!” And fell to my knees it had finally stopped,
 
 Uran came back in from walking Goose and found me crying on my knees with my hands over my ears, and he leaned down, kissed my forehead, lifted my chin, and said “baby what’s wrong?” Tears welling in my eyes I threw my arms around his shoulders and sobbed.
 
- Uran didn’t question anything and just wrapped his arms around my waist and whispered something comforting, I didn’t hear it though, I was to busy Bawling my eyes out. 
+Uran didn’t question anything and just wrapped his arms around my waist and whispered something comforting, I didn’t hear it though, I was to busy Bawling my eyes out.
 
-And today was the last straw. I was feeding Goose and the radio said “come here Goose!” In my voice. Goose started walking over and I YANKED his collar back and put his leash on and tied him to his food so he wouldn’t go and he’d just eat his food 
+And today was the last straw. I was feeding Goose and the radio said “come here Goose!” In my voice. Goose started walking over and I YANKED his collar back and put his leash on and tied him to his food so he wouldn’t go and he’d just eat his food
 
 I called Uran and told him about the radio and why I kept breaking down, and he just said “okay, I’ll just order a hotel room, I believe you.” I sighed in relief and hung up. I’m now writing this in the hotel room right now. Uran is sleeping next to me, Goose is on top of him, I can hear the jazz song again, I promise I’ll update soon, goodbye for now.
-
-Edit: it’s been two months since all that happened.
