@@ -1,0 +1,93 @@
+I spent over a decade working as a solo backcountry ranger in an isolated district of an unnamed national park. Most people picture park rangers wrestling rogue grizzlies or rappelling down sheer canyon walls to save stranded hikers. In reality, about ninety percent of my career consisted of picking up discarded energy drink cans, explaining to grown adults why feeding Flamin’ Hot Cheetos to raccoons is a terrible idea, and sitting alone at my outpost desk writing terrible novels while waiting for the single bar of emergency Wi-Fi to load a weather forecast.
+
+I was twenty-one when I took the post. I had spent my teens grooming myself for college basketball until a blown rebound in a sophomore scrimmage shattered three lumbar vertebrae and ended my athletic career in a single afternoon. Dropping out with a metal rod in my spine and no backup plan, I took the loneliest job the Department of the Interior had to offer. By the time I turned thirty-two, I had turned isolation into an art form. My district was hundreds of square miles of dense hemlock, bog, and granite ridges. My station was a cedar cabin five miles past the nearest gravel service road, equipped with a wood stove, a VHF radio, and enough quiet to drive an extrovert insane.
+
+The hardest part of the job was usually dealing with the occasional tourist who thought "primitive wilderness" meant "lawless frat house."
+
+Early last June, I got a report about smoke rising near the old logging spur two miles below my cabin. I drove down in the park truck, fully prepared to write a hefty citation for an illegal campfire during high-risk season.
+
+Instead, I found four teenagers huddled around an inflatable pink flamingo.
+
+They had dragged two folding lawn chairs into the dirt, had an acoustic guitar with three missing strings, and were attempting to roast gas-station corn dogs over what they passionately defended as a "fully compliant containment unit" which turned out to be a hollowed-out watermelon lined with aluminum foil.
+
+"Officer Smokey, hear me out," the ringleader said, a skinny kid in a tie-dye bucket hat who introduced himself as Toby. "The watermelon is eighty percent water. Mathematically speaking, it is physically impossible for this fire to escape."
+
+"That’s not how thermodynamics works, Toby," I said, leaning against my truck door and trying desperately not to laugh. "Put it out before I cite you for reckless endangerment of fruit."
+
+They were loud, completely unbothered, and surprisingly polite about packing up their mess. As they piled back into their battered station wagon, one of the girls rolled down her window and called out, "Hey Ranger, who’s your buddy by the tree line? Is he supposed to be making that clicking sound?"
+
+I glanced toward the dense wall of hemlocks twenty yards back. There was nothing there just swaying branches and shadows.
+
+"Probably just a deer," I told her. "Or my spine settling. Get out of here before the sun drops."
+
+They waved, honked a comedic tune on their horn, and drove off down the mountain. That was the last normal encounter I had all summer.
+
+Two days later, dispatch patched a call through to my cabin radio. A pair of experienced backpackers at an established campsite four miles north had packed up at 3:00 AM and hiked out in the dark to reach cell service. They reported that someone had spent three continuous hours pacing the perimeter of their tent, rhythmically striking two stones together and occasionally whispering short, garbled syllables that sounded like a radio broadcast playing at quarter speed.
+
+I hiked up to the site at first light. I spent four hours combing the clearing and the surrounding brush. I found the hikers' abandoned tent stakes, but not a single footprint in the damp loam. No crushed ferns, no broken twigs, no scat, no food wrappers. The ground was untouched.
+
+Over the next two weeks, the calls escalated.
+
+A solo fly fisherman on the river reported hearing someone repeatedly shouting his own brother's name from across the water, but when he crossed the shallows to look, the bank was completely undisturbed. A family at the southern boundary called dispatch claiming a woman was crying for help fifty feet up a sheer cliff face; when the local volunteer rescue team arrived with spotlights and ropes, the cliff was barren stone, with nowhere a human being could possibly stand.
+
+Every single time, I was the one sent out to investigate. And every single time, I found nothing.
+
+By mid-July, the park service closed the northern sector due to early storm warnings, and the tourists cleared out entirely. I was alone in the district. That was when the noises stopped happening to other people and started happening around my cabin.
+
+It began with the radio. At 2:14 AM on a Tuesday, the VHF base station on my desk clicked open. The speaker hissed with white noise, followed by a faint, metallic scrape. Then a voice came through the static.
+
+It was my voice.
+
+*"That’s not how thermodynamics works, Toby."*
+
+The recording was perfectly clear, but the delivery was wrong. The cadence was flat and mechanical, the pitch stuttering up and down like an audio file being dragged slowly across an editing track. It repeated three times, exactly the same way, before cutting out into dead silence.
+
+My blood ran cold. I grabbed my flashlight and service shotgun, unbolted the heavy door, and stepped onto the porch.
+
+The air was dead still. Fog had rolled in off the bogs, pooling around the cabin's foundation in thick, gray banks. I swept the 1,000-lumen beam across the gravel turnaround, into the woodpile, and deep into the hemlocks.
+
+Nothing. No tracks in the soft gravel, no disturbed dirt, no eye-shine reflecting back from the dark.
+
+The next night, the knocking started.
+
+It wasn't a frantic pounding; it was three slow, deliberate raps on the north-facing outer wall. *Thump. Thump. Thump.*
+
+I gripped my shotgun and crossed the room. Before I could reach the door, the exact same three raps sounded against the south wall forty feet away on the opposite side of the cabin.
+
+To cover that distance outside, someone would have had to sprint across fifteen yards of loose, noisy river rock in under two seconds. But I hadn't heard a single stone shift.
+
+I threw open the door and illuminated the yard. Empty. The river rock was smooth and undisturbed.
+
+By the fourth night without sleep, I was completely unraveling. Isolation does strange things to the human mind; after weeks of absolute quiet, your brain begins manufacturing patterns out of ambient noise. I tried to convince myself I had developed auditory hallucinations from stress, or that carbon monoxide from my wood stove was leaking into the bedroom. I replaced the detector batteries. Zero parts per million. I checked the perimeter for motion-triggered trail cameras, thinking maybe an elaborate prank was being pulled by locals. I found nothing.
+
+The final night happened three weeks ago.
+
+A driving rainstorm had knocked out my solar repeater, killing what little Wi-Fi I had. Around 3:30 AM, amidst the pounding of rain on the tin roof, I heard a wet, suffocated sound directly beneath the floorboards.
+
+It was rhythmic, breathless weeping, accompanied by a voice frantically whispering the park's standard emergency evacuation codes phrases only I, dispatch, and the official handbook ever used.
+
+I lost my temper. Terror had finally turned into raw, exhausted adrenaline. I grabbed a crowbar, ripped up the hatch to the crawlspace near the pantry, and dropped into the cold dirt beneath the foundation with my flashlight drawn, screaming for whoever was down there to show their hands.
+
+The beam swept across the concrete footings, the bare dry earth, and the support joists. Cobwebs hung intact across every corner, undisturbed by human movement. The dust hadn't been touched in years. There was nobody there.
+
+I stood there in the crawlspace, shivering in the freezing draft, staring at the empty dirt.
+
+Then, from *inside* the locked cabin directly above my head, I heard a polite, clear throat-clearing.
+
+I scrambled up the ladder, threw myself onto the kitchen linoleum, and raised my weapon.
+
+The cabin was dead silent. The deadbolt was still thrown on the front door. The rain was drumming steadily on the glass.
+
+Sitting in the exact center of my kitchen table, resting squarely on top of my open logbook, was an old, rusted brass key. It was the spare key to my patrol truck the one I had dropped in a deep ravine three miles up the trail nearly six years ago and had never been able to find. It was bone dry.
+
+I didn't pack. I didn't shut down the radio or secure the station. I unlocked the front door, ran to my truck in the pouring rain, and drove down the mountain as fast as the bald tires would carry me, refusing to look into the rearview mirror even once.
+
+I submitted my resignation from a diner forty miles south the next morning. I moved across the country into a crowded, noisy city apartment surrounded by sirens, streetlights, and concrete. I need the noise now. I can’t handle quiet rooms anymore.
+
+The official report chalked my departure up to isolation fatigue and recurring chronic back pain. But I haven’t been able to sleep with the lights off since I left.
+
+For months, I thought something was hunting me. I thought whatever was in those woods was trying to scare me out of my skin. But the more I sit here in the noise of the city, thinking about that key on the table and the voices repeating over the radio, the sicker I feel.
+
+Every report was the same. A voice calling a name. A sound outside a tent. A whisper under the floor. It was never violent. It was just trying, over and over, to get someone anyone to answer.
+
+I'm sorry. If someone was stuck out there in something I couldn't see, or if whatever was in those trees was just trying to figure out how to speak to me, I'm sorry. I shouldn't have treated it like a nuisance. I should have listened closer before I ran.
