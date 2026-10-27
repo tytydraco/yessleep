@@ -1,0 +1,913 @@
+I’m not entirely certain.
+
+
+
+That’s the worst part.
+
+
+
+Have you ever had that feeling you sometimes get when you experience déjà vu. That strange, uncomfortable certainty that something happening in front of you has already happened before, even though you know perfectly well that it hasn’t.
+
+
+
+Well, it’s happening to me now. 
+
+
+
+Except this isn’t a place or a conversation.
+
+
+
+It’s a person.
+
+
+
+I think my new neighbor is the woman I’ve been seeing in my dreams.
+
+
+
+I know how that sounds, and I’m sure there are going to be people reading this thinking something along the lines of, "So you moved next door to the woman of your dreams and you’re complaining about it?"
+
+
+
+Believe me, that might be the case if they were actually dreams.
+
+
+
+They’re not.
+
+
+
+Not anymore.
+
+
+
+But I’m getting ahead of myself.
+
+
+
+I should probably give you some context before I come across as completely insane.
+
+
+
+I’ve always had unusually vivid dreams.
+
+
+
+I think the correct term for them might be lucid dreams, although I’m honestly not sure. From what I’ve read, lucid dreaming usually means you’re aware that you’re dreaming and can control what happens.
+
+
+
+That’s not exactly what I experience.
+
+
+
+My dreams just feel real.
+
+
+
+Sometimes they’re so convincing that I don’t realize I’m asleep until after I’ve woken up.
+
+
+
+I once dreamed that I got out of bed, took a shower, got dressed, and went to work.
+
+
+
+I worked an entire shift.
+
+
+
+I ate lunch with a couple of coworkers.
+
+
+
+I clocked out, went to see a movie, had dinner afterward, and drove home.
+
+
+
+Then I went to sleep.
+
+
+
+And that’s when I actually woke up.
+
+
+
+The dream had been so detailed that I spent the next three days convinced my internal calendar was off.
+
+
+
+I thought it was Thursday when it was actually Wednesday.
+
+
+
+I showed up for an appointment twenty-four hours early.
+
+
+
+I spent an entire afternoon wondering why everyone at work was talking about things I was absolutely convinced had happened yesterday.
+
+
+
+They hadn’t.
+
+
+
+At least, not in real life.
+
+
+
+Eventually, I got used to it.
+
+
+
+That’s the strange thing about something happening to you for long enough. No matter how bizarre it is, eventually it just becomes another part of your life.
+
+
+
+I started thinking of the dreams as a second life.
+
+
+
+Nobody else knew about them. Nobody else could remember the places I’d been or the people I’d met. But I could.
+
+
+
+And, for the most part, I didn’t mind. Sometimes my dreams were better than my real life.
+
+
+
+Sometimes they were worse.
+
+
+
+The last few weeks have definitely been worse.
+
+
+
+About two months ago, I started dreaming about some woman I’d never met.
+
+
+
+At least, that’s what I thought at the time.
+
+
+
+She was never the focus of the dreams at first.
+
+
+
+That’s important.
+
+
+
+I’d be dreaming about something completely normal. Walking through a park. Sitting in a restaurant. Standing on a crowded street.
+
+
+
+Then I would get the feeling that she was nearby. The hairs on the back of my neck would stand up and id know she was there. 
+
+
+
+Watching.
+
+
+
+I never saw her clearly at first.
+
+
+
+Not while I was dreaming, anyway.
+
+
+
+I could see her perfectly when she was standing in front of me. Every detail of her face seemed obvious. The color of her eyes. The way she smiled. The way she moved.
+
+
+
+But the moment I woke up, those details would disappear.
+
+
+
+I knew what she looked like.
+
+
+
+I just couldn’t remember.
+
+
+
+Like trying to describe a face you’d seen in a photograph that someone had taken away from you. You only catch a glimpse of something and then it’s gone you know. 
+
+
+
+I could remember that she was beautiful.
+
+
+
+I could remember being afraid of her.
+
+
+
+And I could remember that, for some reason, whenever she appeared, the dream would change.
+
+
+
+It became harder to control.
+
+
+
+Harder to wake up.
+
+
+
+Harder to convince myself that none of it was real.
+
+
+
+She was always there, somewhere in the background.
+
+
+
+And over the last few weeks, it felt like she had been getting closer.
+
+
+
+The dreams became longer.
+
+
+
+More detailed.
+
+
+
+And she appeared more often.
+
+
+
+Then came last night.
+
+
+
+It was the worst dream I’ve ever had.
+
+
+
+It started normally.
+
+
+
+That’s how they always start.
+
+
+
+I was outside.
+
+
+
+It was a beautiful day.
+
+
+
+I could feel the warmth of the sun against my face and the wind moving across my skin. People passed me on the sidewalk, greeting me as they went.
+
+
+
+I greeted them back.
+
+
+
+I didn’t recognize any of them.
+
+
+
+That wasn’t unusual.
+
+
+
+There was nothing obviously strange about the place. It looked like an ordinary town. There were shops and cars and houses. People walking through the streets.
+
+
+
+I remember thinking that I didn’t have a care in the world.
+
+
+
+Then I felt it.
+
+
+
+That feeling.
+
+
+
+That nauseating dread that I had begun to associate with my nightmares. 
+
+
+
+The one that had followed me through every dream for the last two months.
+
+
+
+I was being watched.
+
+
+
+I stopped walking.
+
+
+
+Where was she?
+
+
+
+The people around me were still moving.
+
+
+
+Talking.
+
+
+
+Laughing.
+
+
+
+I looked around, expecting to see her somewhere nearby.
+
+
+
+I didn’t.
+
+
+
+Then someone screamed.
+
+
+
+I hadn’t even looked up yet when the sky opened.
+
+
+
+That’s the only way I can describe it.
+
+
+
+It had to have been just after noon.
+
+
+
+The sun was directly overhead.
+
+
+
+Then the sky opened.
+
+
+
+Everyone knew what that meant.
+
+
+
+I didn’t understand, I couldn’t. 
+
+
+
+Not at first.
+
+
+
+But everyone else did.
+
+
+
+People ran into buildings.
+
+
+
+Others froze where they stood.
+
+
+
+I saw a woman drop her groceries and fall to her knees.
+
+
+
+Someone grabbed a child and pulled him into the nearest doorway.
+
+
+
+Cars stopped in the middle of the street.
+
+
+
+People screamed.
+
+
+
+And then the darkness came.
+
+
+
+A great shadow passed over us.
+
+
+
+It eclipsed the sun.
+
+
+
+I looked up.
+
+
+
+And there she was.
+
+
+
+A woman’s face.
+
+
+
+Hovering above the world.
+
+
+
+Filling the entire sky.
+
+
+
+For a moment, I couldn’t understand what I was looking at.
+
+
+
+My mind refused to process it.
+
+
+
+Her face was impossibly large.
+
+
+
+Miles wide.
+
+
+
+Her eyes moved slowly across the world beneath her.
+
+
+
+Across the buildings.
+
+
+
+Across the streets.
+
+
+
+Across the tiny people running for shelter.
+
+
+
+Her expression was calm.
+
+
+
+Almost bored.
+
+
+
+Like she was looking down into something.
+
+
+
+Something small.
+
+
+
+Something contained.
+
+
+
+I had never felt so insignificant in my life.
+
+
+
+Not small.
+
+
+
+Insignificant.
+
+
+
+Like I wasn’t a person anymore.
+
+
+
+Like I was an insect on the ground.
+
+
+
+Then her eyes moved across the street.
+
+
+
+Past me.
+
+
+
+And stopped.
+
+
+
+I felt relief for exactly one second.
+
+
+
+She hadn’t seen me.
+
+
+
+Her eyes had passed over me.
+
+
+
+I could run.
+
+
+
+I could find somewhere to hide.
+
+
+
+Then her eyes moved back.
+
+
+
+And stopped.
+
+
+
+Looking directly at me.
+
+
+
+I couldn’t breathe.
+
+
+
+Everything around me became silent.
+
+
+
+I could still see people running.
+
+
+
+I could see them screaming.
+
+
+
+But I couldn’t hear anything.
+
+
+
+There was only her.
+
+
+
+Her face.
+
+
+
+Her eyes.
+
+
+
+Looking down at me.
+
+
+
+For the first time in my life, I understood what it felt like to be truly noticed.
+
+
+
+Her expression changed.
+
+
+
+She smiled.
+
+
+
+Then I woke up.
+
+
+
+I was sitting upright in my bed.
+
+
+
+My sheets were soaked with sweat.
+
+
+
+My heart was beating so hard that I thought something was wrong with me.
+
+
+
+I didn’t go back to sleep.
+
+
+
+I couldn’t.
+
+
+
+I stayed awake until morning, trying to calm myself down, trying to tell myself that I was just stressed due to the move. 
+
+
+
+And by the time the sun came up, I had convinced myself that the entire thing had been another nightmare.
+
+
+
+Just another dream.
+
+
+
+A particularly bad one.
+
+
+
+Nothing more.
+
+
+
+Then I started moving into my new apartment.
+
+
+
+I’d signed the lease a few weeks earlier, but I hadn’t officially moved in yet. Most of my furniture was already there, and I spent the morning carrying boxes up the stairs.
+
+
+
+Around noon, I was bringing another box inside when I heard a door open behind me.
+
+
+
+“Need a hand?”
+
+
+
+I froze.
+
+
+
+The voice wasn’t familiar.
+
+
+
+At least, not consciously.
+
+
+
+But there was something about it made my stomach drop.
+
+
+
+I turned around.
+
+
+
+There was a woman standing in the doorway of the apartment next to mine.
+
+
+
+She was smiling.
+
+
+
+She was attractive.
+
+
+
+Friendly.
+
+
+
+Completely normal.
+
+
+
+For several seconds, I just stared at her.
+
+
+
+Then she tilted her head.
+
+
+
+“Are you okay?”
+
+
+
+I couldn’t answer.
+
+
+
+Because I knew that gesture.
+
+
+
+I’d seen it dozens of times before.
+
+
+
+In my dreams.
+
+
+
+Not her face.
+
+
+
+Not clearly.
+
+
+
+But that movement.
+
+
+
+The slight tilt of her head.
+
+
+
+The way she smiled afterward.
+
+
+
+I had seen it I don’t know how many times.
+
+
+
+I just couldn’t remember where.
+
+
+
+“Sorry,” I finally said. “I’m fine. Just tired.”
+
+
+
+She laughed “Moving will do that to you.”
+
+
+
+Then she held out her hand “My name’s Claire.”
+
+
+
+I looked at it.
+
+
+
+Her hand.
+
+
+
+For some reason, that scared me more than anything else, but I shook it anyway. And the moment our hands touched, I remembered the dream.
+
+
+
+Not all of it.
+
+
+
+But enough. 
+
+
+
+Her eyes.
+
+
+
+Looking directly at me.
+
+
+
+And that smile.
+
+
+
+“Nice to meet you,” she said.
+
+
+
+I let go of her hand.
+
+
+
+“Yeah,” I said.
+
+
+
+My mouth had gone completely dry.
+
+
+
+“Nice to meet you too.”
+
+
+
+Claire smiled again.
+
+
+
+Then she went back inside her apartment, leaving me where I was. 
+
+
+
+I stood in the hallway for a long time after her door closed.
+
+
+
+After a while I got back to work, unloading and unpacking what I had brought with me, all while I could feel the familiar sensation of being watched. 
+
+
+
+I tried convincing myself I was being ridiculous.
+
+
+
+That I was connecting things that weren’t connected.
+
+
+
+That my dreams had nothing to do with my new neighbor.
+
+
+
+That people disappeared from cities all the time.
+
+
+
+That the strange dreams I’d been having for the last two months were just dreams.
+
+
+
+But I couldn’t stop thinking about the way everyone had run when the sky opened.
+
+
+
+I couldn’t stop thinking about the woman’s face filling the sky.
+
+
+
+And I definitely couldn’t stop thinking about what Claire had said.
+
+
+
+Need a hand?
+
+
+
+That simple unthreatening question stirred up so much that I couldn’t remember. 
+
+
+
+Because in my dream, just before I woke up, I had seen something else.
+
+
+
+Something I hadn’t remembered until I shook her hand.
+
+
+
+Behind her face, far beyond the edge of the sky, there had been a room.
+
+
+
+A small enclosed space that looked eerily similar to the layout of my new apartment.
+
+
+
+I don’t know what that dream was.
+
+
+
+I don’t know who Claire really is.
+
+
+
+But I know one thing.
+
+
+
+When I shook my new neighbor’s hand this morning, she smiled like she’d been waiting for me.
+
+
+
+And tonight, when I go to sleep, I have a feeling I’m going to dream about her again.

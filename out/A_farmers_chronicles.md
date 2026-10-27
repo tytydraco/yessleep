@@ -1,0 +1,266 @@
+So my therapist told me journaling could be beneficial for my mental health. Then she didn’t believe half the stuff I wrote and shared. I’m just gonna post it here. Hi, my name is Den. I find it ironic now because I’ve lived in this den of animals for 8 years now. 
+
+
+
+I originally lived in one of the biggest cities in the state, but a house fire and 3 funerals changed that. Fire spread too fast in old buildings. It was like watching a snake surround its prey before finally eating it. The movements of eating bit by bit. 
+
+
+
+I’m grateful I didn’t lose anyone. Even my 93 year old great grandma got out! My dad ran in and wheeled her out. The fire started in the attic from a fan and boxes of books. Later I laughed going through the debris. Y’all know those lewd romance novels from the 80s? Ya. So. I found out grandma likes reading quality smut. I knew I got it from somewhere. Funniest part. She was SUPER Catholic. Every old white woman pearl clutching stereo type. 
+
+
+
+I got distracted. My parents and 3 older brothers moved too but two of the boys only visit now because the craziness was too much. Fair. 
+
+
+
+Here was Tuesday. 
+
+
+
+Funny enough, the most normal thing of my day is waking up to a chicken crowing. He pecks at my window. Our single story manufactured home isn’t exactly a maze. Everyday at 5 AM. Early to wake me up and get feeding. The hardest part of the day. Especially because I don’t drink coffee. I have been told I “raw dog” life. However, I just haven’t found the balance between heart exploding caffeine and disgusting disappointment. 
+
+
+
+I got out of bed and threw on a random pair of 
+
+socks and a hoodie. My boots live by the back door. I jam them on as grandma wonders behind me. She is usually stealthy, but ironically, not in the mornings. I fasten my headlamp. 
+
+
+
+“Who are you?? What are you doing in my house!” Agitated morning it is. 
+
+
+
+“Good morning grandma. I’m your granddaughter. What do you need help with?” A chipper tone. 
+
+
+
+Her eyes glazed as she wandered towards the couch to sit down. 
+
+
+
+“I’m going outside,” I said watching her pick at the couch cushion. 
+
+
+
+She was dormant for now so I just left. That may sound mean, but trust me, it’s for the best. Mom can handle the rest. 
+
+
+
+It wasn’t raining yet which was nice. No sink holes to worry about. I made my way to the barn, through the gate. 
+
+
+
+Our giant guard dog bounded towards me. He proceeded to flop at my feet. Which was nice because Argos is the size of a polar bear. Last time we weighed him he came in at 525 pounds. We have to feed him a bag of dog food a day. 
+
+
+
+Anyways, with him being out that worries me. He’s supposed to be with the sheep which means they are out. A groan emanated from my chest.. The sheep love to destroy trees or anything they can get their hooves on. I retrieved my shepherds hook from the shed. 
+
+
+
+I followed the gravel path toward she orchard. I had my money they were there. 
+
+
+
+The wreckage was one plum tree, and an entire stack of apples. The pasture gate was wide open, so I just pushed them back into place. The high pitched woman screams were their protest as they went. Because they were out all night, I didn’t need to feed them this morning.
+
+
+
+“Alright buddy. Back to work. They are all yours.” I patted Argos on his shoulder. His tail swung and hit a couple of the trees causing plums to patter to the ground. 
+
+
+
+Argos tried for one more round of scratches before finally leading the group down the hill. 
+
+
+
+Next step was the goats. Even though they are considered small they require a 10 foot tall fence with hot wire at the top just in case. Daphne, my favorite brown girl, stared at me. 
+
+
+
+“Morning girl. Here’s the fee.” I rummaged in my hoodie pocket for a stale cookie. She didn’t break out so the toll was paid. She began to start twirling her black tail wagging. She waddled over to their water trough. The other beady eyes started staring at me from under the dark carport as I heard Daphne gulp water.  
+
+
+
+I double checked the door was electricalified before I grabbed their hay. A grass blend with a mix of sedative stems. Mom’s new idea for easier milking later. I have my doubts but I am tired of tying them down for each milking. They need it or they die for milk abscesses. The milk will build up and explode their udders. Next their guts will flow out the new hole. Sounds awful right? So instead of dying they should be easy to milk. Nope. They fight, kick, bite, and yell obscenely. Afterwards they will steal keys, wallets, and anything they get their teeth on. One time my magazine on firearms went missing. When I found it, there were hoof marks and certain guns were chewed out. If there is a god. I hope these dang sedatives work. 
+
+
+
+Moving onto the rabbits. They live in the rabbit shack, and our cross between Flemish giants and something else. No clue what that something else is but it has them topping out at 30 to 40 pounds. When we first got them, we didn’t know about their huge size. So we made cages. As those cages began to bend from weight, we decided to move them to the ground. Now they have bunny runs with water bowls and food dishes . 
+
+
+
+The rabbits are probably the easiest, they don’t break out or plan your murder. I like some simplicity in the routine. I refilled the 5 pens with water and food pellets. There was a fresh veggie delivery today. They love carving carrots into different people. Last time was Abe Lincoln. I really should start selling their art but then they will ask for commission prices and blah blah. 
+
+
+
+I jolted as I heard Argos barking. I left the rabbit shack, making sure to bolt the hard wood door. They were contained indoors. As I made my way back towards the orchard the barking became more intense. He started throwing his voice around the field. It echoed, bounced and echoed again. I extended the mini telescope from my pocket. It made me feel like a pirate. 
+
+
+
+Crap. Cougars. They had been getting a little too close for comfort lately coming up and taunting the sheep. Speaking to new farm workers. Most go over because they scream like women, but then they start asking questions. We lost a few to those questions. 
+
+
+
+Don’t worry about our newer farmworkers, we’ve made a system if they come back alive. The first one was a mess and kept babbling about questions and such. The next day his clothes were found ripped up in the bunk house and fur in the drain. 
+
+
+
+The goal now is prevention. However, can’t win em all. So, we assess the damages and send them to therapy or a mental institution. Free therapy is one of our benefits as long as you keep working. I swear we keep that quack in business.
+
+
+
+Argos snarls indicates the cougar is backing away. I tuck my telescope away as I start walking toward the barn. I think we should reinforce the corner by that den. They have been getting bolder. 
+
+
+
+Moving on, Panther and Puma need to be fed. Along with Puma’s kittens. How did we fall into having these two creatures you ask? Simple, we got them when they were kittens. Some guy threw them on the side of the road. We thought they were just regular kittens. That’s our main mistake. A lot of the animals we have come by are because we were fooled, duped, or plain stupid. How were we supposed to know cats don’t usually get 60 pounds?
+
+
+
+Since the cats came along, though, we don't have a coyote problem or raccoons anymore. The dogs love them. We often find them all cuddled up in a bundle. Some people have asked us how we feed our animals, which is a valid question. The butcher, grocery stores, and farm stands. Expired produce or extra cuttings. The cats and puppers have a mix of raw food and expired kibble. 
+
+
+
+I crack into a bag of kibble and throw a few pieces of beef on them from the freezer. Yes. We have a working freezer in the barn. Also 4 dead freezers for storage, but one works! I refill water dishes as I wait tor cats to finish eating before releasing the demons. 
+
+
+
+The chickens are a little different. Those guys are crafty. I swear I’ve seen them playing poker in their free time, I’m the one who left the deck of cards in there, but they started gambling. If you’re scared of chickens or dinosaurs. You probably shouldn’t come here.
+
+
+
+I started singing Free Bird. That’s the cue. I hear the squeaking. Then, I throw the door open. 
+
+
+
+“Be free!” I screech as I back away quickly. 30 pound birds come stomping out. I got asked if they are ostriches. No? Regular chickens for all I know.  
+
+
+
+Due to it being summer, some of them are broody. That means they will try and murder you if you take their eggs. If you think I’m exaggerating, just ask poor Willis sometimes I can still hear his screams. The doc said he can’t even look at feathers anymore without breaking down. So we have to be careful when collecting eggs and feeding. I do a double attack method. I get them all excited to go out. They will run to the orchard and devour their apples before coming back to check what I’m doing. 
+
+
+
+I take my Shepherd’s crook and basket into the hen house to collect. This method seems to work for me because I’m not scared to smack the hens that try to attack. The rest are out eating.They’re not all bad. It’s just the ones that are broody that are the problems. I collected about 4 dozen. Good haul. I start standing up as my back get sweaty. 
+
+
+
+“Huh-“ I didn’t get to finish that question before I was mobbed. The birds had knocked my off my feet and began pecking at me. 
+
+
+
+“What the hell? How did you guys finish so fast??” Not like they would answer. My crook had fallen next to me somewhere. 
+
+
+
+I felt their claws on my left arm, I felt something wet. A feeling of release, as if I had just used the bathroom after holding it for hours on a road trip. The dopamine kick made my eyes roll up. I knew it was the neurotoxins but still let out the contented sigh they were waiting for. Then the pain as the beak met flesh. Adrenaline finally kicked in like a sleepy friend. 
+
+
+
+I renewed my reach for the crook. My right hand clenched it as I let out a scream. The beak was burrowing in looking for muscle. I swung the crook as the hen’s neck. It connected. She fell to the ground in a dramatic flop. I scooted back as the nerves kicked in. I began my attempts to stop the blood as the body did the Macarena. Okay not really, but close enough. The nerves were firing even though the heart had stopped. 
+
+
+
+The wound required compression from my other hand but I didn’t want to let go of the crook. Frick. I still had to feed the horses. Well, I’m pretty sure I have some duck tape by the cats. 
+
+
+
+I stepped around the body on the floor as I held my arm and the crook in my armpit. Luckily, no other bird was testing me. 
+
+
+
+“Welp. Better tell mom we need a good chicken recipe tonight.” I said to the cats as I found the green duck tape. The green ducks wrapped nicely around my hoodie sleeve for a bandage. 
+
+
+
+“Shit. I really liked this hoodie.” Another one for the scrap pile. 
+
+
+
+I looked at the kittens crawling on my lap. They were playing with the shredder sleeve still connected to the torso. 
+
+
+
+“You know. I’m too lazy to dress it properly.” I got up to adorable whimpers. 
+
+
+
+“One sec you little freeloaders.” I said as I walked back toward the chicken. It had finally stopped moving. 
+
+
+
+I pulled it out of the hen house, and next to the wheelbarrow I was gonna use to feed the horses. I quickly plucked the feathers. Just as quickly taking off its head and opening it up. I threw some of the less desirable organs in the wheelbarrow. 
+
+
+
+“Hear ya go.” I grunted as I placed the whole bird down in the kitten nest. Puma started chirping happily as she circled it. The opening in its rear was big enough for her to fit her whole head in. 
+
+
+
+“All yours. Hope you like the dumbass of the day. I’m still pissed.” I turned to lock the gate. Before I did, Puma thumped my leg with her love. 
+
+
+
+“Thanks, you're welcome.” I said as I closed the gate to babies climbing on their new kill. 
+
+
+
+I wheeled my barrow over to the pig and threw her all the bits. She simply grunted. Not hungry yet. The adrenaline was helping me not look at my arm. I barrowed the wheel back to the barn and grabbed a bale of hay. 2 horses sure eat a lot. 
+
+
+
+I had to spread the bale over their acre of land. Maple will go to every pile and push poor Travesia around till she finally ends up with twigs. Piles complete, and I left the wheelbarrow out there. Collect poop later. 
+
+
+
+I heard Argos howling, the kittens chewing, and the pig’s snores. All before 6 am. Jeez. After I got into the house I had to wash the wound. Probably would need stitches. For now I just threw a bandage on it. Mom wasn’t awake yet. When she did I would ask her what she thought. 
+
+
+
+As I turned from the sink grandma was there. 
+
+
+
+“Who are you? What are you doing in my house?” Her pupils were pin pricks. Her voice shaking with something. 
+
+
+
+“Good morning. I'm your granddaughter Den. Do you need help grandma?”
+
+
+
+She twitched. Twitched the other way. Then stepped closer. 
+
+
+
+“How can I help?” I asked as I put a protective hand over my wound. 
+
+
+
+“Where’s John?” She twitched again. 
+
+
+
+“In bed. Here I’ll show you.” She let me through the doorway. Still looking at me with distrust. I walked to her room and gestured inside. 
+
+
+
+She stared at me. Then the door. Then me.
+
+
+
+“John’s in there?” She whispered. 
+
+
+
+“Yes he is. Go check.” I smiled tiredly as she turned towards the door. We took a few moments in silence before she walked in. I closed the door behind her. 
+
+
+
+I went back to bed. I’m not ashamed to say that. Usually I don’t. Some may say I’m not a true farmer. Whatever. Animals fed and grandma is safe. Blood less required sleep I’ve been told. I remembered I forgot to lock my door but I think blood loss KOed me before I could even reach my hand out. That was Tuesday.
+
+  
+Hi, future Den. Ask questions and what not. I love answering about my wonderful farm. Argos is still barking but that is just normal. Let me know if you think there’s anything I can improve or try out! been only doing this 8 years. take care.  

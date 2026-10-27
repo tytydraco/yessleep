@@ -1,0 +1,28 @@
+When the bus dropped me off at the dirt road, the sun was already sinking low, painting the sky a bruised orange, as if the very day itself was bleeding. “I’m staying with my grandmother, Mrs. Benta, for a while,” I told the driver. Truth was, my parents had to travel suddenly, and there was nowhere else for me to go. I had always loved the Yellow Woodpecker Ranch — or at least I thought I did. I’d grown up hearing wonderful stories: a talking doll, a clever little girl, a whole world made of play and wonder. But the moment I stepped through the gate, I knew something was wrong. The air felt thick and stale, like fruit rotting from the inside out long before you ever see the bruise.
+ 
+The house looked bigger than I remembered, darker too. Its windows stared out like eyes without pupils, watching every step I took. Mrs. Benta met me at the door with a smile — but it never reached her eyes. It looked stiff, painted on, like a mask worn for so long it had started to stick to her skin. “Here you are, my dear boy,” she said, and took my hand. Hers was hard, cold, rough as old dry timber. “Everything here is yours now. Nothing leaves, nothing comes in… unless I say so.”
+ 
+Soon after, Narizinho came out to greet me. But this wasn’t the cousin I knew. She wore that same strange, fixed smile, her eyes wide and still, completely empty of light. “Hello, Pedrinho…” she whispered, stepping slowly closer, studying every move I made as if I were something to be examined. “Grandma told me you’ve come to stay. For a long, long time. Forever, maybe.”
+ 
+Later that evening, I found Aunt Nastácia in the kitchen, preparing dinner. The smell was overpowering — a sharp mix of unfamiliar herbs and something else… something thick and heavy, that smelled like meat no one should ever eat. She turned slowly toward me, her face hard and unyielding, no warmth anywhere. “You follow the rules here, boy. Don’t ask too many questions. Don’t go wandering where you aren’t meant to be. People who don’t listen… disappear. Just gone, like they never existed.”
+ 
+That night I couldn’t sleep. Silence hung over the house like a heavy blanket, broken only by faint, eerie sounds: low chants, words I couldn’t understand, footsteps circling just outside my door. I slipped out of bed and crept down the hallway, drawn toward a dim glow leaking from a door leading down to the cellar — the place they always told me “didn’t exist,” a place “no one ever goes.” The door stood slightly ajar. What I saw there froze my blood solid.
+ 
+Down in that dark room, standing around a table covered in strange symbols drawn in black chalk, surrounded by candles burning with pitch-black flames: Mrs. Benta, Narizinho, and Aunt Nastácia. They chanted in low, guttural voices, speaking a language that sounded less like words and more like growls. Tied to the center of the table was a little girl — thin, small, her eyes wide with pure terror. I heard every word they said clearly:
+ 
+“She came all alone, nobody looking for her,” Aunt Nastácia said, laughing a dry, rattling sound that made my skin crawl. “An orphan, lost… perfect. No one will ever miss her.”
+ 
+“Now we’ll give her a new shape,” Narizinho spoke, her voice sweet and gentle — and far more terrifying than any scream. “Something that will live here forever. Something that will scare, obey… become our Cuca.”
+ 
+“And if anyone asks?” Mrs. Benta added, her voice heavy and sure, the voice of someone who had done this many times before. “We tell them it’s just a legend, just a fairy tale. No one suspects a thing. Any child who comes here… can become a storybook character. Or they can become part of the land itself.”
+ 
+Then I watched in horror as it happened. The girl cried and begged, pleading for help, while they poured dark liquids over her and traced marks into her skin. Slowly, painfully, her form began to change. Claws grew from her fingers, her skin hardened and turned rough, her face twisted into something halfway between human and beast. The last look she gave — before her own face vanished completely — was pure, desperate agony, silently begging me to save her, hidden there in the shadows.
+ 
+When they finished, they climbed back up and slammed the door shut behind them. I stayed huddled in the dark all night, shaking so hard my teeth chattered. Finally I understood everything: Mrs. Benta was no kind grandmother. Narizinho was no playful little cousin. Aunt Nastácia was no strict but loving cook. Together they were something else entirely — the masters of this place, and this was no farm… it was a trap. All those wonderful stories I knew? Just a cover, a pretty lie. The Kingdom of Clear Waters, the wise Mr. Visconde, the funny pig Rabicó… all part of the same spell. A spell to lure, to capture, to change, to consume anyone foolish enough to step inside.
+ 
+And the Cuca? The famous monster everyone fears? She wasn’t some ancient legend or magical beast. She was always someone. Always a victim. That little orphan girl, lost and looking for safety… turned into the very monster that hunts children. And as the realization hit me, my heart hammering so hard it hurt, I knew the truth: they were already looking at me with exactly the same hunger they had shown her.
+ 
+When I slipped back to my room, I found a note waiting for me on my pillow, written in dark, thick ink:
+“Welcome to the Ranch, Pedrinho. Choose carefully… become a character… or become our next secret.”
+ 
+I know now what this place really is. It isn’t a home of joy and imagination. It’s an open mouth, waiting to swallow you whole — to rewrite who you are, to turn pain into bedtime stories. And the cruelest trick of all? The name everyone knows — the Yellow Woodpecker Ranch — is nothing more than bait.
