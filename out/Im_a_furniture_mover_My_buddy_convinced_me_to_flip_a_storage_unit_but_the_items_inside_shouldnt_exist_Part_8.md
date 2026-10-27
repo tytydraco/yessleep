@@ -536,7 +536,7 @@ A burst of static, a click, then Mercer’s urgent voice from the speaker.
 
 “Harbor, this is Kestrel. Go ahead,” Priest said.
 
-“We've got activity at the wardrobe. The doors are moving. No contact. There's noise inside, with furniture shifting. We need assistance now. I don't think we can hold it.”
+“We've got activity at the wardrobe. The doors are moving. There's noise inside, with furniture shifting. We need assistance now. I don't think we can hold it.”
 
 Priest's hand went still. She asked for the authentication words. 
 

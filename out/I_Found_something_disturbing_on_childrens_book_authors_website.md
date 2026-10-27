@@ -1,5 +1,3 @@
-Found something disturbing on children's book author's website
-
 As a rule, I avoid internet rabbit holes, but I stumbled down this one entirely by accident and found it difficult to claw my way back out.
 
 I was doing research for a novel, wanting to base a house in the novel on one from a book my parents read to me when I was a kid. The story features a cozy house on a rainy night, and a boy who just can't find his favorite bedtime book, no matter how hard he looks. You might know the one.
