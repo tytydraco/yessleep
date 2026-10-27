@@ -1,0 +1,50 @@
+**I never really been a big fan of coming to the internet to let people judge your personal experiences and decisions. But honestly these past couple months have been the worst and hopefully now that I’m letting my voice be heard something can be done about it.**
+
+This started 3 months ago. My boyfriend and I we’ll call him Zack for the purpose of being discreet. Zack and I have always had our problems but we tend to get over them after a while, well,, one day was one of those days where i honestly couldn’t be bothered with him. We already had been arguing the whole week but i guess he wanted to make things right by telling me to meet him at this fancy restaurant called fogo de cho around 8pm.
+
+The reason this story is even happening is because during this so called date or whatever he had been on the phone during our date night with his boys he said for a good 30 minutes and i just found that to be so disrespectful.. i ended up walking out on him and taking my car back home. As soon as i pulled into the driveway that night i noticed my neighbor on his porch just relaxing. We’ll call him tom for this sake of the video. Now I had knew tom since I moved into this house a couple years back and he never gave me any red flags, which is why I felt so comfortable telling him about my problems.
+
+After walking up to him and having a brief chat about everything that’s been going on while crying he agreed with everything I was saying which.. let me feel heard and wanted… I guess you can see where this is going but he invited me inside to comfort me to which I agreed. We took shots, chatted and relaxed together all night, and we ended up sleeping together. Ik it may sound crazy but I was comfortable with him and wasn’t really expecting much of it. The next day I left and all seemed fine until he asked where I was going. I didn’t find it too weird as it was 6am so I told him I’m going home. He laughed and said  
+“Wym? You are home now”  
+At the time I thought it was just pointless flirting but I told him I still technically have a boyfriend and this is something I need to think through.
+
+. he laughed and agreed.. but then he asked something that made me question his intentions. He told me to be safe and asked me to start sharing locations with him. I don’t even share locations with my own mother so i obviously denied it and started walking out. As I started leaving all I could feel was his gaze as I walked past his bed to the exit.. when I opened the door he asked when we can do this again and I said I’ll let him know and proceeded to leave his house .
+
+As I walked past his window i literally locked eyes with tom with such a weird expression on his face.. not a smile but .. maybe a grin is the best way to describe it.
+
+A couple weeks would past and , honestly Tom was acting pretty normal, a simple hi and bye as I left to and from home.. although.. I did see him out a tad bit more, but more so stores and things like that like at Walmart or target.
+
+Things began to look a bit better between me and my bf honestly, he apologized and we started going out more and spending more time which is all I asked for… often times tom would see me with my boyfriend and I noticed he wouldn’t wave just glance occasionally at me while I was with him.
+
+A couple weeks would go by and this is when things started to get weird . Remember I said I’d see tom occasionally more often …well now the occasionally more often turned into damn near every where I went.. clubs.. dates.. even at my fucking job id see tom walking around somewhere acting like he had business always being where I was.
+
+Where I drew the line was one day.. as I was leaving the bathroom at a target, I turned the corner and Tom’s head was peaking from behind the corner of the men’s bathroom as it was right across from the woman’s . I yelled his name and he didn’t respond and acted like I didn’t see him.
+
+I started to dread everything going on in life but I couldn’t tell my bf or dad cause I knew I’d be judged and left alone. I felt trapped. And when I didn’t think things could get any worse I got a phone call… from Zack.. sounding historical.. at first I couldn’t make out why he was yelling and calling me all types of names but after understanding what he was mad over.. he told me he had received a picture from a random number . The pic was of me sleeping on a man with his head cut out of the pic.. but i instantly knew that this was Tom’s doing . I couldn’t help but just endure everything Zack said for the time being to which he eventually hung up. Almost immediately after I heard something fall in my garage.
+
+I didn’t think too much of it until I heard frantic footsteps running outside. I went downstairs to go check what made the noise and immediately I noticed something propping the garage door open just barely.. a brick . I was confused bc I didn’t recall the last time I’ve even used a brick let alone prop my door open
+
+. I started to put 2amd 2 together for the worst case scenario and initially I didn’t see anything wrong in the garage, until I started examining my car.. I
+
+noticed a pair of plyers sitting right next to my back right tire, which immediately made me start examining each aspect of it.. until I started seeing some bent metal pieces on the inside of my tire , something was poking out of it.. I reached into it and after 10 mins.. I couldn’t believe what I pulled out.. it was an AirTag. I was so confused and scared I couldn’t even think. Someone had been stalking me, and I’m sure ik who it was. Now my fears turnt into rage with knowing tom was sabotaging my life i grabbed the AirTag and I stormed to his house.
+
+Upon arriving I noticed his car was gone.. but his blinds had small cracks in them all of which were angled at my house. As well as seeing out I could also slightly see inside his house, I felt my heart drop bc as I peeped inside his window.. I could make out seeing a barrage of pics of me standing outside of various places. The same places I would always see tom at continently. I immediately ran back to my house feeling nauseous.
+
+I put the AirTag in an envelope and took it straight to police 5 days ago as they investigate it.
+
+Fast forward to about 2 days ago while still still having the paranoia of tom, it was troubling for me sleep some nights but ultimately this is why I’m telling this story .
+
+I was in my room watching cartoons and I heard my stairs making ever so slightly creeping noises. I paused the tv and so did the steps.i unpaused it and I heard more creeping.. I was sure I locked all the doors so the only people able to get in my house were my mom and dad who would usually pop up unannounced but something about this didn’t seem right.. i
+
+crept to the stairs and right before i turned the corner of the stairs , i called out my dad’s name for reassurance. but what I heard in response and what i seen still creeps me out as I type .. in response to me calling out to hear my dads voice i looked down the stairs and at the middle of the staircase with a camera in hand  
+It was tom . He replied  
+“hey its me I was just checking on you”
+
+I yelled Tom wtf are you doing how did u get in.
+
+And as if he didn’t even hear me
+
+He said “ I’ll see you tomorrow “
+
+And turned around and ran out. I wasn’t able to get a pic because I was frozen in fear,, but I called the police they arrived 10 minsater. They searched the house and couldn’t find anything. They told me their still doing there investigation and have no evidence of him breaking in. It’s only been a couple days but I know something else will happen so let this be my word if anything is to happen to me. You know who it was
+

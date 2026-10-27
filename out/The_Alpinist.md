@@ -1,0 +1,77 @@
+I will say one thing about the Alaskan Alpiner’s Club—they think of everything, even if it may not be immediately useful. Three days ago I thought that whoever lugged a typewriter up the side of a mountain was an idiot. Now, after three days of losing my mind with boredom I think that person is a fucking genius. 
+
+I was never too big on writing but I have mastered the two finger typing method so this has been a killer way of passing the time, what with each paragraph taking minutes on end to write in full. 
+
+It’s maybe eight..? In the evening, but it’s hard to tell, being so far north where the sun never rises, I think I’m actually closer to Russia than I am to my home town of Anchorage. 
+
+That’s the main reason I don’t exactly know what time it is. The other is that my watch froze to death two days ago.
+
+So did my dog. 
+
+That’s been hard. 
+
+A little bit after losing him, I hiked up a ridge, planning to take off my jacket, midlayer, baselayer and whatever the fuck else and just lay down or find a nice cliff to throw myself off of rather than freeze to death, but just as I hiked up that ridge I saw that it wasn’t the cliff that I thought it would be. Instead, it was the crest of a long slope down the mountain. Halfway down the slope, on a stable, oddly level slab of rock was a small alpinist’s survival cabin, one of the ones built by the aforementioned Alaskan Alpiner’s Club. 
+
+I pulled my map out, worried that I would have ruined it with tears, realized they were frozen to my cheeks and beard, and realized I was very fucking lost. This was the wrong mountain, the wrong trail (as in there wasn’t one, which is why the snow was so fucking deep,) and the wrong cabin. I should not be here. 
+
+Nice little cabin though, kind of reminds me of the Unabomber’s. There’s a main floor with a picnic table type dining area, small kitchenette, a kerosene heater, and a large bay window that faces the crest that I climbed over a few days ago. Under that window is the rickety desk I sit at, a desk that houses the vintage Remington that I type at. Above me there’s a loft that houses my gear—sleeping mat, sleeping bag, jackets, backpack, cooking supplies that I don’t need in this cabin, and more food than I thought I would need for this little camping trip. There’s other odds and ends that I won’t waste the time to type out. 
+
+Shit to build a shelter in the wild, I don’t know, watch a fucking youtube video. 
+
+I definitely have enough food to ride out this storm, I packed enough food for a trip twice as long as this one was supposed to be and I raided the cabinets of the kitchenette as soon as I got here and found a massive store of dried beans and loads of other canned stuff. Donations from other alpinists that stayed here over the years, helping hands from across the years. A really fucking tasty can of peaches keeps me company now. 
+
+It tastes like how I imagined Sploosh tasted in that movie Holes. 
+
+Fuck, that is a good movie. 
+
+The storm started a little while after I got into this cabin and has held strong since and has been a full white-out since it reached its full potency. Which was pretty annoying, I planned on getting my dog from his spot in the snow in the morning, but I’ve been shuttered here since, going crazy with boredom. 
+
+I was going to bring a book with me, one I was thinking of reading but I left it, thinking that I would have no spare time on this trip to read and decided that it wasn’t worth the weight in my bag. 
+
+Boy was I wrong. 
+
+It’s this book called The Terror about a polar expedition. I think there’s a TV show about it too but it might be different, I haven’t watched it but it seems like a cool book to read while in the cold like this. Pun intended. 
+
+Wow, I am running out of things to write about. 
+
+I miss my dog. 
+
+I miss my Jed a lot. 
+
+---
+
+It has been a few hours, ‘morning’ now, or deep in the night, I don’t know but I’m bored and feel well rested so I’m back at this. I don’t even know why I’m at this, maybe in case I die trying to get my dog back. Like I said before I am really running out of things to write about. 
+
+I always thought reading about someone describing their surroundings was boring as fuck but I have nothing better to do and it’ll be good practice for when I write this into a proper book about the tragedy and triumph of me surviving this artic ascent. 
+
+There’s a thermometer outside on the window that reads -40. I always like -40 as a temperature because it’s the same across celsius and fahrenheit. No matter where you are it is FUCKING COLD AS SHIT.
+
+Past that thermometer, there’s the ridge I came down, past that there’s the corpse of a husky that loved the cold and snow. Maybe I’ll leave him and let him rest with what he loves. On the face of the ridge I see a few striations in the rock, darker than the rest of it. Could be a different type of rock, or a coal vein or I don’t know. Looks cool though. Five kind of stalactite shaped patterns in the rock. 
+
+I’m going to bed again. Or I’m just gonna lay in my sleeping bag and play with my dick. I don’t know. 
+
+---
+
+I don’t know what the fuck happened. Its so fucked up i dont know what to do and i odnt know what the fuck is going on so i figured id type it out so i can keep a record.
+
+I heard a thud after falling asleep and thought there was someone else knocking at the door after seeing my hiking pole outside but it came from the rear wall of the cabin, kind of by the typewriter desk and window. I went to look, shining the cabin’s lantern that I found in one of the cabinets and shone it around. 
+
+On that big window I saw a shape out of the corner of my eye, I turned the light towards it and almost puked. 
+
+Attached to the window, frozen to it with blood was the head of my dog. Veins and neck bone dangling out of the stump. His tongue frozen in an odd position, a bite taken out of it. 
+
+The darkness on the slope is gone. I’m not sure anymore that it was a pattern in the rock. I think it looked too much like a hand reaching over the side of the mountain to be anything but. 
+
+I’m going to pack up and get out of here, even though it’s still snowing. Sure, it’s a death sentence in a storm like this but after seeing Jed torn up like that…I think I’m alright with it. I’ll leave this here in the typewriter so it survives if I don’t. If you find it, let people know that I didn’t do that to my dog. 
+
+---
+
+The alpinist's writings were found amongst the wreckage of Cabin 802. They were one of the few surviving things in the cabin, amongst the wreckage of the cabin was a body dressed in full alpining gear. 
+
+The body was too mutilated for identification.  
+
+The group that encountered the incident site states that the area looked like somebody dropped a wrecking ball on the cabin. 
+
+The alpinist’s writings, this incident report, as well as on-site photography from witnesses and our own investigation will be turned over to police, search and rescue, and National Park Services for further investigation. 
+
+Alaskan Alpiner’s Club Incident Report 27/09/26 

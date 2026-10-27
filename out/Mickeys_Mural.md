@@ -1,0 +1,27 @@
+I'm a Disney fanatic; if you were to ask me something, I'd know it. But sometimes you don't know EVERYTHING Disney does..
+
+I've gone to a few places before to research as much as possible on Disney's secrets. But I couldn't find everything; they're too good at hiding it. One specific forum was the Urban Disney forum; it showcased hidden things and places that people didn't know Disney had. I was a big fan of the forum and its community; obviously, it gave me information on things I wanted to know. But recently, there was this one post in particular that was weirdly unsettling; it showed an image of an old Mickey Mural, black-and-white style, in an abandoned mall with the only words being "Find it." There were only a few upvotes on the post itself, and only one comment saying, "I am NOT going to an abandoned mall." But I dared to find it myself, so I commented "I'll try to find it."
+
+I tracked down the location of the mall through coordinate metadata, and I had my gear on just in case there was a frogger. When I got to the mall itself, it was purely abandoned: no people, no lights, just darkness, the falling-apart mall, and the mural.
+
+The inside of the mall had a strong odor, as if someone had died there. I just believed it was the old food. I could hear the broken wires, bugs, the electricity, and the wind. It was very windy; the trees were swaying back and forth at high speeds. It was cold and midnight, so OF COURSE no one would go here and help me if things went wrong. I went deep into the mall, and behind the escalators, there sat the mural I was looking for.
+
+I flashed the beam of the light to look at the mural carefully; it was 1930s rubber hose-style Mickey. It made sense. The mall seemed to have been abandoned for years, but the mural was still in such good shape.
+
+I took a step closer to touch the paint; it was off; it had a weird texture. It was getting a bit eerie. I was about to document what I found with a picture before I heard something: a heavy, wet splat of ink hitting the ground. I walked away from the painting to see what it was.
+
+When I flashed my beam at the splash of ink, it melted into the floor. I was concerned: where did the ink come from, and why was it acting like that? I went back to the mural to check it. But it had moved slightly to the left. I didn't notice it at first, but I would later on.
+
+I didn't think it moved, so I went to look for more of that ink stuff. After minutes of searching, I eventually came back to the mural once more, except it was at the top of the escalators now. And the whole mall smelled of ink; the air got thicker. The wind blew faster; I was extremely worried now. The mural shouldn't have been able to move. This was getting paranormal.
+
+I started sprinting for the exit, but as I turned around, I heard ink dropping to the ground again, then I looked up and saw it, a tall, lanky, 1930s Mickey, reaching up to the ceiling, pulling itself out of the mural with its long arms and gloves grabbing onto the wall behind it. It was dripping ink like it was MADE of ink, ink in places it shouldn't have been. It eventually made its way out of the mural, twisting its head to look at me; it had its 1930s Mickey eyes and face, and as I looked behind the entity, I noticed that the Mickey mural was gone, only replaced by an outline of what should have been. That's when I realized all of the things happening before were because of IT, and IT was the mural. It started walking towards me unnaturally. I turned back around and continued sprinting for the exit. I couldn't document it now; it would've gotten me killed.
+
+As I ran, I noticed that it was getting faster and faster, to the point it caught up with me and grabbed me, its ink dripping onto me and my clothes. Its eyes started falling off its face like ink, revealing black hollow eyes with white pinprick pupils and black holes in the pupils underneath. Its smile started stretching unnaturally wide, stretching its face to the point it shouldn't have been able to. Then suddenly I heard a loud, distorted voice mimicking Mickey Mouse say, ***"Hope ya enjoyed the show, pal!"*** I later realized it was the entity. I pulled out my flashlight and slammed it right into the center of the entity's face; it landed, made a hole in its face, but only for a few seconds as the ink pulled itself back together. Those few seconds, though, let me escape its tightening grip and kick the mall doors open. I dragged myself back to my car and drove off; the mall was completely silent, like a reaper waiting for its prey.
+
+It's been three weeks, and I've been traumatized; I still can't get my mind off that incident. I completely deleted all my posts and comments on that Urban Disney Forum, leaving it behind so I can start a new chapter in my life without thinking about that same moment over and over. I even just painted my walls with a fresh coat of paint to stop myself from thinking of it. But something weird has happened: ink suddenly appeared on my walls, spelling out the sentence ***"You can't paint over the past."*** in cursive. I think whatever I found at that mall has followed me home. Because now, from the darkness inside my closet, I can hear it. A slow, rhythmic, wet sound echoing in the dark.
+
+*Drip.*
+
+*Drip.*
+
+*Drip.*
