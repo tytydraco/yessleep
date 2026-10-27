@@ -1,0 +1,41 @@
+When I was a kid, there was nothing I looked forward to more than making short movies with my friends. My friend Mark would do most of the writing and directing, Jeremy would film and edit, I was the prop guy, and Kevin was the best actor, so he’d usually just play the main role. Out of all of my friends, Kevin was probably my closest. Sometimes he’d help me with fixing up props since he restored all sorts of old things to resell and make money in his free time. I was 15 when we made a movie about a police case taking place in the 1910s, can’t recall the name of it though. It was the last movie we’d ever make, and it was my fault. No one knows that, not even my friends; they wouldn’t believe me. But it was my fault. I just need to tell the truth somewhere.
+
+It was always my job to read the script and find what props were needed by myself. For the interrogation scene, I imagined the criminal sitting in an old antique looking chair, and when I couldn’t find anything like it in my house, I went to the thrift store down the street where I got most of my other props. As soon as I bought the chair, I walked it to Mark’s house to drop it off and show him what I got. The chair was composed of thick pieces of dark wood that weren’t too beaten up for how old it seemed to be. There was a leather cushion with a few pieces torn here and there, revealing the cotton stuffing underneath. It had armrests, but the right one appeared to be a replacement, since the wood didn’t have as much detail and was lighter in color. At the time I thought the chair was a good deal. 
+
+Mark told me that he already had a chair for the scene. He walked me to his garage and proudly presented me with a modern-looking kitchen chair. I told him that it wouldn’t make sense to include in our movie since that style of kitchen chair probably wasn’t around in the 1910’s, but he told me it didn’t matter that much and that the kitchen chair fit better. I was pretty mad that I bought the antique chair for nothing, and upset that Mark didn’t care about how real the movie felt. After all, I was the prop guy! I should have been making those decisions! I just stashed the antique chair in the prop room in my basement in hopes that we could use it for another movie.
+
+That night, I woke up to grab a sip of water from downstairs. I was already uncomfortable enough being downstairs by myself in the dark, when I heard a door creaking in the basement. I pressed my ear against the basement door and heard a steady rustling. I darted upstairs and told my dad that someone was in the basement, my heart beating so heavily I could hear it. He quickly got out of bed and carried his gun down there with me following closely behind. 
+
+The first thing I noticed when I got to the bottom of the basement stairs was the chair, facing us, in the middle of the room. The prop room door was wide open. When I told my dad that the chair wasn’t there before, he made sure to check the basement and downstairs thoroughly, and when we found nothing, he said that I probably just didn’t remember leaving the chair there. But when I reminded him of the noise I heard, he paused. Then he said it could’ve just been the pipes. I just agreed and said maybe, but honestly my dad didn’t seem to be fully sure. By now my mom and younger brother were wide awake too, and they seemed mad at me for waking them up.
+
+One day later I was eating breakfast when I noticed that the chair was in the living room facing the TV. I wanted to tell my dad, but I was worried he’d think I just didn’t remember moving it again. By now I was fairly freaked out by the chair and didn’t really want it in my house anymore, even if I was being pranked or misplacing it or something, so I took it back to the thrift store to see if I could get a refund. But when they checked their records, they said that they never had the chair in their store, meaning they couldn’t refund it. I was pretty upset that their system was messed up at the time and convinced someone forgot to document my purchase, but now I’m not so sure that’s the reason behind it not being recognized. 
+
+I complained about it to my mom, but she seemed more focused on doing the dishes than listening to me. She was always doing some sort of work around the house such as cleaning or organizing, almost as if she enjoyed it. She said that it was only $10 I lost, which was barely anything. But my mom just didn’t understand that I wanted it gone because it was creeping me out. Not that I was going to say that outright, though.
+
+That night, I put the chair in the garage, making sure it was still there right before going to bed. I woke up sweating. I don’t know if it was hot or what, but I was sweating. I sat up to cool down, and almost passed out when I saw the chair right at the foot of my bed, facing me. I froze in fear and didn’t want to get up while at the same time wishing desperately that I was somewhere else. It was at this point that I started questioning if I was even being rational. It was just a chair. How stupid to be afraid of a chair! Someone had to be moving it, I thought. I walked down to the basement and put it in the center of the room. I was just going to have to wait for the following night.
+
+The following night came. I waited until everyone was in bed. Then I snuck downstairs into the basement and sat in the chair, right in the center of the room where I put it the previous night. My plan was to wait there until whoever it was, probably my brother, came down to move the chair. I tried to slow my breathing and remind myself that the only threat down there was my mind. Eventually, I drifted off to sleep. 
+
+Feet dragged across the short stiff carpet. Footsteps. I opened my eyes and glanced around the room as if I could see through the dark. It was finally time to find out who was moving the chair.
+
+I waited. Nothing. 
+
+I was sure I heard footsteps! I listened more closely, waiting for whoever it was to step closer. Did they know I was there? I kept my eyes open and paid attention to anything I could hear. 
+
+A vent kicked on. A clock was ticking. The vent turned off. More ticking. 
+
+I was so tired, it was hard to keep my eyes open. But why did I need my eyes open if it was dark? I closed my eyes and listened. 
+
+Tick. Tick. Tick. 
+
+I focused on the sound of the clock, my anchor for staying awake. 
+
+Tick. Tick. Tick. 
+
+I thought I felt the hair on the back of my neck tingle. 
+
+Tick. Tick. Tick. A hissing noise. No, a whisper. A drawn out whisper, in my right ear: “Get out of my chair.”
+
+I opened my eyes and ran forward, tripping on something in the dark. I crawled on the ground, feeling for the stairs. There were the stairs. I ran up, opened the door, ran to my room, and sat there. I sat there until the sun rose. I hadn’t even noticed the vibrant purple bruise on my foot until I finally stood up for the day. 
+
+I never told anyone about this. They’d think I’d lost my mind. All I knew is I had to get rid of the chair. And I have no excuse for what happened next. I didn’t want that chair in my yard. I didn’t have time to wait until garbage day. So I gave it to Kevin, knowing he’d want it to fix it up. I should never have been so selfish as to give it to him, but I really didn’t understand how dangerous the chair was. So it still came as a shock to me when Kevin went missing 3 days later. I regret everything. After all these years, he’s still gone. His family put up signs for him all over town, using the most recent photo they had of him. In the photo, he was smiling at the camera, so oblivious to what he was doing, disassembling the antique chair I had given him.
