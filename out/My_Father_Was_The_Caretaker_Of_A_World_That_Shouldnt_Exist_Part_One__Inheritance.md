@@ -1,0 +1,247 @@
+The first thing my father taught me about the gates was how to tell when one had moved. I was seven, standing beside him in the pasture behind our barn while he stretched string between two stakes. He showed me how to line it up with a groove in the gatepost, then made me check it. If it didn't line up, I was to get him and touch nothing. I'd wanted to help with the tools, and measuring a fence felt like the kind of job you gave a kid to get him out of the way.
+
+Twenty-nine years later, I stood in that pasture with the same string pulled between newer stakes. It missed the groove by nearly an inch. My father had been dead for eleven days, and apparently the work he'd spent his life doing hadn't waited for me to get around to it.
+
+The gate was heavy steel tubing with chipped green paint, hanging open between concrete-reinforced posts. Beyond it ran the dirt road I'd been forbidden to use as a child. County maps showed pasture and a cattle farm for another mile, yet through the opening I could see a forest climbing both sides of the road. I'd never been through the gate and wasn't about to start that afternoon.
+
+I went inside because I didn't have the tools to fix it and wasn't ready to admit I needed to. I'm Evan Mercer, thirty-six, a heavy-equipment mechanic from two hours away. I've used up my leave and my supervisor's patience, and I don't think I'll be going back. That sounds selfish after what happened to the Reddings, but their ordeal begins with my father.
+
+Walter could spend three hours teaching me to rebuild a carburetor, answering every question, then become irritated when I asked where he'd been the previous night. If I asked how something worked, he'd explain it. If I asked why we needed it, he'd say to mind my business. He wasn't cruel all the time. I wish he had been, because remembering him would be simpler.
+
+We owned two hundred and twelve acres, a farmhouse, three dilapidated barns, and more fences than any ordinary farm needed. My grandfather had maintained the place before Walter, and his father before that. Six gates were scattered around the property. Two stayed open, three were locked, and the sixth stood in the orchard behind enough steel and chain to stop a truck.
+
+None led where they should have. Walter taught me to clear drains and measure posts, but never let me through a gate. He disappeared through them for days, returning injured or filthy. My mother called it his work. Once, when I was eleven, he woke me to help repair a fence in the north woods. While I held the light, my mother called from among the trees, asking me to come to her. She was asleep in the house. Walter's hands shook so badly he had to start the wire twice, but he wouldn't turn around. He told me to keep the flashlight on his fingers. After Ruth disappeared, I stopped asking most of my questions.
+
+Ruth was six when she vanished in August 1998. She had a gap between her front teeth, a collection of plastic horses, and a refusal to wear matching socks. She named everything on the farm. Once Walter spent an afternoon building a shelter for an ugly toad she'd called Dr. Pickles. That's the part of him I have trouble explaining: he'd make something like that for her, then disappear for days without telling us where he'd gone.
+
+I remember the heat that August afternoon, my mother calling us to supper, and Walter returning from the orchard with Ruth's blue cardigan. He told the police she'd died in an accident by a drainage ditch. Nobody let me see her, and when I asked where she'd been buried he told me not to bring it up again. My mother never believed him, though she never told me why.
+
+By nineteen I barely spoke to Walter. Ruth's disappearance filled the house without being discussed. He worked longer hours, my mother grew quieter, and eventually I helped her move out while he watched from the porch. She died in 2019. He left her funeral early; I'd spoken to him four times since.
+
+When Iris Kessler called about Walter's death, I thought someone would finally have to clear his equipment shed. I didn't cry until I found one of Ruth's wooden horses in his workbench drawer, the broken leg mended with brass wire. Walter had once told her it couldn't be fixed. He'd filed the wire smooth and painted it the wrong shade of brown. I sat holding it, trying to remember our last conversation that wasn't an argument.
+
+Someone knocked on the open workshop door. "Tell me you're not selling all this as a job lot," Tess Bell said. "I was hoping for first refusal on the collection of things that are probably against several environmental regulations."
+
+Tess wore scrub pants and a gray sweatshirt, her hair in a crooked ponytail, and carried a grocery bag. I hadn't seen her in four years, though we exchanged birthday messages. She still had the expression she wore when she was about to make herself laugh.
+
+"There's a tractor behind the hay barn without an engine," I told her. "I'll give you a good price."
+
+"I've always wanted something that can't move and takes up half a driveway." She put the bag on the bench. "I brought sandwiches. Iris said you've been living on whatever you find in Walter's cupboards, and I know how old some of that food is."
+
+Tess noticed Ruth's horse and said nothing. Instead she sat and stayed while I ate, telling me about an ambulance scheduler who insisted on making two people cover three jobs and a woman who'd called 911 after her husband glued his dentures to a counter. I told her about my shop foreman, who diagnosed hydraulic problems by hitting things. It was good to talk to someone who didn't expect me to explain how I felt about Walter.
+
+Eventually she asked if I was keeping the farm. "The house needs a roof, the south barn's about ready to collapse, and there's enough scrap iron out here to build a bridge," I said. "I haven't gotten through the paperwork."
+
+"What about the gates?" She was turning the cap of her water bottle back and forth without drinking.
+
+"I'd almost forgotten you knew about those," I said. She glanced toward the pasture before answering.
+
+"Evan, your dad made us walk three miles around the north woods because I wanted blackberries. I remember the gates. I remember what happened the summer your mother found something in the chicken coop and called my dad over, too."
+
+I remembered Howard helping Walter one summer when I was eleven. My mother found something in the chicken coop; the two men worked there all night with shovels, and by morning the coop was gone. Walter blamed a fox, but I'd seen him carrying buckets of something that still moved after he set them down. I asked Tess if Howard ever explained it.
+
+"He said it was something that shouldn't have been there. That's all." She put the cap back on. "He worked with Walter a lot in those days. There were things he wouldn't tell anybody, even Mom."
+
+Howard disappeared in 2004 after going to help Walter with a repair. My father claimed he'd left around noon; the police never found Howard's truck or proof he'd gone anywhere. Tess had spent twenty-two years hearing suggestions he'd abandoned her, usually from people who'd barely known him.
+
+"Have you found anything?" she asked. "Invoices, work records, something from when Dad helped him?"
+
+"Not yet. There are forty years of papers in the office. I'll look."
+
+As she got into her SUV, Tess said, "You might want to call the Reddings. Their dog came back this morning, and Hannah found him near your fence. She's worried Walter set traps."
+
+'Is it hurt?' I asked. The sound of her answer mattered more to me than it should have, considering I'd never met the dog.
+
+"That's what she's trying to figure out. I told her you were here. Hope that's okay."
+
+After Tess left, I opened Walter's old ledgers. Most recorded oil changes, feed bills, and angry notes about suppliers. One page explained why the bearings sold to him by a man named Dennis were the wrong size. Beneath it he'd written, 'Dennis is either a liar or a fool.' I laughed because I could hear his voice, then felt strange for laughing in that empty room.
+
+In the 1997 notebook I found drawings of the gateposts and their buried supports. I knew the alignment marks because he'd made me check them as a child. Other parts were unfamiliar, including narrow metal inserts he called contact shoes. Under a drawing of Gate One he'd written, 'The post doesn't keep the gate upright. The post keeps the edge where it belongs.' I thought of the string sitting an inch out of line in the pasture, but the drawing didn't say what that meant.
+
+The last pages were divided with tabs, one marked 'Things I've Come Across.' Instead of equipment failures, Walter described creatures carrying living prey, and injured things repaired in ways he clearly regretted seeing. A few entries sounded like folklore written down after bad dreams. I set that section aside. His gate drawings were precise, and I had a real dog to worry about; I didn't need to chase every strange sentence he'd written.
+
+I was stacking the notebooks when the house phone rang. "Is this Evan? Walter Mercer's son?" The woman sounded embarrassed. "I'm Hannah Redding, over on Mill Creek Road. Tess said you were staying there, and I'm sorry to bother you this late."
+
+"I'm not sure. Scout was gone three days. When he came home he had something under his fur, like fishing line or wire. Will got most of it off, but there's some wrapped around his chest. We wondered if he'd gotten in one of your father's traps."
+
+I said Walter hadn't used traps there when I lived at home. Hannah said Will couldn't cut the line away without hurting Scout, who'd barely eaten. Their son was frightened. I asked her to keep the dog inside until Iris could examine him in the morning.
+
+Before hanging up I asked where they'd found him. "Near the wire fence behind your west barn," she said. "Will said he came out underneath it. We didn't even know there was a road back there."
+
+In Walter's latest notebook I found an inspection dated September 29: "West skirt needs another run below the bottom rail. Found the old wire pulled up by the drainage cut. Couldn't finish it. Bring the short post driver and the good bolt cutters." The following page was blank. I took a flashlight, my tools, and the truck out to the pasture.
+
+The containment fence was eight feet high, with heavy mesh and an inner barrier. Walter called it a cattle fence, although we hadn't kept cattle there since before Ruth disappeared. I unlocked the outer gate and followed the fence to the drainage cut, where the buried skirt had been pulled away.
+
+The opening was big enough for a dog, and the wire bent toward the pasture. Dog tracks and narrow grooves marked the mud. A flattened, sticky translucent strip clung to the broken wire. I put it in a bolt container and spent two hours patching the hole.
+
+The alignment string across Gate One had shifted another fraction of an inch. I wrote it down and returned home, where I slept downstairs with Walter's notebooks beside me.
+
+The Reddings lived in a yellow ranch house with white shutters, a basketball hoop, and a half-finished deck facing the Mercer property. I'd driven past it for years, but they'd made it look like a home people enjoyed.
+
+Hannah answered before I knocked. She worked at the elementary school and wore an exhausted expression. Will was looking for Scout's kennel behind the garage. "He's worse," she told me. "He can barely stand, and he won't drink."
+
+Miles was at the kitchen table building a bridge from craft sticks and cardboard. He had glue, a heap of failed attempts, and the intense concentration of a kid whose project had become harder than he'd expected. When Hannah introduced me, he asked how much weight a bridge was supposed to hold.
+
+He said his bridge had to hold three dictionaries; his dad thought two was enough. I asked whether it had managed one. He admitted it hadn't, and I suggested starting there. He gave me the patient look children reserve for adults with no ambition.
+
+Scout lay on a blue blanket in the laundry room. He was an old collie mix with cloudy eyes and a gray muzzle. He moved his tail when I crouched beside him. Hannah told me he'd slept beside Miles's bed every night since they'd brought the boy home from the hospital eleven years earlier, and he'd never run off before.
+
+There were abrasions beneath his collar and a shallow wound near his chest. The line was difficult to see until I parted the fur under his left foreleg. It was translucent and flattened, running beneath the hair and disappearing into a fold of skin. When I touched it, Scout gave a low sound through his nose and turned his head toward me. His tail twitched, but not like an ordinary wag.
+
+I asked whether Scout had eaten or vomited. Hannah said he'd managed a little chicken and hadn't barked once since coming home. When I felt along his ribs, I found his rapid heartbeat and another, slower movement that didn't match his breathing. I took my hand away and called Iris.
+
+Will came in while I was on the phone. He worked for the electrical cooperative, and he looked like a man certain he'd failed his dog. "I should've taken him somewhere yesterday," he said. "We got him when Miles was two months old. He's been through everything with that kid."
+
+We waited in the kitchen. Miles asked about hydraulic lifts, so we connected two plastic syringes with clear tubing from an old aquarium pump. He watched the second plunger move when he pushed the first and asked if the setup could lift a car. I told him he'd need something much stronger.
+
+'What about a tractor?' Miles asked. Will said he only had a riding mower, and Miles argued that was a small tractor. I took his side. Hannah gave us apple slices while he worked. I can still picture that ordinary kitchen, his glue-covered fingers and Will complaining about lumber prices, all of us pretending Scout would be fine.
+
+Iris arrived before ten in her battered Subaru. Though retired, she still helped at the veterinary clinic. She checked Scout's breathing and gums, then pressed two fingers against the translucent strip. Her expression changed.
+
+The strip shortened by nearly half an inch, drawing itself beneath Scout's skin. Iris held perfectly still. "Where did you find him?" she asked. Will told her about the fence. She asked if we'd seen anything else nearby, then looked at me. "Did you check the gate?"
+
+'Last night,' I said. 'The bottom skirt was torn away. I repaired it, but I don't know how long it had been open.'
+
+Iris asked which way the broken wire had bent. When I told her it pointed toward the pasture, she sat back. I'd seen that expression when I was twelve and she'd found something inside a calf's mouth that made her take Walter aside.
+
+"I want him at the clinic," she finally said. "There's equipment there I don't have. Nobody pull anything off him until we know what it's attached to." She was trying to keep her voice normal for Hannah, but I could see her hands had begun to shake.
+
+Scout tried to rise, slid across the linoleum, then jerked sharply left and struck the washing machine. The line beneath his chest pulled taut; a narrow ridge rose beneath his skin and traveled toward his spine. Iris told me to call the clinic before touching him again.
+
+Miles appeared in the doorway holding the hydraulic model we'd built. "Is Scout dying?" he asked. Iris covered the wound with a towel and told him the dog was sick but they were going to help. He reached toward Scout, who made a real effort to move to him. When Miles said his name, the dog began trembling.
+
+Iris sent Will to bring the car around and Hannah to clear the back seat. I stepped outside where my phone had reception and was beside the garage when Miles screamed. Back inside, the laundry room was empty. The towel lay on the floor and the blue blanket had been dragged toward the porch.
+
+'Scout went under the house,' he said. 'Something pulled him.' I looked past his shoulder at the empty laundry room and the towel abandoned on the floor.
+
+The crawlspace panel beneath the deck had been torn free. Scout whined somewhere below, followed by scraping and knocks against the porch. I sent Miles inside and crouched at the opening. Beneath the floor was barely two feet of clearance. Scout lay several yards in, sliding backward across the dirt with his legs outstretched. He wasn't walking. Something was dragging him.
+
+A pale cord ran from his chest into darkness. He turned toward my light and opened his mouth as though to bark, but a clicking noise came from behind his ribs. I scrambled out and almost collided with Iris. "Get everyone out of the house," I told her. She looked below and ran to gather them.
+
+We brought the family to the front yard. Will tried to go back for Scout, but Iris described what she'd seen moving beneath his skin. While we argued about what to do, Miles slipped away from Hannah. We found his shoes arranged beside the crawlspace opening.
+
+"Dad?" he called from beneath the porch. Will dropped to his knees and told him to crawl out. There was a scraping noise, followed by a frightened breath. "I can't," Miles said.
+
+Will tried to crawl in after him. I caught his shirt and he seized my collar. 'That's my son under there,' he said. 'Get your hands off me.' He looked ready to hit me if I didn't move.
+
+"I'll go in," I told Will. "Keep the light on the opening and help me when I bring him back." I pushed my tools inside and crawled on my stomach through dirt smelling of mold, wet insulation, and leaking battery acid. Something knocked against the underside of the floor every few seconds.
+
+Scout lay against a concrete block, his muzzle in the dirt. The line beneath his fur was thick as my finger now, running from his chest toward the foundation. It wasn't wrapped around him. It emerged from a split beneath his ribs, ringed by raised reddish tissue, and swelled with each shallow breath.
+
+More cords stretched between supports, anchored to wood by small hooks. Everything was under tension. When I said Scout's name, he opened one cloudy eye and moved his tail.
+
+Miles was wedged beyond the block, his flashlight pointing at the wall. Three cords led to his right arm, circling his wrist, running beneath his elbow, and disappearing inside his sweatshirt. The skin near his shoulder moved in little contractions that didn't match his breathing.
+
+'Hey, buddy. It's Evan. Your dad's outside. Are you hurt?' Miles tried to turn his head toward me, but something pulled at his shoulder when he moved.
+
+"My arm feels funny," he said. When I asked how, he told me it kept going to sleep. "I tried pulling it out, but Scout starts crying. Please don't pull."
+
+When I touched his sleeve, a cord tightened and something moved beneath the skin. Miles whimpered. Scout's body contracted painfully at the same instant. Whatever held them was using each to control the other.
+
+The strands met at a shape flattened against the foundation. It looked like folded rubber roofing until a jointed limb unfolded against a joist. Another followed, then several more, the hooked ends securing its plated body against concrete and timber.
+
+Translucent sacs hung beneath its plates, expanding with Scout's breaths. Several held moving shapes, and one unfolded tiny jointed legs against its membrane. It hadn't dragged Scout there to eat him. It had built a nursery beneath the Reddings' home and was using the dog to keep its young alive.
+
+The creature shifted toward Miles. The cords around his arm tightened and he screamed. I struck the nearest limb with the pry bar, and another appendage hit my shoulder hard enough to throw me against the foundation. A hook ripped through my jacket and scraped my upper arm. I scrambled backward before it caught me again.
+
+Will shouted through the boards. I told him to get everyone back and call an ambulance. The animal didn't chase me; it adjusted its limbs around Miles and Scout and pulled them closer. I could see no way to separate them without tearing through the boy's arm.
+
+Iris was talking to dispatch when I crawled out. Will demanded to know what I'd seen. I said an animal had attached itself to Scout and Miles, and cutting the cords might seriously injure the boy. I sounded insane, but I didn't have a better explanation.
+
+Hannah flinched whenever Miles screamed beneath the floor. Will wanted to crawl in after him, but I needed to see what we were cutting. I told them we'd open the porch from above so the thing couldn't drag him farther into the foundation.
+
+"We take up the porch boards," I said. "There's no room to work under there. We need to see how it's holding him before we cut anything."
+
+Will fetched a saw and toolbox. We located the joists and pried up boards without dropping them onto Miles. Iris kept speaking to him through the opening, asking about school while Hannah crouched beside her and held herself against the edge of the deck.
+
+Deputy Nolan Price arrived and listened to my account before shining his flashlight into the crawlspace. His beam moved from Scout along the cords to the creature. He stood up slowly and called for an expedited fire response. He didn't argue about what he'd seen.
+
+Firefighters and an ambulance arrived together. Tess was working. She climbed down, checked whether Miles could feel his fingers, and asked if he could breathe comfortably. He said his arm was cold and something moved inside his shirt.
+
+"We're going to get you out," she said. "I need you not to pull against whatever's holding you. Can you do that?" He said he could, then asked if Scout could come with him. Tess looked at me. Neither of us answered.
+
+Removing the last porch boards exposed the animal from above. The firefighters went quiet. Its limbs gripped timber and concrete, while cords ran from its underside into Scout and Miles. Small organisms moved inside translucent sacs beneath the plates.
+
+One sac opened, and a rat-sized newborn unfolded its jointed legs. The adult covered it with a limb, a protective movement that made the scene worse. It wasn't thrashing blindly. It was caring for its offspring, using a dog and a child as the means to keep them alive.
+
+Iris pointed out that Scout's breaths inflated the sacs, while movement traveled down the cords toward Miles. A firefighter raised his cutters, and I stopped him. A strand under tension might recoil into the boy's arm. Tess agreed we had to immobilize the creature before severing anything.
+
+The creature had braced a thick muscular section against the foundation and was pulling Miles inward like a winch. We could try pinning that part against concrete with the rescue spreader and brace, then cut the cords while they were slack. Nobody promised it would work, and Will's face told me he knew it.
+
+Nolan moved Hannah and Will back while the firefighters placed the equipment. The creature began scraping the underside of the house, shifting its limbs away from the braces. Scout tried to rise, his paws slipping in the dirt. The cords tightened and he made a terrible sound through his nose. "He's hurting," Miles cried. "Please don't hurt Scout."
+
+I crawled down beside Tess. She lifted Miles's sleeve, exposing a strand entering his skin near the armpit and continuing beneath the muscle. It tightened as we watched. Miles saw her face and asked if that was bad. She assured him a surgeon would examine it and kept one hand on his shoulder.
+
+The firefighters engaged the hydraulic brace. The creature lashed at it and raked grooves in the joists. The cords pulled tight, raising Miles's shoulder off the dirt. Tess clung to his torso while I tried to keep the nearest strand from disappearing into his arm.
+
+Something hit the underside of the porch hard enough to shake the floor. A newborn had crawled out from beneath the mother's protective limb, and another was emerging from a sac. One scrambled toward an opening between the concrete supports. A firefighter reached for it with a tool. The adult convulsed, swept an appendage across the gap, and caught his forearm, ripping through his sleeve. He fell backward. The hydraulic brace slipped.
+
+The cords attached to Miles jerked tight, pulling his shoulder into a position it couldn't withstand. I heard a short, wet snap and then the boy screamed in a way I don't think I'll ever forget. Tess kept holding him while I drove my pry bar beneath the animal's tensioning structure. I leaned on it with everything I had, trying to keep it away from the boy. My injured shoulder burned. I could feel the muscles across my back beginning to fail.
+
+Then Will was beside me. He'd crawled through the opening during the confusion, carrying a heavy steel bar from his garage. He drove it beneath the animal alongside mine and pushed. Together we forced the structure far enough from the foundation for the firefighter to reposition the brace. The creature struck at Will, catching his left hand between a hooked limb and the concrete block. I heard bones break. He screamed but didn't let go.
+
+The second attempt pinned the tensioning structure. The cords slackened. "Now," Tess said, and the firefighters cut the first two strands as I held Miles steady. Each snapped backward toward the animal, striking the dirt. The third was tougher and stretched between the cutter blades before finally parting. Miles collapsed into Tess's arms, crying and asking for his mother.
+
+The adult began making a low vibration that seemed to come from several parts of its body at once. Its sacs contracted. The young beneath its plates started moving frantically. Scout tried to crawl toward Miles, dragging himself through the dirt until he reached the edge of the boy's shoe. He rested his muzzle there. Miles whispered his name, and Scout looked up at him, his tail moving once.
+
+Then the adult pulled him backward. The cords growing from his chest went taut. He scraped helplessly against the concrete as the creature dragged him under its body. I caught his collar, although I knew I couldn't pull him free without tearing through his chest. Scout turned his cloudy eyes toward me, struggling for each breath. Iris leaned through the opening and said my name. When I looked up, she shook her head. I understood what she was asking me to accept.
+
+The firefighters moved Miles to the opening, where Tess guided him into Hannah's arms. Will had collapsed against a support, clutching his crushed hand. I stayed beside Scout long enough to stroke his head and tell him he was a good dog. Once everyone was clear, the firefighters trapped the newborns they could see beneath a metal equipment tray, then used the hydraulic gear to crush the adult's central body against the foundation.
+
+By the time a firefighter brought Scout's collar out, I was sitting on the lawn with my back against the garage. There was mud inside my shirt, and I kept feeling something tighten around my ribs when I breathed. I pressed my hands flat against the concrete to convince myself nothing was attached to me. I couldn't remember when I'd started shaking.
+
+Tess appeared at the rear doors of the ambulance with dirt on her face and blood on one sleeve. "Go with Will," she said. "We're taking Miles in. I'll call as soon as I know anything." She pulled the doors shut, and I watched the vehicle start down the driveway. I hadn't even told Miles goodbye. I could still see his little bare feet moving across the dirt as Tess lifted him out.
+
+Will sat on the tailgate of another ambulance, staring at his bent fingers. He asked whether we'd saved Scout. When I shook my head, he nodded as though he already knew. 'He went in because Scout was crying,' he said. 'He took his shoes off so they wouldn't get dirty. His mother bought those shoes last week.' Then Will began crying with his ruined hand against his chest. I thought of explaining that we'd done everything we could, but he'd been there. The explanation would've been for me.
+
+Nolan wanted a statement. I made sure he wrote down that Scout had been sick for days before Miles went under the house; I couldn't stand the idea of that boy carrying the blame. When I went inside for his shoes, the kitchen still smelled of coffee. The bridge was on the table beside the syringe device we'd built together. On the cardboard, in Miles's crooked handwriting, were the words \*THREE DICTIONARIES\*. I carried his shoes out, leaving the bridge where it was because I couldn't decide whether it should go to the hospital.
+
+At home I stripped off my clothes in the mudroom and stood at the utility sink until the water went cool. Twice I checked my own chest for the cord I'd seen growing out of Scout. I knew nothing was there. After forty minutes of sleep I woke to what sounded like him scratching at the kitchen door. The porch light showed nothing, and I stayed there watching it anyway.
+
+By Sunday the Reddings' house was behind temporary fencing. Investigators were carrying sealed containers out from under the porch, but nobody knew what the animal was. Miles had undergone surgery. The doctors saved his hand, but the nerves and blood vessels near his shoulder were badly damaged; Tess said he might never regain full use of the arm. Will had lost part of his ring finger, and the firefighter needed surgery on his forearm. I had a scraped upper arm and a bruised shoulder. Mine were the only injuries likely to heal.
+
+On my way back to the hospital I bought a little toy excavator, then nearly returned it because it seemed insulting to give a child a toy he might not be able to operate. I kept it because Miles had liked talking about machines, and I couldn't think of anything useful to bring him. I left it in its bag until I knew whether he'd want to see me.
+
+Hannah sat in the corridor wearing yesterday's sweatshirt. I gave her Miles's shoes, and she held them to her chest. Will's employer had promised to keep his job, but he couldn't climb utility poles for months. She'd been making calculations on the back of a hospital information sheet, trying to work out how far her school salary would stretch. Her son was awake watching cartoons, she said, and kept asking whether his father could finish the bridge when they got home.
+
+Eventually she asked what the animal was. I said I didn't know, but I'd found where it came through the fence on my father's property. 'Walter knew things like that could get through?' she asked. I said I thought he did. 'Then why didn't he tell us?' I admitted he should have, and that I should have come to her house the evening she'd called instead of waiting until morning. Hannah didn't answer, and there was no reason she should have.
+
+'Miles thinks this is his fault,' she said. 'He thinks Scout would've lived if he'd stayed in the kitchen.' She turned one of the little shoes over. 'I told him Scout died. He asked whether it hurt. What am I supposed to say?' All I could remember was the dog trying to crawl to Miles while his ribs moved around something that didn't belong inside him. Hannah looked at me, saw I couldn't speak, and went into her son's room.
+
+I stayed outside the room. Through the partly open door Miles asked someone to turn up the television because he couldn't reach the remote. I remembered Ruth demanding that I stand beneath the apple tree while she climbed, promising she wouldn't fall if I didn't tell Walter. We'd spent our childhood arguing over such small things. Miles was alive, but his family would have to rebuild its life around what had been done to him, and I couldn't stop hearing his shoulder break.
+
+Tess found me after her shift. The surgeons had left fragments attached to Miles's nerves because removing them might cause more damage. Nobody knew whether they'd grow or die. When I asked if he'd recover, she sat beside me. 'He's alive,' she said. 'Right now, that's what I've got.' I gave her the unopened toy bag, and she set it between our feet without commenting.
+
+'You keep trying to fix the part you can hold,' she said. I told her it was the only part I knew how to fix. Then I explained Walter's damaged fence. Tess asked whether he knew things could cross; I said yes. 'Then tell somebody everything you know, Evan. Not just what sounds reasonable in a police report.' I promised to try. She stared at the bag between us and didn't answer.
+
+Nolan came Monday. State investigators couldn't identify the remains, and tissue had continued contracting after the creature died. He asked what Walter had kept behind the western fence. I said there were six gates, and looking through one showed land that wasn't there on the county map. He didn't laugh. He'd been beneath the Reddings' porch.
+
+'Then show me,' he said, notebook ready. I nearly took him out to the pasture, but the gateposts had moved again and I didn't know what exposure would mean for him. Instead I showed him the photographs and promised to contact him when the containment area was safe. He requested copies of Walter's inspections and left his card.
+
+That afternoon I spread Walter's gate drawings across the workshop floor. Each frame had buried supports fitted with pieces he called contact shoes. Walter's notes showed they wore down and let the opening shift beyond the posts. Locking a gate could prevent ordinary passage, but not that kind of failure. He called it \*bleeding\*. I didn't understand how a road through impossible woods could meet our pasture, but I could see which pieces had moved.
+
+Gate One's western support had been moving for months. Walter's final measurement was weeks old, and the bracket that needed replacing could only be reached from the road beyond it. There wasn't a spare in the workshop. I found the name Harlan on several old receipts for supplies delivered along that road, but no current inventory and no note telling me where to buy another part.
+
+There were problems elsewhere, too. The creek gate's drain was clogged, the northern gate needed reinforcement, and Walter's last note about the orchard was underlined twice: "Can't leave this until spring." I'd seen him reinforce that place when I was seventeen. It was the one where Ruth had disappeared, and I had no desire to go anywhere near it.
+
+I thought about calling the equipment shop to send a crew. But I'd seen the firefighters trying to make sense of what lived beneath the Reddings' porch, and I couldn't send men toward those gates without knowing what they might face. I also couldn't padlock everything and walk away. My great-grandfather's notes described an attempt to shut all six gates in 1911. Within days, strange woods appeared behind a neighbor's barn and three people died. Reopening two established passages had contained it. That was all Walter had written about why the system worked, and it was enough to stop me trying the obvious solution.
+
+Tuesday I worked on Walter's Ford, a three-quarter-ton pickup fitted with a winch and locking tool compartments. I replaced a damaged headlight and worked the winch until it ran smoothly. The cable snapped tight, and for a second I was back beneath the porch watching Miles's arm pull toward the foundation. I let the line out and sat on the bumper until my hands stopped shaking. It was the first time all morning I'd thought about anything beyond the repair.
+
+Iris arrived at supper with sandwiches. She said I was turning into Walter, and I told her that was a rotten thing to say. We sat on the workshop steps while the light went out of the fields. She said Walter sometimes spent two nights awake finding things that escaped, then came to her kitchen shaking too badly to hold a cup. 'He didn't tell me everything. But he was scared of what would happen if he stopped.' I couldn't defend him, not while I remembered Will's voice beside the ambulance.
+
+I asked what Walter had really told her about Ruth. Iris tore her sandwich wrapper into narrow strips. 'He said she was gone, and I believed him when he said there wasn't anything I could do.' I wanted to press her, but she'd lived near that orchard for twenty-eight years and a conversation on the steps wouldn't settle it. Before leaving she hugged me, something she hadn't done since my mother's funeral. 'You don't have to do everything alone,' she said. I thought of Tess waiting outside Miles's room and told Iris I'd try.
+
+Wednesday before sunrise I loaded Walter's notebooks, tools, food, water, and medical supplies into his truck. I only meant to inspect Gate One's far-side support and return before dark. I'd been working on that gate since childhood, but always with Walter standing between me and the opening. I was thirty-six and had never once crossed it.
+
+Frost lay along the fence. I measured the misalignment and tightened two bolts I could reach. Through the open gate, a dirt road disappeared into woods that weren't supposed to exist. Walter had driven it hundreds of times. I hoped a truck, tools, and his instructions would be enough to get me home.
+
+Walter's entries mentioned Mrs. Harlan, four miles along the western road. She'd fed him after long trips and complained whenever he forgot the coffee. One July 1997 note read, 'Took coffee and flour to Harlan's. Fixed the loose step out back. She asked after Helen and the children. I told her everyone was fine.' Ruth had been five then. I wondered whether Mrs. Harlan remembered her and whether Walter had ever spoken honestly about us.
+
+Near the back of the ledger I found an entry marked \*Old Ones\*: 'Some look like us. Some don't. Don't assume the ones that look friendly are any safer. They can be pleasant company. Some are deceitful and will go to extraordinary lengths to convince you to stay. The oldest have patience you can't compete with. When an Old One wants somebody kept, it usually isn't the Old One that does the chasing.' There were no drawings or directions to tell me what he'd meant. I put it away. Whatever Walter had been describing, I had a damaged gate to inspect.
+
+I wanted to find Mrs. Harlan because she might know where Walter kept his spare parts. I also wanted to hear someone talk about him without lowering their voice or asking what he'd done. She'd known my mother and Ruth, or at least knew enough to ask after them. I didn't expect her to have answers about my sister, but I couldn't stop hoping she'd tell me something I'd never heard.
+
+I opened the access fence and lowered the Ford's sun visor. Across the gray repair tape Walter had written, 'Don't make a promise to someone because you're afraid of disappointing them.' Under Harlan's name in his ledger was a shopping list: coffee, flour, kerosene, and a replacement shovel handle. I put it in my pocket. I didn't know why bringing groceries made the visit seem less dangerous, but it did.
+
+Before I drove forward, I checked the outer fence one final time. The latch caught, the cable across it was tight, and the string still missed the mark on the gatepost. I wrote the measurement in the margin of Walter's notebook, under the space he'd left for his next inspection. Then I got behind the wheel, thinking of Miles's bridge still sitting on the kitchen table, and put the Ford in gear.

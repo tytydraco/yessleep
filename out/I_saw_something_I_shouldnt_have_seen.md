@@ -1,0 +1,53 @@
+I really love going to abandoned places. A few weeks ago, I decided to go to an abandoned church, one that wasn't too far away.
+
+After a 30 to 40 minute journey, I arrived at the church, for some reason, a shiver had run through me even while I was still on the way. Perhaps the fact that it was a religious site caused me some extra stress.
+
+I noticed that the door was open and realized I wouldn't have to go to the trouble of getting inside.
+
+A very foul odor was emanating from inside so bad, in fact, that it could easily be detected even from in front of the door.
+
+Because the building was old and abandoned, it hadn't been maintained for a long time, perhaps that's why there was that smell.
+
+I went inside without much thought and began to look around.
+
+The walls were all peeling, the floors were covered in broken glass, everything was coated in dust, and the pews were broken.
+
+As I moved forward, that foul stench began to intensify. While wandering around, I noticed a light, I wasn't alone here. When I reached the spot where the light was coming from, I couldn't believe my eyes.
+
+A Star of David had been drawn on the ground, at each point of the star sat a candle, and at each of these points lay a human limb, a head, arms, legs, and a torso.
+
+I was shocked by what I saw and couldn't move for a few seconds. Then, I heard footsteps and immediately hid.
+
+Six individuals arrived, wearing red outfits reminiscent of Ku Klux Klan robes, and each took their place at one of the points of the triangle. They spoke in a language I did not understand, most likely phrases related to some sort of ritual.
+
+I tried to be as quiet as I could, and after saying a few more sentences, they blew out the candles and left.
+
+I couldn't move from where I was. After they left, I waited inside a little longer, then I went outside as well. I moved some distance away from the church, immediately called the police, and explained what had happened.
+
+There was no one around. After a short wait, the police arrived and went inside. They searched the premises for at least 30 minutes, and when they came back out, they asked me whether I was under the influence of anything.
+
+At first, I didn’t understand what was going on. Then, I was told that there was nothing inside. I immediately went in, accompanied by the police, and when I reached the spot where I had seen the incident, I realized that there was, in fact, nothing there.
+
+Due to the rise in drug use, they assumed I was also under the influence of drugs, so we went to the hospital for a blood test. After providing a blood sample, I had to stay in a holding cell while waiting for the results. That time felt like hell.
+
+The results came back negative, and the police officer who released me told me that if I wasted the police's time again, I would end up in jail.
+
+When I got home, I was still questioning the reality of what I had seen. No one else had entered after me, so it was impossible for them to have destroyed the ritual items. Yet, with my own eyes, I saw that there was nothing there.
+
+Three days had passed since these events, and I was trying to console myself with the thought that perhaps I had just imagined it. until around 4PM, I saw one of those men in red clothing outside my house, standing under a tree and looking up at my window.
+
+I was very frightened, I immediately grabbed my pistol and began watching him from the window as well.
+
+Fifteen minutes had passed, and the man was still watching me without moving. There was a knock at the door, and I jumped in fright. I went to the door and looked through the peephole, but I saw no one there.
+
+I ran straight to the window, and the man was no longer there.
+
+The next day, the man in the same clothes was back in the same spot, at the same time, watching my window. I began watching him in return with my pistol in hand, and this time, I wasn’t going to get up and leave, even if there was a knock at the door.
+
+My phone suddenly started ringing, and I turned my head for a moment, it was an unknown number. When I turned back, the man was gone again.
+
+The next day, the same events occurred again at the same time.
+
+I don’t know what to do. Even if I go to the police, they’ll just disappear again and this time, there’s a chance I could end up in prison.
+
+If you have any advice, please tell me.

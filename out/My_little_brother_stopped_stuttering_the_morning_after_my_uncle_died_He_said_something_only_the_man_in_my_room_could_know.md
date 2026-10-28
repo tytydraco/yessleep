@@ -24,7 +24,7 @@
 
 **“Why was it that you stood up to a boy who’s got a foot over you and a face built like a brick wall?” Tyler asked with his signature smirk.**
 
-**“Because lard-face called Greg a [Slur],” I thought about the encounter at the bus stop and laughed, “The idiot though he could pick on my nine year old brother without me doing a thing about it. I gave him a black eye.”**
+**“Because lard-face called Greg a [Slur],” I thought about the encounter at the bus stop and laughed, “The idiot thought he could pick on my nine year old brother without me doing a thing about it. I gave him a black eye.”**
 
 **“Exactly! Do you know how proud I was of you? I heard about the fight from my own students. You had high schoolers talking about Hank “The Tank” [redacted] for days weeks! When I saw Duncan’s face during sixth period, I had to hide my own less I be reprimanded for laughing at a high schooler who got his ass kicked by a thirteen-year-old. Pardon my French,” He said.**
 
