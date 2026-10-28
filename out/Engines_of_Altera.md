@@ -1,0 +1,195 @@
+***There was a man***
+
+ 
+
+“There was a Man. A Man so beautiful it was akin to basking in warm sunlight in his presence. He was "Perfect." His Father was a shepherd, and he and his siblings tended the flock in their father's stead as Drovers.
+
+The Father declared, "You will cherish these sheep as I do you, for they are my children."
+
+The Man, furious that these sheep were called equal to him, rebelled. "Father. These sheep are lesser than myself. Why do you treat them as equals to us?" His voice cracked, then hardened. "Are we not enough?"
+
+The Father looked at his son with a weary expression for a long moment. When he finally spoke, his voice was quiet. "Hear me, my son. The man that lives like a sheep, and the sheep that live like a man are the same. Is it not the job of the shepherd and the drover to guide them?"
+
+The Man scoffed in astonishment. He couldn't accept that his own father would treat these sheep as his equal. In a fit of rage, he threw his crook to the ground and declared he would never treat mere livestock as his equal.
+
+The Father glared at his son. "You are my favorite son — but your radiance has blinded you. You shall never see the brilliant pleasures of life, and you will not bear the burden of death. Leave."
+
+The Man lost his emotion. He could not feel, therefore he could not live. He could not despair, therefore he could not die. He could only see the emotion of everyone he met, permanently reminding him of what he had lost.”
+
+"What do you think? Was the father too harsh? Or was the son too stubborn? Well I guess it doesn’t matter; I'm still surrounded by this sickening color blue in fact it’s the only color I see, Doesn’t the story remind you of me? Well, I guess that makes sense, you know, the blue?” Dolion said losing focus.  
+
+"So why is it that even you are this disgusting shade of blue, Mr. Stowaway?" Dolion said, whispering like a child.
+
+"Hmph." "Mmph." "Aahmph."
+
+The stowaway was gagged and bound to a rusty pipe on the floor. He was young and gruff, thrashing around, trying to get away, the most mortifying look you could imagine plastered on his face.
+
+"Oh! Right. You can't talk while gagged. Silly me." He peeled the gag away with a kind of smile that would make you almost forget you were in danger.
+
+"G-get away f-from me! You demon! I-I know you — you're Dol—mmph."
+
+"Yes, yes, I know I'm Dolion. You know something that's interesting? Everyone has a different shade of this disgusting blue — the darker it is, the more scared someone is. The lighter they are, the opposite. You know, Mr. Stowaway, you are very blue right now," Dolion said, putting the gag back on him, almost disappointedly.
+
+*It's so predictable.*
+
+"Well, all interesting things come to an end. But I'm feeling bored, so I'll put you in the boiler room for now," he said, with a gentle smile.
+
+The stowaway looked so mortified you'd think he'd pass out. The boat they were on was a rustic steampunk marvel — it had been a private project of some rich guy. Until Dolion came across its owner. The owner of the boat wasn't interesting enough to keep around, but the boat was practical: a kitchen, living quarters, a boiler room, a small apartment on the sea. As Dolion started to drag him away to be thrown off, he heard something bump into the boat.
+
+*Rattle.*
+
+"What was that?"
+
+Dolion methodically walked up to the deck of the boat and looked off the edge, down into the water. To his surprise, on a small raft lay two young children. For the first time, Dolion felt something. The younger-looking child looked all white — he couldn't see even a speck of blue. Dolion wore the expression of a god looking at his creation for the first time.
+
+To the children, Dolion was certainly a sight to behold. No one in this era looked as well kept as Dolion — or at least, they had never seen anyone who did.
+
+Dolion leaned over the railing and whispered a single word under his breath.
+
+"Interesting."
+
+It was said maliciously, the type of malice give you goosebumps all over — For just a split second, a deranged, malicious smile twisted Dolion's handsome face
+
+Then, just as quickly, Dolion composed himself and reached his hand out to help the children. The older-looking kid lifted his younger brother with hesitation, then grabbed onto Dolion's arm.
+
+"T-thank you, Mr.—?" he asked with anticipation.
+
+"Dolion. Just call me Dolion” He replied politely. “That child with you… is he your brother?"
+
+"Yeah. Can we have some food, Mr. Dolion?"
+
+Dolion smiled but was taken aback by this sudden shamelessness. "Of course. Let me make you a platter. Follow me."
+
+Dolion coyly showed the two children around, the younger child slowly rubbing his eyes while stammering around. Dolion asked, "What are both of your names?"
+
+"My name is Atrius. My younger brother here is Lux," Atrius said while gripping his brother's hand.
+
+Dolion paused while walking them to their seats. "Interesting. Lux, as in evoking light in Latin. And Atrius… *Ater*, huh? Your mother had a very strange sense of hu—"
+
+"Stop," Atrius interrupted. "Don't talk about our mother," he stated with a deeply serious and grim expression.
+
+Dolion blinked and nodded. "I understand. We all have a story to tell after the Pop. You know, while your name does mean dark or gloomy, it also means fearless in Greek." Dolion said while looking at the deep, unwavering dark blue swirling around the boy's figure. "Come, sit down. Let me make you something to eat."
+
+The children were ushered into the kitchen, where a very vibrant orange light lay scattered around the room. The light danced so brilliantly you could see the dust floating; in every sense of the word, it felt cozy — it wasn’t something you’d usually see.
+
+While Dolion prepared some lunch, Lux asked his brother a question. "What is the Pop?" he asked innocently.
+
+Atrius stammered to get his voice out. "It’s uh… when everyone had to get on boats and sail around."
+
+*The Pop. It happened a couple of decades before I was born. They didn’t realize the world had an underground ocean almost three times the size of Earth's current ocean. By sheer dumb luck, some tectonic plates moved and it effectively popped like a bubble, hence the name,* Dolion thought to himself.
+
+Dolion laid out a platter of fresh milk and eggs. Both Atrius and Lux went wide-eyed.
+
+"How did you get this?" Atrius frantically asked.
+
+“Well,” Dolion said, placing the platter down. “As Atrius probably knows, after the Pop a couple of groups emerged once people stopped drowning long enough to form sides — the Bureau of Oceanic Patrol, the Neutral Merchant Alliance, and Crucible’s Cult. A couple of those old foxes at the Merchant Association still owe me favors, so at the very least I’m well fed,” he added with a slight chuckle.
+
+Lux and Atrius scarfed the food down as if it were their last meal.
+
+"I want to stay here forever," Lux said, already muffled by a mouthful of food.
+
+"Hey, don’t say that, it’s rude. I’m sorry, Mr. Dolion, I’m still teaching my brother manners."
+
+"Hm, well, why not just stay here forever?" Dolion said with a voracious smile while looking at Lux.
+
+"Hey, I don’t kno—" Atrius said before getting cut off by his younger brother.
+
+"Oh, pleassee," Lux said longingly. "We’ve been on the raft for days and we don’t have anywhere to go. He seems so nice, he even has eggs!"
+
+While Atrius was still apprehensive about the sudden change in scenery, he would be lying if he said the fresh food didn’t sway his opinion.
+
+"I don’t mind. I have a spare room if you two don’t mind sharing. Here, let me show you where it is, at least before you decide," Dolion asked politely.
+
+Dolion herded them along to an adjacent room and presented a well-kept space with a full-sized bed leaning against the wall. It was very rustic, but it had a type of elegance that made it pleasant to look at, especially to these two boys, who had spent the latter part of their week on a wooden raft.
+
+“Atrius, when have you ever seen a bed this big?” Lux said ecstatically.
+
+“Never,” Atrius replied in disbelief. This boat was seriously an entirely different world from the one they had just come from.
+
+While Dolion was showing them their room, he suddenly remembered the rat he had caught stowing away and tried to excuse himself.
+
+“Excuse me, boys. You can keep looking around and decide who sleeps where. I need to go take care of something in the boiler room,” he said with a dead smile.
+
+After Dolion exited the room, Atrius and Lux began to talk.
+
+“Hey, I know you really like this place, but I don’t have a great feeling about Mr. Dolion. He kind of gives me the creeps,” Atrius said.
+
+“What do you mean?” Lux asked. “He’s been super nice to us! He even gave us food and offered to let us live here.”
+
+“That’s what I’m worried about. No one is that nice. It’s suspicious.” After the Pop, plenty of smuggling rings, slave traders, and all sorts of other evils had emerged. Atrius knew this all too well.
+
+“All I’m saying is, just be careful around him, okay, Lux?”
+
+“Alright…” Lux replied with a disappointed look.
+
+Compared to Atrius, Lux had grown up in a completely different environment, showered with love, so malice was a very foreign concept to him.
+
+In the meantime, they explored the deck and the captain’s quarters, walking around in awe, hand in hand, taking it all in. However, the more Atrius saw, the more suspicious he became. The clean interior, the fresh food, the absence of anyone else on board—it all screamed of a hidden motive.
+
+*Mr. Dolion… Why would he take us in?* he thought.
+
+As they were about to head back to their room—
+
+***BANG!***
+
+They both recoiled as they heard footsteps coming from the boiler room. A moment later, Dolion opened the door, revealing a small bloodstain on his hand. He noticed Lux and Atrius looking at him with curious concern.
+
+He smiled gently at them and explained that a pipe had burst and that he would fix it later. Lux nodded in understanding, but Atrius didn’t buy it.
+
+“What’s with the blood on your hand?” Atrius asked.
+
+Dolion looked at his hand and chuckled slightly as he tried to cover it up.
+
+“Ah, I was a bit clumsy and cut myself while trying to fix the pipe,” Dolion said with a dead smile.
+
+“Anyway, I think it would be good for you guys to settle in. You both need to rest. You were on a raft for days, so you must be tired,” he said playfully.
+
+Atrius was still on edge, but he couldn’t ignore the fact that he was seriously sleep-deprived. He didn’t want Lux to go without sleep, either. Eventually, they both agreed to settle in and waited in their room until nighttime.
+
+“Hey, Atrius, do you think we could stay like this forever?” Lux whispered hopefully.
+
+“Yeah,” Atrius replied.
+
+It was a small white lie. It wouldn’t hurt to let Lux have a few more happy memories before he grew up.
+
+After waiting for Lux to fall asleep, Atrius quietly got out of bed and walked down the hallway. The air smelled of rust and salt as he approached the threshold of the master bedroom.
+
+“Here goes nothing. I need to make sure he was telling the truth about his hand,” he whispered to himself.
+
+Holding his breath, he quietly opened the door and stood beside Dolion’s bed. The entire room was clean. Too clean.
+
+He stealthily grabbed Dolion’s hand and pulled it out from under the covers. To his shock, there really was a cut on Dolion’s palm.
+
+*Maybe I really am just overthinking it,* Atrius thought.
+
+He carefully lowered Dolion’s hand back beneath the covers and turned to leave.
+
+Behind him, Dolion’s eyes slowly opened.
+
+He had been awake since the moment Atrius stepped into his room.
+
+He simply analyzed Atrius like a predator stalking its prey. Once Atrius finally slipped out and returned to his room, Dolion looked down at his hand and smiled.
+
+*This kid would make a lousy thief. How has he survived all this time? He even forgot to close the door. Anyway, I don’t want them to be afraid of me. It was a good thing I cut my hand, just in case.*
+
+His eyes, on the other hand, were dead. Black, devoid of anything that should be living.
+
+“I wonder if this sickening blue would come out of him if I cut him up as well,” he said with anticipation.
+
+“Oh. I forgot to brush my teeth,” he added, losing his train of thought.
+
+As quickly as night came, morning arrived just as fast.
+
+Dolion got out of bed, took a shower, and practiced facial expressions in the mirror. He didn’t understand most of them, but they seemed to matter whenever he mimicked the expressions of other people.
+
+After getting dressed, he knocked on the door of the guest bedroom, but there was no answer.
+
+“Are you guys awake? Let’s have breakfast! I need to stop at the Association, if you’d both like to come with me.”
+
+Still receiving no reply, he opened the door to find Atrius and Lux lying so close to each other that you would practically have to pry them apart.
+
+“They must be tired. I’ll let them come outside when they’re ready,” he said analytically.
+
+Dolion had never really spent time around children during his time at sea. He had mostly encountered pirates, government officials, and a few other stragglers. He didn’t quite know how to deal with children.
+
+However, he would soon find out just how difficult it was to have children around this era.

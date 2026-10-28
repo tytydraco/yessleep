@@ -1,0 +1,167 @@
+"Adam?" my wife, Hannah, called.
+
+"What?"
+
+"Why are your pants on the floor again?"
+
+"I don't know. I forgot to put them away."
+
+"We talked about this so many times, Adam."
+
+"Jesus, it's just pants."
+
+"It's pants now, but then it's the dishes, the house, and then you don't feed the animals again. We already lost two chickens because you couldn't remember feeding them."
+
+"Go to hell," I said, walking to the door.
+
+"Adam?!"
+
+But I didn't listen and continued out the door.
+
+My mind throbbed with anger. I knew I'd forgotten to feed the chickens. She didn't need to remind me. 
+
+I'd walked over half a mile, passing the hill behind our house to the creek. The summer breeze blew. The sun shone on my skin. I closed my eyes and took a few breaths. The air smelled of willows and summer flowers as I listened to the creek.
+
+My thoughts slowed, but through the creek's ripple came a strange sound. Someone was crying. I opened my eyes. A beautiful blonde woman with porcelain skin stood in the river in a long white dress. She covered her face as large, clear tears fell into the creek.
+
+"Are you okay?"
+
+She looked up, her red eyes making her blue irises shine.
+
+"I'm…I don't know."
+
+I looked around, jumped into the creek, and waded to her.
+
+"Are you hurt?"
+
+"I don't think so."
+
+I offered her my hand. She smiled and grabbed it. Her skin was smooth and soft.
+
+We waded back to the shore. I helped her up onto the grass.
+
+"Thank you, kind stranger. What's your name?"
+
+"Adam."
+
+"I'm Rusalka."
+
+She stared deep into my eyes. I could feel my heart tightening.
+
+"How did you end up in the creek?"
+
+A few large tears fell from her eyes.
+
+"My love rejected me right before the wedding for a different one. I jumped into the river upstream and woke up here. I hadn't left it until you came."
+
+"That man was a fool to pass up a beautiful woman like you."
+
+Her full lips curved into a smile.
+
+I couldn't remember the last time someone looked at me as if I could do no wrong.
+
+"You think I'm pretty?"
+
+A chill ran through my wet legs.
+
+"Ye…yeah."
+
+She smiled even more. The tears in her eyes were gone. It seemed as if the creek had lowered.
+
+"I think you're pretty too. You have a beautiful soul."
+
+"Thank you."
+
+"No one has been this kind to me."
+
+"I'd think everyone would be kind to you."
+
+"The same with you, Adam. You were brave to wade through the creek for me."
+
+Hannah's words this morning echoed in my mind. I shook my head and smiled at Rusalka. Her eyes were so beautiful.
+
+"Thank you."
+
+She looked down at my hand and saw the ring. The water seemed to rise again.
+
+"Is someone waiting for you at home?"
+
+I quickly put my hand behind my back.
+
+"My home is far away. No need to think about it." The words came out so easily.
+
+The water lowered.
+
+"Will you stay with me a while?"
+
+"Sure. As long as needed."
+
+"What if it's a long while?"
+
+"That's okay."
+
+The water lowered again.
+
+"Are you doing that?" I asked, but she didn't seem to listen.
+
+"Adam, will you then be mine and only mine forever?"
+
+She gripped my hand tightly.
+
+"Please." Her voice now seemed hollow. "I'll be yours forever. I'll never leave you. We can be together forever, never perish."
+
+"Someone's waiting for me at home."
+
+She opened her mouth. Sharp pain shot through my hand. Her white nails dug deep into my skin. Warm blood spilled into my palm and fell into the grass. 
+
+A bloodcurdling scream came out of her mouth. My ears stung. She put her face in her hands again. Huge, clear tears flew onto the grass. Something wet touched my foot. The water was rising.
+
+"Hey, I'm sorry!"
+
+But she wasn't listening. Her head was still in her hands. 
+
+"You'll see what you'll return to," she whispered.
+
+I quickly got up and ran back home. The air was damp. The creek sounded like someone was pouring water into it.
+
+"Hannah, come, we gotta go!" I yelled through the front door.
+
+"Where have you been, Adam?"
+
+I pointed at the water rising in the grass. Her eyes flew open. I ran to her, grabbed her hand, and ran out the front door. The water had risen to our ankles. We ran toward the hill, but as we started climbing, Hannah lost her balance; her hands flew up, and she fell face-first into the mud.
+
+"Hannah!"
+
+The water was already to her knees. I grabbed her arm and pulled her out. Both of her slippers were off.
+
+We continued up the hill. The water was right up to our heels.
+
+"There's nowhere to go!" Hannah yelled as we reached the top.
+
+My heart beat against my ribs, but the water seemed to stop. It didn't even rise the hill. It stopped right at the top of our home. Rusalka floated around it.
+
+"Adam!" she called.
+
+My wife turned to me.
+
+"How does she know your name?"
+
+"I…I helped her out of the creek."
+
+Hannah narrowed her eyes.
+
+"She wouldn't flood our house for that."
+
+I looked at the ground.
+
+"She asked me to marry her, but I said no."
+
+Her eyes filled with pain. I expected her to yell at me for ruining our house, but she only whispered, "But you thought about it."
+
+I didn't say anything. There was nothing to say.
+
+My hand started to itch. The cuts from Rusalka's nails connected in a straight line, and something like a second ring formed below my wedding one.
+
+Hannah looked down. Tears filled her eyes. She let go of my hand and walked away, her bare feet pressing into the dew-covered grass. The ring tightened. A few clear drops of water fell from it.
+
+It's been hours now. I'm writing this from the top of the hill with my phone at 9%. I managed to get Hannah to talk to me again, but she won't look at me, and every time she goes quiet, I feel the water creep up a little bit to my shoes. Rusalka is still in the water. She's not crying anymore. She's just quiet, [waiting.](https://www.reddit.com/r/KanesHorrors/)

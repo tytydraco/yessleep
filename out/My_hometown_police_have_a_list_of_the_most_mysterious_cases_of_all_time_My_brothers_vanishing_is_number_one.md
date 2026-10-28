@@ -1,0 +1,89 @@
+
+
+I was playing hide and seek with my brother in our house. Then he vanished forever.
+
+When I couldn't find him, I called my parents, and we searched for Theo together. He couldn't have left the house. The front door was locked and every key was in its place. There was no back door, and all the windows were shut. My father checked the security camera on the porch, but there was nothing on it. Nobody had entered or left the house that morning.
+
+We called the police, and the officers’ faces showed pure bewilderment. It was a look I would see everywhere from then on, whenever I talked about my brother. The officers searched the whole house, from the basement to the attic and called in colleagues from the Missing Persons Unit. They also combed the whole house and the area around it, checked the surveillance cameras and talked to the neighbors. They came to the same result: my brother seemed to have been swallowed by the earth. There was simply no logical explanation.
+
+The authorities launched a public manhunt, and the case caused a huge media echo: newspaper reports, TV interviews and a pretty sensationalist true crime podcast. None of it achieved anything except speculation, accusations and conspiracy theories. Some believed my parents were behind his disappearance, that they had murdered him and buried his body somewhere outside the house. Others suspected my brother was trapped in a “time loop” or in a parallel universe. I took every one of these theories seriously and examined it closely, only to end up with no result once again.
+
+The house was not an old Victorian mansion with ghosts. It was a new single-family home in the middle of a new development. We were the first people to move in. And no, the neighborhood isn’t built on a former cemetery, and there was no psychiatric hospital on the site whose ghosts could haunt us. I combed through the city archives and found nothing. Before the development was built, there were only fallow fields, a small creek and a patch of forest. I also couldn’t find any comparable cases, not in our city and not anywhere else in the world.
+
+After two years of searching, the case went cold. A few years later, the lead detective wrote a book and admitted in it that he had never experienced anything like it: a missing case without a single clue. My parents never gave up, though. My father rented a through-the-wall radar from the police at his own expense and X-rayed all the walls and the floor in the basement, only to end the attempt once again with the words that hurt us all so much: “Nothing found.” My mother hired a spiritual medium who claimed to sense Theo’s presence “in the walls.” But what exactly that meant and how to get him out, the quack didn’t know.
+
+Then we moved out of the house. Too many painful memories were stuck in the walls that had swallowed my little brother. The years went by, and April 3rd, the day he disappeared, sat in our calendar like a tumor. The months before the anniversary and the months after were pure torture, and somewhere in between came the quiet days when you still thought of Theo the whole time, but the memories were less filled with pain and laced with a heavy melancholy.
+
+My parents both died of a broken heart. I never married and never had children of my own. I always told myself I had to focus on the search for Theo, but in truth, deep down, I was afraid of feeling the same pain as my parents, who had lost a child.
+
+A week after the thirtieth anniversary, which I had spent alone in my apartment with a bottle of whiskey, a woman came to see me. She introduced herself as Hannah. She looked exhausted, with tired eyes and pale skin. She told me her little son had been playing hide and seek in her house and had never reappeared. It was the same house where my brother had disappeared. At first I thought it was a stupid prank and was about to throw her out of my apartment, but the grief in her eyes looked so familiar: the exact same look I had seen in my parents’ eyes every day since Theo disappeared.
+
+“Something is wrong with this house.”, I said. 
+
+“Something in this neighborhood is strange,” she said.
+
+I didn’t know what she meant. To me, it was just an ordinary neighborhood. They had all supported us during the search back then, brought food and shielded us from the media.
+
+“But there’s something dark underneath,” she said.
+
+“What do you mean?”
+
+“I ... I don’t know. And then there’s the thing with the tornado. About three years ago, a violent tornado swept across the area, and according to the meteorologists it was supposed to go right through our development. We barricaded ourselves in, but for some reason all the houses in the neighborhood stayed untouched, as if it were nothing but a gentle breeze passing by.”
+
+“That could mean anything,” I said, suddenly one of the skeptics I had fought against all those years.
+
+She cried, and when she calmed down, she looked at me with her red, swollen eyes.
+
+“There is something ... something evil. I felt it very clearly. My husband doesn’t believe me, he thinks I’m crazy.”
+
+I touched her gently on the elbow.
+
+“I believe you.”
+
+We drove to the house. These four walls that had caused me so much grief and had taken the most important person in my life from me. And when the smell of the mahonias planted in the garden hit my nose, all the memories came back at once. And with them the rage and the feeling of helplessness. My stomach cramped and I had to throw up. Hannah put her hand on my back to show me her solidarity.
+
+“You don’t have to come in.”
+
+“No, I want to. I ... have to.”
+
+Without the child, the house was dark and cold. Except for one built-in side wall, surprisingly little had changed in thirty years.
+
+“My husband is at the police station right now,” she said as we walked through the living room.
+
+“The police won’t be able to do much,” I said, touching the walls in the hallway. “On the other hand, I don’t know how I can help you either.”
+
+“There has to be a connection between your brother’s disappearance and my son’s. I can’t explain it any other way,” she said, took out a notepad and a pen and sat down on the sofa.
+
+“What do they have in common?” I asked and sat down next to her.
+
+“They both disappeared here in the neighborhood.”
+
+“They were both boys,” I added.
+
+“How old was Theo?”
+
+“Six.”
+
+“So was Noah.”
+
+I told her all my theories and findings, but we didn’t get any further. For thirty years I had been running into a dead end. And that was exactly what Hannah was facing now. Thirty agonizing years full of questions and no answers. My head ached. None of it made sense.
+
+I went into the bathroom to splash cold water on my face, and as I was about to leave, I froze. The faucet was dripping. Just like back then, when Theo disappeared. I called Hannah and asked how long the faucet had been broken.
+
+“Only recently, why?”
+
+“And were there problems with it before?”
+
+“Yes, when we moved in, all the fixtures went crazy. My husband replaced all of them, and the problem went away.”
+
+“When Theo disappeared, the faucets in the house went crazy.”
+
+I stared at the faucet:
+
+Three fast drops. 
+
+Three slow drops. 
+
+Then three fast drops again.
+
+“Oh my god. That’s Morse [code](https://www.reddit.com/r/Howtoscream/).”
