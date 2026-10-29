@@ -1,5 +1,5 @@
-[[Part 2]](https://www.reddit.com/r/libraryofshadows/s/o90cIAiuot)
-  
+[[Part 2]](https://www.reddit.com/r/nosleep/s/xInxo7fbL4)
+
 A lonely child’s imagination is among the wildest of feats. I would know. Mine got out.
 
 It was never that I struggled to make friends or to talk with strangers. What I struggled with was keeping things. As a child, my memory was never fortified to my possessions, and I often found myself at a loss. I would lose toys, my directions, and trains of thought, and I could never hold onto friends for too long, as I’d often lose them too. Everyone said I was careless, but that couldn’t be further from the truth. I cared a lot, but that didn’t stop me from believing them.
@@ -38,4 +38,4 @@ They crowded around my bed, giving me warm greetings, filling my room with color
 
 I nodded my head, and they all began to titter in laughter. Mister Cocoa’s smile engulfed the room as Mister Wuffles spoke. “Sleep. We’ll keep watch.” And I did.
 
-I slept for eight hours that night without a nightmare haunting me. I’ve been chasing that kind of sleep ever since. When I woke up, the closet door was shut, sealed across its seam with silk as fine as hair. My room was still, and I swear my breathing felt normal. I felt safe for the first time that I could remember. I believed that safety was a place where I would remain.
+I slept for eight hours that night without a nightmare haunting me. I’ve been chasing that kind of sleep ever since. When I woke up, the closet door was shut, sealed across its seam with silk as fine as hair. My room was still, and I swear my breathing felt normal. I felt safe for the first time that I could remember. I believed that safety was a place where I would [remain](https://www.reddit.com/r/DeepInTheMarrow/).

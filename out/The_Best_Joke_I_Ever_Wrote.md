@@ -1,0 +1,213 @@
+The first time someone got hurt laughing at one of my jokes, I thought I'd finally figured out how to be funny.
+
+I'd been doing stand-up for almost seven years, which is a long time to spend being moderately good at something that doesn't pay. I worked in insurance claims during the day, lived in a one-bedroom apartment above a Chinese restaurant, and spent most of my evenings performing for people who hadn't necessarily come to see comedy.
+
+I wasn't terrible. That was part of the problem. Terrible comedians eventually give up, or at least develop the sense to keep their day jobs and stop spending money on gas. I could usually make a small room laugh. Every few months, I'd have a set good enough to convince me I was getting somewhere, and then I'd spend the next several weeks performing for six people in the back of a bar.
+
+The night it started, I was at The Lantern, a narrow brick storefront with a bar at one end and a little platform at the other. Frank, the owner, had given me fifteen minutes because another comic had canceled. There were maybe twenty-five people in the audience, most of them sitting at small tables with their coats hanging over the backs of their chairs.
+
+I'd spent that afternoon rewriting a joke I'd been working on since winter. The premise had always seemed promising, but I could never get the ending right. I'd tried shortening the setup, changing the order of things, and replacing the punchline altogether. Nothing had made much difference. That afternoon, I moved one sentence from the beginning to the end, and for reasons I couldn't explain, the whole thing suddenly seemed to fit.
+
+I tried it about halfway through my set.
+
+The first laugh came from a middle-aged man near the front, wearing a blue button-down shirt. He bent forward over his drink, and his wife started laughing at the sight of him. Within a few seconds, most of the room had joined in.
+
+It was a better response than I'd ever gotten from another joke. I smiled, enjoying the moment, and glanced toward the back of the room where Frank was standing behind the bar. When I looked forward again, the man in blue was still doubled over.
+
+I gave him a little more time. Sometimes an audience member gets caught up in a laugh and keeps going after everyone else has settled down. Usually, you can move on and they'll recover in a moment.
+
+His wife rubbed his back while he laughed into the crook of his arm. He tried to straighten up, made it halfway, and bent forward again with a sound like a cough. The people at the neighboring table were watching him now, a few still smiling.
+
+I asked whether he was all right. He managed to lift one hand, thumb extended, and I took that as permission to continue. I'd barely started my next joke when his chair scraped across the floor.
+
+He'd stood up beside the table, one hand gripping its edge. His face was a deep red, and he was making short, breathless sounds with his mouth wide open. His wife got to her feet and reached for him, but before she could take his arm, his knees gave way.
+
+He struck the floor hard enough that I heard it from the stage.
+
+Frank came out from behind the bar while somebody called 911. I stepped down to help, although there wasn't much I could do. The man's wife was kneeling beside him, saying his name over and over, and I remember standing there with the microphone still in my hand until Frank took it from me.
+
+The man regained consciousness before the ambulance arrived. He was pale and confused, but he knew where he was. His wife helped him sit up, and he apologized to everyone around him as though he'd knocked over a drink.
+
+The paramedics took him to the hospital anyway. Frank ended the show, and I went home without getting paid.
+
+I slept badly that night. I kept remembering the man's face just before he fell, the way he'd been trying to breathe while his body continued laughing.
+
+The next afternoon, Frank called to say the man's wife had contacted him. Her husband had been discharged after several hours of observation. The doctors thought he'd fainted because of a sudden drop in blood pressure, possibly triggered by laughing too hard. He was supposed to follow up with his physician, but nothing they'd found suggested a serious problem.
+
+"She wanted me to tell you he enjoyed the show," Frank said.
+
+I was relieved enough to laugh at that.
+
+For a while, I considered dropping the joke. Then I performed it at another club the following weekend and got the biggest laugh of the night. Nobody fainted, and the audience was still applauding when I walked offstage. I kept using it.
+
+Over the next four months, things started going better.
+
+Not overnight, and not entirely because of that joke. I'd been improving for years, slowly enough that it was difficult to notice. I was finally getting comfortable with silence, learning when to cut material that wasn't working, and finding ways to talk to an audience without sounding as though I'd memorized every word.
+
+I started posting clips online. A couple got shared around, and I picked up some paid opening spots. Eventually, I booked a weekend at Lyle House, a proper comedy club with a raised stage, decent lighting, and a room that seated a little over a hundred people.
+
+I still worked in insurance claims. I still had to ask my supervisor for Friday afternoons off. But I was earning enough from comedy to cover my expenses, and for the first time I could imagine it becoming my actual job.
+
+The joke had become my closer. I trusted it when a room was difficult, and I liked knowing that no matter how the rest of the set went, I had something reliable waiting at the end.
+
+On my second night at Lyle House, a woman in the third row began laughing before I'd even finished the punchline.
+
+She was sitting beside a man who looked to be her boyfriend or husband. Her dark hair was tied back, and she'd spent most of the show laughing quietly with one hand over her mouth. When the joke landed, she dropped her phone and bent forward, laughing so hard that the people around her turned to look.
+
+I let the reaction run for a while, enjoying the sound of a full room. The woman was still laughing when the people around her began settling down, and her companion leaned over to say something to her.
+
+She grabbed his wrist and began pulling at his arm. He was still smiling, apparently trying to make some comment about the joke, but she was shaking her head. By the time I asked if everything was okay, she had tears streaming down her face and was struggling to get a word out between bursts of laughter.
+
+The man beside her finally seemed to understand that something was wrong. He stood and helped her out of her chair, supporting most of her weight as a server came over to assist them.
+
+I stepped away from the microphone while they guided her into the lobby. The audience watched in uncomfortable silence, and a few minutes passed before the manager returned to tell me she'd recovered enough to leave. Her boyfriend was taking her home, and she didn't want an ambulance.
+
+I finished the show with a different joke. It got a decent response, although I don't remember much about delivering it.
+
+Afterward, I asked the manager whether he thought she was all right.
+
+"She was walking when they left," he said. "I think she just got herself worked up."
+
+I mentioned the man who'd fainted at The Lantern. The manager said people sometimes passed out from laughing, coughing, or standing up too quickly, and that I shouldn't assume the incidents were connected.
+
+I'd performed the joke dozens of times by then, in front of hundreds of people. Those were the only two incidents I knew about, but I left it out of my next few sets anyway.
+
+About a week later, Frank called while I was at work. A woman had contacted The Lantern looking for me. She'd seen my name on an old poster and thought I might still perform there. Frank had given her my business email, but he wanted to warn me because she'd sounded upset.
+
+Her message arrived that evening.
+
+Her name was Claire. She'd been at Lyle House with her boyfriend, and she wanted to know whether I'd noticed anything unusual about the audience that night.
+
+She explained that she'd been having episodes of uncontrollable laughter since the show. The first happened in her kitchen the following morning. She'd been making coffee when she suddenly started laughing, hard enough that she had to sit on the floor. It lasted several minutes.
+
+There had been more episodes since then, including one while she was driving. She'd managed to pull into a parking lot, but she was frightened that it might happen again somewhere she couldn't stop safely.
+
+She'd seen a doctor, who had referred her to a neurologist. In the meantime, she was trying to understand what had happened.
+
+I read the email a few times before answering. I told her I was sorry she'd had such a frightening experience and asked whether there was anything I could do. I also mentioned that someone had fainted during an earlier performance, although the hospital had attributed that incident to a drop in blood pressure.
+
+Her reply came the next morning.
+
+*So you knew this had happened before?*
+
+I explained that the man had recovered and that there'd been no reason to believe my performance had caused anything beyond an unusually strong laugh.
+
+Claire wrote back that afternoon.
+
+*I understand you didn't know what would happen to me. I'm asking whether you're still telling that joke.*
+
+I told her I'd stopped performing it.
+
+She thanked me and said she hoped I'd keep it that way until someone could figure out what was happening.
+
+I found myself getting angry whenever I thought about the exchange. I knew that wasn't fair to Claire, who had every reason to be frightened, but I couldn't understand what she expected me to do. People laughed at comedy shows. Occasionally, people fainted. She was having a medical problem that might have had nothing to do with me.
+
+I started writing a reply to her last message a couple of times, mostly to explain that I couldn't be responsible for every medical problem someone experienced after one of my shows. I never sent either version. Even reading them back, I sounded like an asshole.
+
+I didn't have any way of knowing whether her symptoms would have started if she'd stayed home that night. But whenever I considered putting the joke back in my set, I remembered her trying to get her boyfriend's attention while he was still laughing.
+
+Three weeks later, Frank offered me a headlining show at The Lantern.
+
+He'd recently started selling tickets for Saturday nights instead of relying on walk-in customers, and he wanted to try giving local comedians a full set. The room could hold about sixty people if he rearranged the tables, and he could afford to pay me two hundred dollars.
+
+It wasn't the sort of opportunity that would change my life, but it was the first time anyone had asked me to headline a show under my own name.
+
+Frank made a poster and started advertising the date online. I spent the next two weeks putting together forty-five minutes of material, most of it drawn from sets I'd been performing for years. The difficulty was finding an ending. I'd become so accustomed to closing with the joke from The Lantern that everything else felt anticlimactic.
+
+I tried an older bit at one open mic and something new at another. Both did reasonably well, but neither got the kind of response I wanted for my first headlining show.
+
+A few days before the performance, I watched an old recording of myself telling the joke. It was from a small club where the audience had laughed hard enough that I needed to pause before continuing. Nothing unusual happened. People laughed, applauded, and settled down while I moved on to the next bit.
+
+I watched it twice, remembering how many times I'd performed the joke without anyone getting hurt. The man at The Lantern had been discharged with a plausible medical explanation, and Claire was still waiting to find out what was wrong with her. I couldn't prove the incidents were unrelated, but I couldn't prove they were connected either.
+
+By Friday evening, I'd decided to use it.
+
+The Lantern was full when I arrived on Saturday.
+
+Frank had borrowed chairs from the restaurant next door, and a few people were standing along the wall near the bar. My mother had driven in to see me, along with two friends from work and several people I hadn't spoken to since high school.
+
+She was sitting near the back when I came out to start the show. I could see her smiling as I adjusted the microphone, and I remember being embarrassed by how pleased I was to have her there.
+
+The first half went well. I had a few rough spots, but the room was warm and the audience stayed with me. Some of the newer material got better responses than I'd expected, which made me wonder whether I'd worried too much about the ending.
+
+I'd put the joke last on my set list. I didn't need the notes anymore, but I kept glancing at the folded paper on the stool beside my water.
+
+As I approached the end of the set, I considered skipping it. The show had gone well enough already, and I could have finished with something else. Then I remembered how the room had sounded the first time I'd performed it at The Lantern, before the man in blue collapsed. For those few seconds, I'd felt as though everything I'd spent seven years working toward had finally come together.
+
+I introduced the joke and began the setup. A few people laughed at the opening, and I let them finish before continuing. I knew exactly how long to pause before the final sentence.
+
+The response was immediate. Laughter filled the room, louder than anything I'd heard that evening, and I could see people leaning forward over their tables. Frank was laughing behind the bar. I was still smiling when a glass broke near the front.
+
+A man had knocked his drink onto the floor. He was doubled over, gripping the edge of his table, while the woman beside him tried to get his attention. She touched his shoulder, then began shaking his arm when he didn't respond.
+
+I asked whether he needed help. Several people laughed at the question, apparently assuming it was part of the act, but the woman was having trouble answering. Every time she tried to speak, another burst of laughter interrupted her.
+
+Near the bar, a man was bracing himself against the wall, laughing so hard that he could barely stand. His friends were watching him, amused at first, until one of them began doing the same thing. People who'd already settled down started laughing again when they saw their neighbors struggling.
+
+The man near the front slid out of his chair and landed on his side. His companion dropped to her knees beside him, but her own laughter kept interrupting her attempts to help. She tried to roll him onto his back and lost her grip, then sat beside him, struggling for breath.
+
+I called for Frank, but he was leaning over the bar with both hands gripping the counter. His face was red, and he was trying to draw air through his open mouth.
+
+I jumped down from the stage. Someone had called 911, but the woman holding the phone couldn't speak clearly enough to give the dispatcher the address. A man at the next table took it from her and managed to say the name of the bar before he started laughing too.
+
+I knelt beside the man who'd fallen. He was conscious, but his breathing had become shallow and irregular. He caught my wrist when I leaned over him, and I tried to get him to lie flat. Around us, chairs were being knocked aside as people struggled toward the exit. A few had made it outside, but others were supporting friends who could barely walk.
+
+My mother was standing near the back wall. She wasn't laughing, and when I called for her to get outside, she started toward me instead.
+
+I tried to reach her, but a man stumbled against me, laughing so hard that his knees buckled. I caught him under the arms before he hit the floor, and he clung to my shirt, making a strained, wheezing sound. His chest jerked against mine each time he tried to breathe.
+
+While I was supporting him, something caught in my throat. I swallowed, thinking I was about to cough, but the sensation returned as a pressure in my chest.
+
+The punchline came into my head.
+
+I'd written it, revised it, and performed it so many times that I knew every pause and every inflection. Repeating it night after night had made it almost meaningless to me. Now I could remember the words perfectly, and I was struggling not to laugh.
+
+My mother was calling my name. I could see her trying to get past the tables, but when I opened my mouth to answer, a short laugh escaped. I covered my mouth and tried to breathe through my nose.
+
+The man I'd been supporting slipped out of my arms. I bent to help him, but my stomach tightened so violently that I nearly fell on top of him.
+
+I tried to straighten up and call for my mother again. Instead, I laughed hard enough that my knees weakened, and I had to grab the back of a chair.
+
+I could hear people choking around me. Someone was lying motionless near the stage, and my mother was still trying to reach me through the crowd. I wanted her to stay away, but every attempt to speak brought on another fit of laughter.
+
+I remember looking at her across the room while I struggled to stay on my feet. After that, my memory becomes difficult to piece together.
+
+I woke up in the hospital the following morning with a sore throat and aching ribs.
+
+My mother arrived a little later. She looked exhausted, but she was unhurt. She told me several people had been admitted to intensive care and that one man had died before the paramedics could get him out of the building. She didn't know whether it was the man I'd been trying to help.
+
+According to her, I'd still been laughing when the paramedics carried me outside. They put me on a stretcher and tried to calm me down, but I couldn't seem to hear them. At one point, I'd laughed so hard that I vomited, and one of the paramedics had to turn my head to keep me from choking.
+
+I don't remember any of that.
+
+The police came to speak with me that afternoon. They asked what I'd seen, whether anyone had been drinking excessively, and whether I'd noticed anything unusual about the ventilation or the drinks being served. When they asked whether anything similar had happened at one of my shows before, I told them about the man who'd fainted at The Lantern and the woman at Lyle House.
+
+They took down everything I could remember, including Claire's name and the dates of our emails.
+
+Frank closed The Lantern temporarily. He called me once after I got home, mostly to ask how I was doing. We talked for a few minutes about the people who'd been hurt, and he said he didn't know whether he'd ever reopen the place.
+
+I apologized again before we hung up, although I wasn't sure what I expected Frank to say.
+
+I haven't performed since that night.
+
+For the first few weeks, I couldn't imagine getting back onstage. I avoided comedy altogether, including shows I'd previously enjoyed watching. Hearing an audience laugh made me uncomfortable, and I found myself turning off the television whenever anything remotely funny came on.
+
+I'd spent months practicing the joke, though, and the words came back to me at odd moments throughout the day. Sometimes I'd be washing dishes or sitting at my desk at work when I'd remember part of the setup. I could usually distract myself before reaching the punchline.
+
+About a month after the show, I was standing in the freezer aisle at the grocery store when I remembered the final sentence.
+
+The laugh came so suddenly that I had to grip the handle of a freezer door to keep my balance. A woman pushing a shopping cart smiled at me as she passed, probably assuming I'd remembered something funny. I turned toward the freezer to hide my face while my shoulders shook.
+
+It lasted less than a minute. By the time it passed, my stomach hurt and my eyes were watering. I left my groceries in the cart and went home.
+
+I've had three more episodes since then. None has lasted as long as the first, and I've been able to stop myself from making much noise. My doctor has referred me to a neurologist, but the appointment isn't until next month.
+
+I haven't contacted Claire. I think about doing it sometimes, especially when I'm having a bad day, but I don't know what I'd say to her.
+
+I know what happened at The Lantern. I remember the people on the floor and the look on my mother's face. Someone died that night, and I've had plenty of time to think about my decision to tell the joke again.
+
+None of that makes it any less funny when the punchline comes into my head.
+
+Sometimes I catch myself going through the setup deliberately, just to see how close I can get before I have to stop.
+
+I haven't made it all the way through again.

@@ -218,4 +218,4 @@ I walked outside and took a deep breath. It was only the beginning of September,
 
 Tyler’s voice came into my head, the way it did whenever I wanted to quit. ***One step at a time, kiddo. One step at a time, and you’ll reach the mountaintop.***
 
-I think that was the only time I smiled that day.
+I think that was the only time I smiled that [day](https://www.reddit.com/r/DeepInTheMarrow/).

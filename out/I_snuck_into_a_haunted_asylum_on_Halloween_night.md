@@ -1,0 +1,231 @@
+Halloween never really felt the same after middle school. Going into freshman year, my friends and I had abruptly decided that we were officially too old for trick-or-treating. I always knew that day would come eventually, but it arrived far more quickly than I expected. I never got to say goodbye to something I had looked forward to so much every year. It was just suddenly over, and out of my life forever.
+
+Freshman and sophomore year were awkward Halloweens for us. We didn’t want to trick or treat anymore, but we also weren’t old enough to do much else, so we spent both of those years sitting in Zack and Danny’s living room watching scary movies. Things finally changed for us our junior year when Chester, freshly adorned with his driver’s license, rolled up to school in his “new” car the week before Halloween. The implications of this were immediately apparent to all of us.
+
+We could do anything we wanted on Halloween this year.
+
+Votes were cast on our holiday activity, but the democratic practice was short-lived. Zack and Danny, being twins of the body but not of the mind, immediately cancelled each other out with their opposing votes, and neither Chester nor I could agree on an alternative plan. Chester wound up pulling the driver card, which meant we were ultimately forced to bend to his will. That was how we wound up at the asylum.
+
+Built in the early 1900s, the asylum operated in infamy for several decades before finally shutting down in the ’80s. It sat dormant and quiet for many more years until it was reopened as a haunted attraction during the Halloween season. I had heard its name mentioned here and there while growing up, but it had always seemed like the kind of place for adults to go to get their thrills. Never in my wildest dreams did I imagine that *I* would one day be old enough to venture into the asylum myself.
+
+But that all changed when Chester pulled his set of wheels into the school parking lot that fateful autumn morning. Suddenly the four of us had transformed from sniveling kids into full-fledged adults. And what better way to coronate our ascension than by taking on the asylum, and defeating the terror held within its walls?
+
+We made sure to buy our tickets for Halloween night. They were a little more expensive than they would have been on any other night of the season, but we weren’t about to cheap out on our first truly adult experience. We knew we had to do this on the “big night” if we were truly going to call ourselves men.
+
+The asylum lay deep within a dense forest—a place of true isolation where its “patients” could be hidden from the outside world. One would’ve expected nature to have reclaimed some of the land surrounding the asylum’s corpse in the years between its closure as a facility and its reopening as an attraction, but the property remained largely untouched by the creeping verdant fingers of time. We navigated the forest surrounding the asylum and arrived early, but even so we still found ourselves at the back of a long line of excited horror enthusiasts eager to make their way through the infamous haunt. There were so many people ahead of us that we began to worry that we wouldn’t make it inside before the place closed for the night, but these fears were quickly abated when the line began to move with considerable speed.
+
+“It seems like they’re sending people through in big groups,” Danny said as we made our way along the stone path leading toward the front entrance. “I was hoping it would be just the four of us.”
+
+“It can still be fun in a big group,” I suggested.
+
+Danny shrugged. “I guess we’ll see.”
+
+“I don’t mind going with other people,” Zack said. He had been the least enthusiastic among us to go to the asylum, and I could tell that even though he didn’t want to admit it, he was nervous to brave the terrors of the old building.
+
+“*I* do,” Chester said. “Ghosts don’t like to come out when there are too many people around.”
+
+Zack frowned. “You don’t think this place is *actually* haunted, do you?”
+
+“Probably not,” I said. “I bet somebody just made up that rumor so they could sell tickets to this place.”
+
+“I don’t know,” Danny said. “A lot of messed up stuff happened here.” He smirked, clearly eager to torment his brother. “I wouldn’t be too surprised if there were a few old patients still roaming the halls of this place.”
+
+Zack’s face went pale, but he tried to hide his fear. “I guess it’s a shame that we’ll be with a big group then, huh?”
+
+“Not if we sneak off on our own,” Chester said.
+
+“They’ll kick us out if we do that,” I said.
+
+“Who cares?” Chester said. “It’s not like we have to come back here after we’ve seen what it has to offer.”
+
+“If they tell your dad, you could lose your new car.”
+
+“My old man won’t care as long as we don’t get ourselves arrested.”
+
+“I vote that we stick with the group,” Zack said. 
+
+“And *I* vote that we go exploring,” Danny said to counter his brother.
+
+“I guess you two can stay with the group while Danny and I do some poking around,” Chester said to Zack and me, “but if you’re not with us when we leave, then I just might *forget* to drive you guys home later.”
+
+I frowned. “Dick move.”
+
+He shrugged. “It comes with being the only one of us to have a car, I guess.”
+
+I considered his words as we took another step forward in line. I ultimately understood that I had no other choice but to go along with his plan if I didn’t want to walk home that night. “Alright, have it your way,” I said. “You’ll probably realize the place is boring pretty quickly anyway.”
+
+We all looked at Zack, who didn’t speak. We took his silence as his endorsement and allowed the discussion to rest.
+
+About thirty more minutes of waiting went by before the front of the line came into view. As we had feared, we could see that the employees were letting guests into the haunt in groups of no less than ten people. We were going to be stuck in a group with at least six strangers, something we were all dreading.
+
+All of us except for Zack. It was clear that *he* was dreading the prospect of sneaking away from the group far more than the rest of us were dreading the prospect of being *in* one.
+
+I got his attention as we drew closer to the front of the line and offered him a reassuring smile. 
+
+“I don’t think you need to worry,” I said. “I doubt we’ll be able to slip away from the group without somebody noticing us.”
+
+“You’re right,” he said, taking a breath. “We probably won’t be able to do what Chester wants after all.”
+
+We both turned out to be wrong.
+
+The four of us entered the asylum at the tail end of a larger group. Because we brought up the rear, we were primed to slip away from the others without being noticed—which is exactly what we did. We continued with the larger group, shuffling our way through the tight hallway of loud noises and amateur scare actors while at the same time purposely walking slowly so that we could fall behind the others. The rest of our group rounded a corner ahead of us, giving us our chance. Chester led the way through a gap in the cheap modular wall of the haunt’s narrow hallway. We quickly found ourselves in one of the asylum’s true passageways, on the far side of which was a closed door. We crept our way through the short, dimly lit passage to the door. Chester reached for the handle, and I looked on with mild dismay as the door came open, revealing a world of shadow beyond it. 
+
+He smirked back at us as he stepped clear of the doorway. “Ladies first.”
+
+“*You’re* the one who wanted to do this,” I said, “so *you* should go first.”
+
+Chester shrugged. “Fine by me,” he said before slipping through the door. Danny quickly followed after him. I offered Zack a brief glance before stepping through the threshold. I half-expected Zack to not follow after me, but he ultimately did, closing the door behind him as he went.
+
+The new space we found ourselves in was far darker than the previous passage. It didn’t seem as though electricity was routed to this side of the building, and if it was, it at the very least wasn’t currently in use. The overhead lights, barely above useless with how dim they were in the previous hallway, were completely black here. Dark shadows swirled all around us; they seemed to dance to the muffled sounds of the haunt continuing on as normal on the other side of the door that Zack had just closed.
+
+I briefly heard rustling before a halo of light came to life with a soft click. Chester stood grinning with his flashlight’s beam shining beneath his face, his head a buoy floating in an ocean of darkness.
+
+“I think we’ll see better with one of these,” he said.
+
+I leered at him. “You were planning this the entire time, weren’t you?”
+
+“Guilty,” Chester said with a laugh.
+
+“You could’ve at least warned us so we could’ve brought our own flashlights,” Danny said.
+
+“You guys might not have come if I told you ahead of time,” Chester said. “Besides, too much light might scare away all the ghosts.”
+
+“There aren’t any ghosts,” I said. “Now let’s get this over with and get back to the haunt  before anybody realizes we’re back here.”
+
+Chester turned his flashlight ahead of him, revealing a long, narrow hallway. Darkness retreated from the influence of his light, giving way to a thick curtain of dust hanging in the air. Any dust that didn’t float all around us clung to the various articles of refuse that cluttered the hall. Tons of junk, from overturned wheelchairs to toppled stepladders to rusty filing cabinets, served to crowd the already tight space. Any movement forward would require us to meander our way past these obstacles, which looked to have been in place for many long, lonely years. I half-expected the illumination from the flashlight to turn them to dust on the spot, so long had they been trapped in a realm of pure darkness.
+
+“I guess they didn’t bother cleaning up every part of the asylum,” Danny said.
+
+“Should we really be breathing in this air?” Zack said. He immediately sneezed, as if his words had conjured the involuntary action.
+
+“We won’t be in here long enough for it to matter,” Chester said. “Now come on. We’ve got some ghost huntin’ to do.”
+
+He stepped forward, leading the way through the hazard-laden passage. The rest of us trudged through the space after him, each of us trying our best to not trip over something in the limited light. We passed by several doors on either side of the hallway, most of which hung open in rotting frames, or had otherwise fallen away from the threshold entirely. Chester shined his light into several of the rooms as we passed them, allowing us a brief glance into these tiny windows of the past. We appeared to be in a residential wing; most of the rooms looked to be bedrooms, though they stopped being inhabitable long ago. Dusty, moldy garbage filled them just as it filled the hallway, and what mattresses still remained on the tiny, single bedframes were so rotten that you could basically see through them to the floor.
+
+One room appeared to be something of a common area. Four decaying cushioned chairs sat in a semicircle facing a fifth, entirely wooden chair. An old CRT television sat collecting dust on a table behind the cushioned chairs, remaining completely ignored by the objects that should have been observing it. The purpose of this particular setup was a mystery to me, and I greatly disliked any ideas that my imagination could come up with.
+
+“I wonder what kind of shit they used to do to people in this place,” Danny said.
+
+Zack grimaced. “I don’t think I want to know…”
+
+We kept walking along the hallway, going single file for a lot of our trek due to all of the debris clogging up the passage. Chester led the way around the corner, where he stopped with his flashlight trained on something that the rest of us could not see. “Holy shit…”
+
+“What?” Zack asked. “What is it?”
+
+We frantically followed Chester around the bend. He stood looking at another length of hallway, his face pale in the glow of his flashlight. “I definitely just saw somebody walking down the hall up ahead.”
+
+His words sent a chill running through my body, but the rational part of my brain made me shake it off before I spoke. “It must have been a haunt employee.”
+
+Chester shook his head. “Can employees walk through walls?”
+
+Zack took a step back, suddenly stricken with terror. “Alright, I’m getting out of here.”
+
+“Already?” Chester said. “We’re just getting started!”
+
+“You saw your ghost,” Zack said. He turned to round the corner we had just come from. “Now it’s time for us to go before—”
+
+His words abandoned him mid-sentence. They disappeared into the silence of the asylum. “Danny?”
+
+I approached the corner, followed by Chester. “Where is he?” I asked.
+
+“I don’t know,” Zack said. “He was right behind me a minute ago, wasn’t he?”
+
+“Yeah,” Chester said. “Right before the ghost showed up.”
+
+The terror rose in Zack’s eyes, looking ready to escape from his body as frantic tears. “You don’t think the ghost took him, do you?”
+
+“No,” I said. “Even if ghosts *are* real, they can’t just *take* people.”
+
+“Maybe the ghost thought Danny was a patient,” Chester said, “like one of the lunatics they used to house here. Maybe it took him so it could lock him in a room.”
+
+I glared at Chester, but Zack began moving through the hall before I could speak. “Danny!” he said. “Danny, where are you?”
+
+Chester and I followed after him. Zack, guided by Chester’s flashlight from behind, looked into every room while calling his brother’s name. His words were once again stolen from him as he glanced into the common room, taking his forward motion with them. It took him a few moments to remember how to speak. “Danny?”
+
+Chester and I peered into the room. Aided by Chester’s light, we could see Danny hunched on the wooden chair, his face turned downward and covered by his messy mop of hair.
+
+“Danny?” Zack said again. “Are you alright?”
+
+Zack cautiously approached his brother while Chester and I stood in the doorway. I am embarrassed to admit that I was too nervous to even consider stepping through the threshold.
+
+Zack drew within inches of Danny, who still refused to acknowledge his twin’s existence. Zack, realizing that Danny wasn’t going to respond to his words, slowly reached a hand toward his brother’s shoulder. Even as it drew closer and closer, our seemingly comatose companion still refused to move.
+
+Danny stood up and lunged at Zack, shouting so loudly that his brother almost fell over backwards as he tried to get away. I also backpedaled from the doorframe, but my reaction paled in comparison to that of my startled friend. 
+
+Danny allowed Zack to scream in terror for a few moments before he broke out into laughter. His merriment was joined by Chester, the two of them leaving Zack and me confused as the hallway rattled with their inexplicable chortling. I eventually caught on to what was happening, my face tightening into a scowl.
+
+“You were *both* in on it this whole time!” I said.
+
+“Yeah,” Chester said as he brought his laughter under control. “And you should have seen the looks on your faces.” He turned to Danny. “Sitting in the chair was a nice touch.”
+
+Danny bowed with dramatized showmanship. “Thank you. I do what I can.”
+
+Zack, the fear having largely drained from him, glared at his brother. “Okay, you guys had your fun. Can we please just go now?”
+
+“Alright, alright,” Danny said. He looked at the lightbearer. “Lead the way, Chester.”
+
+Chester nodded and began making his way down the hallway toward the exit. The three of us followed after him. A heavy silence fell over us as we meandered through that cluttered, quiet passage. As I listened to our every footfall, I was suddenly gripped by a fresh sense of dread that at the time I couldn’t explain.
+
+Chester reached the door at the end of the hallway. He placed his hand on its knob and turned to look at us, briefly shining the flashlight in our direction. “We should make our way back into the haunt one at a time so that nobody notices us,” he said. “I’ll go first.”
+
+He turned back around, twisted the knob, pushed the door open…
+
+… and froze in his tracks. 
+
+On the other side of the door stood a T-shaped hallway, each branch of which went on for a while before ending in another door. The modular wall of the haunt was nowhere to be seen. 
+
+“What the hell?” Chester said as he shined the light through the doorway, frantically searching for the thing that should have been there. 
+
+Danny, taking in the sight of this unfamiliar passage, looked at Chester and frowned. “What’s going on?” he asked. “Where’s the way back into the haunt?”
+
+“I don’t know,” Chester said. “It’s supposed to be right here.”
+
+“Could we have gone the wrong way?”
+
+Chester shook his head. “No way, dude. This *has* to be the way back.”
+
+Zack’s face was awash with terror as he took in the implications of our friend’s words. I, on the other hand, wore a fresh scowl.
+
+“Oh, come on,” I said. “Hasn’t this prank already gone on long enough?”
+
+“You don’t really think that *we’re* doing this, do you?” Danny said.
+
+“Yeah,” Chester said. “How would that make any sense?”
+
+“You guys must have led us down the wrong hallway on purpose,” I said, suddenly feeling far less confident in that explanation even as it left my mouth.
+
+“How would we even do that?” Danny said while Chester tried opening and closing the door a few times. “Look around, dude. Do you see any other way we could have gone?”
+
+“It’s dark in here, and Chester is the only one with a flashlight,” I said. “Who knows what way you guys led us?”
+
+I did my best to sound more confident than I felt. Part of me knew that Danny was right, even if I didn’t want to admit it.
+
+“I’m telling you that we didn’t do this, dude,” Chester said as he continued to fruitlessly open and close the door. The genuine fear in his voice finally convinced me that he wasn’t lying. 
+
+“What’s going on?” Zack said, his voice on the verge of panic. “*What’s going on?!*”
+
+“Calm down, Zack,” Danny said. “We’ll figure this out. We just have to—”
+
+The sound of television static coming from down the hall brought us all to silence. We all turned in the direction of the noise, where we saw a square of flickering light coming from the common room. The four of us shared a brief glance of bewilderment before we abandoned what used to be our exit and crept toward the source of the disturbance.
+
+The layout of the common room had changed. The four cushioned chairs now sat in a straight line behind the wooden chair, on top of which rested the television. Gray static poured from the TV’s square screen despite it not appearing to be plugged into any discernable power source. Soon the screen’s picture came to life, revealing a video feed of a familiar-looking door, on the other side of which the muffled sound of the haunt could be heard through the TV’s speakers.
+
+We all stood in stunned disbelief as we stared at the television. None of us could conjure a single sentence. It was then that the sound of creaking floorboards drew out attention to the corner down the hall. All of our eyes followed Chester’s flashlight toward the bend in the passage, but nothing was there. It was as empty as it had been when he had walked away from it a few minutes earlier.
+
+Zack was the first one to return his gaze to the common room. The single word that he managed to croak from his gaping mouth caused us all to follow his lead. “What?”
+
+The room had changed again. Gone were the furniture and TV, replaced by a single closed door on the far side of the space. The sound of the haunt’s commotion continued to blare from the other side of the wall. To this day, I don’t know if it still sounded as if it was coming from old television speakers, or if my distressed mind merely conjured this sensation on its own.
+
+“There it is!” Chester said, his voice stirring up into a panic. “That has to be way out of here!” He was rushing forward, flashlight in hand, before any of us could stop him.
+
+“Wait, Chester!” I shouted, but he ignored my words. Instead he hurried his way to the door on the far side of the room and yanked it open without any hesitation. I couldn’t see his face, but I can only imagine what it must have looked like when he saw the blank wall resting on the other side of the threshold.
+
+The door between Chester and the rest of us suddenly slammed shut. The sound of the haunt’s commotion died away as the three of us shouted Chester’s name. Danny was the first to reach the door; he tried with all of his might to force it open, but it would not budge. It was as if it had been sealed shut with concrete mixed in the deepest, darkest pits of hell.
+
+It wasn’t until after a puzzled Danny had released his grip on the knob that the door finally creaked back open. Inside things were back to how they had been before: four chairs watching a fifth, with a dead television sat atop a table behind them. Resting on the wooden chair, its beam aimed toward the ceiling, was Chester’s flashlight. We watched as it balanced that way for a few moments before toppling over and landing with a crash that shattered its bulb, casting the room back into a world of impenetrable darkness. None of us were particularly interested in seeing what waited beyond those sinister shadows.
+
+The sound of the haunt suddenly echoed through the hallway again, this time coming from the door that we had originally come through down the hall. The three of us rushed toward the door, almost falling over obstacles as we went. We tore the door open and found that it once again led to the space behind the haunt’s modular wall. I shared a terrified glance with my two companions before we all silently decided to barrel through the doorway and rush back into the haunt. We startled a group of attraction-goers as we entered, which in turn alerted an employee to our recent activity. We were escorted out of the haunt in a matter of minutes; the security guards holding us all by our arms did not pay any mind to our surely frantic, certainly incoherent babbling.
+
+The three of us took several long minutes to collect ourselves as we stood outside of the building. Even though all of our minds were surely frantic with the terror of our recent ordeal, none of us spoke another word that night. We merely turned away from the asylum and walked away, our tails between our legs as we shivered in the late October air. We had a long walk ahead of us, and we couldn’t afford to waste our energy on words.
+
+If only we had known somebody who could have driven us home.
