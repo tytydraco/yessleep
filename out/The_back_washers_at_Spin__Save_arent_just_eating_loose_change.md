@@ -1,0 +1,135 @@
+If you live in town, you'll probably see my silver Tacoma parked next to the dumpsters in the parking lot at some point before the sun comes up. Headlights on and the door open... if it hasn't been stolen by now.
+
+I wouldn't be here if that drunk tourist at table 4 didn't throw a gin and tonic on the blackjack table at 10:30 tonight. I deal cards at a casino. When I left my shirt was covered in tonic and my feet were killing me from standing on carpet for 8 hours. People kept telling me I sucked while I was making 21 out of shit hands like I was MacGyver. My boss already told me off for coming to work with a shirt that had a hole in the collar last week. My washer at home shit itself and died over the weekend. I have 3 black shirts and 2 pairs of slacks that I can wear to work. I needed to wash them if I wanted to look presentable tomorrow.
+
+Spin & Save is at the end of a rundown concrete strip mall. There's some pizza place called Maximum Power Pizza and an arcade that I can't remember the name of. I got to the parking lot at 12:15 AM. There were no cars parked along the yellow lines. The inside of the store was just like it was when it first opened in 1994. Two rows of 30 stainless steel front loading washers painted the color of a school bus. Four folding tables made of fiberglass and 15 industrial machines that hold 50lbs of clothes along the back wall. About half of the fluorescent lights on the 8-foot ceiling were flickering.
+
+I walked in with my laundry bag and let the foggy door close behind me.
+
+I put my black shirts and slacks in washer #12 which was in the middle row. Added some detergent to the top of the machine and spilled some on the floor. Walked over to the coin changer that was bolted to the pillar by the front window. I put a fresh 5-dollar bill in the machine.
+
+It shook and gave me 19 quarters. It shorted me one quarter but I wasn't going to complain about one quarter. Maybe they do it on purpose, I thought. Short you one quarter at a time so you don't notice. Probably making thousands a year off of that little scam. I figured I was just thinking too much into it.
+
+I picked up the coins and one felt off. I held it up to the light. It was a 1978 quarter that was bent in half. Like someone squeezed it with a pair of vices. What was weird about it was that it was hot. Like it just came out of the oven hot. And it had a rusty like substance on it.
+
+I wiped my hands off on my jeans and left the quarter on top of the coin changer. That's 2 quarters I've been robbed of now. They must be making 6 figures robbing people.
+
+I put 6 normal quarters in the machine and pushed the plunger in. The magnetic lock on the door clunked shut and water started to pour into the machine.
+
+I realized that washer #12 wasn't the only machine that was on.
+
+At the end of the back wall. Past the broken vending machine and overflowing trash can.
+
+\#14 was on.
+
+I stood there for a moment. I had scanned the parking lot when I walked in. I had walked past the small bathroom by the entrance. The door was open with a piece of wood holding it open. No light was on inside. There was no one in the place.
+
+But machine #14 was on.
+
+*Weird.*
+
+I walked down the row of washers. My shoes made a sucking sound on the sticky floor. As I got closer to the back wall I could feel the heat coming off of the thing. The digital display above the door was barely on.
+
+There was something in there.
+
+Every time the drum rotated there was a large mass of something wet that would rise to the top and fall again onto the paddles on the bottom of the machine. It made all the machines shake.
+
+*Thump scrape clink. Thump scrape clink.*
+
+There was something else in the machine besides the mass of wet material. I could hear what sounded like change rattling around.
+
+I stopped about 4 feet from the thing. The window on it was covered in some type of gunk. Only about 3 inches of the window was clear in the middle. I watched the mass hit the bottom of the machine.
+
+A hand slammed into the clear portion of the window.
+
+It was a pale human hand. The fingers were extremely swollen and stubby like they had been expanded and the skin was wrinkled from being in hot water. Two of the nails were missing. The hand stayed on the window for a second fighting the rotation of the machine. Then it was pulled back into the mass of wet clothes.
+
+I backed up until I hit one of the folding tables.
+
+I assumed that someone put a body in the machine and left before I got there. I reached into my pocket, grabbed my phone, and unlocked the screen to call the police. My finger hovered over the dialer, but I figured I needed to hit stop on the machine first and get out of there. I wasn't sure if I was just losing my mind or seeing things.
+
+I ran. I didn't care about my 3 black shirts or getting in trouble from my boss tomorrow.
+
+I ran towards the front doors. My truck was only 20 feet away from the store. It was parked under the floodlight and I could see the exhaust coming out of the tail pipe.
+
+I stopped about 10 feet from the front window.
+
+My truck was gone.
+
+The parking lot was gone. The dumpsters were gone. The mattress store that was across the street was gone. The highway was gone. There was a wall of machine lint pressed up against the outside of the store. I could see hair, red string, quarters and moths packed against the glass. It looked like there was at least 10 feet of lint outside the store.
+
+I pushed on the door. The lock released and the door opened about an inch. It hit the wall of lint. Some dust blew in from around the door.
+
+The buzzer on machine #14 went off.
+
+It went off for about 10 seconds and then stopped.
+
+The door to machine #14 opened.
+
+A cloud of gray steam came out of the machine. It rolled across the floor.
+
+I got on my belly and crawled under one of the folding tables. I pulled my legs up and hid. From where I was, I could see the bottom of machine #14.
+
+A hand came out of it and grabbed the bottom of the door.
+
+It was the same hand I saw through the window. I could see the arm that was attached to it. It was hairy and thick at the forearm and it had scalding burns all over it.
+
+A foot came out of the machine and landed on the floor.
+
+The foot was at least size 14. It was covered in long tube socks and the calf was meaty and hairy.
+
+The thing started to unfold itself out of the machine. It made the sounds of breaking bones and soft tissue tearing as it came out.
+
+More of it came out. Another leg that was fused with blue jeans sewed into the skin. A body that was covered in burnt sheets and blouses. Another arm that had 9 knuckles on its hand. When its head came out of the machine it was looking up at the ceiling.
+
+It had no eyes or nose. A gray sheet was stretched over its face clinging to it and tied around the neck. It was sucked into its eye sockets and its mouth. Its mouth was open all the way to its neck. It had no teeth. Just house keys and safety pins and quarters that were jammed into its mouth making up what it would use as teeth. Every time it breathed the keys and quarters would rattle.
+
+*Chink clink clatter.*
+
+It stood in front of the machine for a moment. Then it turned and looked at washer #12. It was starting to spin.
+
+It walked down the row of machines. It had a hitch in its step. One leg was longer than the other. Water and lint were dripping off of it.
+
+I put my hands over my mouth. I was scared that my heart was beating too loud.
+
+It stopped 6 feet in front of me.
+
+Its hairy old man feet were right in front of my face with its burned sores weeping and oozing. I could see where a little girl's pink sock was sewn into its leg. I could hear its spine crack as it bent over to look into my washer.
+
+Then I heard the washer door rip off.
+
+It reached and pulled the door off while the washer was still spinning. Water splashed all over the floor.
+
+It reached into the washer and grabbed one of my wet black shirts. It brought it up to its face and took a deep breath.
+
+Then it stopped.
+
+It dropped my shirt on the floor.
+
+Its neck cracked as it looked down at me.
+
+The sheet over its mouth sucked in and out. A voice came from behind the sheet. It sounded like a broken cassette tape.
+
+"Left... in... the... pocket..."
+
+I didn't think. When I felt something reach under the table I kicked backwards. I went flying out the other side of the table.
+
+The thing screamed.
+
+It sounded just like the buzzer on the machine.
+
+I got up and slipped on the soapy floor. I grabbed onto a laundry cart and pushed it into the thing. It tangled up its legs for a second.
+
+I had to get out of there. The front doors were blocked. The bathroom had no windows.
+
+The washer… Where the thing came out of… it was open.
+
+I can see it now.
+
+There is a maintenance access hollowed out behind the drum inside the back of the machine. An iron tunnel packed with decades of trapped junk. I scrambled through the hatch, slammed the heavy metal service panel shut behind me, and dropped the rusted bolt into the latch.
+
+The thing is hammering on the other side of the iron plate right now. Every blow rattles the bolts and sends loose copper coins scattering across the floor around my knees.
+
+I'm crouched in the dark between the rear exhaust ducts. My phone still has one bar bouncing off whatever tower is cutting through the concrete, and I'm typing this as fast as my hands will let me while they are shaking.
+
+I just realized my truck keys aren't in my pocket. I accidently left them in the front pocket of the hoodie I wore in here and took off.. soaking on the floor in front of washer #12. If someone is reading this in town, please help. You got to bring bolt cutters to the rear alley behind Spin & Save. I think there is a back way into the main building that is chained from the outside. 
