@@ -94,4 +94,4 @@ None of us had ever seen Officer Stitch act so out of character, but none of us 
 
 “I know you all know about Danny’s disappearance. I know Danny was also a little bit of a troublemaker, but that doesn’t negate the fact that this child, this fellow classmate, needs our help. So, if anyone knows anything, and I mean anything in regard to his disappearance, please talk to your teachers or any school faculty so we can find him.”
 
-I wouldn’t. I couldn’t. What would I even say? So I buried my shame, and I hid my sin in the [closet](https://www.reddit.com/r/t5_knbooj/s/fkvAdav9Gt).
+I wouldn’t. I couldn’t. What would I even say? So I buried my shame, and I hid my sin in the [closet](https://www.reddit.com/r/DeepInTheMarrow).

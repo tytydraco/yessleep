@@ -1,0 +1,619 @@
+I’ve been a cop for twenty-two years and a homicide detective for eleven. I’ve seen more than my share of horrible things, and none of them prepared me for the Penguin Hotel. I’m going to tell this in order. It’s the only way I can keep it straight.
+
+My sergeant called at 1:15 in the morning, ready to apologize for waking me. I was awake. I’m an insomniac. I don’t think I have a disorder, I just hate sleeping. It feels like a waste of hours that could go to something useful. That night I was in my recliner reading a book by a man named Nickell, who spent his career explaining haunted houses, and I was enjoying myself.
+
+“Ray,” Sergeant Alvarez said. “The Marshals lost a witness at the Penguin Hotel. Gunshot to the head. They’re calling it a self-inflicted but once you hear who it is, I’m sure you’ll be as skeptical as I am.”
+
+That alone told me who it was. Jimmy M. had been the right hand of a mob boss named Wallace for fifteen years, and he’d spent those fifteen years being the reason certain people in this city stopped showing up to things. At ten that morning he was supposed to testify to all of it. Among law enforcement, he was the only thing anyone was talking about.
+
+I was out of the door in nine minutes. I called my partner on the way. While the phone rang, I thought about what solving this would do for my career, and what screwing it up would do.
+
+Danny had been in Homicide for five years, and my partner for all of them. He was thirty-six, thin, with a tie that never sat right and hair that wouldn’t lie flat no matter what he put in it. I still called him Rookie. I liked him more than I would ever tell him.
+
+It rang out the first time. His wife answered the second time, whispering, and I asked her to wake him. I was almost at the hotel when he finally came on the line.
+
+“This better be a body,” Danny said.
+
+“It’s a body. I could handle it alone, but it’s Jimmy.”
+
+“Which Jimmy?”
+
+“THE Jimmy.”
+
+“Then handle it, Boss. Tell everybody I was there in spirit.”
+
+“There are a lot of eyes on this one. Another body at the Penguin, and this time it’s Jimmy.”
+
+“Hold on. Did you say the Penguin?”
+
+“You know it?”
+
+I could hear the grin through the phone. “Do I know the most haunted hotel in the city? Yeah, I might have heard of it.”
+
+I had forgotten that Danny was into ghosts and ghouls. We don’t talk about it. I’m about as skeptical as a person can get, and Danny learned in our first year that I’m just as opinionated about it as he is, so we handle the supernatural the way you handle politics at Thanksgiving. He sounded wide awake now.
+
+“It’s thirty minutes from my place. I’ll be there in ten.”
+
+“Be there in thirty. There are enough crazies on the road at this hour. I don’t want you wrapped around a telephone pole.”
+
+He chuckled. “Sure thing, Boss.”
+
+I got to the Penguin at 1:50. There were cruisers everywhere. Before I looked at the hotel, I looked at the cafe across the street. Two men in windbreakers sat at a table under the awning, each with a full cup of coffee they weren’t drinking, both staring up at the building. Marshals. Inside, a lone civilian sat in a corner booth, typing on a laptop. He looked tired.
+
+Someone coughed politely behind me. I turned around and found a beat cop who looked about fifteen.
+
+“Jeez. Are you the reporting officer?”
+
+“Yes, sir. I secured the scene. My partner is guarding it now.”
+
+“Have the Marshals finished trampling all over it?”
+
+“No, sir. They haven’t gone in. They’ve been waiting for you.”
+
+“That’s a pleasant surprise. Ok, start from the beginning.”
+
+“The Marshals called in a self-inflicted shooting. The ambulance got here first, but the door was deadbolted from the inside and wedged shut. It took them over an hour to break it down. By the time they got in, he was long gone.”
+
+“And the paramedics left him there?”
+
+“To be honest, sir, I don’t blame them. They took one step inside and turned around. They said they got a really bad feeling.”
+
+“A bad feeling?” I asked, deadpan.
+
+“Yes, sir. I did too when I got close. And it’s not just a feeling. The hotel is… well, stay there long enough and you’ll hear strange noises too.”
+
+I held up a hand. “That’s enough. I’ll come to my own conclusions. Where’s the room?”
+
+“Fourth floor, 412. End of the hall, on the right.”
+
+“Which, I’m guessing, puts it right about there,” I said, pointing at a window high above us.
+
+“Yes, sir.”
+
+“Which explains the Marshals at the cafe.”  
+  
+“What?”
+
+I didn’t answer, I just left him squinting up at the window and walked toward the hotel. Right as I reached the awning, heavy drops started hitting it, and then the whole street was getting hammered.
+
+The Penguin is an old brick building, eleven floors, built in the twenties. It looks like it was designed by someone who’d been told what a hotel was but had never stayed in one. Dark wood and heavy curtains everywhere. Opening the front door made a loud, ominous bell ring.
+
+I knew the reputation. I didn’t believe in the ghost stories, but seven people had died in this building, and the lobby made sure you knew it. Across from the door, framed on the wall, were newspaper articles about each death.
+
+At the end of the lobby was a front desk with a woman behind it in black clothes and gothic makeup. I tried not to roll my eyes. On the other side of the desk stood a woman who was clearly the highest ranking Marshal. She was older, with gray in her ponytail and the look of someone who hadn’t slept and was about to be blamed for it.
+
+“Assistant Chief Deputy Truzzi,” she said. “I was here all night, and I can answer anything you need right now.”
+
+“Good. Walk me through what’s happened.”
+
+“We checked in at four p.m. yesterday. We got our witness settled, finished our security sweeps, and I set up in the conference room. We had one Marshal posted at the end of the fourth floor hall, two across the street watching the only window, and the rest down here with me. Our radios have been on the fritz since just before five, so we’ve been using runners.”
+
+“What happened?”
+
+“Jimmy asked for privacy. He’d rented several… videos and didn’t want company, so I allowed it. At midnight two Marshals went to do the scheduled check but got no answer. The door was deadbolted and wedged from the inside. Because of the circumstances, we assumed a medical emergency and called for an ambulance while we started breaking down the door.”  
+  
+“And that’s when you discovered the victim had been shot.”  
+  
+“That’s correct.”  
+  
+“But no one had heard a gunshot?”  
+  
+“Detective, yes, we probably did hear the gunshot, at least the Marshals stationed on the 4th floor and in the elevator probably did. But this building has all sorts of unexplained bangs. Something wrong with the pipes, maybe.”
+
+“Maybe. Anything in Jimmy’s recent behavior that said he might hurt himself?”
+
+“No. I spent most of the day with him. He was in high spirits. He hated Wallace and he was practically giddy about screwing him over.”
+
+“Are all your firearms accounted for?”
+
+“I had my people quadruple check and audit each other. Nothing’s missing, weapons, backups, ammunition, all accounted for.”
+
+“Then how does a man in protective custody get a gun? Could it have been stashed in the room ahead of time?”
+
+“This hotel and that room were chosen at random, at the last minute, and the room was swept before he arrived.”
+
+“All right. I’ll have more questions later. For now I want every one of your people to write out a statement, from the start of their shift to right now.”
+
+She led me to the conference room, where fourteen other Marshals and two paramedics sat around a table. I handed out blank statements and watched them start writing. Nobody argued with me. Nobody even rolled their eyes.
+
+I went back out to the lobby. The receptionist was gone, and the place was quiet. I stood in front of the framed articles with nothing to do but read them. Seven articles. I counted the frames anyway, out of habit.
+
+Eight frames. The last one held nothing but empty matting and a small brass plate with no name on it.
+
+My cop brain filed it under marketing. Then, somewhere above me, something knocked three times, evenly spaced, like someone using their knuckles on the inside of a pipe. I told myself it was the building.
+
+“Sorry I’m late. Traffic was...”
+
+I turned around. Danny stood in the middle of the lobby, tie crooked, hair doing its usual thing. He pointed at a pamphlet tower advertising “Midnight Murder Tours,” and tapped the second word.
+
+“Murder.”
+
+“Glad to have your sense of humor tonight, Rookie.”
+
+“What’s wrong? Has this place spooked you already?”
+
+“Something’s off, but it’s not ghouls. The victim was supposedly alone in a locked room, with a bullet hole, so it has to be self-inflicted. And yet, I haven’t gotten one ounce of pushback from the Marshals. They’re rolling over and handing me their crime scene.”
+
+“So they know it’s murder, they think it’s one of their own, and they’re being nice so it doesn’t look like they helped the guy when we catch him.”
+
+“Maybe. Maybe they just like me. Come on, let’s go see the body.”
+
+I tried to radio in that Danny had arrived. Static. I pushed the elevator button and tried again. Static.
+
+The doors opened and the receptionist was standing inside. She looked startled to see us.
+
+“And where have you been, Miss?” Danny said, in the tone he uses when he’s having more fun than he should be.
+
+Her eyes went to me. “I didn’t go in the room,” she said. “I swear.”
+
+She’d answered a question nobody had asked, which is how I knew she’d been sweating it. “But you looked in.”
+
+“Just a little. You can call me Linda.”
+
+“Linda, stay away from the crime scene.”
+
+She nodded fast, then started back toward her desk. 
+
+I tried radioing the station again before entering the elevator but still got nothing but static.
+
+Linda called to us from behind the desk, “Sorry. Our walkies have all been dead since just before five yesterday. Same with the Marshals’. The ghosts have been really active lately.”
+
+“That’s convenient,” I said.
+
+“It’s really not. It’s been a pain.”
+
+I checked my cell phone. No service.
+
+“It’s an old building,” I told Danny. “Probably steel in the walls. It kills the signal.”
+
+“You don’t really believe that.”
+
+I stepped into the elevator. The back wall was polished brass, and I got a good look at my own tired face in it. Danny stood too close to it, so his own reflection looked warped and twisted. He turned and leaned his back on it while looking very, very smug.  
+  
+“Trust me, ghosts have nothing to do with it,” I said, and pushed 4.
+
+The beat cop was still guarding 412. He saw us coming and nearly wept. “Oh, thank God. It’s your scene now. Can I go?”
+
+I’d been ready to chew him out. But he was terrified, whether he should have been or not. “Go on, kid. Get out of here.”
+
+“Did you see anything in there?” Danny asked him. “What happened?”
+
+The cop didn’t answer. He was already running for the stairs. Danny and I looked at each other, and then we went in.
+
+The temperature dropped about fifteen degrees the second we crossed the threshold. My breath came out in a little cloud. Something felt wrong in a way I can’t put on a form. I had an overwhelming urge to check behind me, and when I did, the hallway was empty.
+
+“It’s freezing in here,” I said.
+
+“Is it?” Danny said. “I run hot.”
+
+Despite his words, I noticed that had his hands in his pockets. I actually appreciated that. Danny’s a toucher, and I often had to remind him that we look with our eyes, not our hands.
+
+The room was small. A coffee table sat directly ahead, and to its right was a chest-high dresser with a TV on it, showing nothing but static and filling the room with a sick blue glow. Past the table, a bathroom door stood half open, light on. To the left was a small couch, and past that a bed, with a cheap framed print of a sailing ship over its foot. In the bed, sitting upright, was Jimmy.
+
+He was wearing an open bathrobe and nothing else, legs tucked under the blankets. The blood from the neat little hole in his forehead had stopped long ago. His eyes were wide open. He held a TV remote and nothing else.
+
+“That doesn’t look self-inflicted,” Danny said.
+
+“No.”
+
+We cleared the room and the bathroom to be sure we were alone. The whole time, I was looking for the gun. The vents were the size of a paperback. The window had been painted shut, literally. Down on the street, through the rain, I could see the Marshals at their table, and the lone civilian still at his laptop in the cafe. He looked up at the window as I looked down. Everybody looks at a lit window.
+
+I checked under the sheets and under the bed. Nothing. The pit in my stomach kept growing, and the feeling of being watched wouldn’t go away. I turned in a slow circle looking for cameras. There weren’t any.
+
+Danny was grinning at me. “You feel it too. The ghosts are watching. Maybe even hunting.”
+
+“If you really believe that, let’s not stay longer than we need to.”
+
+“Sure, but there’s no gun. We looked everywhere.”
+
+“I know.”  
+  
+“So, this is definitely murder.”
+
+“I know.”
+
+“Ok, Ok, just trying to set reasonable expectations.”
+
+I took photographs of the body. Jimmy’s face was stuck in a look of surprise. “Died in shock, eyes wide,” I said.
+
+“Or fear.”
+
+I ignored that. “Where’s your flashlight?”
+
+He patted his pockets. “Left it in the car.”
+
+“Some detective you are.”
+
+“Yes. I am a detective who has a very organized car.”
+
+I pulled out my own flashlight and examined the body closer yet the light didn’t reveal any new clues. I stood it on the nightstand, creating a beam of white light to the ceiling. Then I tried my radio again. Static, and then, under it, something that sounded almost like a voice.
+
+“Did you hear that?” Danny said. “It said look out!”
+
+“It was static.”
+
+My flashlight beam went weak and died. Danny pointed at it, delighted, and I waved him off before he could say anything.
+
+“Old batteries. I have a fresh pair in my pocket because I knew they were going.” I swapped them out and the light came back, and I put it on the nightstand again. “Look around for clues, Rookie. I’ll check the walls for hidden doors.”
+
+“Did the Marshals do any research on this place at all?” Danny said, wandering the room with his hands still in his pockets. “What if Jimmy killed somebody here years ago and they came back to return the favor?”
+
+“Since when do ghosts use guns?”
+
+“You’ve never heard of ghost bullets? Rare, but it happens. The ghost’s malice and the victim’s own mind work together and an injury just appears. It’s the same reason a big guy goes down when he gets hit with one little bullet. He expects to. With spiritual energy backing it up, I bet there won’t even be a bullet at the autopsy.”
+
+“That’s the dumbest thing I’ve ever heard. And it’s a small hole and no exit wound, so the bullet’s still in his head.”
+
+“It was just a theory. They say a witch haunts this floor too, you know. A real ugly hag.”
+
+Something moved in the corner of my eye, on my right. Danny was on my left, bent over a potted plant, so I spun around. Nothing. When I turned back, there was a mirror in front of me.
+
+It hadn’t been there before. I’m sure of that. I moved left, and the man in the mirror moved left. I moved right.
+
+My reflection moved with me, and behind it, an old woman stood where I’d just been standing.
+
+I whipped around so hard Danny jumped. We were alone in the room.
+
+“You saw her,” Danny said. “Didn’t you?”
+
+“No. That was just my eyes playing a trick on me.”
+
+I turned back to a blank wall. Then blood started seeping down it from the ceiling, slow and dark, spreading in lines.
+
+“Danny,” I said, as evenly as I could. “I think something’s wrong with this room. It’s not ghosts. The owner’s done something. There’s some kind of hallucinogen in the air. Are you seeing anything weird?”
+
+“A little. Stuff at the edge of my eye. Something moving behind the curtains, like somebody walking past a door. But not a full body apparition or anything cool.”  
+  
+He turned to me and looked serious for the first time tonight. “I do have something to confess though. Ever since I came into this building I’ve had this dread. Like I’m a dead man walking.”
+
+“You think you’re going to die here?”
+
+“That’s what I thought at first.”
+
+“Then why not leave? I can handle this.”
+
+“Because it also makes me feel really alive. It’s the most excited I’ve been in years. But I think I read it wrong. I still think something bad is coming. What if it’s coming for you?”
+
+“Nothing’s coming for me.”
+
+“You look like you’ve seen a ghost, Boss.”
+
+“I saw something, and it wasn’t a ghost, because ghosts don’t exist.”
+
+“Or maybe you’re getting the worst of it because I respect them and you don’t. Maybe they like me.”
+
+“Or you’ve got a bigger nose than I do and can’t smell the...” I stopped.
+
+Something moved again. I looked, and a second mirror hung on the wall. This one I was sure was real, because it had been there when we came in. But when I looked into it, the room looked back empty. Danny and I had no reflections.
+
+I crept up on it like it might bolt. I touched it, and my hand went through, like reaching into a neighboring room. Beyond that wall there was nothing but the outside.
+
+I put my whole arm through, up to the elbow. “Danny, what does this look like?”
+
+He answered, but his words came out backward and slurred. I couldn’t understand any of it.
+
+The room on the other side stretched for miles, repeating itself, lit by the blue glow of a thousand TVs. I looked down and thought about climbing in.
+
+Something lay right below me. It looked like two heavy, flexible men, each in a different yoga pose, fused together at the pelvis and then wrapped like a present, with a thin layer of meat for wrapping paper. While I stared, a giant eyelid opened on one of their backs. An eye the size of a beach ball rolled around until it found me.
+
+I couldn’t look away. I reached blindly behind me for anything, and my hand closed on a statuette on the bedside table. I dropped it into the mirror, right into the eye.
+
+It shattered.
+
+“Boss! What the heck are you doing?”
+
+I was standing in front of a broken mirror. The statuette lay in the pieces at my feet.
+
+“What did that look like to you?”
+
+“You were staring at yourself. Then you threw the angel at it.”
+
+“That’s not what I experienced.”
+
+“Of course not. You’re being targeted by malevolent forces.”
+
+The lights dimmed as if on cue. I grabbed my flashlight and turned it on, swept the beam across the room, and found nothing. I thought about it.
+
+“I need a little more time to figure out the difference between us. Maybe you have a deviated septum.”
+
+“Boss, there’s a simpler explanation. The ghosts like me.”
+
+Right then, two things happened. My flashlight died again. And the TV switched from static to a picture of an old hag, who slammed both hands against the screen from the inside and screamed.
+
+Danny made a sound I’d never heard from him. I may have made it too. We both ran for the hallway, and I didn’t stop until I’d caught my breath out there. The dread was gone, the second I crossed the threshold.
+
+Danny started laughing, shakily, and I wasn’t ready to join in.
+
+“So I was wrong,” he said. “They don’t like me either.”
+
+“There are no such things as ghosts.”
+
+“After all that? The witch? The voices?”
+
+“What voices?”
+
+“You don’t hear that?” Danny tilted his head. “I can still hear them from out here.”
+
+His hearing was always better than mine, so I trusted him. I listened. Nothing. I pressed my ear to the wall, and Danny leaned in next to me. Through the plaster, muffled, a woman and a man were arguing. I couldn’t make out words, only the shape of it.
+
+I pulled away and headed for the elevator. I jammed my thumb into the call button three times.
+
+We rode down in silence. In the brass wall I watched my face and tried to make it look like someone who’d had a normal evening.
+
+“Boss, you’ve got something on your hand.”
+
+A white streak ran across the back of my right palm. “Paint, probably, off one of the walls.”
+
+I rubbed it between my fingers, rolled it into a little ball. It didn’t feel like paint. I smelled peppermint.
+
+“It’s toothpaste.”
+
+“Why do you have toothpaste on your hand?”
+
+“I don’t know.”
+
+The elevator lights died with one floor to go. I was more annoyed than scared at this point. I forced the doors and walked out into the lobby, pointed at Linda, who was back at her desk, and told her to follow me. Danny and I went straight to the conference room, Linda trailing.
+
+Everyone had finished writing. Most of them were just sitting around looking bored. I went straight to Truzzi.
+
+“Why are there other guests on the fourth floor?”
+
+“What?”
+
+“I just heard *I Love Lucy* playing through the wall of room 410. Who’s in that room?”
+
+Truzzi sighed. “A Mr. Heene. Look, we were never supposed to be here. We’d bought out an entire floor at the first hotel, but our location was compromised. We picked this place at random, at the last minute, and some of the rooms were already booked. There’s no way anyone could have known Jimmy would be here.”
+
+“I should have been warned.”
+
+“We like to know ahead of time if we could be ambushed,” Danny said.
+
+Truzzi looked at me for a moment. “You’re right. I’m sorry. There’s no excuse.”
+
+“It might not have been planned, but they could still be involved. Maybe it was improvised, once the opportunity came up. Heene’s my top suspect.”
+
+She gave a snort. “We screened everyone in the building. None of them have registered firearms or relevant records. We interviewed them. Mr. Heene is not a killer. You’ll see that yourself in about two minutes.”
+
+“That’s what I intend to find out. Linda, you’re coming with me. But first I have questions.”
+
+“Sure. Happy to help.”
+
+“I want total honesty. Does this hotel use any tricks to make people think it’s haunted?”
+
+She hesitated.
+
+“A man is dead,” Danny said. “Now’s not the time to hold back.”
+
+“No,” Linda said. “I don’t think so. I told the Marshals 412 was a bad room. I’ve seen ghosts in there myself, many times.”
+
+I wrote her words down in my notepad as if I believed them. A lot of my job is quietly manipulating people, and I know a pro when I see one. “Why 412? Was it one of the seven deaths?”
+
+“The owner won’t say which rooms.”
+
+“Let me guess. He leaves the room numbers out of the articles so every guest wonders if they’re in one of those rooms. And the eighth frame is for the next one.”
+
+She hesitated again. “Yes.”
+
+“Who’s the owner? Can we talk to him?”
+
+“Mr. Pruitt. He travels between his properties. I think he’s in Texas right now. We could try to arrange something.”
+
+“I’d like that. For now, could we see the office he keeps here?”
+
+“Only Mr. Pruitt has access. It’s in the basement. He’s the only one with a key and the passcode.”
+
+“I see.”
+
+Danny leaned in. “Boss. Basement. Come on. Somebody’s down there running all this. We should kick the door in.”
+
+“Nobody’s down there,” I muttered. “It’ll all be on timers and relays. A man in the basement is a lot of salary. The scheme works better with nobody.”
+
+“You’d bet your pension on that?”
+
+“On a lot of things.”
+
+He didn’t answer.
+
+We started with the occupied rooms on four, closest to the elevator. I felt what I’d call a normal amount of dread when we stepped off, and everything looked relatively normal as we reached 403. The couple in there were in their eighties. They came every year on their anniversary and had slept through everything interesting, so I let them go back to bed.
+
+The widow in 406 had been awake with insomnia. She’d heard a lot of what Danny and I had gone through. She’d also heard a child laughing in the hall around midnight, and knocking on her door at all hours. She said she couldn’t pick out a sound that was obviously a gunshot and didn’t seem like she could be any more help. So we moved on.
+
+There was only 410 left. Mr. Heene was young, with a nervous manner. Or maybe guilt. He sat on the edge of his bed with his hands between his knees and sweated through his entire shirt while I questioned him. He was a regional sales rep for a medical supply company. His room was the only one that shared a wall with 412. I noted that the bed had been pushed flat against that wall, which seemed an odd choice.
+
+“Did you hear anything last night, Mr. Heene?”
+
+“No. I had headphones in. This place makes so many noises that I can’t sleep otherwise.”
+
+“Did anyone knock on your door?”
+
+“I heard knocking, but nobody was ever there when I checked.”
+
+“Did you leave your room at any point?”
+
+“No. I ordered food and watched TV.”
+
+“The deputies asked if you had any weapons when you checked in.”
+
+“I told them no.”
+
+“You told them no.”
+
+“Because I don’t have any.”
+
+He looked at me the whole time he said it. He didn’t look anywhere else. Danny leaned close and said Heene was sweating buckets. I told him under my breath that people sweat around cops.
+
+“Maybe,” Danny said.
+
+His record was clean. He looked harmless to me. Truzzi was right on that point. I’ve met plenty of killers, and he looked nothing like them, though if there’s one thing I’ve learned above all else, it’s that people can surprise you. I asked to look around. He seemed to get even more nervous, which gave me an idea about what was really going on. After I searched his room, I told Danny it was time to go back to 412.
+
+We’d barely stepped into the hallway when we heard a child laugh. It was close, coming from the vent at the end of the hall. A little kid’s laugh, the kind you hear at a playground. It stopped, started again a few seconds later, and then someone knocked three times from inside the wall.
+
+“I’m hearing it too,” Danny said. “It’s getting worse.”
+
+“There’s no haunting. This is the owner’s work. He’s rigged all of it. He may have nothing to do with Jimmy’s murder, but I do find it suspicious that he’s been training his guests to ignore loud bangs.”
+
+“So what, he’s got a tape recorder in the wall?”
+
+“A building he’s owned for decades? Speakers for the voices, mechanical hammers for the knocking. Easy.”
+
+“That doesn’t explain what we saw.”
+
+“Hallucinations. Not visions. And I’ve had time to think about it. There was a scientist who started a new job at a lab. Everyone told him to stay out of Lab D. Labs A through C were fine, but D was haunted.”
+
+“I like him already.”
+
+“He didn’t. He said, we’re scientists, we ought to be able to use science to find out. So he studied everything about the labs and found the one thing that separated D from the others. There was a fan, and it vibrated at a very low frequency, too low to hear. The people in the room felt dread, they saw gray shapes in the corner of their eyes. Once they fixed the fan, the haunting stopped. He went on to become an expert.”
+
+“But that only makes people hear things.”
+
+“Your brain tries to make sense of what it’s picking up, so it builds a picture to match. That’s why I didn’t see the witch until you mentioned her. And I know it was a hallucination, because the witch on the TV looked nothing like the one I saw first.”
+
+The elevator at the end of the hall chimed. The doors slid open. Nobody was inside. The light in the car flickered, the doors stood open for a long time, and then they slowly closed.
+
+“You think that was just old pipes?” Danny asked.
+
+“This hotel’s entire existence depends on people believing it’s haunted. Try to appreciate the scale of the con, Rookie. I’ll bet old Pruitt has speakers in every wall, and some kind of timer on the elevator, and I’ll bet it all runs without a single person lifting a finger.”
+
+We went back into 412. The dread came right back, and I figured I had a little time before the hallucinations ramped up again. I pulled the ship print off its nail, and behind it, the plaster was white and smeared. A neat hole had been poked through the little smokestack in the watercolor. I’d looked at that print for ten minutes and thought it was just bad art.
+
+I held a pen to the wound in Jimmy’s forehead to find the angle. Danny stood at the foot of the bed and sighted down it, calling out corrections, hands still in his pockets. The line ran straight to the hole.
+
+I touched the wall and a blob of white came off on my finger. I sniffed it.
+
+“Toothpaste.”
+
+“Well, that settles it. Ready to make an arrest?”
+
+“Not quite.”
+
+I went to the nightstand. It was a solid block of wood, sturdy for a thing that was only holding Jimmy’s phone, wallet, and keys. I tried the phone. Dead. I pushed and prodded the wood and found I could lift the whole box off. Underneath was metal. I touched it and yelped as a small shock went through my fingers.
+
+“What is it?”
+
+“A joule thief. It’s a circuit that pulls every last drop of power out of anything with a battery that’s sitting near it. Flashlights. Phones. Anything.”
+
+“So that’s what killed the flashlight. Congratulations, you’ve proven my entire life is a lie. Should we rip up the walls and find the speakers?”
+
+“No. I have all the proof I need that the owner is scamming his guests. But that’s not why we’re here.”
+
+“No. It isn’t.”
+
+We went next door and I knocked. Mr. Heene opened the door like he was expecting us. Behind him, a suitcase sat open on the bed, half-filled.
+
+“Mr. Heene. I’d like to see your wall.”
+
+He said nothing. He just stepped back. I pulled the bed away from the wall. Behind the headboard was a hole the size of a pencil, stuffed with white paste, some of it dried and cracked. A travel tube of toothpaste, nearly empty, sat on the bathroom counter.
+
+“I can explain,” Heene said, and then he sat down on the carpet and started to cry.
+
+It came out slowly. He’d checked in with nothing. The deputies had asked about weapons and he’d told them the truth. But in the hotel lounge, a man in a work jacket he’d never seen before had offered to sell him a revolver for three hundred dollars cash. It was too good a deal to pass up. Besides, he said, he’d thought it would be cool.
+
+“Cool,” I said.
+
+“I’d never shot a gun. I wanted to feel it. I wasn’t going to hurt anybody.”
+
+Around eleven, he said, he’d taken it out of the bag. He was standing in front of the mirror, pointing it, turning, pretending. He turned toward the wall with his finger on the trigger and had no idea the thing was loaded.
+
+“It just went off. My ears rang. I stood there for I don’t know how long. I waited for someone to come. Nobody came.”
+
+“What did you do?”
+
+“I looked through the hole. I only saw blue light, like a TV. Nothing moved. I hoped the room was empty.” He wiped his face. “I pushed the bed against the wall. I wanted to leave, but I thought if I left in the middle of the night it’d look suspicious. So I stayed, and then you came, and I just fell apart. I started packing.”
+
+“And the toothpaste?”
+
+“It was all I had.”
+
+“The man who sold you the gun. Where is he?”
+
+“I saw him walk out of the hotel hours ago. I never saw him again.”
+
+The gun was in his suitcase under the lining. A .38 special, serial number filed off, one round fired. The deputies took him down in cuffs. The man who sold it to him was just a random guy. We never found him.
+
+The shot was an accident. Heene had no connection to Jimmy or Wallace, or to anyone with a criminal record. He’d killed a man because he thought a revolver would be neat. He wasn’t an assassin. He certainly wasn’t a ghost.
+
+I stayed in his room for a minute, listening to the building. It was quiet. For the first time all night, it was quiet. Danny stood in the doorway, staring at the vent at the end of the hall, and he didn’t say anything.
+
+I should have been satisfied. It was a good solve, and the boring answer was at the bottom, just like always. But I felt like I was forgetting something.
+
+We went back down to the lobby around five. As I passed the pamphlet tower, my radio gave a short, ugly spike of static, louder than usual. I stopped. I held the radio out in front of me and walked slowly toward the brochures advertising ghost hunts. The static got worse. I pulled out a stack and found a black box about the size of a pack of cigarettes, with a short antenna and a green light.
+
+A jammer.
+
+The radios hadn’t died because of steel in the walls. Somebody had planted this at the start of the night, in the one place the Marshals wouldn’t search because they’d already swept the lobby once.
+
+“Linda.” She looked up from the desk. “Did anyone take pamphlets from that tower yesterday afternoon?”
+
+“A man in a gray jacket. Around quarter to five. He asked where the outlets were, and I said I didn’t know. He took a handful of brochures and left.” She hesitated. “Why?”
+
+I put it together then. A man had come in at 4:45 to cut the Marshals off, taken one look at the security in the lobby, and realized he’d never get close. So he left the jammer running and waited for the next chance. The courthouse transfer at nine. The cafe across the street gave a clean view of the front door, the plaza, and the corner window on the fourth floor.
+
+“Nobody ever got into that room,” I said. “Nobody needed to, because a kid with a pistol had already done the job by accident. But somebody came here to do it on purpose. And he came prepared.”
+
+I looked around the lobby. Just Danny and Linda. I told Truzzi her Marshals were cleared, and I had a new job for them.
+
+Under my direction, the Marshals filed out of the conference room, hungry for an early breakfast, and strolled across the street. The two men at the outside table had spent twelve hours watching a window and never once looked behind them. The rest of the Marshals nonchalantly surrounded the corner booth where the tired civilian was still typing on his laptop.
+
+He realized too late. He got three steps before two Marshals tackled him from either side. He went over a table, the coffee splashed across the floor, and by the time I arrived, he was wearing someone else’s bracelets. They found a pistol on him, and a printed map of the courthouse route. The only man in that city who wanted Jimmy dead had been beaten to it by a stranger who bought a gun because he thought it’d be cool.
+
+I felt good. It all fit. I turned to Danny to ask for some well-earned praise, and he wasn’t behind me. I went back into the hotel, wanting to gloat. Linda was standing at the desk with her hand over her mouth.
+
+“Did you see that? Do you see what that was?” I said. “A man with a gun and a jammer. Everything in this building that looks like a ghost has an explanation, and I found nearly all of them in one night. The cold in 412 is an air duct. The voices are speakers. The knocking is a mechanical hammer. The elevator’s a timer. The mirror, the blood, the thing in the mirror. That was the air in the room, a frequency you can’t hear that makes your brain build what it’s afraid of. The flashlight was a joule thief. The witch was a tape on a loop. Every single time, Linda. Anything that seems supernatural has a rational explanation. Always.”
+
+She didn’t argue. I thought she would. Instead she looked at me with a kind of pity I didn’t care for.
+
+“Have you seen Danny?” I asked.
+
+“Who?”
+
+“Sorry. In the heat of things, I guess we never did introductions. Danny’s my partner.”
+
+“I haven’t seen anyone. I’ll let you know if he comes in.”
+
+“He’s been here for hours. He was the other detective with me.”
+
+“Detective,” she said, softer now. “You came in alone tonight. You’ve been by yourself all night.”
+
+I glared at her. After everything, I wasn’t in the mood for games. I switched the jammer off without taking my eyes off her. Then I picked up my radio to call Danny.
+
+Before I could speak, it squawked on its own.
+
+“Ray? Come in, Ray.” It was Alvarez, and his voice was hoarse.
+
+I pressed the button. “I’m here. The case is closed. The shooter was an accident, and we’ve got a second man who was trying to...”
+
+“Ray.” He cut me off, which he never does. “Have you heard about Danny?”
+
+“What about him?”
+
+“He was on his way to you. A drunk driver ran a red light. Danny never had a chance. Ray, he died at the scene.”
+
+I looked down at the radio. I checked my notepad. I had fourteen pages of notes and I relived the whole night as I skimmed them.
+
+“That’s not possible,” I said. “He’s been here for hours.”
+
+“I’m so sorry. Come to the station as soon as you can.”  
+  
+I ignored his request. I just couldn’t bring myself to leave right away. I went up to the fourth floor and looked around for Danny. I came back down and made Linda show me the surveillance camera footage from the lobby, the only room that had cameras.  
+  
+We watched as I stormed out of the conference room, looked at the articles, and then turn around and start having a conversation. With no one else in the room.
+
+That finally got me out the door and back to the station. I was genuinely worried that I was going crazy. Danny had been there. He had been as real to me as he had ever been.  
+  
+It wasn’t until the funeral that it finally hit me. The church was full of cops. Everyone wore their dress blues except me, because I couldn’t be bothered to dress up. Not for Danny. Not because he wasn’t worth the effort. It’s just that we never dressed up for each other. He wouldn’t have liked it if I did.  
+  
+Just like I didn’t like the three-foot portrait of Danny that sat on an easel next to the closed casket. It had Danny’s face. But his tie was perfectly straight, his hair was combed flat, and he was smiling like someone who’d been told to. I stared at it through the whole service and kept thinking, that’s not Danny. Not really.
+
+Somehow the hallucination that I saw at the hotel was so much more the real Danny than his official portrait or even his remains in the casket.
+
+Though sometimes I wonder. If I wasn’t imagining him at the hotel… if that was a ghost, why couldn’t he come back to me now? Why wouldn’t he visit his widow? Maybe there was something special about the hotel… Maybe I should go back…
+
+But then I remember I’m a rational man. I want to be clear about that. I’ve gone over everything that happened that night dozens of times. I was exhausted to start with. That has to have something to do with it.  
+  
+Maybe I did hear about his death and went into some kind of fugue state, and I was so determined to pretend it wasn’t real that I convinced myself.  
+  
+Danny was my partner. I could have predicted everything he said that night. Maybe I did.
+
+That sounds plausible, right? Because there’s no such thing as ghosts.
+
+Right?

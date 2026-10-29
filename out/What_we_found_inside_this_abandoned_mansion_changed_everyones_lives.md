@@ -1,0 +1,119 @@
+Hi, I’m Jacob. I live in a small town in a fairly rural area. It’s small enough that almost everyone knows each other. The town mainly consists of middleclass families living ordinary lives where no one is really poor or rich here. Most people are nice and friendly, but of course, there are odd ones out everywhere.
+
+I love exploring. I have a group of friends who love it too. From sewers to forests, we explored all sorts of places growing up. I have a best buddy in the group named Max. He’s often called the "diamond boy" because he has a rare diamond-shaped birthmark on his chest. He didn’t like the name when he was little, but as he grew up, he started enjoying the attention. Of course who wouldn’t love being called the diamond boy? He was friendly and outgoing, but more importantly, he had no hesitation. He’d do anything he wanted without thinking twice, which was courageous, but stupid sometimes. He once punched a bulldog just because it was looking at him weird and well you can imagine how that ended up.
+
+It was an ordinary day, nothing out of the ordinary. Just me, Max, and the group walking around the forest. But that was about to change pretty fast. We spotted a two story dark building a few meters away a giant abandoned mansion. It was strange because we knew almost everything about this town, but we had never heard a single mention of it. At that moment though, no one was really concerned about that. We were all just excited.
+
+We went inside through the ruins. It was evident the place had to be at least several decades old since moss was growing everywhere. The mansion was huge, so we decided to split up. Me and a friend named Caleb decided to go upstairs, while Max and his close friend Amy checked the ground floor.
+
+There were no signs of life inside. All the old portraits were torn or burnt, the furniture was broken down, and the windows were shattered. I was about to walk into a room with Caleb when suddenly, I heard a scream from downstairs. It was Max.
+
+I ran down to the source of the noise. I burst into a room and saw Max on the ground. He was alright, but he was pointing at something that made no sense. Scattered across the room were hundreds of pristine, luxurious clothes. Not a single one had a scratch or a speck of dirt on it. Max was bewildered but, not scared. I was shocked, and Caleb and Amy were completely freaked out.
+
+Max got up and excitedly said, "Did we find some secret treasure?!"
+
+I looked at him, confused. "Max, doesn’t this seem even a bit concerning or weird to you?"
+
+Max shrugged. "Maybe, but isn’t it great?" He picked up a white shirt that was impossibly smooth but beautiful.
+
+"Max, put that down. We don’t know if anyone is here," I warned him.
+
+"Finders keepers," Max said.
+
+I grabbed his shoulder roughly. "Max, we gotta leave and come back with people."
+
+Seeing how serious I was, he reluctantly agreed. Amy and Caleb looked relieved.
+
+We rushed back to our neighborhood and informed the elders. Naturally, most of them thought we were making it up, but they agreed to check it out.
+
+The next day, our group led the townsfolk to the mansion and brought them to the room. Everyone was stunned. We were telling the truth. They were amazed, shocked, and concerned all at once. A search party checked the forest for where the clothes could have come from, but found nothing.
+
+Max stepped forward, grabbed that white shirt, and said, "Well, since there’s no owner and they’re just laying here, why don’t we take them? I mean, we lose nothing, right?"
+
+A few people nodded and agreed, but most were skeptical. I was definitely on the skeptical side. My parents are really cynical, and I got that trait from them. I don’t easily trust things like this. I rejected the idea, but Max and the people who agreed took what they wanted.
+
+A few days later, Max and those other people were walking around the streets wearing the clothes. They looked lavish and definitely boasted about it. I won't lie, the diamond boy looked amazing in that shirt, but I still felt uneasy about it. Not everyone shared my hesitation, though. It turned into a trend, and more people especially the younger ones started collecting the clothes until there were none left in the mansion. To my disappointment, both Amy and Caleb took some too.
+
+One day, I approached Max while he was wearing the white shirt. He looked dashing. I asked if I could feel the fabric, and he let me. I touched it it was impossibly soft, smooth, and warm. It hugged his figure perfectly, but the warmth was strange. Max just shrugged it off, saying his mother must have ironed it, so I didn’t argue further.
+
+Day by day, Max seemed happier. His grades improved, girls paid attention to him, he was full of energy, and life seemed to be treating him great. I was genuinely happy for him. But it wasn’t just him, everyone who wore those clothes seemed to have better lives. They were happier and luckier. One man I knew even won the lottery. I tried connecting the dots, but I kept telling myself it was just a coincidence.
+
+Then, a week after this became normal, something tragic happened. The man who won the lottery died in a car crash in the brandnew car he had just bought. Since it's a small town, everyone knew him, and we all mourned. We assumed it was just terrible luck.
+
+After that, though, I started noticing that the people who wore the clothes were looking skinnier, tired, and frail. Alarmed, I went over to Max's house. His parents let me in they looked worried too. They had never worn any of the clothes and they looked normal.
+
+I went up to Max's room, and there he was on the bed, still wearing that dreaded white shirt. The fabric seemed thinner now, almost like it was sticking directly into his skin. Max looked completely drained. This energetic, happy guy looked fragile. I approached him, asking if he was alright, but he just brushed it off as being sick.
+
+I didn’t buy it. I stayed with him.
+
+"You're gonna be fine, buddy. I'm sure this is just a fluke," I said.
+
+Max chuckled weakly and coughed. "Yeah, of course. It's me, remember?"
+
+"Why don’t you take off the shirt for a bit? It'll feel better."
+
+Max suddenly got defensive. "No! I'm keeping it on. Don't even dare!"
+
+I raised my hands in surrender and told him to calm down. He did, but the outburst was strange. I stayed beside him for a while, but eventually had to leave for the night.
+
+I went home and went to sleep thinking I'd sleep for a while but it didn't last long. Around 3:00 AM, screams erupted across the neighborhood.
+
+I woke up frantically and checked on my parents. They were okay, but looked terrified. We went outside and found the streets filled with people screaming and searching for their loved ones. In the chaos, I saw Max's parents crying uncontrollably.
+
+I ran up to them. "What's going on?!"
+
+"M-Max isn’t home... we can't find him," his mother sobbed.
+
+I stood there in shock. Amy's and Caleb's parents were crying too. People theorized that those people had run away, but why would so many people run away all at once in the middle of the night? It made no sense.
+
+Almost half the town had disappeared. Search parties were formed, and the police were called, but no one had any leads.
+
+I don't know what made me do it, but I ran toward the abandoned mansion.
+
+As I got close, a horrid stench hit me. The house had smelled old before, but this was unbearable. I had a janky flashlight that only worked if you banged it against your hand first. I stepped inside. The floor was wet, and there was a constant sound of dripping liquid everywhere. The air felt warm. I thought it was water at first, but it was too thick, and it wasn't mud either, it was too smooth.
+
+It was pitch black inside. My heart was pounding. I smacked my flashlight against my palm until it finally flickered on.
+
+Some days, I wish it hadn’t.
+
+What I saw paralyzed me with fear. I covered my mouth to keep from screaming.
+
+The interior of the mansion was completely covered from the floor to the ceilings in fresh, warm human blood.
+
+I bolted out of there, running back to the town while hyperventilating and crying.
+
+"B-blood! The m-mansion!" I gasped out to the officers and townsfolk.
+
+They tried to calm me down. No one really believed what I was saying, but they agreed to follow me back to see for themselves.
+
+I ran ahead, leading them to the spot. We arrived at the supposed spot where the mansion should be but what? Why isn’t it there? No no no this isn’t right? It was right there. I was just right here. I panicked.
+
+The police thought I was crazy and making it all up, but the townsfolk knew better. They had walked through those doors with us days prior. How could a massive, two story mansion just vanish off the face of the earth?
+
+Some of them cried, some of them trembled but most people were silent. Frightened.
+
+No one could explain it. After that ruckus, Everyone had to go home and grieve. We eventually held a memorial service for everyone who went missing. I gave a speech for Max. God, I missed him. I cried alone after it was over.
+
+Months passed. Life moved on, but the town was quiet now. People accepted the grim reality, and I saw a lot of people never smile again.
+
+Then, my cousin Bernard came to visit us with his family. Bernie is my age, a super fun guy, and really sharp.
+
+"Hey Berny, long time no see, man," I said, trying to put on a warm smile.
+
+He smiled brightly and shook my hand. "Its so good to see you my brother!"
+
+We talked for a bit, and that's when I noticed he was wearing a sleek, pristine white shirt. He looked great in it.
+
+"Nice shirt," I mentioned. "Where’d you get it from?"
+
+"Oh, I don’t know. My dad got it for me," Bernie replied casually. "He told me to keep quiet about it. Got some nice clothes for my sisters, my friends, and a few neighbors too. I didn’t question it because these clothes are so nice. They fit like really really well and they always kinda warm, questionable but its so comfortable."
+
+My smile dropped instantly. I gritted my teeth.
+
+"Bernie... Where. Did. He. Get. That. Shirt. From?"
+
+As Bernie started to answer, looking confused by my sudden shift in tone, I noticed something on the fabric that made my stomach drop and I wanted to puke right there.
+
+Right on the chest of that perfectly white shirt was a small imperfection.
+
+A single diamond shaped mark.

@@ -1,0 +1,249 @@
+“It’s a really nice place,” I told myself repeatedly.
+
+It was a new apartment building near my old school. There were a lot of young, friendly families living there. The grounds were enclosed from the outside world by a tall metal fence. There was even a really nice little playground.
+
+I was lucky. My lovely aunt, who had been forced to move to Germany because of her high-paying job, let me stay at her place. One room, a kitchen-cum-lounge, a small bathroom, and a balcony – what else could a third-year university student dream of? Most of my groupmates were still living with their parents.
+
+It was such a great opportunity. It still is. So why am I so afraid of this place?
+
+At first, I thought it had something to do with my fear of separation. You don’t move away from the safety of your childhood home every day, only to face the world of adulthood all alone. It was scary to wake up in the middle of the night in an empty room, not knowing what had woken you up. There was no one nearby to help you shake off your fear. Just four dark corners, and you, huddled in one of them in your creaky little bed. And sometimes, the corners farthest away from you aren’t the ones you should be most afraid of.
+
+Those were the nights when I would listen to my neighbours next door.
+
+Our floor was divided into two blocks, one on each side of the staircase. Each block had a main entrance door. Ours was massive, made of dark metal. Behind it was a simple small space with three entrances to three almost identical flats. They were hidden behind expensive-looking wooden doors, though none of them was as impressive as the main entrance.
+
+Room 31, Room 32, and Room 33. The numbers weren’t written on the doors themselves, but you could learn them from the utility bills for each flat. I lived in Room 31, the one closest to the main entrance.
+
+There wasn’t much to say about Room 33. I was once told that a woman lived there from time to time. I heard the police standing right outside my door, banging on hers. I watched through the peephole as they took her away. I never saw her again.
+
+Room 32 was different. It was full of life. Every time I was in the bathroom, I could hear water running and a girl’s voice singing. Whenever I was in the kitchen, I heard a man talking to a cat, asking it to stop meowing. And every night, just before I closed my eyes, I could hear them making love.
+
+None of it was particularly unpleasant. In fact, I had grown fond of the people next door, almost as if we were roommates.
+
+I was lucky enough to visit their flat once. It was the girl who brought me in. I bumped into her near the entrance to our apartment complex. She was holding a grey tomcat in her arms, returning from running some errands, cheerful and talkative as ever.
+
+I ended up sitting on the couch in their kitchen. It was a nice place, although I could already see some damage. Black mold had spread across the corners of the room because of the dampness, and there was a hole in the floor with leaking pipes beneath it.
+
+“Construction defects,” the man said.
+
+I learned that he was the girl’s much older boyfriend. He grumbled constantly about the poor condition of the complex, about how cheap the pipes were and how fucked-up the electrical system was, so the lights could simply go on and off for no apparent reason.
+
+He spoke with hatred in his voice, hatred for this place, while the girl served me a bowl of soup she had made. It was a traditional soup called solyanka.
+
+The soup was delicious. The girl looked miserable. The man was angry at the cat for licking his owner’s fingers.
+
+“His name is Musya,” the girl told me.
+
+I petted Musya before I left.
+
+I wish I had never spoken to my neighbours.
+
+It wasn’t long before the voices behind my wall fell silent. Then came sobbing and ugly, horrible crying. Until there was nothing. Silence again, for a long time.
+
+Until someone knocked on my front door.
+
+I got out of bed in the middle of the night and approached the door as quietly as I could, careful not to make a sound.
+
+There was something interesting about the little hallway in our block. It had a motion-activated light. Needless to say, it was a very nice thing to have when you came home with your arms full of groceries and the light switched on automatically.
+
+Not so nice when you were looking through the peephole and the light on the other side suddenly came on. Someone was there, but I couldn’t see them.
+
+I stood there a little longer, watching. Nothing happened. Still breathing heavily, I retreated into the safety of my bedcovers. More knocking followed soon after.
+
+At that point, I was scared. Who would come to my door at such a late hour just to mess with me?
+
+I got up once more, this time grabbing something heavy – a hammer – for my own peace of mind. Little by little, I approached the entrance.
+
+The knocking changed to rattling as someone tugged at the handle. I gasped at the sheer unexpectedness of it. A cold sensation ran through my body as the rattling grew more violent with every passing second.
+
+Then it stopped.
+
+I stood in the silence of my room, my heart pounding in my chest.
+
+*What was that?*
+
+I asked myself the same question again and again as I stepped closer to the door.
+
+When I checked outside, there was nobody there, just as before.
+
+It was perplexing. I tried to convince myself that it was some kind of sick joke, but I couldn’t tear myself away from the peephole. I stayed there, staring through it, moment after moment. Until I saw it.
+
+A movement in the very corner of the peephole. A silhouette holding something in its large arms.
+
+Then I heard a voice.
+
+“Karyna, let me in, please.”
+
+A quiet meow echoed through the hallway.
+
+“Karyna, please, I’m begging you. I won’t do it again, I promise.”
+
+The man stepped into view, repeatedly calling the girl’s name and begging for forgiveness as he stood right outside my door.
+
+The knocking continued, but I barely cared anymore. I could finally see who had been messing with me, in all his miserable glory.
+
+The man looked dishevelled. His eyes were wide and dark, his face red and puffy. And in his arms was a cat. A grey tomcat.
+
+I opened the door, and as soon as I did, the sharp smell of cheap alcohol hit my nostrils.
+
+The cat meowed as if greeting me.
+
+“Karyna?”
+
+“Wrong flat, man,” I told him, with a hint of pity in my voice.
+
+Of course, I was angry about his antics, but he looked as though he were falling apart right in front of my eyes. And I really didn’t like the sight of it.
+
+At least he didn’t seem sorry for bothering me that night. Instead, he shoved the cat towards my face.
+
+“Wanna pet Musya? He’s lonely.”
+
+I petted it a little, stroking its small, fluffy head. Its nose was pale and sickly dry. Its eyes were big and blue. It reached towards me with its tiny paw, its tail just as tiny.
+
+It wasn’t Musya.
+
+It was an entirely different cat.
+
+A feeling of disgust towards the man rose inside me.
+
+“Can we come in? Musya isn’t the only one who’s lonely.”
+
+Instinctively, I tried to close the gap between us by pulling the door towards myself, but he took a step forward. Now his foot was wedged between the door and the frame.
+
+“Just go home,” I begged him. “It’s really late. It would be a shame if you woke up our neighbours.”
+
+The dry skin at the corners of his mouth cracked as he stretched his lips into a smile. I didn’t like that smile. Not one bit.
+
+“It’s okay,” he said, almost reassuringly. “No one outside this block will hear a thing.”
+
+I pulled the door violently towards myself, trying to get away from the drunk creep. It was impossible. He had planted his foot firmly in the doorway.
+
+He almost laughed at my futile efforts.
+
+Then the lights inside our block started flickering.
+
+They were the same motion-activated lights that were supposed to stay on whenever they detected movement, but something wasn’t right.
+
+The man noticed it, too.
+
+Like I said, he was the one complaining about the unstable electricity in our apartment complex. But his usual annoyance at the subject was nowhere to be seen.
+
+His face first grew perplexed. Then, just as quickly, his expression turned into questioning. And then, all at once, sheer terror spread across his features.
+
+What was he afraid of? Flickering lights? That was absurd. The man who, only a moment ago, had laughed at my helplessness now looked as lost as a child.
+
+I might have found it amusing if it weren’t for the cat.
+
+A drugged person could be frightened by all sorts of irrational things, but the cat was as scared as his master, making a low, haunting screech, as though it were preparing to fight something invisible.
+
+It drove its claws painfully deep into the man’s arm until blood began to drip, but he remained unfazed. 
+
+He was listening. Hearing something.
+
+That was when I heard it, too. A muffled sound, like old bones snapping under an unbearable weight. Then another. And another. The sound was approaching. Fast!
+
+The man suddenly lunged forward, dropping the cat, and screamed.
+
+“Let me in! Let me in right now!”
+
+He pleaded through the half-open door, his foot still wedged in the doorway. He grabbed the handle from the other side and began pulling with all his might.
+
+“I can’t!” I was visibly panicking. I didn’t have even half the man’s strength.
+
+There was no other way. I had to force the drunkard away.I stomped on his foot with all my might. As he stumbled, I quickly slammed the door shut.
+
+I turned the key once, then again. The miserable man started banging on the door once more, but the knocks were different from before. Now there was desperation in them. It was unsettling, as if at any moment a single hard enough blow could rip the door off its hinges.
+
+I covered my ears with the palms of my hands and squeezed my eyes shut as tightly as possible, trying to hide from this nightmare.
+
+Then silence fell.
+
+I looked through the peephole and saw nothing but pitch-black darkness, as if nobody had been standing there just seconds ago.
+
+I stared into the darkness for a very long time, and I am almost certain that something was staring back at me.
+
+For the next couple of days, there was no news from my neighbour. Not until last Tuesday, when I began to notice a strange smell. It was sickly sweet and rotten, coming from my vents, accompanied by faint meowing. Apparently, I wasn't the only one who had noticed it.
+
+It wasn't until Thursday that the smell finally went away, thanks to my neighbours. Someone had called the police, and they came to remove the man's body from the flat next to mine. The police said it was suicide. Apparently, the man had been unable to recover from a bitter breakup and had taken his own life on Sunday, the day after our last encounter.
+
+The cat had been starving, and after a couple of days, it had started feasting on its former owner.
+
+I took the cat in after the police had finished their investigation, claiming it as my own. I was glad I wouldn't have to deal with that strange man anymore.
+
+However, I soon learned that having no neighbours nearby was something to worry about.
+
+It wasn't so bad at first, since I now had a cat. But going outside became harder for me with every passing day. Every time I stepped out, I could swear I heard the same muffled sound of cracking bones. They reminded me of footsteps, as if someone were lurking right behind me all the time. And whenever I finally turned around to look, there was nothing there.
+
+There was always nothing there.
+
+As the days went by, I cared less and less about leaving my flat or attending classes. Only within the four walls of my little fortress did I feel somewhat safe. Somehow, I knew it couldn't follow me inside.
+
+One day, I had to go out to buy food for myself and the cat. I rushed through the entire process, desperate to get home as soon as possible.
+
+I was on the flight of stairs when I heard the cracking sound again. It followed me with every step I took as I climbed towards my floor.
+
+I hurried to reach the massive metal door leading into my block. It was never locked, so I simply grabbed the handle and stepped into the small space beyond it. The lights switched on immediately, triggered by my presence.
+
+I fished the keys out of my pocket and began fumbling with them, searching for the right one.
+
+As I stood in front of my own door, I felt a disturbing, rotten sensation deep inside me, as if something terrible were about to happen.
+
+And then the lights started flickering.
+
+A wave of terror rose into my throat. My legs grew heavy as stone, and my hands began shaking uncontrollably.
+
+It hadn't been so long since I had questioned the terrified look on that man's face. Now I was in his shoes, and I finally understood how he had felt. Like prey, surrounded on all sides.
+
+Under the pressure, I dropped my keys.
+
+The next thing I knew, everything went dark. I moved my hand slightly, trying to trigger the motion sensor, but nothing happened. I tried again. And again. Until my hand touched something.
+
+It wasn't a wall. It was far too soft and warm to the touch. The texture was strange. Wrong. So terribly wrong that I suddenly felt like throwing up.
+
+I yanked my hand away and rushed straight towards the metal entrance door. But it was closed.
+
+*That's impossible. It's never locked. I don't even have a key for it.*
+
+The thoughts raced through my head as I began banging on the door. The noise drowned out every movement of the thing behind me.
+
+It was too late by the time I realised what was happening.
+
+I stopped trying to force the door open and listened. The last echoing crack rang out behind my back. There was nowhere to run.
+
+I could feel its heavy presence. A laboured breath brushed against the back of my neck. I stood perfectly still as it moved closer.
+
+Then came the chewing.
+
+Not directed at anything in particular. Just the wet, disgusting sounds of flesh being torn apart and devoured.
+
+It was imitating the process, or perhaps playing it back to me like a recording. Whatever it was, the sound continued, growing louder and more overwhelming until I could barely stand it.
+
+Then came the sound of a bone cracking between someone's teeth.
+
+Remember how I said that having no neighbours nearby was something to worry about? I meant it. Because there was no one to hear you scream.
+
+I screamed at the top of my lungs, as loudly as I could, no longer able to hold myself together. I dropped to my knees and began groping for my keys on the floor. My hands moved through a mass of warm, soft matter that my imagination could now perceive as nothing but piles of flesh.
+
+After a moment, I finally found them. They emerged from the bottom of the pile with a distinct, wet squelch.
+
+I scrambled to my feet and hurried to unlock the door as the bones continued to crack behind me.
+
+Crack!
+
+The lock clicked open.
+
+I stumbled into my flat and slammed the door shut, pressing my entire body against it. I was breathing heavily. Or perhaps I was barely breathing at all. I retreated to the farthest corner from the door and sat down.
+
+The cat came over to me, purring. It rubbed its head against my trembling legs. That was when I realised that, in all the chaos, I had forgotten my groceries.
+
+"Well, there goes the food for both of us," I told the cat miserably.
+
+It couldn't have cared less.
+
+I knew I couldn't go outside anymore. That was no longer an option.
+
+There was still some food in the fridge, but it would run out in a matter of days.
+
+And then...
+
+Well, at least the cat would have something to snack on.
