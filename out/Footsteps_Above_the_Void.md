@@ -1,0 +1,156 @@
+When I moved into my new apartment, everything seemed perfect. It was in a quiet neighborhood, the rent was affordable, and the building was old but well-maintained. I barely heard my neighbors, and my windows overlooked a courtyard where the occasional passerby would walk through in the evenings.
+
+
+
+
+For the first few days, I actually enjoyed the silence. After living in a noisy dorm, all I wanted was to come home, have dinner, and get a good night's sleep.
+
+But about a week later, I heard footsteps coming from upstairs for the first time.
+
+It happened around two in the morning. I was just about to fall asleep when I heard the floorboards above me creak slowly. Someone walked from one end of the room to the other, stopped, and then took a few more steps.
+
+I opened my eyes and stared at the ceiling.
+
+"Probably new neighbors. Maybe they just keep late hours," I thought, trying to get back to sleep.
+
+But the same thing happened the following night. And the night after that.
+
+Over time, the sounds became clearer. I could hear someone moving a chair, opening and closing drawers, and occasionally dropping things on the floor. A couple of times, there was such a loud crash that it sounded like a heavy wardrobe had fallen over. Then everything would go quiet, only for the footsteps to start again.
+
+The strangest thing was that it all happened at roughly the same time every night.
+
+One night, I woke up to the sound of furniture scraping across the floor. It slowly moved across the ceiling above my bedroom, then stopped directly above my bed.
+
+I lay there, trying not to move a muscle.
+
+A few seconds later, I heard a soft tapping from above.
+
+Three knocks.
+
+It sounded like someone tapping their knuckles against the floor. I pulled the blanket over myself and didn't sleep a wink for the rest of the night. The next day, I decided to talk to the building manager.
+
+"Can you tell me who's living upstairs?" I asked. "There's someone walking around and moving furniture every night. Sometimes there's a crash so loud it sounds like something's breaking."
+
+The man stopped sorting through his papers.
+
+"Nobody lives up there. That apartment's been locked up for several years," the manager replied.
+
+"Then where are the noises coming from?"
+
+He looked at me but didn't answer.
+
+"And why was it sealed off? Did something happen?"
+
+The manager looked away. He stayed silent for a few seconds, as if he were deciding whether he should say anything at all.
+
+"Listen," he finally said. "If you want to live peacefully in that apartment, it's better not to ask questions about this place."
+
+"But why?"
+
+"Trust me. You're better off not knowing."
+
+He turned away, making it clear that the conversation was over.
+
+I went back to my apartment feeling annoyed. Maybe there'd been an accident up there, I thought. Or maybe a former tenant had died, and the manager simply didn't want to talk about it. Old buildings were full of unpleasant stories.
+
+I decided to stop paying attention to the noise.
+
+But that night, when I heard something heavy being dragged across the floor above me again, I realized I wouldn't be able to sleep peacefully until I found out what was going on.
+
+The next morning, I went upstairs.
+
+The hallway was colder than the rest of the building. At the far end stood an old door with a darkened handle. A small, rusty padlock hung from it.
+
+I knocked.
+
+Nobody answered.
+
+I was about to leave when I noticed that the door was slightly ajar. The padlock was hanging from the latch, but it wasn't locked.
+
+I pushed the door open and stepped inside.
+
+The apartment smelled of dampness and old dust. There was no furniture, no curtains, and the gray light coming through the windows fell across the bare walls. A thick layer of dust covered the floor, and my footprints appeared in it as soon as I stepped inside.
+
+At first glance, the apartment looked ordinary: an entryway, a kitchen, and several rooms. I walked into the nearest room, looked inside the empty bathroom, and then continued farther in.
+
+But the longer I walked around, the stronger the strange feeling became.
+
+The hallway seemed too long. I was sure I'd already passed the same door before, even though I couldn't remember turning around. The rooms all looked almost identical: bare walls, empty corners, and dark doorways.
+
+I stopped and listened.
+
+Silence.
+
+I figured I'd simply gotten confused by the layout. Maybe the apartment was bigger than it looked from the outside. But since it was directly above mine, I expected the layout to be similar. Then again, maybe this floor had been designed a little differently.
+
+I walked into another room. A piece of wallpaper lay on the floor, torn away from the wall. In the corner, I noticed long scratches across the floor, as if someone had dragged a heavy object back and forth over it many times.
+
+I bent down to take a closer look.
+
+Suddenly, I heard a creak behind me.
+
+I spun around.
+
+Nobody was standing in the doorway.
+
+I quickly headed back into the hallway and made my way toward the exit. This time, the way back seemed to take much longer. I passed several empty rooms before I finally spotted the front door.
+
+Once I stepped out onto the landing, I took a deep breath.
+
+"That's enough. I'm never going back in there," I told myself.
+
+I spent the rest of the day trying not to think about the apartment. I convinced myself that I was just tired and that the strange layout had confused me.
+
+But that night, the noises returned.
+
+Around two in the morning, I heard the footsteps above me again. At first, they were the usual ones: slow and heavy, with long pauses between each step. I'd almost gotten used to them and was starting to drift off to sleep.
+
+Then I heard a dull thud.
+
+Something started scraping across the floor.
+
+And suddenly, I realized the sound wasn't coming from the ceiling.
+
+It was coming from the hallway inside my own apartment.
+
+I sat up in bed and froze. At first, I thought one of my neighbors was making noise on the other side of the wall. But the footsteps were far too close. I could hear the floorboards creaking right nearby, as if someone were slowly walking from my front door toward my bedroom.
+
+The footsteps stopped right outside my door.
+
+I stared at the handle for several seconds, waiting for it to turn.
+
+Nothing happened.
+
+Finally, I turned on the light, grabbed an iron—the best weapon I could think of—and threw the door open.
+
+The hallway was empty.
+
+I checked the kitchen, the bathroom, and the front door. All the windows were closed, and the lock was still in place. Nobody was in the apartment.
+
+I even looked under the bed, feeling like a complete idiot.
+
+"You haven't been sleeping properly for a week," I kept telling myself. "That's all."
+
+I went back into the bedroom, locked the door, and sat on the bed. I wanted to believe it was finally over.
+
+But as soon as I lay down, I heard a creak coming from the living room.
+
+Slow. Heavy.
+
+As if someone were dragging furniture across the floor.
+
+Then came the footsteps.
+
+They crossed the living room, stopped, and then started moving again—this time toward the hallway.
+
+I didn't go to check.
+
+I sat on the bed until dawn, clutching my phone and listening to every sound. Sometimes the footsteps would stop for several minutes, and I'd start hoping it was finally over. But then they'd start again, each time coming from a different part of the apartment.
+
+In the morning, I packed my things and booked a hotel room. A few days later, I found a place in another city and moved out for good.
+
+I never told anyone the real reason. I just said I didn't like the neighborhood and had found somewhere better.
+
+Several months have passed since then. I haven't heard footsteps at night anymore, and I've gradually started to forget about that apartment.
+
+But sometimes, when I wake up in the middle of the night, I think I hear footsteps again. I know it's just my imagination.
