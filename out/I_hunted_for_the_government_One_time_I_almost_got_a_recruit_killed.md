@@ -256,7 +256,7 @@ Silence answered me. 
 
 The thing kept staring at me. Somehow, I could just feel a damn smile on its face. It slowly raised its arm, overemphasizing its movements so I could clearly distinguish the two fingers and a thumb it put up to its head. The figure slammed its thumb down to its palm.
 
-Thunder erupted from behind me, from where my car was right now. Not again. I rushed back to the living room, barely registering as the shadow fell sideways into the lake. I turned around and sprinted across the hallway, throwing myself through the curtain that kept me from the kitchen. A black void now filled the window.
+Thunder erupted from behind me, from where my car was right now. Not again. I turned around and sprinted across the hallway, throwing myself through the curtain that kept me from the kitchen. A black void now filled the window.
 
 Not only was this place haunted, but I was dealing with a snatcher. As soon as I entered a blind spot, where Christmas couldn’t see me through the cameras, the spirit had taken me away. I wasn’t totally in our world anymore, but rather stuck in between it and the Dam. Here, the spirit was lord and master. The average survival rate of a snatching for a solo agent is about 33%, but mine is a 100%, and I wasn’t about to let it go down because of some mermaid wannabe.
 
@@ -352,7 +352,7 @@ It was a murder victim, as made obvious by the gaping wound on its neck and the 
 
 Now, where would a gentle, if a bit eccentric, old man keep a blade he stumbled upon while out for a swim? With all the rest of his tools, far away from his wife’s eyes, of course. With all this in mind, finding the rusty switchblade among the woodcarving tools had been relatively easy, and its poor condition made it even easier to snap it in half.
 
-I ran back to the living room to find Christmas in tears, her hands rubbing away at her seared lips. As I stood over her, she looked up to me. “It had my father’s face,” she cried out.
+I ran back to the living room to find Christmas in tears, her bloodied hand rubbing away at her seared lips. As I stood over her, she looked up to me. “It had my father’s face,” she cried out.
 
 “Spirits can easily access memories resembling their own passing. Illnesses, accidents…” I said.
 
