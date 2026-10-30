@@ -1,0 +1,66 @@
+**Deer Mitosis**
+
+The land forgot how deer reproduce.
+
+I work for a university… Well not a university, exactly, but that’s the best word for it. The best word for my profession is ‘researcher’, though that word isn’t accurate either and implies a specialism that I do not possess.
+
+Almost none of us researchers are specialists. My coworkers are not physicists or chemists or medical professionals or anything like that.
+
+We’re just researchers.
+
+One day Professor Ludari called me to his classroom with a new subject to research… He wanted to send me into the forests outside Fallowton, tasking me to take notes on deer mitosis.
+
+“Deer mitosis, sir?” I asked.
+
+“Correct.” He responded. “It’s an integral part of the deer’s reproduction cycle.”
+
+I thought for a moment as my frown deepened.
+
+“Something wrong?” the Professor asked.
+
+“Does that mean the deer are… Splitting?”
+
+“Of course. What else could it mean?”
+
+I searched my mind for any memories I had about deer… About the nature of their biology, about how they met and bred…
+
+“Are you sure that’s how deer reproduce?” I asked.
+
+His eyes bore down upon me. “Well yes.” He said after the tiniest pause. “How else would they go about doing it?”
+
+“They’re supposed to get in a pair, and…” I trailed off.
+
+“Yes?” He asked.
+
+But my mind went blank.
+
+“Yeah, I guess that’s probably how they do it.” I hesitantly agreed.
+
+“Good man.” He replied. “Try to have those notes to me within the week.”
+
+“Yeah.” I nodded dumbly, then in an almost trance-like state I left his office.
+
+Was that how deer were meant to reproduce?
+
+I wasn’t sure.
+
+But I soon had my answer.
+
+Deer were something of an enigma to those of us in Fallowton. Only the most daring or foolhardy entered the woods at night, and since deer are most active at dawn and dusk, anyone hoping to see them had a very limited window of time to work with.
+
+But I saw them, and just as Professor Ludari described, the deer did reproduce via mitosis.
+
+It was a bit of a messy process.
+
+In most cases it began with the hooves expanding in size until they split in half. The split would continue upward until the deer had four new legs jutting out from the old four. A second head would emerge in a similar manner, with the old one widening and splitting down the middle. It would take another day or two for the torso to begin the process, by which point the new deer was already beginning to struggle in vain to escape its parent. The bifurcation began along the spine and ribcage, widening and splitting, until the offspring had separated enough to hobble to freedom.
+
+The entire process took between three and five days, after which there would be a pair of two identical deer.
+
+The endeavor left the parent highly susceptible to predation…
+
+…Except the forest doesn’t contain any predators.
+
+…Not predators that prey on deer, anyway.
+
+[](https://www.reddit.com/submit/?source_id=t3_1xbnyvb&composer_entry=crosspost_prompt)
+
