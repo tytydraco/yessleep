@@ -1,0 +1,470 @@
+I'm at a motel in Bisbee, Arizona, a few miles from the border. My hands are shaking so badly I can barely type. Rose, the woman I love, is asleep on the bed. Covered in bruises. So am I. Sunlight creeps in through the closed curtains. The dresser is barricading the door.
+
+Less than 24 hours ago I was in Mexico, hopeful I would find my missing sister, Sadie.
+
+Two years older than me, she’s tiny, barely a hundred pounds, with the same grey eyes as me. She’d been disappearing since we were teenagers.
+
+We had a gnarly childhood. No need to dwell on it too much here, but it left us with an understanding of the other’s pain. I guess one could call that love.
+
+Dropping Sadie off at yet another treatment center or inpatient facility, she and I would always point to our eyes, our hearts, and then at each other. *I love you.* Just before the doors would swing shut.
+
+I fled into the army, and she fled into drugs.
+
+The government sent me to Iraq, as a combat medic. Also, a whole other story.
+
+When I came back, Sadie had completely lost herself in opiates and meth, just like our parents.
+
+After her second OD, Sadie started dabbling in plant medicine. First ayahuasca, then ibogaine. She’d rid herself of her demons again and managed to stay clean. A couple of months would go by and, sure enough, things would fall off the rails, and she’d be off to the races, using again.
+
+This summer Sadie reached out to me. I hadn't spoken to her in a few weeks. I had been picking up the pieces after yet another painful breakup and I just couldn’t deal with Sadie, but she seemed frantic. More than normal.
+
+We met up for coffee. She seemed different. Almost cheerful. She had heard of a new drug, Cielo. This one was different, she said, it wasn’t really even a drug. Cielo was a gateway to Heaven, she added matter-of-factly.
+
+Sadie said she’d made contact with the Family. She’d met a girl online, around her own age. The girl had invited her down to Mexico for a Cielo Ceremony under the guidance of The Shaman.
+
+“Look!”
+
+Sadie pulled up her sleeve, revealing a fresh tattoo of a coiled black serpent with a red line running through it.
+
+“For my trip.”
+
+She’d gotten a Family tattoo to match the one the girl she’d met had, Sadie explained.
+
+She was leaving the next day, to meet up with the Family. Everything was going to be okay. I didn’t even try to talk her out of it. I couldn’t remember the last time I’d seen her happy. Had I ever?
+
+The next day I woke up to an email from her. She was “off to Mexico" and would call me after the ceremony, but no mention where in Mexico she was going or when the ceremony would be. I tried to call but her phone was off.
+
+One week went by. Then two. That’s when I got worried. Technically I didn’t even know if she’d made it to Mexico. I asked a detective friend of a friend who told me for missing people abroad you have to go through the State Department. There is an online form, like for missing luggage on a plane.
+
+I started spending nights going down Reddit rabbit holes, hanging around in chat rooms, sending messages, chasing down leads. Trying to track down anyone who knew anything about Cielo or the Shaman.
+
+One day I woke up to a message:
+
+My sister also went missing in Mexico looking for this Shaman.
+
+You know it’s snake venom right? That’s what he got them smoking.
+
+You actually die when you smoke it.... Your body does, but then your mind has the final realization. Perfect peace. Nirvana....
+
+I’m Rose by the way, good to meet ya. Let’s talk....
+
+I went to her profile. Clearly she was some kind of artist. Canvases covered with all kinds of materials in every post. They were all tragic scenes of the household. Two tiny towheaded young girls, their little tabby cat and their large violent mother. She’d used paint, and glued on materials like bubble wrap, pine cones, and shards of glass. It was all so chaotic and beautiful.
+
+We agreed to meet up for coffee after a few days of messaging. Since her profile didn’t have any selfies I was unsure what she looked like. From the moment I walked in I was drawn in by sky blue eyes, magnified by square glasses with thick magnifying lenses. The eyebrows above the big blue eyes raised up high when she saw me and her whole face broke into a smile. That’s when I knew. I was going to fall in love with this woman. A long thin scar ran across her beautiful neck.
+
+We got right down to it and exchanged notes on what each of us had found out about Cielo and the Shaman. It turned out she knew a whole lot more than I did.
+
+Apparently the Shaman had originally come from some big American city in search of a lost tribe deep in the Amazon. Legend had it that the medicine men of the tribe would let themselves get snakebit so they could travel to the land of the dead.
+
+The Shaman had been the first to crystallize the snake’s venom and smoke it. He had started holding underground ceremonies and word spread fast. He started to become known as El Chamán de la Serpiente Negra. The Shaman of the Black Snake.
+
+He was said to always be on the move, traveling through Mexico in a huge bus, with a following who called themselves the Disciples. The best outcome was that Sadie and Kay had become Disciples. Neither of us could believe that this is what it had come to. That this had become the best outcome.
+
+Halfway through the night I asked Rose about her artwork. It was dark, but I could’ve sworn she was blushing when she said she would tell me another time.
+
+She asked me about my time as a medic in the war. I told her it would be for another time.
+
+By the end of the night it was decided.  We had to go down to Mexico, retrace our sisters’ steps and bring them back home. Try one more time.
+
+Two days later Rose and I crossed the border, armed with missing person flyers. We set out and asked around in desert towns around Sonora.
+
+We ran together every morning before the heat started. At night we’d play cards in the lobby of our motel.
+
+Conversation would somehow always turn to our sisters. Both of us had tried Al-Anon one day at a time. Both of us had tried to turn away and let our sisters hit rock bottom. Both of us struggled with guilt ever since they’d gone missing.
+
+I told her about Iraq. She told me about her scar.
+
+It had been from an accident which sliced open her neck. Kay had pressured her into trying to jump over a barbed wire fence.
+
+I told her about one of my first memories when Sadie tricked me into following her deep into the woods one night, and then left me there. I talked about Sadie OD’ing twice. Kay had also OD’d. We talked about our mothers and our fathers.
+
+Walking back to our rooms, we accidentally bumped into each other. As soon as our skin touched I could feel a current run between us. Without either of us thinking about it, we were kissing right there under the fluorescent lights. Her body fit perfectly into mine as I pulled her towards me.
+
+A gruesome scream cut through the night. We both froze. Something very bad had clearly just happened out there in the dark. Could it have been an animal?
+
+It was a stupid thing to say. I fell asleep as soon as my head hit the pillow. Nothing like feeling guilty and embarrassed to want to drift off, away from conscious awareness.
+
+My dreams were terrifying. Sadie and I were being pursued through the desert. There was the bloodcurdling scream again out in the desert. I couldn’t tell if I dreamt it or it had actually happened and my brain made it part of my dream.
+
+What was that scream?
+
+I woke the next morning to a knock at the door. The morning desk clerk had seen our missing person flyers. He recognized Kay.
+
+“Cuts all over her forearms?” the desk clerk asked.
+
+“Yep,” Rose answered flatly.
+
+He told us Kay and this other woman came every Friday morning to refill their propane tanks at the gas station driving a big pick-up truck with off-road tires.
+
+“What day is today?” I asked.
+
+“Friday.”
+
+“Let’s go!”
+
+Rose and I waited in the gas station lot all morning.
+
+Just as we decided to call it for lunch, a big old beat up pick-up truck with off-road tires rolled into the lot.
+
+Hopeful, we looked.
+
+Neither Kay nor Sadie. Instead, a slender girl sat behind the wheel. When she hopped out of the truck we approached her, showing the flyers.
+
+Her eyes darted around. She looked tired. Creeping out from under her sleeve, I saw a small tattoo of a coiled black snake with a red line running through it. The same one as Sadie had gotten the day before she’d run off.
+
+“Look, I don’t want to get anyone into any trouble.”
+
+She began, but I interrupted her.
+
+“These are our sisters. We just want to buy you a coffee and breakfast. Just to talk.”
+
+Her whole expression, really her entire body language, changed instantly.
+
+She ate a full plate before she spoke again.
+
+“You look just like Kay, actually,” she said when she looked up from her plate. Her name was DeAnna. She told us Kay normally came with her to do propane runs but that today she was busy with preparations back at camp for the night's full moon ceremony.
+
+“What about Sadie?” I asked.
+
+DeAnna said she had heard Sadie had gotten unwell and had left camp for the state capital a few days before DeAnna had arrived.
+
+She agreed to take us to Kay and the camp in the Family’s pick-up and we had to promise we would not ask about the Shaman. Also we were not to ever call him that. That was for outsiders.
+
+“In the Family, we call him Master,” DeAnna said.
+
+I remember rolling my eyes at Rose, who winked back at me.
+
+We piled into the old truck. I let Rose ride shotgun. I crept in the back next to a rusty tire iron. The engine sputtered and DeAnna pumped the gas pedal a few times.
+
+“Works like a charm.”
+
+And we were off. Driving for an hour or so through boulders, sand and giant saguaros. The only sign of life was a hawk flying through the sky with a snake coiled in its talons.
+
+The first thing I noticed at camp was the bus. Blood red, and raised on monster tires. Desert runners.
+
+A bit further off a group of people were building a wooden structure.
+
+“A pyre. For the full moon ceremony tonight,” DeAnna explained.
+
+“What goes down at the full moon ceremony?” I asked.
+
+“Oh, you know. Human sacrifice. That kind of thing,” DeAnna said with a smile.
+
+“Wait here,” she added. “No men.”
+
+She blew me a kiss, took Rose by the hand and disappeared into the blood red bus.
+
+Army training kicked in. I studied my surroundings and did a head count. Nine women, all building the structure and three men, standing around. The men seemed to be observing them. They were two broad-shouldered guys and a short wiry fellow who seemed to have a permanent grin.
+
+Two mangy black dogs barked in the distance. Vultures circled over a distant ridgeline on the horizon.
+
+Then the bus door swung open, and Rose stepped out with the sun turning her hair gold. She looked stunning. I noticed her smooth neck, no scar, and realized it wasn't Rose.
+
+"You must be Chris! I'm Kay,” she said.
+
+Gazing into my eyes, she added, “You have Sadie's eyes!”
+
+"And you have Rose's eyes!" I blurted out.
+
+Rose and DeAnna came out of the bus. Both with wide smiles.
+
+“He's cute,” Kay said, still staring at me.
+
+“I know,” Rose said.
+
+She planted a quick kiss on my mouth so fast it was over before I knew what had happened.
+
+“Okay, let's go! We need to get ready for tonight's ceremony,” DeAnna said, ushering the sisters back into the bus. "Why don't you just relax in the shade with some water."
+
+DeAnna handed me a water canteen and pointed me toward the shade of a gnarled desert willow.
+
+I took a sip, and I remember it tasting earthy, and the next thing I remember is waking up drooling hours later. I knew hours had passed because the sun was so much lower. Camp was empty. Just the bus, the pick-up truck, the wood pile and the mangy black dogs sniffing around for food.
+
+I had this awful feeling of anxiety like something was terribly wrong. I got to my feet and was about to walk to the bus when I heard a voice.
+
+"Hey."
+
+I swung around. Kay was looking up at me, smiling. She stepped close, close enough that I smelled coconut oil. Kay reached into a red leather handbag and showed me what she held in her hand.
+
+A small glass pipe.
+
+Next she reached into her bag and pulled out a bundle of brown paper. Unfolded it, revealing a crystal. Colored like dirty snow. Parts of it reflected the light.
+
+"Cielo."
+
+I was not ready for this.
+
+“Listen to me,” Kay said, suddenly serious. "Sadie, your sister, she hasn't gone to the capital. She didn't get sick. That's just what we said to that new bitch DeAnna."
+
+I was shocked Kay spoke this way. Using the word bitch. It seemed so unlike her, or Rose. Kay leaned forward. No longer smiling. Our faces were inches apart. Her emerald eyes burned into mine.
+
+In a whisper she told me Sadie and the Shaman had gone out to the desert together. For a special initiation. A final test. Not everyone in camp was allowed to know. She hadn't even told Rose. Could this be our little secret? Sadie and the Shaman would return for the night's festivities.
+
+She held up the pipe and packed it with the dirty snow crystal. It glimmered in the sunlight.
+
+"Are you ready?"
+
+"Fuck no."
+
+I took a half step back.
+
+Kay brought the pipe up to her mouth. Lit the crystal and deeply inhaled. She locked her gaze on me, grabbed hold of my hands, and kissed me.
+
+I kissed her back, and pulled her against me.
+
+But that's when I realized she'd exhaled the smoke into my mouth. Panicked, I accidentally sucked the venom deeper into my lungs.
+
+I snapped open my eyes. Kay's were already wide open. I pushed her off me. Confused. And started violently coughing.
+
+Thick smoke came out of my mouth. Curling in strange ways. Like a snake.
+
+I looked up at Kay. She had the strangest expression on her face. I couldn't quite place it.
+
+I staggered backwards, and then the colors all started bleeding together, before everything turned black.
+
+Then the visions began. First it was Rose. Beautiful Rose. Smiling at me. Her face flickered and she became Kay. She started laughing. Harder and harder. Until her face started to morph. Disfiguring. Liquified. Her skin melted off, as she kept laughing, until only a skull was left.
+
+Cackling.
+
+Her cackling became a man's laugh. It was me. I was the one laughing.
+
+Two giant eyes melted in the sky. Then more eyes, then millions of eyes.
+
+The next thing I knew I was a hawk. The one I had seen on the drive out to camp. A viper writhing in my talons. I watched as the viper swung back and sank its teeth into me.
+
+I could feel the fangs bite down, and the warm venom entered my bloodstream.
+
+I became a spectrum of light. An endless fractal landscape of patterns repeating within the patterns into infinity. This insight gave me a warm feeling. Like a warm comfortable bath on a cold rainy day. But then a surge hit my stomach. Like being punched.
+
+I threw up.
+
+When I came back to this planet, I remember smelling the smoke. I could hear the beating of a drum. I couldn't move my arms.
+
+The sun was long gone. A million stars hung over the desert beneath a brilliant full moon.
+
+My eyes slowly regained their focus.
+
+A raging fire consumed the wooden pyre. Figures were dancing around it. All were naked with large animal masks on their heads.
+
+Then it hit me. I was tied to the trunk of the willow tree.
+
+And tied to my right was Rose. Slumped forward. Vomit on her chin. Knocked out. She appeared to be breathing. A flutter behind the eyelids.
+
+Panic set in. I tried to struggle loose but the ropes only became tighter and tighter.
+
+Tears formed in my eyes as I looked back at the raging bonfire. The women all wore deer masks on their heads. The two big men were wearing wolf masks. The small wiry man was a jackal or coyote. He was the one beating the drum.
+
+None of them looked at us. They were whipping themselves into a frenzy.
+
+Beside them stood a stone slab table with a large axe on it.
+
+I shuddered and felt the sharp edge of a broken branch stick into me. This gave me an idea and I inched myself over and began using the sharp edge to saw through the rope by subtly twisting and turning.
+
+Then the drumming abruptly stopped.
+
+Everyone slowly turned, as if in a trance, to face outward into the night.
+
+The roaring of an engine approached. I strained through sand and tears and saw a motorcycle rider cutting across the desert.
+
+I desperately kept sawing the thick rope on the jagged edge of the tree. I was making progress as the dirt bike came screaming into camp.
+
+Mounted on a bike sat a figure in bloodstained white clothes. A bleached deer skull with branching antlers covered the head. I knew it was him.
+
+I suddenly felt sick to my stomach. If the Shaman was here alone, then where was Sadie?
+
+The Shaman got off the bike with a large satchel slung over his side.
+
+Everyone in camp dropped to their knees, touching their heads to the ground.
+
+It was so quiet you could hear the whipping of the wind.
+
+The Shaman appeared to be looking towards Rose and me tied to the willow tree. I pretended to have my eyes closed and squinted through my eyelashes.
+
+I could have sworn the Shaman looked right at me. I saw the giant deer skull tilt to the side, as if he was curious about me.
+
+Slowly he walked up to the stone table. Surveying his followers, their heads pressed deep into the sand.
+
+With one violent movement he slammed the satchel onto the slab, stuck his hand into the bag and what he pulled out took my brain a split second to register.
+
+A severed human head dangled from the Shaman’s outstretched hand.
+
+Eyes wide open. Mouth twisted in agony. A thin white line of teeth.
+
+“Master. Master. Master. Master. Master.”
+
+The Shaman tossed the head to the ground where it landed with a thud.
+
+A chant started in the group. Disembodied voices coming out of the masks.
+
+The jackal, who’d been drumming earlier, came scurrying up. In his arms he held what I thought were a bunch of sticks.
+
+When he rammed them into the ground, I saw they were three wooden stakes.
+
+Next he grabbed the severed head by its long black hair, took it in both hands, raised it up over the stake and brought it down with a sickening plop.
+
+My stomach finally gave in and I vomited off to the side.
+
+I was about to get back to sawing through the rope when I saw the two big dudes in wolf masks marching towards us. I pretended to be passed out, but looked through my lashes.
+
+To my horror, I saw that one held a large machete. I had to bite on my lip to not yell out. They cut the rope around her, tossed the machete in the sand and carried her together to the Shaman.
+
+Desperately I kept sawing on the rope. Getting closer now. I could feel it giving way. Right there in the sand I saw the machete. It glistened in the firelight. The possibility of surviving this nightmare came into my mind.
+
+I watched as the men hoisted Rose onto the slab, where the Shaman promptly began inspecting her.
+
+He held the axe up and, with one flick, snapped off her dress. So beautiful in the firelight. The horror of seeing her like this. Splayed naked on that stone table.
+
+The two wolves started howling. They turned and headed back out. To come get me.
+
+They were but fifteen or so steps away from the tree.
+
+Finally the rope gave in. I narrowed my eyes to slits. Counting their steps.
+
+When they were within five or six steps, I exploded.
+
+The ropes flew off as I jumped up and grabbed the machete.
+
+As I got up and turned I could feel the blade going into one of the wolves. Right under his ribs. As a medic, I knew I’d hit his liver and potentially other organs. He’d be dead within minutes.
+
+Bam. The other wolf cracked me in the mouth with his fist. Bam, another fist hit me. I hit the ground hard. And spit out my front tooth.
+
+The wolf pounced on me. His weight crushed my chest. Black eyes glared at me beneath the wolf mask. His large hands wrapped around my throat. Airflow stopped. I tried to pull on his arms but they were like steel cables.
+
+Thrashing with all my might did nothing. I looked up at the wolf mask, the trillions of stars in the sky. The world was about to turn black. This was it.
+
+Images washed over me. I thought of Sadie, our childhood, the insanity and Rose. A glimpse of love, a life together. My life was slipping away, when my right hand hit a rock. A large, sharp rock.
+
+I gripped that cold stone and with my remaining strength I bashed it into the side of the wolf’s head. He instantly let go. Dazed.
+
+Whack, I smashed the side of his head again with the rock.
+
+He hit the ground with a thud. Knocked out or worse.
+
+I shoved him off me and scrambled to my feet.
+
+The jackal was already running at me. A buck knife held high in his hand.
+
+Behind him the women in deer masks remained kneeling. The Shaman’s head was cocked to the side again. As if curious about me.
+
+I could taste the blood in my mouth. My tooth lost somewhere in the sand.
+
+The jackal’s mask fell off, exposing his grinning face below.
+
+Only ten more steps. Between us was the body of one of the wolves. The machete sticking out from his ribcage.
+
+Adrenaline pumping. I dove for it and pulled the blade out of him. My stomach turns as I think of the feeling.
+
+The jackal stopped running. He seemed to grin even wider. His eyes were red with hatred.
+
+He tossed the knife up and caught it, so he now held it in a downward position. He spread his arms and legs as he began to circle me.
+
+Again, he threw the knife, catching it with his other hand. His grin turned into a laugh. “Vamos, chico.”
+
+I was teleported back to Iraq. A suicide bomber in Fallujah. He had also laughed as he circled us. Our Sergeant, Boyd, a linebacker from Indiana, had clotheslined him and taken him to the ground. The image flashed in my head.
+
+Three more steps.
+
+I dropped the machete, and leaped at him with everything I had. My arms wrapped around the smaller man’s frame and he went flying into the sand.
+
+I held onto him as we rolled in the sand. The knife had sliced my left arm open, but had fallen out of his hand upon impact.
+
+The jackal was cursing for me to let go as I held him. He stank of piss and sweat.
+
+I had just killed a man, maybe two, but I knew I had to act.
+
+Still controlling his arms, I rolled us to the knife, reached over, grabbed it, rolled back and stabbed right into his chest as he lay on top of me.
+
+He let out a guttural scream as I kicked him off me. The knife still in his chest.
+
+I got up. Checked my arm. Flesh wound. No major artery.
+
+Through the smoke, I saw the Shaman cocking his head to the side, looking at me.
+
+Rose lay naked on the table. The women remained kneeling in the sand.
+
+With my tongue I felt the hole where my front tooth once was. I was covered in blood, my own and others.
+
+The Shaman clutched the axe with two hands.
+
+Twenty or so steps away.
+
+A switch had been flipped inside of me. I picked up the machete and took off sprinting.
+
+Ten steps, five steps and we both swung when I was four steps away.
+
+My machete hacked into the Shaman’s neck. The axe had been too short to hit me.
+
+Shocked, I watched as the Shaman staggered backwards. Head cocked to the side again.
+
+His hand came up slowly, pointed at his eye, then his heart and then at me. *I love you.*
+
+Why would the Shaman do that? How could he know?
+
+I rushed over. I knew, before even ripping off the skull.
+
+Sadie’s grey eyes looked up at me. Practically the same as my own.
+
+Blood pumped from her neck. I grabbed her hand.
+
+She smiled up at me. It was a sad smile I knew so well. The way she always would when we’d drop her off at the latest rehab or halfway house.
+
+She tried to say something but couldn’t. Her breathing slowed and her hand went slack.
+
+I fell next to her. I closed her eyes and folded her hands.
+
+Rose. I had to get Rose.
+
+Somehow I got to my feet. The women who’d all been kneeling also got up. The giant deer masks stared at me silently.
+
+I sprinted to the stone slab and without thinking hoisted Rose over my shoulder.
+
+The nine deer heads started walking towards us.
+
+The pick-up! With Rose on my back, I ran to the pick-up truck DeAnna had taken us here with.
+
+The door was open. I threw Rose in the backseat. The key was still in the ignition. The engine sputtered and died.
+
+Outside, the deer heads were almost at the window.
+
+“Come on, come on, come on.”
+
+A hand hit the window as I pumped the gas pedal three times and turned the key.
+
+Nothing.
+
+The window smashed to pieces. It was Kay. She’d used a rock to break open the window and was now trying to open the door. Her look was maniacal.
+
+A woman in a deer mask appeared, and another. Kay started crawling in.
+
+Bam. BAM.
+
+Rose bashed Kay with the tire iron just as the engine roared to life.
+
+I floored it. Something thumped under my tires. I still don’t know if it was Kay or not.
+
+Sand was flying all around us. The bus’s floodlights came on, but I didn’t look back.
+
+Rose sank back into her submerged state.
+
+I kept my foot pressed down on the gas till we got to the border. It was a demented drive where I just replayed the events over and over in my mind.
+
+Before we got to the border I stopped at a gas station and picked up some clothes for Rose and myself. I got rid of my bloodstained clothes.
+
+Rose slowly woke up when I clothed her. I had draped my jacket on her before.
+
+She seemed out of it, in a daze, and said she didn’t want to talk, just to sit together in silence.
+
+When we got to the motel in Bisbee she asked me to hold her. We didn’t say a word and just sat like that, intertwined, on the bed right there, where Rose is asleep now. She didn’t ask me about Kay once. I don’t know why.
+
+I have not been able to sleep. I killed four, maybe five people last night. One of them was my sister. My tongue keeps compulsively feeling the hole in my mouth.
+
+What happened out there in the desert?
+
+I can hear a heavy engine outside as I type this. I’m going to go check it out.
+
+I’m back. I peeked through the curtains. It is the red bus, all right. Idling outside our room.
+
+Rose is sitting up now. She's looking at me with those beautiful heaven-blue eyes. Her face is full of love.
+
+“Master. They're waiting for you.”
+

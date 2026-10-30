@@ -2,11 +2,15 @@ I am either having a total psychiatric emergency— or the *weirdest* filler sid
 
 The name I'm going to use is 'Alex.' Please don't try to figure out who I am. I want to maintain some sort of anonymity because of my job and honestly???-- there's a chance you've heard of me. I'm an influencer, specifically a Men's Health and Business Coach, and NO I am NOT a 'redpilled podcaster,' grow up.
 
-My fanbase (and haters) are *seeeeriously* active and I don't want to take any risks being exposed as some schizo-freak losing his mind on a forum. I’m involved in the ‘looksmaxxing’ community and that comes with very *particular* expectations. Also I genuinely dgaf if you think thats problematic. I make my money with my face, and I’ve tweaked a lot of it. Ascension is the goal and honestly?-- I’m like *there* dude but… you can always improve right?
+My fanbase (and haters) are *seeeeriously* active and I don't want to take any risks being exposed as some schizo-freak losing his mind on a forum. I’m involved in the ‘looksmaxxing’ community and that comes with very *particular* expectations. Ascension is the goal and honestly?-- I’m like *there* dude but… you can always improve right?
 
-That's what it's always been about, being better. Well, that and ugly people don't get famous. Beauty is pain I guess.
+That's what it's always been about, being better.
 
-The forehead botox I got two years ago was a gateway drug. It's amazing, it atrophies the muscle and you're forever stoic. After that, I got jaw filler then chin filler, buccal fat removal, lipo on my torso and upper arms, and just last month I went to the clinic for my tri-annual touch up. *That's* where it all began, at \[REDACTED\] MedSpa. It was an affluent, privatized clinic with the best injectables money could by.
+Well, *that* and ugly people don't get famous. Beauty is pain I guess.
+
+The forehead botox I got two years ago was a gateway drug. After that, I got jaw filler then chin filler, buccal fat removal, lipo on my torso and upper arms, and just last month I went to the clinic for my tri-annual touch up.
+
+*That's* where it all began, at \[REDACTED\] MedSpa. It was an affluent, privatized clinic with the best injectables money could by.
 
 I was there for some midface filler. It was the same injector, same sterile, grey clinic. My injector, let's call her Leslie, started talking to me about a new and '*exclusive*' procedure on the market.
 
@@ -18,7 +22,9 @@ She *did* look refreshed, I guess. Striking, black eyes glinted at me from thin,
 
 Without me asking she continued— “It’s not your traditional hyaluronic-acid based filler. It’s more natural AND your body is less likely to reject it or move it.”
 
-If you’re unfamiliar with how filler works, it’s notorious for migrating from where it was placed. It’s not a matter of if your filler will move, but when. Leftover goo in your cheeks can move to your neck, or lump up in your lymph nodes after time. I get mine dissolved pretty often though so I’m fine... I think. “It doesn't migrate at all?” I asked, surprised.
+If you’re unfamiliar with how filler works, it’s notorious for migrating from where it was placed. It’s not a matter of if your filler will move, but when. Leftover goo in your cheeks can move to your neck, or lump up in your lymph nodes after time. 
+
+I get mine dissolved pretty often though so I’m fine... I think. “It doesn't migrate at all?” I asked, surprised.
 
 “Doesn’t budge. Not. one. bit.”
 
@@ -26,7 +32,9 @@ I asked her what it was— ‘natural’ and plastic surgery didn't exactly go h
 
 “Go on..” I replied, and watched as Leslie drew up the cloudy filler from a vial.
 
-“You know, the first thing to ever be used in cosmetic injections was paraffin wax.” Her free hand smeared a iodine soaked gauze against my cheek. “After that, it was silicone and if you couldn't afford that— cement or cooking oil.” She laughed wrly, angling the hair-thin needle just beneath the supple fat of my under-eye.
+“You know, the first thing to ever be used in cosmetic injections was paraffin wax.” Her free hand smeared a iodine soaked gauze against my cheek. 
+
+“After that, it was silicone and if you couldn't afford that— cement or cooking oil.” She laughed wrly, angling the hair-thin needle just beneath the supple fat of my under-eye.
 
 No warning before she stuck me, we're past that. The prick stung like a bite and I could’ve sworn I felt the needle, cold and sharp-- knock against my cheekbone.
 
@@ -36,15 +44,17 @@ No warning before she stuck me, we're past that. The prick stung like a bite and
 
 *Scccrraaaaaape*
 
-Leslie continued “But science is always improving, right? That's where Nuvida comes in." She pulled the needle away and wound some gauze so I could nurse my bleeding cheek. "They source the fat from an assortment of hand-selected donors, remove all impurities from it and concentrate it into liquid gold. Apparently it can even encourage bone growth."
+Leslie continued “But science is always improving, right? That's where Nuvida comes in." She pulled the needle away and wound some gauze into a ball so I could nurse my bleeding cheek. “They source the fat from an assortment of hand-selected donors, remove all impurities from it and concentrate it into liquid gold. Apparently it can even encourage bone growth."
 
 I thought she was joking at first. “*Donors*?” I asked half laugh, half in disbelief. “Like cadavers? Like bodies?”
 
 Leslie’s hollow eye twitched at the word. “Yes, technically.” She said stiffly— “But it’s *totally* regulated.“
 
-I told her I’d think about it but I didn't mean it. After I got my rounds of injections, I picked up some pain meds, a green juice, and went home. The prospect of having some dead persons’ refined, fucking fat inside of me creeped me out.
+I told her I’d think about it but I didn't mean it. After I got my rounds of injections, I picked up some pain meds, a green juice, and went home. 
 
-I wanted nothing to do with it— at least at first. And it was all cos’ of that stupid, stupid houseparty.
+The prospect of having some dead persons’ refined, fucking fat inside of me creeped me out. I wanted nothing to do with it— at least at first. 
+
+And it was all cos’ of that stupid, stupid houseparty.
 
 Normally, after I get my tweaks or touch ups, I'd go on live and stream. Get a few compliments, wait for the clips to get reposted on X, soak in the glory, you know-- do a bit of peacocking. But *that* night, I needed more.
 
@@ -85,19 +95,19 @@ I start to fixate on a pimple on my chin. I could've sworn that wasn't there yes
 
 A knock at the door, a voice. It knocks me loose of my nerves.
 
-“Yooo I gotta piss like a racehorse. Open the door—“
+“Yoo I gotta piss like a racehorse. Open the door—“
 
-King.
+**King**.
 
 I opened the door, just barely and peered out, forcing a smile. I must've looked like shit, the way he looked at me. “*Ohoh* shit. Sorry Alex, didn't know it was you.” King smiled thinly. Even his dimples were perfect, mocking.
 
 He clapped his hand on my shoulder, brotherly. “Hey uh, don't let those posts get to you man.” He said, but it was vapid, plastic sincerity. Nervous hands kept tugging on my shirt, trying to conceal an imaginary gut.
 
-“My tip? Go on stream and rage on live. It's surprisingly viable content, dude. People looove that stuff. Just don't go too hard on me, yeah?"
+“My tip? Go on stream and rage on live. It's surprisingly viable content, dude. People looove that stuff.” He chuckled. “Just don't go too hard on me, yeah?"
 
 Neon gum flashed in his mouth behind pearly teeth. Was that how he kept his jaw like that?
 
-"Yeah, f-for sure." I murmured, standing in the doorway. In hindsight I probably looked more like a newborn foal than a man. I could never be him.
+"Yeah, f-for sure." I murmured, standing in the doorway. In hindsight I probably looked more like a newborn foal than a man. I could never be him. I could never be King.
 
 Without a word he squeezed past me, and I shuffled out into the hallway-- back to the party, back to the pulse of music and light. People had moved on from mingling, and were dancing in the living room. I was grateful for the distraction initially-- at least they weren't looking at their phones, looking at me. It still wasn't enough though. I needed air and desperately.
 
@@ -111,7 +121,7 @@ I was nodding off.. the come-down was hitting, and I felt loose, like my muscles
 
 My calm was short lived, cut to the fat in seconds when my hand *slipped* from the wheel and I clipped a trashcan. I jerked awake-- It's wild how fear will sober you. I clutched for the wheel and the back end spun out, spitting tar from the wheels when-- **THUD!** I remember *this* part well.
 
-The backend of my precious McLaren *cracked* against a lamppost and the force whipped my head forward and into the steering wheel with a sickly thud. Splintering pain shot up *hot* between my eyes and throbbed in my brain. I thought I split my head open at first, the amount of blood-- til' I realized that all of that red ooze was coming from what was *left* of my nose.
+The backend of my precious McLaren *cracked* against a lamppost. The force whipped my head forward and into the steering wheel with a sickly thud. Splintering pain shot up *hot* between my eyes and throbbed in my brain. I thought I split my head open at first, the amount of blood-- til' I realized that all of that red ooze was coming from what was *left* of my nose.
 
 "A wet bag of gravel." My doctor had put it plainly while examining my gored face. I would need full nasal reconstruction surgery, and they didn't have any bookings til April. It was *February*. "Lucky for you, Mr. Goddard we've got some of the best reconstructive-surgeons in America. We'll have you looking even *better* than before."
 
@@ -125,17 +135,21 @@ My agent suggested I make a 'storytime series' and really get my money's worth b
 
 I'd developed a system so I don't see the food-runner. Give them the gate code, have them drop it off and without leaving my house, reach out and retrieve my meager rations of green-juice & protein bowls. One day though, some rookie deliverer-- or teenage invalid, left my shit at the gate. I texted them immediately, *demanding* they come back but they were long gone.
 
-Fear needled my spine, my clothes felt tight again. I stared out the window, into the street at the little paper bag, jostling in the breeze. 'Maybe I can use a rake to pull it in..' I thought. 'No, a rake wouldn't be long enough. I have to go out.'
+Fear needled my spine, my clothes felt tight again.
+
+‘*What if someone sees me? I look awful.’*
+
+I stared out the window, down into the street at the little paper bag, jostling in the breeze. '*Maybe I can use a rake to pull it in..*' I thought. '*No, a rake wouldn't be long enough. I have to go out.*'
 
 Sweat beaded at my brow and it stung terribly. I peeked out of the window, checking for neighbors or anyone walking their dog. The coast was clear. I turned the doorknob, put one foot out and-- someone jogged by. I flinched back into the darkness and shut the door, panting.
 
 In the end, I didn't get my food til it was dark out.
 
-I waited til it was a quarter to ten. Nobody would be out at this time. I crept outside, barefoot- so I wouldn't make a sound. I went down the driveway, over to the gate and opened it. I knelt down to grab my delivery and accidentally knocked my mailbox open. An ocean of mail poured out and into the street. "*Dammit.*" I cursed, and hastily started picking them up-- crumpling most of them in my panic before darting inside.
+I waited til it was a quarter to ten. Nobody would be out at this time. I crept outside, barefoot- so I wouldn't make a sound. I went down the driveway, over to the gate and opened it. I knelt down to grab my delivery and accidentally knocked my mailbox open. An ocean of mail poured out and into the street. "*Dammit.*" I cursed, and hastily started picking them up-- crumpling most of them in a panic before darting inside.
 
-I tore into my beef-bowl, and promptly wished I'd ordered more to eat. The GLPs turned mere hunger pangs to stabs but, beauty is pain, right?
+I tore into my beef-bowl and promptly wished I'd ordered more to eat. The GLPs turned mere hunger pangs to stabs but, beauty is pain, right?
 
-Something caught my eye then. On the edge of the counter, where I'd spilled all my crumpled mail, sat a pristine, stamped envelope. I turned it over and nothing. It wasn't addressed.
+Something caught my eye then. On the edge of the counter, where I'd spilled all my crumpled mail, sat a pristine, stamped envelope. I turned it over and nothing. It wasn't adressed *or* stamped.
 
 I tore the top half open, and out fluttered a jewel blue card with '*Get Well Soon*' gaudily printed across the front in pearlescent, pink ink. It smelled sweet, like someone had sprayed perfume on it.
 
@@ -149,8 +163,11 @@ Inside, a note.
 
 *Your friend at \[REDACTED\] Medspa, Dr Leslie \[REDACTED\]"*
 
-I picked up the coupon, it was signed by Leslie and punctuated with a heart.  
-I flipped it around in my fingers, examining it. I guess it couldn't hurt, right?
+I picked up the coupon, it was signed by Leslie and punctuated with a heart. I flipped it around in my fingers, examining it. Tempted..
+
+I guess it couldn't hurt, right?
+
+‘*Maybe I’ll feel better*.’ I thought.
 
 February 31st,
 
@@ -247,24 +264,24 @@ The pressure was building to an unbearable degree. I might've ripped my own head
 
 Something hard, and meaty hit the shower floor. I looked down. Between my splayed fingers, sat what looked like a red jellyfish with viscera pooled around it. I stared. I felt snot trickling down my lips, it tasted like blood.
 
-Shakily, I extended my hand towards the gelatinous clot. It was the size of a lemon, and reeked of disease, like *rot*. Overbit nails dug at the clot, pulling away whatever filth and grime was there until- I revealed what looked like alabaster bone. *My* bone.   
-I vomited on it. 
+Shakily, I extended my hand towards the gelatinous clot. It was the size of a lemon, and reeked of disease, like *rot*. Overbit nails dug at the clot, pulling away whatever filth and grime was there until- I revealed what looked like alabaster bone. *My* bone.  
+I vomited on it.
 
-***“Oh... Oh my God.***" 
+***“Oh... Oh my God.***"
 
 I didn't even turn off the shower I got out so fast. Naked, I dashed to the mirror, nearly slipping on the rug-- and I screamed at what I saw.
 
 A nose. Not *my* nose. **A** nose, poked out from behind the bloodied, sopping gauze.
 
-It was smooth-- too smooth to be real but sure enough, it was. It looked different from my nose. Mine was a Roman nose, and it had a little bump in it-- I inherited my Mom's nose. *This* nose wasn't mine.
+It was smooth-- too smooth to be real but sure enough, it was. It looked different from my nose. Mine was a Roman nose, and it had a little bump in it-- I inherited my Mom's nose. This nose wasn't mine.
 
 *'Did someone frankenstein a fucking nose onto me when I slept? Wouldn't I of noticed that?? There's no way..'*
 
-I blinked, and blinked again-- convinced I had smashed my head in the shower and was seeing things but no- It was there. But it. was. not. mine.
+I blinked, and blinked again-- convinced I had smashed my head in the shower and was seeing things but no. It was there, but it. was. not. **mine**.
 
-To make matters worse, I noticed in one of the hollow nostrils something wound up tight. It looked like a wet centipede. I fingered the thing out of my nostril, and instead of coming out, it unraveled.
+To make matters worse, I noticed in one of the hollow nostrils something wound up tight. It looked like a wet centipede. I dug the thing out of my nostril, and instead of merely falling out, it *unraveled*.
 
-Horror sucked the air from my lungs as I watched a whole *two inches* of black hair hung out of my nostril, caked with viscous globs of blood and snot.
+Horror sucked the air from my lungs as I watched a whole *two inches* of black hair hang out of my nostril, caked with viscous globs of blood and snot.
 
 I'm blonde. **This is not my hair.**
 

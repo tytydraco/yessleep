@@ -1,0 +1,106 @@
+In a distant, clouded past, I hurt my leg on the job, got hooked on painkillers, and ended up homeless. I don’t remember much of the spiral into drug abuse and the stints in and out of jail. It’s one big chunk of my memory gone; grey fog fills in the years between my twenties and thirties.
+
+Once I got back on my feet, I started volunteering at the soup kitchen I had frequented when I was on the street. In the grey fog, the fluorescent lights of the small church cafeteria cut through the drug filled stupor enough to be about the only thing I remember. Thankfully, I’ve been able to fill in the context between my visits there now that I’ve got a job and a place and have been sober for years.
+
+The folks who come to the kitchen are quiet. It takes a lot of work to get them to open up. They mutter words under their breath to one another, nodding and grunting, eyes low in shame of what they’ve done to get here. 
+
+I have one regular who’s become a friend. His name is Douglas. He’s the only one I can get to talk to me. It took a bit, but now I’ve been able to support him a little in helping him get back on his feet by going to rehab. His mind is a window into a past I’ve forgotten and gives me hope I might be able to help other people get out of that fog.
+
+One evening, we were sitting on folding chairs after dinner was served, listening to the rain. A nor'easter was going to make sure we had rain and storm surge for the next week, and with the kitchen being in a low part of town, I was worried we’d have to shut down for that whole time. I looked over at a man and woman who were having a low but very heated discussion. It flowed across my ears as gibberish too quiet to hear. The man, wide-eyed, kept shaking his head, while the woman seemed to be pleading with him.
+
+“Hey Doug,” I said, “what do you think they are talking about?”
+
+He looked up from his soup and tore a chunk of bread from the loaf as he looked over at them. He listened for a second.
+
+“Hrr.” He grunted, shoving some more food in his mouth. “Not good. Not good stuff, Ray.”
+
+“The storm?”
+
+“The rain. Rain’s been picking up. I been feeling it in my back. Gonna get bad here. They’re scared the kitchen’ll close down.”
+
+“With the storm surge?”
+
+“I ‘spose. She thinks so cuz she saw the Can Man.”
+
+I searched my memory for where I might have heard that before, only finding a grey fog of memory. Feelings came viscerally to me; clinking glass, car exhaust, and rain. Cold, cold rain.
+
+“Who’s the Can Man?”
+
+“Well he only comes round when the kitchen’s closed. But you don’t need to worry about him.”
+
+Doug seemed skittish to proceed.
+
+“Why is he only here when the kitchen’s closed?”
+
+“Cuz you’re hungry and you got nowhere else to go. Especially when all the spots are flooded.”
+
+“Who is he?”
+
+“Don’t know. Don’t want to know. Met him once, never want to again.”
+
+“Why not?”
+
+“So far I don’t know anybody who’s seen him more than once and don’t go missing.”
+
+“What does he do?”
+
+“He offers you a can. He offered me one.” There was truth in those tired eyes that cut through everything I would usually attribute to the legends homeless folks told. And the story that followed matched.
+
+“Must have been about ten years ago. Raining for a week straight. Everybody got flooded out of the sewer tunnels. Couldn’t find a dry patch of ground anywhere. All the overpasses were either full or flooded, and people were getting on edge. Starting to fight to get out of the rain. Stealing sand bags from stores.
+
+I was a little stupider than I am now, didn’t mind the rain for a while and warmed myself with the bottle when I could. But after seven days, it went cold and I was waking up with shivers. And it just kept raining. Couldn’t even find a bus stop to sit under. I went to the shelter for the first time. See, I had always been too proud before that. But with rain running down my skin, soaked to the bone, something in me just broke. I stopped making excuses and headed here. Ready to admit I needed help.
+
+Ironic. It was closed for something like the first time since it opened because there was water within inches of the front door, and the volunteer parking lot was underwater. I was feeling the hunger and cold gnaw at my stomach, bite at my fingers. I couldn’t help but hope the back door was open and they’d be serving warm soup, and I’d be the lucky son of a gun who’d shown up.
+
+So I waded into the parking lot, almost two feet of water there. I was losing the feeling in my feet beneath the cold water swirling a mucky brown, bits of trash floating everywhere. I about tripped on a curb two or three times. Scraping my knuckles on the brick wall, I rounded the corner eager for my salvation, practically tasting the food, hearing the people bustling around, giving it out, enjoying it.
+
+There was nothing. Just an empty alleyway with a dumpster rattling in the rain. I tried the back door, figured it couldn’t be stealing if they were planning to give it away for free, but I had no luck with the lock. I even checked the dumpster. It was as empty as the alleyway.
+
+Found myself dreading having to walk back through the puddles, like some sea monster in one  might drag me under. And if I made it beyond that, there was nothing but grey sky and more cold. I thought about climbing into the dumpster to save them some work when picking up the trash before the cold or hunger got me.”
+
+Doug stopped for a second. His leg was bouncing, and he stared at where the wall met the floor, unblinking.
+
+“I turned to go and, resigning myself to the endless search for higher ground, when I heard it. It was a metal \*pop\* \*pop\* \*pop\* \*pop\*. I heard that sound all the way back when I was a little boy. In the grocery store. There was a clerk, stacking cans of beans. I always hated beans as a kid. I was hungry enough to eat them now.
+
+So I turned back, and next to this dumpster, in the corner of this alleyway, is a pile of cans. All the same size, some of them had labels, some had none. Some looked old and rusty, others brand new.
+
+The popping. There’s these long arms of a tall man sitting behind the stack. I couldn’t see his face or his body. He’s sitting cross legged, but those arms are stacking cans above my head. They’re long and slender, like some puppet scarecrow arms, those long fingers picking up the cans and stacking them up. I take a step forward. He’s sitting on dry cardboard even though the alley is soaked. I just want to stand on it. As if he knew, those hands retreated behind the pile and brought out a flattened cardboard box. Long fingers placed it on the ground gingerly. They wiped it like some kind of welcome mat.
+
+And so I stepped onto it. It was the first dry thing I had felt in days. Warmth ran through my feet despite the mist falling on the cardboard.
+
+And I looked up at that pile of cans. I don’t think I had ever seen so many out of a grocery store. Just one giant pile. They were all sorts, musta been filled with all kinds of foods, but I couldn’t tell. When I tried to read a label, a long arm snatched it from my vision and moved it to the back of the pile.
+
+The other hand shot out and grabbed the furthest can forward, moving it to the back of the pile. I just stood there, the arms slowly organizing the cans into a neat wall, six wide, a little lower than my head. Then another row started in front of it, and another, and the methodical popping grew faster as the hands moved. The long fingers were exact every time, knew the lip of every one, not fumbling or letting a single one drop. Soon, the cans were stacking in patterns like a wave. It was so quick I could only see the spindly arms for a split second. The walls of cans grew and died, shifting back on the cardboard. I saw the illusion. I was flying over a hill of green cans into a sky of blue, like I was on some rollercoaster like when I was a kid. And one yellow can was in all of it, moving up and down in a wave. My eyes followed it, starting at the top and descending to the bottom. Over and over. Quicker and quicker. And I just wanted to see the picture.
+
+I opened my mouth and everything stopped. Those hands rested on the knobby knees that stuck out from behind the pile. The yellow can was gone; only blue, green, and brown were left. They were all randomly placed. The picture must have been my imagination. In shivering embarrassment, I said ‘Hey mister, you got so many of them cans. Might you spare me one?’
+
+The fingers tapped on the knees. Waiting.
+
+So I said ‘Please…I got nothing.’ The rain was running down my face in big drops. I wondered if he could see through that wall of cans.
+
+It must have been what he wanted to hear. One of those hands retreated behind the wall and pulled out a can. It was the yellow one. And that hand reached forward, some six feet or so, the other hand leaning on its stack. As the can sat on its palm, I could read the label. ‘Doug’s Hearty Sweet Corn,’ it said in big black and yellow letters. Never saw the brand before.
+
+It was gleaming as it sat on that steady hand, rain starting to spot its face. I reached out, planning to take it, but when my hand got close, something wasn’t normal. The can was warm. If I pulled that tab on top, it would be steaming. I couldn’t get myself to take it, with the cold emptiness inside me seeming like a different world compared to the warmth.
+
+My hand fell away. Just as quickly, the man had pulled it back and put it into the pile, hiding it. Then those hands returned to stacking those cans in a slow, steady rhythm. I mimicked it as I splashed away into the alley. When I looked back, the hands picked up the cardboard and shook the rain off it like a welcome mat, then stowed it behind the cans.”
+
+Doug stopped and sat in silence for a good while. “Every time it’s cold I think about that one can. That it was warm. That it had my name on it.”
+
+His grey eyes cast a melancholic gaze out the window. “Gonna be a bad storm,” he said. He got up, put on his coat, filled his bag with leftovers, and went out into the rain. I finished cleaning up and drove home, wipers beating a steady rhythm to bash away the intensifying rain.
+
+It rained almost non-stop for the next week. Flood warnings made it nearly impossible for me to leave my apartment, and eventually kept me from being able to get to work at the grocery store. With everything closed, I decided to make what I could of the time and practice cooking with whatever I had. I was scared the power might go out and ruin what I had in the fridge.
+
+Rummaging around my meager cupboards, I looked through the forgotten canned goods I told myself would make good soup the last time we had a bad storm. I had made excuses to not use them. Canned goods last forever, don’t they? As I pulled them out and questioned how I thought they would make good soup, I saw one further back than all the others. 
+
+I reached and pulled the green can forward. It was older than the rest, with an easy open tab on top. On its front, in bright black and yellow letters, it said “Ray’s Hearty Cut Green Beans.” The label was old and worn. There was a slight warmth to the can. It brought back the cold of rain on my skin and the sponge of wet cardboard beneath my feet. Soaked shaggy hair hung in my eyes. The stacking cans popped in my ears. I reverently put the can in the back of the cupboard.
+
+The next time I was at the soup kitchen, I was cleaning mud out of the oven. The flood water had gotten above the doorknobs and we had to nearly gut the place for whatever wasn’t cinder block. As I was hauling a bag of drywall to the dumpster, I saw a pile of cardboard boxes in the same corner Doug had been talking about. I stepped up to examine them. A pungent smell emanated from them. I shifted aside one of the boxes, and uncovered a clump of fabric and an open tin can. I nudged the pile of clothes and felt a stiff figure beneath them. 
+
+It was the body of the woman I had seen at the shelter before. The cops thought she must have died days ago. Starvation or hypothermia, but the water deteriorated the body so it was hard to tell. Her name was Ruth. At least I think that was her name.
+
+We eventually got everything cleaned up in the soup kitchen and could open to serve again. People came. Some old faces who luckily weathered the storm. Some new who unluckily lost homes. 
+
+One old face is still missing. I haven’t seen Doug in weeks.
+
+
+
