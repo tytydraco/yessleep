@@ -320,4 +320,4 @@ And then one of the hazmat dorks hit a square red button on the wall, and what I
 
 They had taken me by each arm, and I don’t know I guess at first I thought they were going to try and calm me down or maybe take me somewhere for a glass of water or back to the soulless cycle room, but the next thing I know these bastards are attempting to force me into the incinerator.
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/1xiq0my/i_trained_an_army_of_ai_chatbots_to_write_an/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/1xjlwb9/i_trained_an_army_of_ai_chatbots_to_write_an/)
