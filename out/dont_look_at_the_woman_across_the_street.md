@@ -1,0 +1,155 @@
+Despite it being the peak of summer, Slovakia maintained a cool temperature. Although Slovakia is not the usual vacation spot, one particular couple thought otherwise. The town was small, and not a tourist ridden area, so not only was it affordable, but the area had a sort of charm to it. At least, it did for Lydia.
+
+"I can't believe you didn't make food for the both of us for a fourteen hour flight."
+
+Lydia almost didn't hear her husband at first, staring out of the cab window in awe. Fields of tall grass stretched for miles, small abandoned castles looming over the horizon. The cab drove closer to the quaint town up ahead. Tall buildings made of yellow bricks and mud, cathedral churches that had ivy growing over it. Not regarding the other cars and the modern clothing on the pedestrians, it looked like a set piece for a historic film. Finally processing her husband's words she looked back at him.
+
+"I mean, that's kinda selfish, no? Making your own sandwich and not making one for me?" Simon spoke again, arms folded and bottom lip jutted out obscenely as he glared out the window.
+
+Lydia sighed. "You said yourself the flight served food, I just wanted something extra in case I started getting nauseous. You were very welcome to bring your own snacks or food."
+
+"Well you could've easily made an extra one for me. But no, it's always about you and your comfort. Even this damn trip is for you. We haven't had a vacation since our honeymoon, and you wanted to go here of all places? It's summer and it feels like Autumn here." Simon huffed.
+
+Lydia frowned deeply. "I've always wanted to come here since I was a child, my great grandparents were from here, you know that. Besides, originally it was just going to be my sister and I before you insisted on coming with me instead."
+
+"Sure as hell I am, not letting my wife go to a different country on her own…"
+
+Lydia sighed deeply, knowing she would not win this argument. "Do you always have to act like a child…?" She muttered, but Simon heard, much to her regret.
+
+"Damn you," Simon spat. "You're always the victim aren't you? Fucking hell, I can't ever catch a break can I? I try my hardest ya know? Men these days are always cheating and shit but I have stayed loyal for ten whole years. But no, you don't ever seem to recognize the good things I do—"
+
+Simon's rant was abruptly cut off when the cab driver lit a cigarette. The couple looked forward. A stern older looking man. Lydia noted to herself that he looked like he could own a lighthouse. The man had long wild hair, a silver beard that matched in length and a well kept mustache. His skin was pale and weather beaten. He seemed to have a consistent look on his face, very serious. Although, Lydia caught his gaze, he was looking back at the bickering couple awkwardly a few times through the rear view mirror.
+
+Simon seemed like he was about to make a comment on the cigarette, but his wife beat him to it. Lydia leaned forward, intrigued by this interesting character. "Sir? Sorry but I have to say, you look like you're something straight out of a mystery novel."
+
+Simon glared at her. "Lydia, don't disturb the man by saying such silly things—"
+
+However, Simon was cut off once again by a earnest laughter from the older man. His shoulders bobbed up and down with the pressure of such a hearty laugh. "A mystery novel?" The driver repeated, his English was good, but his accent was thick and his voice deep. "Eh, first time I heard sum' like that."
+
+Lydia smiled slightly, the smoke from his cigarette curling around her features. "I mean it in a good way! It means you have character."
+
+"Ah very good! I aim to please." Once the man had started speaking, his stern expression melted into a one of warmth. "First time in the great Slovakia?" He asked.
+
+"Yes actually! My ancestry is Slavic."
+
+"I see, I knew ya seemed familiar." The driver joked. "My name's Goran. If you need driven anywhere, the hotel has my number."
+
+The cab came to a stop in front of an old building. Deep carvings etched into the walls, with moss growing vibrantly all the way from the bottom to the top.
+
+"Oh, nice choice Lydia, did you purposefully choose the most dilapidated building here?" Simon grunted as he got out of the cab. Lydia took a deep breath and followed suit, with Goran helping with the baggage. Simon went inside to check into the front desk with a quick stride, Lydia lingered back with Goran.
+
+"I'm sorry if my husband bothered you at all… Just had a long flight." Lydia rubbed her hands together to gather some warmth to the chill the evening brought.
+
+Goran shrugged, still huffing on his cigarette. "Men like him are not uncommon, long flight or not."  
+A pause settled over them before Lydia nodded, her hands wringing together more from nerves now. "Well, thank you for driving us, I'm sure we will call you tomorrow to… go somewhere."
+
+Her gaze went from him to the building right across the street from the hotel. This structure looked more decrepit than the hotel. Where the hotel's appearance had a charm to it, the building across the street looked like it could topple over any second. It was a farmhouse, with rotted wood and two stories, not as tall as the hotel obviously, but bigger than an average farm house. Not to mention it didn't quite fit with it's environment, the town a bit more modernized. It was almost like the house had time traveled from the past and landed here, awkwardly squished between newer houses, where it should belong in a field with an animal farm.
+
+It was only a quick glance over, but Goran noticed her look. "I see the old farm house has caught your attention." He hummed, looking at the building alongside her. Before Lydia could ask any questions, he answered them. "This building was here even before I was on this Earth. Anytime they try to tear it down, strange occurrences happen with construction workers dying from debris falling on them. So, they just kept it here. Not to mention, the woman inside."
+
+Goran paused, a dramatic stretch of silence laid over them. Lydia chuckled softly. "Ooo, I love a good folklore story." However when she looked at the man who had warmed up over time, his face was scrunched up once again, his wrinkles accentuated the grim look on his face.
+
+"'Suppose it's whatever you want to believe… but promise me this. Do not look at the woman. Do not look at the windows. Especially the windows on the second floor. Just mind yer business. Give me your word. I wouldn't want to see a nice couple getting mixed up in such things."
+
+Lydia hesitated, only because she felt uncomfortable with the sudden tone shift. Then, she nodded. "I promise."
+
+Goran stomped out his cigarette, saying his farewells and continued on his way. Lydia went into the hotel, only to see her impatient husband standing there.
+
+"Took you long enough, they want to check your passport." After Lydia checked in, they walked down the carpeted halls. Lydia recounted Goran's story when they got in the elevator. Once she finished, Simon snorted.
+
+"And let me guess, you actually believe him?" Simon pushed forward once they got to the second story, Lydia following after him a couple steps behind.  
+"I mean…" Lydia hesitated, now feeling foolish. "He seemed really serious."
+
+Simon let out an exaggerated laugh, pausing to revel in his amusement before unlocking the hotel room. "You're so naive. He knows you're a tourist so he's probably just messing with you."
+
+Lydia decided to drop the topic, the exhaustion from their long flight getting to her. That night, the couple stayed in, watching a movie on his laptop as they lounged in bed, slowly drifting in and out of sleep. That was before Lydia woke herself up at a chilling realization.
+
+"Wait, we are on the second story right? Goran specifically said to beware of the second floor to that farm house…”
+
+Simon hung his head back against the bed frame, groaning loudly. Silently, he got up and strode over to the window. Lydia's eyes widened as she straightened up quickly.
+
+"Simon! Don't look!"
+
+But Simon already opened the curtains. Lydia watched with bated breath, Simon's expression unreadable. From where Lydia sat, the curtains still blocked her view from the outside. But she could see the colors of the sun slowly setting. Then, he finally managed a sound. "Huh."
+
+"Huh? Huh what? What do you see?" Lydia demanded in a panicked tone.
+
+Simon paused again, and before Lydia was about to demand an answer, he spoke slowly. "There is a woman… but, she's not doing anything."
+
+Lydia searched his face, trying to decipher whether he was lying or not. "Are you pulling my leg or are you actually serious?" Her voice was unyielding, and Simon scoffed.
+
+"Of course I'm not fucking lying. Come look for yourself."
+
+"Uh, no way. I don't mess with that stuff, real or not. Just, tell me what she looks like."
+
+Lydia saw his squint for a second before answering. "Well… she's wearing like, a shawl, with uh… what do you call the things that cover your head?" He gestured vaguely to his own head, his eyes not leaving the window.
+
+"A babushka?" Lydia asked.
+
+"Yeah, that… but uh, I can't see much else, she's facing away from me. The room is completely empty it seems… and she's just staring at a wall. She hasn't even moved…"
+
+Lydia finally strode over, grabbing his arm and yanking him away from the window. She quickly shut the curtains, keeping her gaze glued to the floor. She swung around and glared at him. "I told you not to look! But no, you always have to prove me wrong don't you?"
+
+Simon blinked, as if waking up from a daze. His face quickly contorted into anger once her words processed. "This doesn't prove anything! It's probably just a squatter, someone saw her and started a rumor."
+
+The couple bickered until the adrenaline burned them out. Simon fell asleep easily, whereas Lydia laid awake for a while. However, as soon as her eyelids began grow heavy, she heard her husband talking. It was common for Simon to snore, but in all ten years of their marriage, Lydia had never heard him sleep talk. She jolted upright.
+
+"Simon? Did you say something?"
+
+She leaned closer, trying to hear what he was murmuring. To her horror, he wasn't speaking English. He was speaking Slavic. Lydia could only understand a few words, like "wait" and the question "what is your name?". Lydia knew for a fact that he did not know any Slavic, he was barely wanting to learn the basics. How could he speak so fluently?
+
+Lydia couldn't sleep after that. She immediately grabbed her laptop, researching anything she could on this town and that farm house. The only thing she could find was the building was historic, which anyone would know by just looking at it.
+
+Lydia stayed up all night, trying to wake up Simon to no avail. There was one word he kept repeating, a well known word in several languages.
+
+"Mama… mama…" He whimpered all night.
+
+Once the sun had risen, Simon jumped up from bed, rushing to the bathroom and projectile vomiting. That day was spent inside the hotel room. Lydia took care of him, and she asked about his dreams. He simply said he couldn't remember.
+
+The couple didn't talk about why he could be sick. It could be several reasons, being in a different country prone to new illnesses was probable, or even post-travel sickness. But there was another explanation that the husband and wife did not want to say out loud, even if it frequently came into their thoughts.
+
+Lydia kept checking on him as he writhed and squirmed in bed, groaning constantly. A cold sweat had formed on his skin, anytime he ate it would immediately exit in one way or another. And to be blunt, he smelled like soiled diapers.
+
+At some point, Lydia had to go out of the room to get some food for herself and Simon. And to catch a break. She must have looked like a mess, tired and hungry, but she didn't rightly care. The cafeteria had an all you could eat buffet, she waited in line, a bit shaky. Ahead of her in line was two Slavic women talking in English. Lydia was spacing out until their words registered to her brain. Lydia glanced up, they looked like they were going to a funeral, wearing all black and fancy dresses.
+
+"Did you hear about the farm house across the street? Pretty spooky huh?"
+
+"Eh? I guess, when babushka was alive she always told that same story over and over again. It got boring at some point, I mean, in a small town like this, that's really the only exciting thing about it. It's been milked dry for years. Glad I finally moved out of this damn town."
+
+"Well at least you have one exciting thing! In my town the most interesting thing is that there's pheasant who'll sneak into your house at night to steal your socks!" The women laughed.
+
+Lydia built up her courage, fixing her hair and wrinkly clothes before tapping one of their shoulder's. "Excuse me, I'm sorry to bother but… do you think you could tell me more about the house across the street? The story I mean?" The women looked back at her, a hint of judgment on their face as they looked over Lydia. "I'm just a tourist and really into folklore." She explained quickly, flushing at their piercing stares.
+
+The women glanced at each other, one woman shrugged. "Sure. There's different versions to it… but I believe the most popular one was a story of a woman with an abusive husband. Apparently, the woman had a baby, a girl. The husband didn't want a girl, so at night he threw the baby into a river. When the woman found out, she was hysterical. In a fit of rage, she killed her husband. Now, I'm not sure if this last part is true, but when the villagers went to check on them, they were both found dead, the husband's corpse dressed in a baby's outfit, his body so decomposed that he could fit in them. They found the woman cradling him in her lap in the middle of the room."
+
+"What… what happens if you do look at the woman?" Lydia's voice cracked.
+
+"Uh… I didn't know anyone personally who looked at her. The bodies were found on the second floor, so from what I heard, the only way you can see her is from the second floor of this hotel. But I heard whoever does look, goes missing shortly after." She shrugged. "Usually with ghost tales, as long as you have holy water you're safe or whatever. But… from what I know, once you look at her, you're done for.”
+
+They exchanged a couple more words before Lydia rushed back to the room with the meals. Lydia sighed in relief to see her husband wasn't missing, in fact, he hadn't moved at all. When she relayed this information to the bed ridden Simon, he just grunted tiredly.
+
+"You're working yourself up." He grumbled tiredly. "I'll get over this sickness as long as I rest up and keep taking medicine… you're only making me worse with your stress." Simon grunted.
+
+Lydia began to cry. She grasped his hands, then, she prayed. Simon looked surprised, they weren't religious, nor did they talk about religion much. After a moment, he wrenched his hands away. "Jesus Lydia! Get a hold of yourself! Here you go again, making yourself the victim. I'm the one in pain aren't I?" He sighed deeply as her tears fell heavier. "Look, we're both tired okay? I can see you need rest too. Get cleaned up and go to bed alright?" He turned over in bed. "And get me some warm water while you're at it."
+
+Lydia quickly made her way to the bathroom, slamming the door shut. As she began to change and drew a hot bath, she found herself relaxing slightly. Perhaps she was just making a bigger deal out of this than it actually was. Maybe she was just fatigued. Maybe some part of her was tired of taking care of her husband constantly and worrying for him.
+
+After her bath, she checked on Simon one more time, seeing some warmth come back to his cheeks as he slept peacefully. In fact, his cheeks had grown a bit… chubby? No, perhaps they were just swollen. Since Simon had claimed the bed, Lydia set up a space on the couch. Despite being a big uncomfortable, she fell asleep, her exhaustion finally winning out on her.
+
+Lydia didn't know what time she woke up, all she knew was it was dark outside. Slowly sitting up, she checked on Simon in bed. She felt around, only to feel the cool sheets against her fingers. Her sleepy self quickly woke up as she panicked, rummaging around the sheets. "Simon? Simon!" She hurried to the bathroom, but he wasn't there either. Immediately she went downstairs to the staff, asking if they had seen her husband.
+
+But Lydia was such a mess, and with the staff mostly speaking Slavic, they could only offer clumsy comfort to the poor woman trying to speak but her words only breaking into rushed out mumblings and choked sobs.
+
+A staff member must have called someone to translate, because Goran walked into the lobby. "Oh dear, what happened to ya?" When he was only met with panicked words and hyperventilating gasps, he gently led her outside to get some fresh air. "Lean on me if you need to, try to focus on repeating my breathing, okay?"
+
+After calming down, Lydia took a deep breath. "Simon, my husband… he's gone…"
+
+Goran raised an eyebrow. "Was his stuff still in the hotel?"
+
+"Y— Yes but… I don't know… you'll think I'm crazy…"  
+Suddenly, the silent night was broken by a sound.
+
+Both Goran and Lydia snapped towards the source, their gaze landing on the house across the street. A curdling wail echoed the empty streets, so loud, so anguished. A baby's cry. So wet and such a disturbing sound, crying out, “Mama! Mama!”
+
+"Oh fuck…" Goran muttered, then turned to face Lydia. "Your husband looked at the woman, didn't he?"  
+ 

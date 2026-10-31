@@ -1,0 +1,40 @@
+Nothing but static. No matter how many times I turn those little dials, whatever they do, there was just nothing. And I’m pretty sure the volume didn’t work either. If it did, maybe it didn’t work on static. 
+
+
+I had no ideas how modern radios worked, let alone radios from a different century. Why Alex insisted on getting me random “vintage” keepsakes from his regular weekend antique hunting was beyond me. When he gave me that radio, he mentioned it was because he felt like it would fit right in with my dorm room. I have no idea what dorm room he had been looking at, but mine was cramped, cluttered, and in no way inline with any vintage aesthetic. 
+
+I turned the volume dial counter-clockwise until it clicked. Which I presumed meant it was off. 
+
+By the time I climbed into bed and shut off the lights, I saw that the radio actually emitted a faint amber light from near or beneath one of its dials. Great, I thought. There is no world where I won’t fixate on this damn light until I storm out of bed to cover it with a sheet. But I was already so nestled into bed, and with a 7:30am class tomorrow, I was already looking at less than 6 hours of sleep. So no, it was best I deal with this now. But maybe…
+
+I ripped the pillowcase off my bed’s single pillow, carefully aimed at the radio across the room (which let’s be honest, was probably 3 feet), and tossed it to drape and stifle the faint little glow. And I nailed it. I took a moment to let my eyes adjust after the quick moment of activity, making sure it was gone. It was. I had no pillowcase, but I wasn’t too sure why those mattered anyway. 
+
+When I’d laid back down, the static was back, but this time, much lower. Maybe I hadn’t actually turned it off at all. I always had some sort of music on in the background in my dorm, however low and nondescript. I hated complete silence. Just like that little dial glow in the darkness, silence brought out my inclination to fixate on distant sounds. I always like to think this was some amplified, vestigial survival instinct, from a time gone by where my ancestors were world-renowned night guards, keeping their tribes safe from the things lurking in treelines and shadows. 
+
+I mean, it was probably some undiagnosed disorder. But it was my truth to live, and I chose to believe it was my impeccable instincts.
+
+Anyway, the static was back, and I was once again faced with the conundrum - get out of bed and sort this out properly, or hope that the static would be juuuuust staticky enough to count as white noise and actually help me get to sleep. It was coming up on 2am, so I decided that the static and I would try to coexist. 
+
+I closed my eyes with intention, and tried to clear my head. Somehow, I was certain I could still see the glow through closed eyes. Maybe they weren’t closed all the way? I slowly snuck a peek through my left eye, and no. Just darkness in the room. The blackout curtains covering the window entirely shut out the light from the courtyard outside, so my dorm was as dark as I need it to be. 
+
+It must have been one of those burned-in memory things, you know where you look at a bright spot for a little too long, and then you see an after image? Like that. Surprised that this effect could come from a tiny little glow like that, but yeah that must have been it. 
+
+But as I settled into a sort of kinship with the dim static coming from this old-ass radio, something else emerged. It wasn’t only static. There was something under the static. Or maybe woven through it. Dancing between the little crackles like a flit between raindrops. And so I listened, desperately trying to latch onto a pattern in the noise, like my brain was wont to do. 
+
+Was it a metronome? There was a regularity to it, but it wasn’t consistent enough to be a metronome, which if I recall correctly, are pretty much known for their regularity. Maybe like a marching drum? Maybe there’s a tiny piece of a symphonic piece leaking in from some other broadcast? A signal, faint in the noise? But no, it wasn’t quite a drum either; drums have an organic signature to them, the way they sing by way of absence, the emptiness inside them amplifying their voice. There was no emptiness to this. 
+
+Maybe a muffled voice? If whatever station I’d dialed to was maybe picking up on a distant talk show program, I started to imagine the thread between the static could actually be a voice. Though it was so heavily distorted, it’d be too hard to tell for sure unless I got up and fucked around with the dials again. 
+
+Once that thought had settled in, it was inevitable. Of course I had to get up and fuck with the dials again, now that I could hear something weird. What I was expecting to discover, I don’t know - it’s a radio. It will pick up radio stations. The most interesting possible outcome was that I accidentally tuned into some secret channel, some hidden frequency, transmitting secrets to secret places. In which case, I’d probably a) either not have enough context for such a secret to be interesting, or b) be tracked down and killed for my transgression. Most likely outcome was OH HOORAY! I found some Qanon horseshit barking into the void, hoping to radicalize and transform anything it bounced off of. 
+
+At 2 o’clock in the morning, there were no other possibilities that seemed realistic. 
+
+Without turning a light back on, I slinked out of bed and removed the pillowcase, exposing the radio once more along with its light little dial glow. I turned the dial beside the glow, the duller dial, to no avail. That one I assumed was the volume, again. There were three other dials, but since I still didn’t know how radios worked, I followed the light. I slowly began to turn the glowing dial; I’d seen on TV one time where the main character was trying to turn one of these radio dials to pick up a song she was obsessed with, and I recall her being exceptionally careful to get the right station, the right signal. Whatever it was, it required tact. 
+
+So I turned it gently, focusing in on the thing in the static. With a slight clockwise turn, a quiet voice came through, seemingly talking through an introduction to some classical piece. It wasn’t a part of the static. So I turned it back counter-clockwise until the static returned. I kept going, carefully, until the quieter part of the static grew a little louder. 
+
+It was much more like a voice now, but distorted. It sounded - or felt, rather - like it was borne of some organic vibration, like stretching tendons, but more dynamic than a drum. And wholly alien from the typical digital artifacts I was accustomed to. Like a glitch. 
+
+Sitting there in the dark, hunched over and close to this little old radio like a fire in the cold night, there was nothing about this static that felt unintentional. Like the parts between the static, the air between snowflakes, were weeding themselves into the parts in between me. 
+
+I can’t be sure when I realized that these sounds had taken shape as thoughts, as speech, in my head. But in them, a countdown had begun. The countdown started at 216.

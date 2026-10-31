@@ -1,0 +1,217 @@
+I didn’t sleep much that night.
+
+Mostly just lay there, frozen. Wondering if my ears were playing tricks on me. Hoping that if it wasn’t my ears, whatever was in the kitchen wouldn’t decide to pay me a visit. 
+
+Found myself hoping it was maybe a leak. At least that was fixable.
+
+\_\_\_\_\_\_\_\_\_\_
+
+I trudged downstairs the next morning. My dad was already in the kitchen, midway through a bowl of oatmeal. We nodded at each other.
+
+“Hey - you hear any sort of dripping noises recently?”
+
+“Pardon?”
+
+“Dripping. Like a leak. Thought I heard something dripping late last night. Around midnight, after you went to bed.”
+
+“Oh. Nope.”
+
+“No worries. Thought it couldn’t hurt to ask.”
+
+I was looking in the pantry for something to eat when he spoke up again.
+
+“Probably just your mom. Already making her presence known!”
+
+He made an attempt at winking at me. I didn’t brush my grimace off my face fast enough, because he looked away, blinking.
+
+“….sorry. Too soon.”
+
+*Not too soon at all*, I thought to myself, a shiver running down my spine.
+
+My mother holding a grudge from beyond the grave was the last thing I wanted to deal with, but of course I couldn’t tell him that.
+
+“You’re fine… just tired.”
+
+He nodded at me with wet eyes.
+
+“I’ll call a plumber. See if they find anything.”
+
+“Sounds good.”
+
+\_\_\_\_\_\_\_\_\_\_
+
+Life went on... more or less as normal. I still wasn’t sleeping great, but I figured I’d inherited my mom’s insomnia or something. 
+
+The dripping continued intermittently, but as long as I convinced myself it was a leak, it was fine.
+
+I started slowly chipping away at my debt with my work tips. That first Venmo payment to Rick gave me a bitter chuckle. Would this be considered “good” in my mom’s eyes?
+
+I started running and doing bodyweight exercises in my free time. I knew Krista was gone for good, but part of me hoped we’d run into each other, and she would at least see that I was trying to better myself.
+
+\_\_\_\_\_\_\_\_\_\_
+
+I came out of the bathroom one night at work to see Wife Beater sitting at the bar.
+
+We made eye contact. His eyes were sharp, alert. Like a hawk.
+
+I froze. Pictured him walking over, smashing a glass over my head to send a message, then walking out, leaving me crumpled and bleeding on the floor.
+
+Instead, he simply nodded. Ordered a beer, then another, until he had probably six empty bottles in front of him. Then he paid his tab, got up, and left.
+
+I was sorely mistaken in thinking he’d just come for some drinks, though.
+
+Because on the tab, instead of a tip, he’d just triple underlined “TIP” and then written four words in neat script: “NO MORE MINIMUM PAYMENTS”. Like he thought he was being cheeky or something.
+
+I thought of the insurance check. How we should have it by now. Decided to go see about getting it the following day.
+
+\_\_\_\_\_\_\_\_\_\_
+
+The woman at the bank looked at me over her glasses, her eyebrows raised.
+
+“Young man…. Did you think you could just come in… and request the check?”
+
+I looked at her as heat rose to my face, not wanting to admit that I had indeed thought just that.
+
+She grabbed a piece of paper and a pencil. Pushed her glasses back up her nose.
+
+“First off, you don’t go to a bank to do it. You need the policy paperwork and the death certificate.
+
+Contact the insurance company. Submit the documents TO THEM. Then choose your payout method. Should take between 14 and 60 days.
+
+Oh… and are you the beneficiary?”
+
+“I believe my dad and I are both listed, but he’s the primary.”
+
+“Then you’ll need written approval from him as well.”
+
+If I could think of a reason? Maybe he’d sign it. My dad was old, grieving, and generally didn’t care about most things.
+
+But a six-figure payout? That would need to be pried from his cold, dead hands.
+
+It was beginning to look like I was well and truly fucked.
+
+“Oh, and young man? I’m sorry for your loss.”
+
+I was starting to be sorry too.
+
+Just for all the wrong reasons.
+
+\_\_\_\_\_\_\_\_\_\_
+
+My dad was still on the couch when I got home. I doubt he’d moved all day.
+
+“Hey… dad?”
+
+“Yup?”
+
+“Where’s the death certificate?”
+
+He raised an eyebrow. “For…?”
+
+“Work. I asked for bereavement pay since I missed the week after Mom passed.”
+
+He gestured vaguely towards the kitchen.
+
+“Cabinet above the fridge.”
+
+“Got it.”
+
+Anyone with common sense would have known the insurance documents would be right there with the certificate.
+
+But the last few months had shown me to be… lacking in that department.
+
+Maybe that’s why I asked the question I did.
+
+“Are the insurance papers up there too?”
+
+He looked at me, confused.
+
+“What would I need that money for right now?”
+
+I had no answer. He could see that, clear as day.
+
+And then he squinted. Looked at the remnants of my black eye.
+
+I could almost see the gears turning as he made the connection between my debts and the check.
+
+Not enough to outright implicate me in my mom’s death, but enough that his reaction made me wonder if she was indeed present. And if she was now speaking to me through him.
+
+“If you think… I’m going to let you use that money to pay off your debt….”
+
+He looked away, as if to blink back tears of anger.
+
+“I will get the certificate. Then you can take it to work immediately to get your precious money.”
+
+Then he got up, startling me. Walked over to me.
+
+Leaned forward, pressed a finger into my chest.
+
+Snarled at me with watery eyes and a mouth filled with spit, angrier than I’d ever seen him.
+
+“And you can STAY OUT. Work extra shifts for all I care. Sounds like you need it. Because the longer you’re here once I give you that sheet of paper, the more convinced I’ll be to put your sorry ass on the street like she wanted to, the second you asked to move back home.”
+
+I stood there for a moment. I was just about to turn around and walk to the cabinet when he grabbed my arm.
+
+“No. You stay. I’ll get it.”
+
+He walked over, yanked the door open, and somewhat forcefully pulled it out like he was trying to dislodge something. He shoved the folder with the certificate into me, nearly knocking me over. Stalked off. I could practically see the steam coming from his ears.
+
+I nearly sprinted to my room to grab my work uniform, then back out the front door. The whole interaction had probably taken a minute, if that.
+
+I heard him say one last thing as he watched me left, leaning against the wall.
+
+It was quiet, almost too quiet, and I could hear his voice cracking as it came out. And it almost tore me open again.
+
+"What's next…. waiting for me to drop dead so you can get it all?"
+
+\_\_\_\_\_\_\_\_\_\_
+
+A few people had called in sick, so they were short-staffed. I wound up working from the minute I got there, until probably 2am. Hopefully long enough that my father had calmed down a bit.
+
+No appearance from Wife Beater this time, though.
+
+\_\_\_\_\_\_\_\_\_\_
+
+I was sucker punched the second I walked in my front door.
+
+Not by my father, though.
+
+It was the sound of the coffee machine. Mid-pour.
+
+And the fresh scent of grounds permeating the room. Creeping up my nostrils like a snake.
+
+I stood there for a few minutes, paralyzed, before my feet began to slowly move involuntarily as though I was being pulled forward on a rope.
+
+But as I did, dreading what I might see when I entered the kitchen, the *drip-drip-drip* began to taper off…
+
+Then stopped.
+
+And suddenly I was in the kitchen.
+
+Looking at a completely dry coffee maker.
+
+No sign of any coffee having just been made whatsoever.
+
+I shook my head, suddenly unsure I wasn’t dreaming as I read the time on the microwave clock.
+
+3am.
+
+And then I saw it in my reflection in the glass door of the microwave.
+
+A face, peeking out from around the corner of the hallway. 
+
+Just long enough to register in my mind before pulling back.
+
+I turned around. Almost leaped across the room to where the face had been.
+
+There was no one there.
+
+I was equal parts mystified and terrified.
+
+All the lights were on. Whole lot of good that did me.
+
+I had only seen the top half of the face for maybe half a second before it pulled away.
+
+But there was no mistaking the face of my mother.
+
+ 

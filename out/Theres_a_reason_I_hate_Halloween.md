@@ -1,0 +1,222 @@
+Halloween was much different when I was a kid in the 80s and 90s. Our parents would turn us loose with our siblings or with friends to roam the neighborhood and knock on strangers’ doors, with the only stipulation being that we be back home by 9:00 or we’d get grounded and get our candy confiscated as punishment. Other than Christmas, it was my favorite holiday as a kid. 
+
+That changed in 1995 when I was sixteen. Since then, Halloween has been something I’ve had to endure year after year, for decades now.
+
+This is what happened:
+
+I was home, watching old horror movies on TV and handing out candy to trick-or-treaters to kill time before going to my best friend Kara’s house after she got off work at 9 PM. There was a party we were going to try and sneak out to around midnight. 
+
+My little brother, Jake, was spending the night at his friend’s house, and wouldn’t be back until the following day. My parents had headed out to a Halloween party after dinner. They actually dressed up—as zombies—sort of ridiculous, but it was nice to see them excited like kids. It was the last time I’d ever see them happy.
+
+Anyways, that’s all to say, that I was alone on this particular Halloween. 
+
+It was getting close to 9:00 and trick-or-treating was winding down. I was a few minutes away from turning off the porch light (a signal to trick-or-treaters to not bother hitting up our house) when the doorbell rang. And not just once, but several times in a row. *Urgent*. Followed by a long, nervous knock. I opened the door to find four pre-teens on the stoop, wide-eyed, pleading to come inside to use the phone.
+
+”What’s wrong?” I asked.
+
+“Someone is following us,” a blond kid dressed as some *Star Trek* character said. “A…man. We don’t feel safe.”
+
+“We just want to call our parents to come pick us up,” another boy with brown hair said. He was wearing a suit, tie, and trench coat with a fake badge that said “Fox Mulder FBI” clipped to it. He also held a flashlight, and turned to shine the light out past the porch light. 
+
+The other dark-haired boy with chin-length hair, gelled and molded to look electrified, was either The Crow or Edward Scissorhands, sans scissorhands. His face was painted white with black lipstick. The other long-haired, blonde boy was a mini-Jay from the Jay and Silent Bob duo, dressed in baggy clothes and a beanie. 
+
+“Sure, come on in,” I told them.
+
+Having a little brother, I was well-versed in when boys that age are trying to mess with you, pulling some kind of prank. They were scared. No question.
+
+They filed in, pushing each other, and I shut and locked the door behind them.
+
+“What was the man doing?” I asked, peering out the window, trying to catch sight of the lurker. I couldn’t see anyone out there.
+
+“He was stalking us,” said The Crow/Scissorhands boy, fidgeting with his pillow case full of candy. “Watching us from behind trees and bushes.”
+
+“I think he was waiting for us to be alone,” mini-Jay said. 
+
+It occurred to me that it might be a teenager trying to scare younger kids. There were jerks I went to school with who would definitely do something like that. 
+
+“What did he look like?” I asked.
+
+They all glanced at each other, as if debating how to answer the question. For whatever reason, they suddenly seemed even more afraid.
+
+“Was he dressed up?” I asked. “Or in  normal clothes?”
+
+“He was in black clothes,” *Star Trek* Boy said. “Normal clothes. Like black jeans and a jacket?”
+
+“Was he wearing a mask or anything?”
+
+“…No,” said Fox Mulder, solemnly.
+
+“Did you see his face? Like was he old or younger? Did he have a mustache?”
+
+Again, the boys exchanged anxious looks, hesitating.
+
+“What?” I asked, not knowing how to interpret their response.
+
+“It’s just that…” the kid dressed as The Crow/Scissorhands began, then looked away.
+
+“What?” I repeated.
+
+“He didn’t *have* a face,” mini-Jay finished for his friend.
+
+I didn’t understand what the hell they were talking about.
+
+“What do you mean he ‘didn’t have a face?’” I asked. “Everyone has a face.”
+
+“His was…blank?” mini-Jay explained. “Not there?”
+
+“He didn’t have any features,” Fox Mulder clarified. “No mouth, eyes, nose.”
+
+“So he was wearing a mask then?”
+
+They looked at each other again, and shook their heads.
+
+Obviously, it was someone wearing a creepy self-made mask that made it look like their face was featureless. Papier-mâché or some latex-type thing that kept their features hidden and effectively scared the shit out of children.
+
+“Can we just use your phone?” Star Trek kid asked. 
+
+“Yeah, sure. There’s one in the living room, on the end table over there,” I said, pointing. They all moved toward the phone, and I looked outside once more, hoping to spot whomever the boys had seen, but the street was empty. I looked for approximately a minute, studying the shadows for movement. That said, I could only see so much from the front porch window. 
+
+I could hear mini-Jay on the phone, explaining to a parent that someone was following them, and then he asked, “Hey, what’s the address here?”
+
+I walked back into the living room and told him. He repeated it, said ‘Okay’ a few times and then hung up.
+
+“My dad’s gonna give us all a ride home,” mini-Jay said. 
+
+There was time to kill, so I asked them if they wanted anything to drink or eat. They didn’t, so we sat around the living room with the TV turned down low. *Halloween II* was on, and I pointed to the screen, as Michael Myers staggered after Jamie Lee Curtis with his pale, expressionless mask.
+
+“Did his face look like that?” I asked the boys.
+
+“No, we told you,” Star Trek kid said firmly. “He wasn’t wearing a mask. He just didn’t have a face.”
+
+“But it’s dark out there,” I said. “Maybe you couldn’t tell.”
+
+“I shined my flashlight *right* into his face,” Fox Mulder said, looking me straight in the eye. “I saw perfectly. We all did. He didn’t have a face.”
+
+The way they all stared at me, coldly resolute, told me not to question them again. There was no point. They believed what they saw, and a parent would be by shortly anyway to pick them up. This would be a memory to them someday, a great scary story to share with others.  
+
+I told them my name was Angela and asked them what their names were, but it’s been so long ago, I don’t remember. I only remember their costumes, and how unnerved they were. 
+
+“You might know my brother?” I said, switching to small talk. I gestured to our family photos on the living room wall, a few of which featured my brother. “Jake?”
+
+“Oh yeah,” The Crow/Scissorhands said. “I know him. Sort of. He’s in my science class.”
+
+“He’s in my social studies class,” said *Star Trek* Boy. “But we don’t talk.”
+
+“You aren’t friends with him?”
+
+They shook their heads. 
+
+“Maybe we should call the police?” mini-Jay blurted. “What if he gets other kids?”
+
+I thought about calling the police—how that conversation would go: *Um, yes, a man without a face is stalking trick-or-treaters in my neighborhood…* I also happened to live on fucking Elm Street, for real, so that would just sound like a total prank to the cops. Nobody with a brain would take that seriously.
+
+“Let’s just wait until your dad gets here,” I told them. “He’ll decide what to do.”
+
+It seemed like time ticked by slowly as we waited for mini-Jay’s dad to get there. He thanked me for watching them and said he’d ‘take care of it’ —I assumed that meant that he’d look for the guy, or take a shot at explaining it to the police. They piled into a minivan and took off.
+
+It wasn’t until they were all gone that I suddenly realized how alone I was. My parents wouldn’t be back before I left for Kara’s. It was time for me to head that way anyway, and I still needed to get ready. The boys had put me a little behind schedule. 
+
+As I was figuring out what I’d wear to the party and packing up my bag, the phone rang. I figured it was Kara wondering where I was.
+
+“Hello?”
+
+“Angela?” It was a woman’s voice. 
+
+“Yes?”
+
+“This is Mary, Ben’s mom?”
+
+“Yes?”
+
+“Just checking that Jake made it back okay. He was supposed to call when he got home, but I guess he forgot.”
+
+“I thought he was staying at your place tonight?” I asked.
+
+“Well, he was, but…I guess the boys got into a fight after trick-or-treating and Jake said he was going home. I couldn’t give him a ride because I just put my younger ones down to bed and didn’t want to wake them up.”
+
+“He isn’t here,” I told Mary. “When did he leave?”
+
+“Around 9:00.”
+
+It was almost 10:00. 
+
+It only took me a second to realize that he’d been walking home around the same time the boys were at the house. Ben’s house was not too far from our neighborhood—the next neighborhood over, and walking distance. I’d picked him up from Ben’s house before and it was a five-minute drive. Jake would have made it back home in fifteen minutes easily. 
+
+I tried not to panic. He was thirteen and made impulsive decisions all the time. He probably ran into friends on the walk home. 
+
+I told Mary as much, and not to worry. When I hung up, I didn’t feel assured, though. Something didn’t feel right. If my brother *hadn’t* met friends on the walk home, then he would have been walking down our street approximately the same time that the creep “without a face” was lurking around, stalking the boys. I told myself repeatedly that it was probably some teenager trying to scare trick-or-treaters. 
+
+The phone rang, and I jumped. This time it was Kara.
+
+“Where the hell are you?” Kara asked. 
+
+“I can’t leave yet,” I told her. “I have to wait until my stupid brother comes home.”
+
+“Where is he?”
+
+“I don’t know. He was supposed to spend the night at his friend’s house, but they got into a fight. The friend’s mom just called and told me that Jake left to walk home an hour ago, and he’s still not here.”
+
+“What a pain in the ass,” Kara said. 
+
+“Just let me wait a while longer until he gets here.”
+
+“Yeah, okay.”
+
+I hung up and finished packing my bag, and took my stuff back downstairs to the living room to wait for Jake. I kept looking out the windows for Jake and for the creeper, but it was quiet and still. Nothing moved under the streetlights. *Halloween II* ended and *Halloween III* started on the TV. And when Kara called again, near 11:00, I told her I wasn’t going to come over. She was pissed, but something felt very wrong. 
+
+No matter how much I told myself I was overreacting, I simply could not focus on watching the TV and waiting patiently for Jake to return. After a few minutes, I grabbed one of my father’s mega flashlights from the garage and left the house. Perhaps not the smartest thing for me to do as a sixteen-year-old female, but I also wasn’t going to sit around and pretend like something wasn’t off.
+
+Starting with my street, I walked the sidewalks, shining the flashlight beam into shrubs and shadows. There were a lot of trees in my neighborhood, a lot of shadows. Plenty of places for someone to hide outside the glow of the streetlamps. Most of the houses were dark by this point, porch lights off. Some houses were lit up by the glow of TVs. It was too quiet. But nothing seemed out of the ordinary. 
+
+It wasn’t until I got to a large empty lot in between two houses that I suddenly felt like I was being watched. The house that once stood on the lot had burned down and its charred remains had been bulldozed long ago. Years later, nature had taken back over and the lot was mowed infrequently. It was overgrown, and thick with trees toward the back of the property. Maybe the sensation of being watched was a normal reaction to the lot being spooky to begin with, but I couldn’t shake the feeling. 
+
+Both houses on either side of the lot were dark, but lights were on in the house across the street, so someone nearby was still awake. It took me almost a minute to battle through a heavy feeling of dread—the knowledge that I should walk back home and call my parents instead. However, I convinced myself to just venture a few yards into the vacant lot, give it a quick sweep with the flashlight beam just to be sure. There was no way I was going as far back as the trees anyway.
+
+The tall grass whispered dryly as it brushed against my jeans, some of it reaching past my knees. Junk trees and shrubs were growing where the house had once stood, so I had to weave around a bit. Had I taken a different path around a clump of brushwood, I would have missed it. Instead, I almost tripped over it: a Chicago Bulls pillowcase full of candy. I’d seen Jake leave with it empty, heading out the door to Ben’s. I stooped down to pick it up, then shined the flashlight around.
+
+“Jake?” I called out, scanning the lot. “Jake?”
+
+It didn’t make any sense as to why Jake would have come back this far into the lot in the first place, unless he was hiding. But why hide? Why not run up and ring a doorbell like the four boys had? Or maybe he was lured back into the lot? By what though? What would make him want to wander into a snarled mess of shadows and scrub? It was nearly unbearable at night. No kid would willingly do it. 
+
+I stood there for a few seconds holding the pillowcase of candy and scanning the property, afraid that the light would graze across Jake’s body. But I had to be sure he wasn’t there. 
+
+I ventured a few more yards into the lot, closing in on the patch of woods at the far end of the property. And that’s when I saw it—what could only be described as “nothing.” As I scanned the light across the tree trunks, there was a patch of darkness that the light wouldn’t penetrate, or maybe a patch of darkness that immediately ate the light is a better way to describe it. A sort of door-size black hole. I kept moving the flashlight beam across it, watching the light disappear, unsure of what I was seeing. Even though goosebumps had broken out all over my body and every nerve in me was telling me to run, I couldn’t look away.
+
+And that’s when I saw it. It suddenly appeared out of that darkness. A figure. My flashlight beam landed directly upon where a face should have been, but there was no face there. 
+
+The figure stood there, directly in the light, very still. I couldn’t move. My whole existence in that moment was trying to process what I was actually looking at, but none of it made any sense. 
+
+When the figure took a few steps toward me, adrenaline took over. I turned and fled, dodging brushwood, trampling through the grass, still clutching Jake’s pillowcase. 
+
+Once I reached the sidewalk, I sprinted all the way back to my house. I locked the door, and immediately ran to the phone and dialed the number to the house party where my parents were. Neither had a cell phone back then. I don’t remember precisely what I said, but I knew none of it made any sense to them. 
+
+When my parents got back at almost midnight, they called the police, which was no help at all. They said they’d be on the lookout for Jake and to call back the following morning if he wasn’t home yet. 
+
+I explained to my parents numerous times about the boys who were running from a man without a face, and my own encounter. My father even went over to the empty lot himself to look around, but he came back a half hour later claiming he’d seen nothing. He’d even gone back into the trees.
+
+My parents were still wearing their costumes. Unable to settle, my dad made a pot of coffee and told my mom and I to go to sleep. He’d wait up. It’s like he refused to consider the possibility that Jake wouldn’t walk through the front door at any minute. Even though I knew I wouldn’t sleep, I left him sitting in his chair, still dressed as a zombie, his face paint smeared. 
+
+The next few days are a blur in my memory, to be honest. I barely slept or ate. 
+
+Jake never came home. We knocked on doors, asking our neighbors if anyone had seen him on Halloween, but no one had, that they could recall at least. No one else had seen a man with “a blank mask” walking around the neighborhood either. 
+
+The police talked to the four boys and they gave them a description of who they saw, but the detectives told my parents frankly that they didn’t know what to make of it, nor did they seem to believe what I saw. I insisted, along with the boys, that the man wasn’t wearing a mask.
+
+Because of his pillowcase of candy, we knew that Jake had made it back to our neighborhood. He was heading home. He just never made it. 
+
+Earlier that Halloween, after school, I’d helped Jake put the finishing touches on his gangster costume while we ate iced pumpkin cookies our mom made. The pinstripe suit was a little too big, so I helped pin up the legs and sleeves. He had the hardest time standing still, because of all the sugar and his excitement. That memory remains vivid, as it was the last time we ever spent time together.
+
+We were three years apart, brother and sister, so we didn’t always get along, but we loved each other. And then he vanished. I think about him all the time. My parents were never the same. We’ve moved on the best we can, but there’s no closure. No real explanation.
+
+It’s my belief that while the four boys were safely waiting for their ride, the creep without a face had snatched Jake. I’m sure of it, even though it’s something I can never prove. No one ever found any evidence that he existed. For years, he was a regular presence in my dreams—a man in black, faceless, stalking me. He still turns up in my nightmares, over thirty years later.
+
+Every October when people start putting up their Halloween decorations, I begin to feel a particular feeling go to work deep within me, like some kind of insect is hollowing me out one tiny bite at a time. Years of it living in me, waking up from hibernation in autumn only to eat a little bit more before going dormant again once November arrives. 
+
+I don’t let it show, though. I want my kids to have fun, but I hate Halloween so much. I’m afraid to let my kids out of my sight when they’re trick-or-treating. And I can’t help but scrutinize October shadows, always halfway expecting to see a man without a face peering back.
+
+I haven’t seen him again, but I’m asking here—have you? Has anyone you know seen him? When children disappear on Halloween (there’s always a few), I can’t help but wonder if they crossed paths with this person or whatever he is. 
+
+And if you have kids, keep an eye on them this Halloween. Every Halloween.
+
+ 
+
