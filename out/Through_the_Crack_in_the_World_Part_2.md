@@ -1,0 +1,130 @@
+Here's a link to part 1 in case anyone needs it. [https://www.reddit.com/r/nosleep/comments/1xjnwun/through\_the\_crack\_in\_the\_wall\_part\_1/](https://www.reddit.com/r/nosleep/comments/1xjnwun/through_the_crack_in_the_wall_part_1/)
+
+
+
+I woke up Saturday morning with a headache and a runny nose. The day was uneventful, I spent it meandering and doing chores. I took out the trash, did the dishes, and ate breakfast I think. It’s hard to remember exactly, I just remember watching the clock hoping it’d magically be night again. I did whatever I could to pass the time. Anything shy of sticking myself with a syringe, which admittedly took way more restraint than I was prepared for.
+
+I was determined to go to paradise again and I wasn’t letting a bad habit leave me too lethargic to make it there. I felt like a kid the night before a field trip.
+
+I tried watching tv, but nothing good was on. I checked the mail to find that rent was due. “Shit, I’ll pay it next Friday”, is all I thought after seeing the notice. That little transaction the night before had put me a little shy of making the payment on time. I mosied around the house before deciding to  prepare a backpack for our next trip, filled with all the supplies I could think of at the moment: A flashlight, some granola bars, and a bottle of cheap vodka. 
+
+Night did come eventually, I ended up driving up to the factory an hour earlier than the agreed time. It laid deep in the woods, you had to take an old dirt road to get to it. I believe it used to be a wood mill, but I couldn’t tell you for sure. Whether it was built in the woods for some reason or it sat so long by itself that the trees grew around it was beyond me. 
+
+I pulled up to see Randy’s van was already parked outside of it with the headlights still on. I pulled up next to him as he was climbing out of his van. 
+
+“Couldn’t wait much longer either, huh?” Randy said as put my car into park and hopped out. I went over to the backseat and grabbed my backpack.
+
+“Nah, I’ve been basically dicking around all day waiting. We honestly should’ve planned our return earlier in the evening.” I responded.
+
+“Yeah, I feel ya. What’s in the bag dude?” Randy asked. We already started our journey towards the factory. 
+
+“Nothing important, just a flashlight and a few things to snack on” I replied. We made our way to the stairs, and journeyed up them. We took a right, then another, then ventured down the hall.
+
+“Wait up John, what the fuck?” Randy stopped me. “Where did it go?” 
+
+Ahead of us was no intersection, but a regular corner where the walls meet. We stared at it like our eyes were going to burrow a hole to paradise on their own. 
+
+Finally, I half-jokingly said, “I guess you *did* lace us then.” To be completely honest, I was a little devastated at the sight myself. Words couldn’t fully describe how good it felt just being there, the visuals were simply a cherry on top and now it appeared I wouldn’t be able to experience either of them. 
+
+“No dude, there has to be something missing. We couldn’t have just imagined all of that. Come on, what’s the difference between then and now?” Randy asked. 
+
+“The time? We are here an hour early.” I responded.
+
+“Maybe…” Randy stroked his beard as he continued to contemplate on the answer. Suddenly his eyes flashed with intuition. “Dude…we’re not high.” He said it so confidently that it immediately got me on board with his idea.
+
+“Well, do you have anything?” I asked. 
+
+“Shit, not on me. Let’s go check the van, I might have something stashed away or left over from a sale.”  We ran to the car, crickets buzzed in the night as we got outside. I looked up to see the moon was in full, casting its white glow upon us.
+
+Randy was tearing up his van, mumbling and cursing to himself as he came up with nothing. Trash spilled out from the open door and dirty clothes were tossed between seats and thrown into throughout the cargo area. I covered my nose from the smell that poured out into the night. Randy has lived in this van for almost as long as I’ve known him, pretty much since he turned 18. I already knew it wasn’t a life of luxury, but he could at least take the time to clean it every now and then and make it sanitary.
+
+“What kind of dealer doesn’t have any drugs?” I teased him as he searched more frantically. He didn’t reply, instead he swore a little more before hanging his head low. To both of our disappointment, he stepped out the sliding door of his van with nothing. He slammed it shut out of frustration before leaning against it. 
+
+“Hopefully you’re right about the time dude, if so we got about -“, he whipped out his phone and checked the time,  “-37 minutes until it shows.” He let out a long sigh. It seemed like showing up an hour early actually ended up being a waste anyways. Randy was getting ready to wait in the front seat when an idea suddenly struck me.
+
+“You think getting drunk will work?” I asked.
+
+He shot me a glance and produced a sharp sniff through his nose. “Maybe? You got something?”
+
+I unzipped my bag and pulled out the cheap vodka bottle. The seal was still on and the plastic glistened in the moonlight. Randy patted my shoulder and grabbed it from me as soon as he saw it. 
+
+“Fuck yeah dude, John for the win!” Randy stated before cracking it open and taking a huge swig. Almost immediately his face turned sour and he spit a little on the ground. “God, that is awful.” He said with a pained voice. “Tastes like spoiled hand sanitizer.”
+
+I grabbed the bottle from him and took a swig of my own. All the muscles in my face began to contort, the vodka scorched my throat as I forced it down with considerable effort. I would say he gave a pretty accurate description of the taste. Either way we had our key to paradise, so now we had to see if it fit the lock.
+
+We got to the stairs, went up, took a right, then another at the corner, and traveled down the hall all while forcing as much vodka down our throats as possible. It was worth it though, my head buzzed with an acute anticipation as we approached the newly formed intersection. I fought down a surfacing bile in my throat, and peered down towards the wall with “Doorway to Paradise” on it.
+
+Randy didn’t hesitate. With a hiccup, he quickly rushed towards the stone fissure and slipped into it. I wasted no time in pursuing him, and I effortlessly contorted myself between dimensions to enter Paradise.
+
+Our key opened the gate, and we had no thoughts other than to frolic in the fields of Paradise.
+
+Our journey was much different than the last time. The moon glared at us with a distinct orange tint and the fog from before had all but disappeared. Peering outside, the forest of trees had completely disappeared. Instead the entire building sat on top of what appeared to be a lake of darkness that swallowed the orange glow of the moon. Droplets repeatedly hitting the window gave the impression of rain despite no drizzle coming from the eroded roof above. 
+
+My head was filled with an entirely new sensation. It throbbed with an intense pleasure that pulsed along with the tempo of a song reverberating around us that sounded like something from an old-timey diner. The song played on a loop and sounded as if it came from a record player always out of sight. 
+
+The paintings though, beauty beyond comprehension. The walls were no longer littered with random paintings interacting with each other. No, they were massive murals of various settings that all seemed to mirror the aesthetic of the 60s.. Downtown streets, the inside of pubs, various diners, a movie theater; they were so detailed I swore I could walk through the wall into them. 
+
+The sound of a thud followed by a grunt signified Randy actually trying to. 
+
+The murals were populated by moving paintings of people in an almost renaissance art style. They were dressed in attire to fit the 1960s aesthetic of the settings they existed in. They would interact with each other through speech bubbles and onomatopoeia, playing games and singing karaoke in pubs. Street vendors sold hot dogs and ice cream to children with their parents on the downtown streets. Greasers occupied diners and theatres actually made attempts to play movies to a full house of guests. 
+
+“Yo this is like the best night of my entire life.” Randy mustered out between burps. I could barely respond, I was standing near slack-jawed as the waves of pleasure hit me. I took a moment to collect myself, drawing in a deep breath before responding.
+
+“Yeah I think I could die happy right now.” I watched as some guy flirted with women from the window of his corvette on the wall next to me. “Hold up, I actually wanted to check something out.” My mind was getting clearer, not in the sense that the rushes of high hitting me were dampening, but rather I was slowly getting used to them.
+
+I threw my backpack down from my shoulders, unzipped, then pulled out 2 granola bars and my flashlight. I tossed one of the granola bars to Randy and he thanked me as I walked past him and continued down the halls. He was too busy gawking at the new sights to notice me leaving him behind. I unwrapped my granola bar and started munching on it, probably the best tasting granola bar I'll ever have. Through the waves of pleasure twisting my mind like a lotus flower I had two clear goals ahead of me:
+
+Check the timer and investigate the hallway.
+
+I trudged through the halls leaving my friend behind, finding myself still taken aback by how lifelike the murals were. The people moving through each one really gave the distinct impression of a bustling community all trapped within a concrete canvas. The closer I’d get to the intersection though, the more decrepit the settings that would be depicted. The town streets and interior of pubs were quickly turning into alleyways and dark tunnels. These settings were scarcely populated, mostly by trembling and crying figures, until they reached the point of complete vacancy.
+
+The timer sat in the middle of the intersection, 25:13 ticking away at a steady pace. I quickly pulled out my phone to set a 24 minute timer. *Click.* I flicked on my flashlight, and peered down the hallway to my left. Moisture dripping from the intact roof echoed off the halls, and only then did I realize the distant music had long disappeared. Stepping forward, my instincts tickled my heart telling me to turn back and enjoy the forbidden fruit, but some other feeling in my gut told me to see what lay at the end of the hall. My gut told me to see the Gatekeeper.
+
+So I continued to walk forward.
+
+The corridor was deceptively long, and as my beam revealed more and more of it, I saw that it was surprisingly well kept compared to the rest of the building. At last, I had made it to the far wall. My flashlight illuminated a massive drawing underneath the label of “The Gatekeeper”, something that appeared like it was drawn onto the wall with charcoal.
+
+The image depicted a beast, at least the size of a grizzly bear on its hind legs. It stood on massive 3-clawed forelimbs lurched down from its broad shoulders, and two somewhat stubby but muscular legs. Its giant, humped back was lined with hundreds of long bristles like a porcupine. Two sets of arms with human hands attached sat folded tightly against its chest, reminding me of a multi-limbed praying mantis. A head almost like a bulbous human skull sat attached to an elongated neck that drooped low along the middle. Almost being an exaggeration because from where the nose would be to the top of its head, dozens of eyes of various shapes and sizes splayed themselves across its cranium. 
+
+The drawing sat unmoving, completely still like a normal drawing should. Its many etched eyes felt like they were whispering to me that no matter where I hid, it would find me. The dimensions of the wall sat uncannily with me. The roof didn’t seem to slant, not that I could tell at least, but the Gatekeeper’s holding cell seemed much bigger than the adjoining walls. 
+
+“Dude, what the fuck are you doing?” Randy shouted at me from down by the intersection. I jumped a little at the sound of his voice. 
+
+“I just came to set the timer and wanted to see what was down here… you scared the fuck outta me man.” I replied.
+
+“Yeah, well maybe instead of staring at creepy ass drawings we can enjoy ourselves, we only have like 20 minutes left.” He shouted out again, refusing to take a single step into the hallway. “Anyways, check this out dude. I found out something incredible while you’ve been fucking around.” 
+
+He ended up leading me downstairs. The bottom floor of the two story factory is just a huge open area. Other than a few lockers and random rusted tools laid about, there’s no way of telling what it was used for. In Paradise however, it was bright and warm and the walls depicted detailed murals of the inside of a bar. Men and women partied about on the walls and drank from 2-dimensional glasses. 
+
+This isn’t what he wanted to show me though. 
+
+Dragging me to one wall, there was a group of men in blazers playing pool in an isometric view. One of the men was bent over the top right corner of the table, lining up his pool cue to take a shot. Right as he jutted his cue towards the cue ball, Randy swiped at the ball like a touchscreen completely knocking it out of the way. 
+
+I was absolutely dumbfounded, as well as the man in the wall funny enough. A question mark began to form above his head as he stared at the table with the same puzzled expression I’m sure I was giving off. 
+
+“Oh yeah, that’s that dumbass look I was hoping for.” Randy said smugly, instantly changing my expression from wonder to one of slight annoyance. Either way, he did make an amazing discovery, so we spent the last of our time interacting with the paintings on the wall causing mischief and playing our own games of pool on some of the empty tables. We played, and giggled to ourselves like children, prancing along the fields of Paradise until an alarm came from my phone to snap us back to our senses. With deep sighs of disappointment we made our way back towards the entrance. Randy lagged behind me, and as I paced slowly up the stairs, something was becoming clear to me when I would glance at the walls. 
+
+The people were panicking. Each person had worried expressions, and they were frantically finding places in their settings to hide out of sight.
+
+The music was slowly beginning to fade and the rushes of high that were hitting me in waves were dying out. We needed to make haste in our escape,  it was becoming increasingly clear to me that the timer I set was a little too long. I raced towards the entrance and shouted out Randy who was barely at the top of the stairs. 
+
+“Hurry up, we don’t have much time!” 
+
+“What are you talking about-*hiccup*\-how long did you make that timer?” Randy responded, suddenly sounding inebriated. “Ha, duuuude, I feel so-I feel so different right now. What-what happened to that happy feeling…”
+
+Shit. 
+
+I wanted to be mad, but the waves of high leaving me were being replaced with the grotesque drunkenness that is granted from chugging old vodka. I dropped with my hands on my knees, trying with great effort to not vomit where I stood. I grabbed my forehead with one hand and pleaded with him to hurry, periodically turning to the fissure in the wall to make sure it wouldn’t disappear. He stumbled, and his face kept changing expressions from one’s of confusion to one’s of sloshed stupor. He had made it halfway down the hall when the timer hit 0:00. I couldn’t see it from where I was, but I didn’t need to in order to know that our time was up. Luckily, the entrance stayed open but that was the only relief granted to us.
+
+All color immediately vanished from the world like we had been taken over by a black and white filter. The world turned dead quiet, making me painfully aware of my heart pounding frantically against my chest. A deep, primordial fear overtook me against my will. It was the kind that lets you know that there ARE things that go bump in the night. The kind that taught cavemen to build fires to provide them light in the cold nights. I didn’t even have time to realize Randy had already composed himself enough to sprint past me into the exit.   
+From the other side of the building, noises began to echo across its chambers. Something not unlike the crackling of embers coming off a fire, followed by a heavy thud, then another, then two softer pats against concrete, then finally what I can only describe to be the sound of thousands of crickets chirping at once. 
+
+The only time I had ever moved as fast as I did in that moment is when I got chased by a stray dog when I was about 8. I ran to that damned crack in the wall the same way I ran to my older brother with a rabid dog on my tail: pissing myself out of fear. I felt no shame in the act when I made it to the real world, even when I gripped my soaked jeans and forced air to my lungs with labored breathing. Randy sat against a nearby wall, a puddle of vomit next to him. He barely acknowledged me when I walked past him. 
+
+For a moment, as weird as it sounds, I longed to go back as I passed him. I looked at him, he was clearly too intoxicated to drive himself home or answer my next question earnestly, but I asked anyway. 
+
+“Same time next Friday?”
+
+His sunken eyes locked with mine, and he forced a response from bile tipped lips.
+
+“Yeah, yeah I’m down.”

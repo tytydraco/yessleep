@@ -1,5 +1,3 @@
-***Part One***
-
 If the title caught your attention in any way, then to some extent, you know what happened already. You’ve surely seen the reports, the press conferences, or the interviews with the other surviving members. I’ve done my best to stay out of the limelight for the most part, but you’ll come to find out who I am soon enough.
 
 I don’t know why I feel that now is the time to share my story. The news has long since broken, the investigations are underway, and every bit of commentary and speculation from the bottom-feeding reporters and podcasters has been squeezed from the dry sponge of my experience. Perhaps I want the truth revealed, to tell the first authentic and desensationalized side of the experience. Or perhaps I want to rid myself of the memory entirely, my soul cleansed of those torturous months that have haunted me ever since. Either way, I know that I will have no hope of moving on until I make sure my perspective is known. 
@@ -361,4 +359,3 @@ Ilanna looked through the binoculars for a long time, moving her head from circl
 I often think back on this moment. I should’ve left. I should’ve walked, no… ran away at the very first uneasy feeling I got. My instincts were screaming at me in every way possible, pleading with me to get out of there. But I ignored them. I wonder if I was a fool for listening to my mother, for believing for one second that this journey would somehow change my mental state. I wonder if I had ever had it in me to turn around and leave, or if my fate was predetermined, my soul condemned to the cruelty that awaited it in the depths of the Appalachian Trail. 
 
 ***End of Part One***
-

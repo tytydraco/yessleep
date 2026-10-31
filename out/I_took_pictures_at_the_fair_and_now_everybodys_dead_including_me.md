@@ -1,0 +1,37 @@
+I’m not sure where I am right now, so please bear with me. I know it sounds crazy, but after what happened I’m afraid I might be in some kind of afterlife. I thought if I described what took place somebody might be able to make sense of it before it’s too late. I’m an amateur street photographer who likes to shoot on film. I guess you’d call me old school. I use a 35mm Leica M3 camera that came out back in 1954, long before anything digital was around, and I sleep on the couch because I’ve turned my bedroom into a darkroom so I can develop my pictures. I know that if I used a smartphone or a digital camera it would save me the trouble of having a darkroom and I could see the results right away. But using an old camera makes me feel like I’m shooting alongside great street photographers like Henri Cartier-Bresson, Helen Levitt and Garry Winogrand. I’m nowhere near as good as they were, of course, but their work inspires me and the fact that I’m shooting the streets just like they did makes me feel like I’m one of them. 
+
+ Which brings me to what happened last Sunday when I saw the fair was in town, and decided it would be fun to go take pictures. The fairgrounds were already jammed with visitors by the time I got there. A rock band was playing on a bandstand and people were riding the Ferris wheel and the roller coaster and all the other rides. I could hear kids screaming at the top of their lungs because they were so happy. They were screaming so loud they were drowning out the rock band. Their parents looked pretty happy too. There were long lines for fast food snacks like hot dogs and hamburgers, and I saw plenty of kids walking around eating cotton candy and candied apples. Everybody looked like they were having a good time, which is why I was there. I wanted to capture that fun and bring it to life on film. To freeze a smile forever, I guess. I took out my camera and started shooting. I focused on the fairgoers as I wandered through the fairgrounds, and I was glad that nobody minded me taking their pictures. It gave me the freedom I needed to compose my shots for the best possible results. By the time I was done I had shot three rolls of 36-exposure film. 
+
+ When I got home I couldn’t wait to see what I’d shot so I went into the darkroom and started developing the negatives. It can take a while to process 36 negatives, and once I had a contact sheet I would still have to decide which ones I wanted to enlarge to create 5x7 or 8x10 prints that I could add to my photo albums. But something went wrong somewhere along the line, because when I looked at the contact sheet the images didn’t look anything like what I’d seen. It wasn’t just that the joy I’d seen was missing. The people had changed too. But 35mm negatives are pretty small, and my eyesight isn’t the best, so I decided to enlarge a few of the negatives so I could see what was really going on. And when I did that, when I saw the images as they materialized in the developer tray, I shuddered as a chill ran down my spine. Because all the people I’d shot at the fair were dead. Men, women, parents, children, security guards, musicians, clowns, everybody. They were dead. All of them. Their bodies littered the fairgrounds or lay slumped on the rides and picnic tables. My hands trembled as I held the prints. It was as I’d photographed a nightmare, and I wanted to destroy the negatives and run out of the darkroom. Instead, I decided to enlarge all the images to see if they were all the same. But they were all the same. And all I saw was a county fair filled with corpses. I tried to breathe but it was as if the photos were suffocating me. How could this have happened? What had I seen? What was I seeing now?
+
+I decided that I needed to go back to the fairground and see if what I was seeing in the photographs was what actually happened. But when I got there I was astonished to see that the bodies were gone and the fairgrounds were in ruins and littered with garbage. The roar of heavy machinery filled the air. I could see workers wearing hardhats and safety vests using bulldozers and excavators to tear down walls and clear away the rubble. Dump trucks filled with debris ringed the property. The roller coaster and the Ferris wheel had been dismantled, and the sections lay in jagged, rusty stacks like some gigantic modern art sculpture.
+
+I waved to a grizzled worker who looked like a foreman and he waited while I approached him.
+
+“Where’s the fair?” I said.
+
+The foreman took off his hardhat and wiped his brow, then looked at me as if I was an idiot and said, “What fair?”
+
+“I was just here, I took pictures,” I said.
+
+“Not here you didn’t,” he said. “Last fair we had here was twenty years ago, and the company went bust.” He cocked his head at the wreckage. “Stuff’s been getting rusty ever since. “Gonna put up condos soon as we get it all cleared out.”
+
+“I don’t understand…” I said, as the ground shifted beneath my feet.
+
+“Yeah, I can see that,” the foreman said, with a mocking smile.
+
+Then he walked away and went back to work. A worker came up to him. He cocked his head at me and I heard him say, “What was that about?”
+
+The foreman shook his head.
+
+“Said he was here today taking pictures at the fair.”
+
+The worker laughed out loud.
+
+“Takes all kinds, don’t it?” he said, as they went back to work.
+
+My mind reeled as I looked around the fairgrounds. Where was the fair? Where were the bodies? I could barely control the car as I drove home. I left it in the driveway instead of putting it in the garage and went inside. 
+
+It was then that I realized that I had to see if the same thing would happen with any other pictures I took. Maybe it was just the camera, I thought, or maybe something happened at the fair. Either way, I couldn’t explain it. I reloaded the camera with a fresh roll of film, set it on a tripod and took a series of self-portraits using a cable to release the shutter. But my heart stopped when the images appeared in the tray and I saw that I was dead too.
+
+ 

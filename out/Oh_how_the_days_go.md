@@ -1,0 +1,57 @@
+I have a spot where I usually go. Its real quiet, usually dont have to go too far to find it.I use it as a place to go to just throw it all away.
+
+Really gives you a sense of perspective.I mean the place is beautiful.It's a stone ledge with a railing overlooking a lake.What's special about this place is that,the water looks like some kind of dreamlike painting at night.The city lights cascade down into the sea.A kaleidoscope of colours made by street lamps and stores.Sort of like staring at a starry night sky.
+
+Here's the thing, i'm usually alone here.That was infact why this place was so special to me.To get away from the outside world.Then I heard it, there was a song coming from across the lake.It was...a man's voice.A little rough around the edges, grating kind of but..smooth I guess?It was distant and hard to make out.
+
+I tried to pick out where the sound was coming from.Then I saw it, a lone boat drifting across the sea, carried by the waves.It looked like a starship across the vast emptiness of space.At the boats helm was the silouette of a man across the sea from me.Now the first time I saw him I was pretty jarred.I thought to myself. "Is this guy okay?"
+
+ Eventually though he drifted out of sight.
+
+I left after that since it disturbed me pretty bad but, it had to be a one time thing right?Only it wasn't.It happened again and again upon every visit, it was at the point where I could definitely count on it.Now at this point I was getting agitated so I screamed out "Hey!You good man?"But he didnt respond..I got pretty weirded out.I mean he wasn't fishing or..doing anything that would justify him being out there.He just stood in one place and sang.
+
+But at this point I realized.He was getting closer each time I saw him.Each time I visited this place a new milestone had been crossed.
+
+However,still he had not responded to my questions.Day after day I yelled out across the lake my voice echoing throughout the still atmosphere.Yet he stood there ,on the boat,impartial, unmoved.I thought,how isn't he hearing me?If I could hear him he should be hearing me right?Then one day,his song became clear as day.
+
+Now I recorded it with my phone camera so I can safely say what I have written down is one to one accurate.Now I'm not going to show the video because, I want to be the only one to know about this place.That's just my choice.Get upset if you want but this is just how im gonna do things.In a way too...this is to respect him.
+
+So without further delay.
+
+Here you go.
+
+"Oh where'd the days go, where I used to see your smile.You'd dance and prance you'd always laugh, encase me in a trance."
+
+"Oh the day goes, the maggots love your skin.They find their way inside your halls and they are not leaving."
+
+"Oh the days go,weeks and months they pass.I'd try and cry,I'd wry and pry, the thoughts of you won't die."
+
+"Where'd the days go and oh the days go,Oh the day goes, and all the while your ashes pile in your coffin."
+
+"Where'd the days go.Where I used to see your smile.You used to go the extra mile to cease my putrid cries,and others tried but I still see your demise,oh the prize of my eyes."
+
+"Oh the days go,Where'd you go my dear ,heaven has no place for your tears.Oh I'm teared,oh I fear.Where'd you go my dear, you used to be so clear.
+
+"But oh the days go.Oh the day goes.But where'd the days go.Oh how'd the days go.Oh the day goes,Where'd the days go.
+
+"How can you elude me so."
+
+"YOUR BODY IS ROTTING!"
+
+That last sentence was pretty unclear, since he well shouted it out.It was a gutteral scream that seemed to come from the depths of whatever troubles lied in his soul..After the song there was just silence.I was silent as well. The only motion was the boat just rocking steadily under his feet.That song evoked some kind of feeling that churned in my stomach.Whether it was,fear,pity,grief or dread.I dont know,be my guest.
+
+But the next thing I saw had to be some kind of trick of the light maybe.It looked like an apparition maybe?It was 3:00 am and I was tired.But nonetheless it looked like a long flowing white dress.But when I zoomed in with my phone camera I saw nothing.
+
+But I did see the man the clearer than I ever had.It wasn't about whether or not I could actually see him since his face was still obscured.But I could make out one detail...that stuck with me.He looked with a sense of closure.Or maybe I was just seeing things that weren't there.I couldn't really see his face and yet somehow, I knew.After that he drifted away, becoming one with the horizon.The car ride back home was quiet.The only noise was the endless droning of car wheels.
+
+The next time I arrived I saw blaring blue lights,twisting around in circles where I normally went to relax.There were police cars lined up and yellow tape labeled caution hung around the trees.I ran up to see what was going on when suddenly.An officer stopped me with a hand on my shoulder. "Hey you, you can't be here." "Why? What's going on?" I looked past his shoulder to see two officers holding a stretcher, white cloth about to be draped over a body.But it was too late, I saw it.It was a man presumably in his 40s.
+
+His body was bloated, his stomach overblown like it was a balloon about to burst.His skin was discolored with a blueish pigment.His face ,oh god his face.It was a skull with hollowed out sockets like two black suns.The only ghost of an eyeball was an oozing sack in the right socket.The stench too,it was horrid.It was mild but it smelled like the aisle between rotting fish and parmesian cheese.
+
+I stammered to speak. "W-What happened here?"
+
+"We found a body that washed up by the sea you have to move somewhere else"
+
+My head hammered with a myriad of jumbled up questions.A jigsaw puzzle where the peices didn't quite fit.I didn't respond.White noise filled my thoughts,filled my ears but one question stood above them all on a degraded rusty pedestal.
+
+"How long had this man been dead?"

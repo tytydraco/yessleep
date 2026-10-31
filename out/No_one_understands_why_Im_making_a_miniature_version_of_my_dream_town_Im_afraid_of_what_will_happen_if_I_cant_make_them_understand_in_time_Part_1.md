@@ -1,3 +1,6 @@
+**Parts 1 and 2 are in this post. Due to a technical tag issue that couldn’t be resolved, Part 2 got removed from its own post so now it’s part of this one.**
+
+**Part 1: The Dream and the Bookstore**   
 Have you ever had that dream where you suddenly realize you own another house, bigger and cooler than your real house, and you wonder why you don’t live there?
 
 Well, eight months ago I started having a dream like that but instead of a house, it was an entire town.
@@ -129,3 +132,77 @@ So I’m finding balance.
 I just hope it’s the right balance because I’m not getting any second chances.
 
 And neither are you.
+
+**Part 2: The Pep Squad**
+
+As I previously shared, by the time I found The Blue Cat Readery miniature on eBay, it had been roughly two weeks since I had my first dream about my town.
+
+I did not have any more dreams about this mysterious town I own in the two weeks that followed the initial dream. I figured it was just another of my more interesting lucid dreams, like the one where I got to fly around Mumbai (I'm a big fan of Bollywood films) or the one where got to check out the inside of a live volcano without getting burned. While more in the realm of fantasy, I did have a transformative experience in college when I visited the Azores with my Portuguese language and culture class and had the opportunity to venture down into the dormant lava tube, Algar do Carvão.
+
+Finding an object depicting an imaginary place from a dream, however, was a novel and slightly terrifying experience. I didn't really know what to make of it.
+
+I scoured the Internet for such a place, thinking maybe I did see it at some point in life but it had slid into my subconscious, only to reemerge during a dream.
+
+The only hit I got for it was for the item I had already purchased on eBay.
+
+I took a closer look at the seller, something I was too surprised to do initially but which seemed like an obvious next step now. The seller was R. Wainwright Antiques out of Brentwood, California and they seemed to have normal antiques listed besides the item I purchased. I decided to send the seller a message, asking for more information about the item I had purchased. I did not say it was a replica of something from a dream I had. I did not feel like having a stranger question my mental health or think I was some kind of troll.
+
+When the item arrived, it was in perfect condition, an intricately detailed ceramic, hand-painted item. I had to take out a magnifying glass to examine it, which impressed me all the more with the artistry involved.
+
+But where had it come from?
+
+I slipped it into the glass curio cabinet I inherited from my grandmother and decided to leave it there while I further investigated its origin.
+
+The night I received the tiny replica of the bookstore I had no dreams, or at least not any I could remember, which is unusual but not unheard of for me.
+
+Then it happened again the following night and the night after that.
+
+I went an entire week with no dreams I could remember, not even vague impressions, and that began to worry me. Was there some physical or psychological problem underlying this entire situation after all?
+
+The lack of dreams made my sleeping issues much worse, until by the 8th night I could not get to sleep at all. I was jittery and concerned the lack of sleep would begin to affect my new job. This is the job I moved a 5-hour flight away from home to take. (We won't even get into how much more expensive the cost of living is in Seattle compared to outside of Philly.)
+
+Needless to say, I was very anxious for my new job to work out. It's not like there are a ton of decent paying jobs with technical writing firms out there, especially since the rise of AI. And most of those jobs aren't full time or in-person. I honestly lucked out, especially considering that I had been unceremoniously "non-renewed" at my last position. I was dangerously close to ending up as a driver for Uber Eats if it all went wrong.
+
+Frustrated with my insomnia, I decided to go for a walk in the neighborhood. I currently had nothing but water or coffee to drink at home and making a cup of coffee seemed counterproductive to sleep. I thought perhaps I'd treat myself to a caffeine-free soda or maybe a Slurpee. The 7-Eleven on 15th Ave is hit-or-miss when it comes to the alleged "open 24 hours" claim online, but I was in luck tonight. It was clearly open at 2:34 am.
+
+As I entered the store, a young clerk chatting away in Hindustani on a Bluetooth headset barely acknowledged me. I tried to catch some of what he said, employing my "watches lots of Bollywood films" skills, but all I caught was something about someone's mother and a medical issue.
+
+Losing interest in trying to eavesdrop on the clerk, I started to browse the beverage cases when a cardboard sign in the corner caught my eye. It had definitely not been in the store the last time I stopped by, perhaps a week earlier.
+
+The sign advertised a soda I had seen only once before.
+
+In my dream.
+
+An array of bottles fanned out across the poster, each with a smiling blond cheerleader, hands obscured by two great puffs of red and white, on the label.
+
+"Three Cheers for the Pep Squad!" the poster proclaimed, while also advertising that a new flavor, watermelon, was now available.
+
+I almost fled the store, but my feet felt like they'd been permanently soldered to the ground.
+
+Another dream item, somehow manifested in my waking life.
+
+I sucked in my breath before going to the refrigerator case and pulling out a bottle. There was only one choice: the new flavor, watermelon.
+
+Just like the compulsion to buy The Blue Cat Readery on eBay, I had to buy this particular soda. At least it did not seem to have caffeine, despite the "pep" in the name.
+
+"New soda brand?" I questioned the clerk as I pushed the bottle towards him. He had wrapped up his conversation and was now scrolling on his phone.
+
+"I guess. Got it in last week." He shrugged and sounded bored. But why should he be excited about a new brand of soda? It's not like it manifested itself from one of his dreams.
+
+I paid for the soda and sipped it on my way back to my apartment.
+
+The watermelon soda was actually pretty good.
+
+My phone pinged a notification.
+
+It was from Ray Wainwright, the eBay antiques store owner who had sold me The Blue Cat Readery.
+
+He didn't know much about it. Part of an estate lot. In fact, he had several more items like that one if I was interested.
+
+He sent me a picture of one he had just listed.
+
+It was the convenience store from my dreams, a tiny poster advertising Pep Squad Sodas in the window.
+
+I quickly replied that yes, I was interested, and inquired about the other pieces in the lot.
+
+That night I finally got to sleep at around 4 am, and in those two hours and a half hours before my alarm went off announcing it was time to get ready for work, I finally visited my dream town again.
