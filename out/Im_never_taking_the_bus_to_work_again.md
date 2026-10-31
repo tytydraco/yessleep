@@ -1,0 +1,24 @@
+I work as a morning cleaner at a superstore close by. Its about a 15 minute walk but waking up at 5 am and walking to work was too much for me. i would be so tired at work and walking home after a 5 hour shift would destroy me. 
+
+I started taking a bus to work, it got me there 5 minutes before my shift started and it was so much better and worth the bus fare because i could come home and not be so tired that i instantly go to sleep.
+
+The day it happened was a Friday, it was payday and the last day of my work week i was very happy waking up. I waited for my bus as usual with avenged sevenfold blasting in my headphones. I walked onto the bus and greeted the driver while scanning my card. I walked to a seat in the middle of the bus and looked out the window.
+
+the bus ride usually takes around 7 minutes but today it felt so long. i checked the time and it was still 5:45 which is when i got on the bus. I looked out the window and i didn't recognize where i was, i then looked towards the driver and the mirror which lets you see him and i saw no one there. 
+
+I walked up and something was turning the wheel and using the pedals. i got so scared i backed up back into a seat and looked around again. I saw things as we drove past, something large on the floor sprawled out on all fours and somethings that were taller than trees and buildings.
+
+They were black, like matte black as if light couldn't bounce off them. I watched as their mouth opened and stared at the bus as it flew by them. 
+
+I closed my eyes, music still blaring in my ears and I waited. The song i was listening to ended and while it was changing to the next one i heard a weird voice say to me "if you wish to leave then you must stop the bus". I opened my eyes and looked around i was still alone on the bus, i ran up to the driver seat and tried pressing break. Nothing happened, i grabbed the steering wheel and it overpowered me. I sat back down head in my hands and i was beginning to accept my death. The things outside were now chasing the bus and i couldn't do anything about it.
+
+I took my headphones out and started praying. i looked up from my hands and saw the button to signal the driver you want to stop. I pressed it and prayed it worked. A few minutes later i felt the bus slowing down and  stopping at my bus stop. I looked around the dark creatures were gone. I walked to the front and my driver was back and i heard myself say thank you.
+
+As i walked off and looked around the bus stop and at the store i needed to get to, i heard the bus driver say something "don't worry mate, it don't happen often just avoid the buses during night time" I looked at him with this face that said "wtf do you mean" i guess he understood what i meant by it and said "you disappeared when you sat down and then when you pressed the bell you came back. I've seen it many times it don't surprise me anymore" 
+
+  
+He saluted me and then drove off. I walked to the store expecting my boss to rip me a new one for being late but as i sparked a cigarette before walking in i checked my phone. I was 5 mins early like i always am. No extra time had passed while i had the incident happen to me.
+
+  
+From that day i never take the bus to work in the early morning. I see that bus driver drive past me every morning while i walk to work. he always salutes me and smiles at me. I just wave and wait for him to go around the corner before i continue walking.
+
