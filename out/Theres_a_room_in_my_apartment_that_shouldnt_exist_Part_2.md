@@ -1,0 +1,83 @@
+[Part 1](https://www.reddit.com/r/nosleep/s/H7cZmLWGeg) 
+
+First off, I'd like to thank those who gave advice, or even looked into my story. It helps me feel not so crazy about this whole thing, or it did for a time at least. 
+
+It’s been almost a week or two since the incident, and since then i’ve been trying to get in contact with my old buddy who does shit with forensics. I thought it was a lost cause at first, but after a few days he responded to my email. I’ll put down my emails and his responses below in quotes:
+
+“Hey Derek! I know we haven’t talked in a while, so first and foremost I hope you and Molly are doing okay! Secondly, there’s something I was hoping you could check out for me. Recently I found a strange room in my apartment, and there was this foul liquid that stained my shoes. I’d really appreciate it if you could check it out for me!
+
+Best Regards,  
+Zeke”
+
+“Zeke! Been a while! G;ad to see you reached out, and yes! Me and Molly are doing fantastic, we finally tied the knot!
+
+Your situation is interesting, how is there even an extra room in your apartment? And also, a liquid that smells and stained your shoes??? I’m a bit worried here, I can’t lie, but as your friend I can do my best to help. 
+
+With the whole crisis situation that has been happening, I had to move to at-home work instead. However, they were nice enough to give me some supplies to do my research from home. As long as this isn't a disease, I should be able to find out what it is.
+
+Your Friend,  
+Derek”
+
+“Derek! Thank you for reaching out to me, and I am glad everything is okay. Thank you for helping me out man! You’re the best! What should I do with the shoes and where should I send them?”
+
+“Okay, first, put them in a ziplock bag. Whatever you do make sure it is sealed TIGHT. Duct tape it, whatever. I’m assuming that you don’t have any glass to keep it sealed in, which is fine, this should do. Second, you’re gonna want to send it through my work address. Last thing I want is for my neighbors to think I'm some serial killer, taking peoples shoes in the mail….
+
+Here’s the shipping address: XXXX XXXX XX”
+
+For obvious reasons, I redacted the address. We talked a bit more, but this is the consensus needed for this update. I did EXACTLY as he told me to. I put it in a ziploc bag, sealed it and duct taped it closed, then I shipped it off.
+
+It took him about a week or so for him to analyze it, hence why i’m only now updating you all. But, after he got back to me things took a strange turn…I don’t know what happened, but after this next email he just went dark. Ghost. I don’t know what happened to him.
+
+“Zeke. I HIGHLY advise you to leave.
+
+I don’t know what this shit is that you found, but it’s bad news. I tried testing it for everything, first it popped up for sulfur, then biowaste, and now I can’t even read anything on it.
+
+My suggestion? Pack your shit up, and move the hell out.”
+
+I tried to ask him what he meant by “not reading anything,” but it’s been silent since then. My girlfriend started asking me questions again, and things took a real nose dive here.
+
+”Zeke, what the hell is going on with you?”
+
+“Me? What are you going on about now?”
+
+”You’re up late at night on your computer, you’re sending emails to people you haven’t talked to in years, and now you’ve been sitting on the couch for hours. What’s going on?”
+
+I hadn’t even realized it, but she was right. After sending multiple emails to Derek I zoned out while on the couch, staring at the t.v. The thing was though there was nothing on, it was completely dark. 
+
+“Sorry Emily, I’ve just been feeling a bit down so I was trying to unwind.”
+
+She sat next to me and we talked, I mean truly talked with one another. It was the first time in a while that we had a real heart to heart, for the past few months our relationship had stalled. I’ve been so busy with my own work, which I won’t say here in case any of my coworkers are lurking, and she’s been so busy at her job that we haven’t made time for each other.
+
+I asked her this, “do you think I’m on drugs or something? Or that I’m going through some kind of crisis? You can be honest with me here-“
+
+”Yes, I do, and I’m really fucking worried about you.” She cut me off before I could even process my final thoughts, both of us sitting in silence now.
+
+It was tough to come to terms with it, how do you explain something that’s unexplainable? A hidden room in the apartment that leads to an unknown place, and the next morning it disappears? 
+
+After that she told me that she had to get going, she was meeting up with her friend Sarah for drinks. I told her to be safe, we kissed, and she left. It was just me now, me and our pets.
+
+I made sure to feed them before going back to the couch, and once I sat down I decided to get my mind off of everything and watch some t.v. That was when I realized the movie that was now playing was The Exorcist, a movie where something completely crazy happens. I pulled out my phone like it was going to explode in my pocket, frantically searching my last post until I saw it, advice to contact an exorcist.
+
+The town we reside in isn’t a huge place, but it’s big enough that it has everything that you could need. A shopping mall, restaurants, fast food, an ER, and of course a church. It was approaching 5pm now, and I couldn’t afford to waste anymore time, so I called the number listed online.
+
+It rang for several seconds before someone finally answered, a southern yet soft spoken man calling out to me.
+
+”Saint Arthur Church, this is Pastor Samson speaking, how can I help you today?”
+
+”Hey there, this is going to sound a bit crazy but I need you to stick with me. So the other night I found a room in my apartment, and the next morning it was gone. I tried to get a forensics test done on it but nothing came back, and I’m worried that there may be something haunting our apartment.”
+
+“Really? That does sound like a predicament indeed. Have you noticed any temperature changes? Perhaps a feeling…of being watched?” 
+
+“Yes, yes to all of it. It’s freaking me and my girlfriend out, and I need something or someone to make it stop. Look, could you send someone down here maybe to perform an exorcist? Or maybe someone who could check it out? Please, I’m on my final straw here.”
+
+There was silence for some time, before the man cleared his throat and answered me.
+
+”I see, well I can’t make the decision myself, but I shall speak with the Bishop and see what we can do for you. I promise you son, we will get back to you soon.”
+
+I don’t remember hanging up the phone, but I must have done it at some point since the next thing I knew I was standing in front of the hvac unit door. The puppy was sleeping soundly in his bed, and the cats were curled up on the couch that they made their home. 
+
+It’s just me here now. I don’t know where Emily is, or if the pastor will get back to me. But I decided to open the door again, and through the darkness I can see the long set of stairs again.
+
+I think, for my own sake, I have to go down there and find out what it is. I know it’s dangerous, and I know there’s a chance I could get lost, but I have to prove that I’m not making this up. I have to find out what’s going on.
+
+When I’m back from my investigation I will update you all, until then.

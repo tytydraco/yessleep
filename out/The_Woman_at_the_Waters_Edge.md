@@ -1,0 +1,295 @@
+There are certain things I only do when I'm on vacation. Little guilty pleasures that remind me of being younger, back when life seemed a little less complicated.
+
+One of those is sneaking away early in the morning with a cup of coffee and a cigarette.
+
+I quit smoking years ago, but once or twice a year, usually when I'm somewhere near the ocean, the urge comes back. Maybe it's a Gen X thing. A leftover from the days of grunge music, smoky nightclubs, and staying out until three in the morning without giving much thought to tomorrow.
+
+Whatever the reason, I still enjoy those rare moments. A little time to myself, away from responsibilities, with nothing particularly important to think about.
+
+It was a little before five in the morning on Anna Maria Island when I slipped out of our vacation rental. My wife was still asleep, and I had no intention of waking her.
+
+I grabbed my coffee, a cigarette, and my phone, then headed toward the beach.
+
+The island was quiet. Not the peaceful kind of quiet you notice during the day, but that peculiar stillness that settles over a place when nearly everyone is asleep.
+
+Above me, the moon was bright, surprisingly bright. Its light spread across the sand and reflected off the Gulf, illuminating the beach enough that I could clearly make out the waves as they rolled toward shore.
+
+There was something beautiful about it. The entire beach seemed washed in a pale, silvery light.
+
+I remember thinking I couldn't have picked a better morning to sneak away.
+
+Along the beach were several wooden benches set back from the water. Most had little brass plaques attached to them, memorials dedicated to people who had loved this place enough that someone wanted to remember them here.
+
+I picked an empty bench, sat down, and lit my cigarette.
+
+I was wearing yesterday's shorts and T-shirt, still a little dirty from sunscreen and sand. I hadn't bothered to shower or change. At five in the morning, who was going to care?
+
+I took a sip of coffee, enjoyed that first familiar rush of nicotine, and opened my phone to check the previous day's stock market prices.
+
+That's when I noticed her.
+
+A woman walked past my bench, perhaps fifteen feet away, heading directly toward the water.
+
+She startled me because I hadn't heard her approaching.
+
+The moonlight was bright enough that I could make out her profile, although I couldn't see her face clearly.
+
+What immediately struck me was how she was dressed.
+
+She wore what appeared to be a very nice outfit, something you might wear to church or a formal dinner. Her hair was carefully pulled into a bun. Everything about her looked deliberate and perfectly arranged.
+
+It seemed like an awful lot of trouble to go through before sunrise just to walk on the beach.
+
+I didn't want to make her uncomfortable by staring, especially since we were the only two people out there, so I lowered my eyes and returned to my phone.
+
+A few seconds passed.
+
+Curiosity got the better of me.
+
+I looked up.
+
+She was farther away now, still walking toward the Gulf. The moon illuminated her figure against the darker water.
+
+And then something happened that I still cannot explain.
+
+She didn't fall.
+
+She didn't turn.
+
+She didn't walk into the water.
+
+She simply...
+
+Burst.
+
+That's the only word I can come up with.
+
+There was no sound. No flash of bright white light. Nothing like the special effects you see in movies.
+
+Instead, her entire figure seemed to break apart into thousands of tiny particles, like someone had set off a silent glitter bomb.
+
+I remember the colors distinctly.
+
+Mustard yellow.
+
+Magenta.
+
+Tiny specks of both colors scattering outward for what couldn't have been more than a fraction of a second.
+
+And then they were gone.
+
+So was she.
+
+I sat completely still.
+
+My cigarette burned between my fingers.
+
+I stared at the exact spot where she had been standing, waiting for my eyes to adjust, waiting for her to reappear, waiting for anything that might explain what I'd just witnessed.
+
+Nothing.
+
+Only the Gulf.
+
+Only the moonlight shimmering across the waves.
+
+I looked down at my coffee, then at the cigarette.
+
+Had I imagined it? Was I still half asleep? Had the darkness played some trick on my eyes?
+
+But the moon was so bright. I could see the water clearly. I could make out the individual waves as they broke along the shoreline.
+
+And I had seen her just as clearly.
+
+There was something else.
+
+Just before she disappeared, I thought I'd heard her speak.
+
+One word.
+
+"Carl."
+
+At least, that's what it sounded like.
+
+I didn't know anyone named Carl. I couldn't remember the last time I'd even thought about that name.
+
+Why would she say it?
+
+And more importantly, why had I heard it?
+
+I sat there for several minutes, trying to make sense of everything.
+
+My mind wandered through every possible explanation.
+
+A ghost?
+
+I'd never really given ghosts much thought. I suppose I've always been open to the possibility that there are things in this world we don't fully understand.
+
+But what I saw didn't resemble anything I'd ever heard described as a ghost.
+
+She hadn't been transparent. She hadn't floated above the sand or appeared in some misty white form.
+
+She looked completely real.
+
+Until she wasn't.
+
+Then another possibility occurred to me.
+
+What if she wasn't a ghost at all?
+
+I'd read articles over the years about parallel universes. The idea that our universe might be only one of countless others, existing alongside realities we cannot see or interact with.
+
+What if, somehow, for a brief moment, two of those realities had overlapped?
+
+Maybe the woman had been walking along a beach in another version of Anna Maria Island. A place that looked exactly like ours, with the same sand, the same water, and perhaps even the same moon hanging overhead.
+
+Maybe in her world it wasn't five in the morning.
+
+Maybe it was the afternoon.
+
+Maybe she was dressed for a wedding, or a dinner, or some special occasion.
+
+And for reasons neither of us could possibly understand, I had been allowed to see her.
+
+Just for a few seconds.
+
+Then whatever invisible boundary separated our worlds had snapped back into place.
+
+Was that what the strange burst of color had been?
+
+Not an explosion, but the instant two realities separated?
+
+I wondered whether she had seen me.
+
+Had she noticed a middle-aged man sitting alone on a bench, wearing yesterday's clothes, holding a cigarette and staring at a glowing phone?
+
+Or had I been just as invisible to her as she should have been to me?
+
+The thought bothered me more than the possibility of a ghost.
+
+Because if two universes could briefly touch, even for a fraction of a second, what else might slip through?
+
+Eventually, I put out my cigarette and stood up.
+
+The moon was beginning to sink toward the horizon, and the first faint hints of morning were appearing in the eastern sky.
+
+I walked back to the rental, telling myself that by breakfast I'd probably have convinced myself it was some strange trick of the light.
+
+But I couldn't forget those colors.
+
+Mustard yellow.
+
+Magenta.
+
+And that single word.
+
+Carl.
+
+Two evenings later, my wife and I walked down to the same stretch of beach to watch the sunset.
+
+It was one of those beautiful Florida evenings when the Gulf seems almost motionless, the sky turning shades of orange and pink as the sun slowly disappears into the water.
+
+We found an empty bench and sat together.
+
+I recognized the area immediately.
+
+It was the same row of memorial benches where I'd sat that strange morning, although this one was a couple of benches farther down.
+
+I hadn't told my wife about what I'd seen.
+
+To be truthful, I wasn't sure how to explain it without sounding ridiculous.
+
+We sat talking for a while, watching people stroll along the shoreline. Children were playing in the sand, and a few couples were taking pictures of the sunset.
+
+Everything seemed so ordinary.
+
+Then, as my wife stood to take a photograph, I noticed the little brass plaque attached to the bench.
+
+I leaned forward to read it.
+
+IN LOVING MEMORY OF CARL AND ELEANOR
+
+TOGETHER FOREVER, WHERE THE GULF MEETS THE SHORE
+
+For a moment, I couldn't move.
+
+Carl.
+
+There was that name again.
+
+The name I'd heard—or thought I'd heard—spoken by a woman who had vanished into the moonlight two mornings earlier.
+
+I looked toward the water.
+
+It was almost exactly where she had disappeared.
+
+My wife noticed I had gone quiet.
+
+"What's wrong?" she asked.
+
+"Nothing," I said. "Just reading the plaque."
+
+She glanced at it and smiled.
+
+"That's sweet."
+
+I nodded.
+
+But my mind was racing.
+
+Had the woman been Eleanor?
+
+Had she somehow returned to a place she loved, searching for someone she'd lost?
+
+Or was the explanation something stranger?
+
+What if, in another universe, Carl and Eleanor were still alive?
+
+What if they still came to this beach together, just as my wife and I were doing now?
+
+Perhaps in that other reality, the bench wasn't a memorial at all.
+
+Perhaps Carl was waiting somewhere along the shoreline, and Eleanor had simply been walking toward him.
+
+And maybe, for one brief moment, I'd witnessed a tiny piece of their world.
+
+I looked again at the plaque.
+
+Together forever, where the Gulf meets the shore.
+
+The words seemed different now.
+
+Not necessarily a promise of life after death.
+
+Perhaps a promise that somewhere, in some version of existence, two people who loved each other never really had to say goodbye.
+
+My wife took my hand.
+
+"Ready to go?"
+
+"Yeah," I said. "I'm ready."
+
+We started walking back toward the rental as the last bit of sunlight slipped beneath the horizon.
+
+I glanced over my shoulder one final time.
+
+The bench was empty.
+
+Beyond it, the Gulf stretched endlessly into the fading light.
+
+I still don't know what I saw that morning.
+
+Maybe it was a ghost.
+
+Maybe it was a trick of the moonlight and a tired mind.
+
+Or maybe the universe is far stranger than we realize, and the boundaries between what is real and what is possible aren't quite as solid as we believe.
+
+But there's one thought I haven't been able to shake.
+
+If I really did glimpse another universe that morning, and Eleanor was simply walking along a beach in her own world...
+
+What did she see when she looked back at mine?
+
+And more importantly...
+
+Did she go home that morning and tell Carl about the strange man sitting alone on a bench who vanished in a burst of mustard yellow and magenta light?

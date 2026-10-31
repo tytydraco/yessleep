@@ -1,0 +1,197 @@
+I want to start with an apology. I’m sorry. I’m so fucking sorry. God can’t forgive me, so I don’t expect anyone else to either, but I need to get this off my chest.
+
+
+
+It all started in the bleak summer of ’95. Well, I suppose really it started way back in ’77 when my brother and me first opened for business our great construction aggregates company. It wasn’t Hollywood, but it put food on the table. Lots of food. Year on year, we just couldn’t stop growing. 18 years of success. I was on my third wife, had two homes, and an ’87 Buick GNX in the garage. I was on the mountaintop. Or the edge of a cliff.
+
+
+
+Of course i didn’t realise how close to the edge I was then. I was too taken by the view arrayed below me. Now...well now it seems so obvious. That’s why despite the record heat, the success of taking our company public, or the birth of my first nephew I can still only consider that summer bleak. Bleak. 
+
+
+
+It was a Thursday. Late morning, maybe 11? I’d just left the house following an argument with ex-3, or wife-3 as she was then. Can’t recall what it was about. Infidelity probably. Hers, mine? It’s anyone’s guess. All I remember is I had the engine idling and my head far out the window while I inhaled a cigarette in an attempt to keep the interior clean. That’s when the door swung open and Martha, that’s ex-3, strode onto the porch. Hair still a mess and eyes red from arguing. 
+
+
+
+“Rod said he needs you!” She yelled. Her voice was still raw and she struggled to make the words carry over the engine.
+
+
+
+“Why?” I ended up cutting the engine when her reply got lost.
+
+
+
+“It’s an emergency.” It was around then she realised she was still in a state and wiped at her eyes. 
+
+
+
+“Is it the baby?” I asked. That thought set my heart falling. I was so relieved when Martha said it was work related. So, so relieved. 
+
+
+
+We’d opened a new quarry in ’94 and it had been one thing after another with it. Permits, property lines, equipment failure, groundwater leakage, supply issues. You name it, we had it. I had plenty of time to dream up what might have gone wrong this time as I made my way at high speed to the site. 
+
+
+
+I was there before end of play. That’s what first tipped me off to the weirdness. The place was deserted. I made my way down to the site office with no noise but the radio and no workers but the bees. The site office was similarly deserted save for ol’ Rod, who was sat on a lawn chair out front with a darn rabbit on his lap. It was such a comical sight it still brings a smile to my face, even with everything that came after. 
+
+
+
+“Don’t tell me.” I said as I got out of the Buick. “A magician pulled a rabbit outta his hat before disappearin with all our crew.” 
+
+
+
+Rod chuckled, that deep raspy way he did like a streetlamp caught in a woodchipper. “Naw. I wouldn’t drag your ass from your carer for anything so pedestrian.” He hopped up from his chair, still holding the rabbit mind you, and motioned for me to follow him down the main tunnel. 
+
+
+
+“You bring dad's knife?” Rod asked as we walked. I gave the Ka-bar on my belt a pat. It was from his time in Korea. He’d gave it me as a present on my 18th birthday. Rod had got his service pistol two years prior. He was more precious about carrying that around, though. 
+
+
+
+It was still early days for the site, what with all the problems we had, so it wasn’t deep. Only about sixty feet in and half as tall. Blasting equipment lay strewn around, to heck with OSHA. There were lights set up along the way, but only a few were lit, causing that horrible fluorescent hum. Always hated that sound, feels like it’s in my bones. And of course it’s far worse in a tunnel, where it echoes and reverberates back at you. Rod used to laugh and say there wasn’t no echo from the lights, but I could always feel it. That day it served to mask all those impulses my body was sending me that something was desperately wrong. 
+
+
+
+Just that darned hum making me feel on edge, I thought, when Rod pointed to the fissure off to the right almost at the end of the tunnel. A vertical crack near ten feet high, like a great festering wound on the side of an enormous creature. At first glance it seemed superficial. A mere scratch on the granite leviathan, but as I stared I realised I was wrong. The darkness deeper than stone, beckoning. Out of nowhere the darkness burst with light and I recoiled as though some lurker in the darkness had made its presence known.
+
+
+
+In reality, Rod’s flashlight illuminated the crack, revealing it to be a natural tunnel that we had inadvertently bisected. Concealed within the stone for untold millennia until providence guided us to it. 
+
+
+
+“It’s a squeeze, but you can fit down there.” And you could. Hunched slightly and doing the sideways shuffle there was just about enough clearance. Rod led the way, maglite in his left hand, rabbit swaddled against him in the right. I followed close behind. It was like being swallowed by a leatherback sea turtle. Moving along the way was nice and easy, but any hesitation, any backstep and you’d find a sharp point grazing you. I tried not to think about the struggle of getting back out.
+
+
+
+Then the cold embrace of that stoney gullet came to an end and I found myself in the stomach. It was an oddly humid and warm space, large and mostly empty. An accumulation of water against the back wall betrayed the slight downward slope of that place. And scattered about the floor were bones. Small, some bobbing in the thin film of murky water, others partially submerged.
+
+
+
+Only by the directing of Rod’s flashlight did I discern that most uncanny of objects that had piqued my brother’s interests. At first glance, I had taken it for part of the wall, a protrusion caused by whatever natural processes had fashioned the cave. As the light drew a circle on the thing, however, a halo of shadow became visible, revealing that it was freestanding. Spherical, if not for the lumps and bumps that it bore. Innocuous, if not for the fleshy tone that cast it at odds with everything else in that suddenly much too small space. After describing the circumference of the thing, whatever it was, with his light, Rod focused instead on the spot just in front of it. A sticky mess of fur and bone. All together too fresh for my liking. I cast a glance to Rod and founding him grinning at me like the time he found one of dad's nudie mags in a box of old stuff. A tether of unerring causality began to form between that rabbit he’d insisted on bringing and that spot on the ground. I couldn’t fathom then, and wish I still could not now, how one might irreversible become the other but I was certain that was Rod’s grand finale. 
+
+
+
+“Don’t.” I said. I’m not some bleeding heart, don’t mistake me, but I’m not one for cruelty for cruelty's sake either. 
+
+
+
+“Don’t what?” The mischief positively alive in his eyes then. 
+
+
+
+“I do not know, Rod. Just don’t.” 
+
+
+
+Then it happened. Or, more accurately, then he did it. The rabbit was already in the air by the time I made my move for it. It wasn’t a baseball pitch, more a casual toss. Damn bunny would have landed fine and unharmed, wouldn’t have even reached that thing. But that was too much for my brain to realise in the snap it took me to act as it went airborne. So I lunged for it. That’s when my memory gets a little fuzzy. 
+
+
+
+It all happened so fast yet in my mind some moments seem to linger while others elude me. I snagged my foot on something as I made my move and went forward head first towards that monstrosity. Shoulda hit it. Good night, that’s all she wrote. But I didn’t. Screaming bloody murder Rod slammed me aside, knocking me into the murky film at the back of the cave. Next thing I’m cognizant of is finding out just how a bunny becomes a pile of fur and bone. Only, it’s not happening to the bunny. 
+
+
+
+Rod's eyes are fixed on me and they’re scared. So god damned scared. He’s weeping and apologising and begging and I try to stand but I’m moving so slow. So slow. Rod's just leaning in that thing and crying and his shirt is hanging offa him. Except, he’s not leaning on it. He’s leaning into it; his whole left arm already hidden. And I’m still trying to get up. I am getting up, but I’m stuck on slow-mo. His left side starts to be enveloped by it as I watch and he gasps and falls quiet. 
+
+
+
+At first I thought he’d died. But no. That would have been a kindness and whatever that thing is, it is not kind. Rod’s eyes darted back and forth desperately, his lips still moving in silent prayer. Then he was gone. His clothes and shoes lay in a pile on the floor next to the fur. I stared for so long at those clothes, struggling to comprehend, not even aware that I was finally on my feet. No clue what to do. That’s when it moved.
+
+
+
+A shudder. That’s all it was, just a slight shudder all over its surface. A moment later blood began spouting from it and with a nauseating squelching sound it begam expelling bone and hair. It had eaten him. This grotesque abomination had eaten my brother and was now pissing and shitting out all the bits it didn’t want. I screamed at it, impotent. 
+
+
+
+The pissing and shitting stopped and I felt an oppressive weight bear down on me. A slice appeared on it and resolved into an eyelid. The lid fluttered, opened and blinked once. Twice. Before finally focusing on me. It was an eye full of mischief. 
+
+
+
+It is an eye that has haunted my dreams these past 30 odd years. I am not ashamed to say that looking at that eye, my brother’s eye, on that thing filled me with an almighty sense of dread. In that moment I was confident that God existed because I was surely staring at the devil. I ran. Didn’t even stop to grab the flashlight that lay on the floor, just charged straight into the rocky oesophagus and darkness. I knew the narrow passage was a finite length, yet with nothing to guide me except the stone teeth that waited to cut me if I moved wrong, it felt endless. I couldn’t look back. Even had my courage not failed me, the pass wouldn’t have allowed such moment. 
+
+
+
+I moved forward as fast as I dared, feeling ahead with my left hand for outcrops and protrusions that hid in the dark to slice at my head. I heard the light before I saw it. That awful hum was suddenly the sweetest nectar to my ears. What had once been indistinguishable blackness had somewhere along the way become delineated. A thin strip of near-total darkness straining to exist between the abyss on either side. I quickened my pace and pretended not to notice the wet wringing noises that seemed to be growing louder behind me. 
+
+
+
+I nearly made it. I was so close. It was my own stupid fault. I’d seen the exit and made my final mad dash for it. I ducked and pushed out into the open space. Gasped in the intoxicating air of freedom. The sound behind me had stopped at some point, or been drowned out by the fluorescent buzz. I truly believed I was safe. How to describe it? It felt like...
+
+
+
+When I was 14 there was this girl a few years older, maybe 18 or 19, called Molly. Or Callie something. Rumour was for a pack of cigarettes she’d let you go to second base. No muss, no frills just a straight transaction. Nails for knockers the older boys would whisper behind her back. Called her a whore while they saved their cents for a carton. No one my age had the balls to see if it was true. No one else, I should say. 
+
+
+
+“Christ, how old are you?” She’d said when I slipped her the pack. 
+
+
+
+“Sixteen” I lied, standing up straighter to lend credence to the obvious lie. She scoffed. 
+
+
+
+“Sure, kid.” I remember she turned the pack over in her hands, they were Chesterfields I think. “No filter, old-school. Here.” She took my hand and slid it under her top, under her bra. My whole world changed in that moment as I cupped her breast, her hand cradling mine. 
+
+
+
+When I was 24 and still green in the agregate business, still doing hands-on labour, I had an accident with a jackhammer. I was in the weeds with ex-1, wife-1 at that point though not for much longer. We’d spent the night, and the previous week, fighting. I’d ended up sleeping on the couch, only managing about 3 hours. When i awoke, the bedroom door was locked and she wouldn’t respond. So, I had to go fishing for the least dirty clothes in the hamper. This left me flustered and short on time and as a result when I left I slipped on the nearest boots to the door and not my safety boots. 
+
+
+
+Five hours later, I’ve been hammering all morning and my arms are numb, my eyes are heavy. It’s inevitable I fuck up. The jackhammer slams into my left foot 17 times a second until I’m able to jerk it away. Even when it’s gone, my foot is bursting with pain to the beat it set. Six broken bones and a three inch gash. Doctor says I’m lucky it didn’t need amputating. Hurts so bad, I tell him to be my guest. 
+
+
+
+That’s what it felt like when it touched my hand. The only thing that stopped me from falling on my face was that my hand was stuck to the mass of flesh slowly oozing its way toward me. Or I was being dragged to it. 
+
+
+
+ No matter how I pulled and twisted my fingers just sank deeper into it. I wanted to scream from the pain. I did scream from the pain, the squealing of my nerves being shredded just drowned out the noise. I gave up trying to get free that way and reached for my knife with my free hand. The angle was wrong and I had to contort myself to unsheath it but I wasn’t about to let this thing win. 
+
+
+
+I gripped the knife as best I could and looked for a weak spot. The once-round mass was now compressed into the foot and a half wide crevasse I had recently vacated. Now only an arms-length away and with good lighting I could see it properly for the first time. It was flesh. It was all flesh. Pinks and browns and whites and greys and blacks all sloughed together haphazardly. Where my fingers sank into it, the flesh engulfed each one tightly. They looked like eye holes and ear holes  and ass holes and mouths. I thought of the blood, bones, fur, hair, clothes. It spat out everything else. Only flesh. All flesh. My hand went slack and I nearly dropped the knife.
+
+
+
+“This ain’t gonna do a damned thing to you.” I said, looking between the knife and the allflesh. It mad a noise and if it could laugh then it was laughing then. I gritted my teeth and plunged the blade into my wrist. Cutting and hacking and sawing until I fell back cold and breathless, a stump where my right hand had been. 
+
+
+
+I wanted to just lie there and sleep. I was so cold, shaking so much and it was like I was looking at everything from the end of a tunnel. But sleep was death. Blood loss would get me even if the allflesh didn’t. Despite the cold, I pulled my shirt over my head and tied it around the remnants of my right arm. I wasn’t cold, I told myself, just in shock. Didn’t help. The allflesh just took its time slurping up my hand, not even coming after me as it did. I thought it best to take advantage of that. 
+
+
+
+I staggered towards the exit but didn’t get too far before I crossed paths with the dynamite I'd spied coming in. The knife might be useless, but I felt certain a bit of nitroglycerin would be a different kettle of fish. I grabbed a stick and hunted around for a blasting cap and fuse. Our guys weren’t suicidal enough to keep them all right next to each other. But they were certainly lazy enough that they’d be nearby. 
+
+
+
+Had to clamp the stick under my arm to be able to get the blasting cap in, one end of a spool of fuse attached. I gave the spool some slack then moved closer to the allflesh. It was protruding from the gap in the wall now, slowly making its way out. I wasn’t sure how fast it could move once it was out, so i tossed the stick in its direction and backed away as quick as I could while laying out the fuse. All the while I had these awful pains where my hand had been, like my brain hadn’t got the message it was no longer there. 
+
+
+
+I stumbled a couple times. Fell twice, barely got back on my feet. But I made it out. I didn’t stop. Kept right on going until I reached my Buick. Only then did I light the fuse and watch it carry that little hissing flame all the way along to what I hoped was the end of this. 
+
+
+
+I only have the faintest memory of the blast. An almighty roar and a burst of dust and rock then everything was black and silent. Don’t know how long I was out, it was dark when I awoke. Surprised to find there was still blood in my body. From off in the distance I could hear a steam whistle, but I was too disorganised to think about it. Just clambered into the buick and turned the engine over. I felt the car vibrate to life, but I didn’t hear it. Didn’t hear anything except that whistling. 
+
+
+
+Doctors couldn’t believe I’d managed to drive myself to the hospital the state I was in. In out of consciousness for a week, no hearing for a month and I’d done such a botch job on my hand they had to take my arm up to the elbow. I figured that was all a fair price though, to come away breathing. The only thing that played on me was my hand. I could still feel it. Phantom limb pain they said. I knew better. I could feel it out there, buried in that cave, part of the allflesh now. Feel my fingers stroking along a back, another hand holding mine, all sorts of things. And pain, of course. There was pain. Sometimes a pinch, sometimes a crush, but always pain. 
+
+
+
+Whole thing was put down to an industrial accident. I kept hold of the site and left it to fester. Didn’t want anyone else digging around there and finding what I had. What Rod had. I used to wake in the night panicked and screaming. That’s what drove Martha away in the end. Our marriage had always been rocky and she couldn’t take the sleepless nights. The lack of explanation. 
+
+
+
+As time went on, though, I thought about the allflesh less and less. Five years after it happened I probably only had the nightmare once or twice a month, at most. By year 10, it was pretty much only around Rod's birthday. I never forgot the horror of it, but I allowed myself to think it was safe. That I’d killed the allflesh and did just have phantom limb syndrome. 
+
+
+
+But last night I woke up in a cold sweat. I was feeling something I hadn’t felt in 30 years: the breeze on my right hand. 

@@ -1,0 +1,109 @@
+Hi, my name is Ellie. I'm 16 and I think I have finally decided to open up and write about my experience from 3 years ago.  I have suffered with keeping this period of my life to myself for far too long and today something suddenly gave me an urge to simply write it all out. That being said I hope whoever reads this respects my decision to keep some parts of this intentionally vague for reasons you may or may not come to understand.
+
+**6:00 AM**, my eyes are sunken inside my skull. I tried talking to this Car Rental Agent, why even bother?
+
+"Shouldn't you be in school?"
+
+His mouth aggressively flapped, spewing saliva on my face whenever he looked down to speak to me. It was utterly infuriating to be spoken down to like this, especially then.
+
+"I have the money...?"
+
+"Go home kid."
+
+At some point, you should just forget it. I was not going to be lectured by a man who had such an unappealing face like that—never have I seen someone's skin so droopy, just a tug could've ripped it all off—Pop would've made quick work of him.
+
+We decided to get the car a different way—Oliver was the best driver out of us 4, he spent a fair amount of time driving for his Mama whenever it was feeding time. Ollie was a good kid.
+
+It took two of us to break through the window. I still feel the sharp pain in my hands. My nails were streaming blood from underneath, palm jaggedly sliced across with the shard deeply embedded into my dermis. Rebecca squealed like a pig when I had to take one out her thumb.
+
+Chicago, that's where Auntie was—only a state away meant we could get there in at least four days if the car kept going—she was young, her skin never drooped since I had last seen her. She could be mean sometimes but I knew for sure she wouldn't feed like Pop. I missed her lemonade back in Iowa.
+
+"You think she'll be surprised when we knock on Auntie Annie's door?"
+
+I felt embarrassed by his comment, I didn't like being questioned.
+
+"Why would she Petey? I told you I called her on the phone back at Pop's before we left."
+
+"She's not a feeder like Pop?"
+
+"She ain't... one of the normals, promise."
+
+Petey was the youngest of our group, he was my little brother ever since I found him trying to sleep in an old campsite off the side of the road a few years prior—he always told me he never knew his Mama and got raised by one of those catholic schools before he ran away.
+
+Whether I believe his story or not didn't matter, I never cared who Petey was before he was my brother.
+
+**1:20 PM.** I had to sit shotgun to give directions, meaning Petey was stuck with Rebecca for hours of driving. Ollie drove as fast as he could, which was not fast at all. All the other cars flew past us on the empty road—luckily the normals driving never checked to see our driver, or just didn't care.
+
+"Ellie, Ollie!"
+
+Rebecca's voice quivered our names. I felt like I knew what she was going to say, and it made me feel sick. I clenched up, goosebumps popping up along my body in reaction to a pain I hadn't felt yet.
+
+"You seen somethin' Rebecca?"
+
+Ollie was as scared as me, I could see him gripping both his hands over the steering wheel till the skin on his palms went red and swollen, pouring out in between his knuckles. He looked like a fresh, ripe tomato by the time he said anything.
+
+"Someone ain't going past us... it's a pickup truck, I think there's two of 'em."
+
+I didn't look behind me but I heard the two bickering on some of the details. The car began to felt suffocating, it gave me butterflies. I hated it.
+
+"Either of 'em Pop?"
+
+I almost had to tear into my throat to push out those words. Just speaking made me feel like regurgitating.
+
+"I can't tell but they look like men. Driver's got a bushy beard."
+
+We all sat in silence. At that moment I had only just realised our smell, it was horrendous. We smelt like spoiled milk. Fleas had gathered onto our heads, nipping at our scalps. It was overpowering, I tried to hold my nose...
+
+**BEEP! BEEP! BEEP! BEEP!**
+
+The sound blasted through the shattered window, enflaming our ears and jolting through my entire body. Ollie's tight grip lost a hold as we skidded across the road, smashing violently into a rail. My face collided into the interior door—as I had desperately begun to tear my face away from the handle, my nose began to spew out blood like a clogged up tap. When my ears recovered from the truck's blasting horn, I heard the noise of the engine's rumble coming closer. But.. it suddenly only started to get quieter, and quieter until I could hear nothing at all... did they drive off? I wondered if they were a group of normals after all.
+
+Ollie stopped moving. His head laid on the wheel he had tried so hard to keep holding. My vision felt blurry, I tried focusing my gaze out of the window... two hideous sets of gungy yellow teeth stained in dried red juices grinned hideously back at me. Their bloodshot eyes furiously staring into mine. I saw their nostrils flare up at the sharp, coppery smell of the blood trickling down my chin. The driver's beard begun to dampen as it soaked up the bubbly saliva uncontrollably sizzling from his gaping smile—the truck had never left, these men were hungry.
+
+I heard the engine's rumble explode as our car tore across the road. I whipped my head from the window to see Ollie looking straight ahead, I turned back—Petey and Rebecca seemed fine—I didn't try to speak of what I saw, it would just make it worse. I glanced at my wing mirror. The truck was still there, I don't even think they started the engine.
+
+**7:00 PM.** It was when the sun had started to fall that Ollie stopped the car and pleaded to stop for the night.
+
+"I'm not gon' drive anymore! If you really wanna keep going then someone else is sitting here."
+
+I wasn't about to argue, I was also exhausted. We had driven miles away from those feeders.  Besides, it looked like they had never even tried to follow us.
+
+"We ain't anywhere near Chicago, haven't even left Iowa yet."
+
+I heard Petey mutter something along those lines. Whatever it was, it made Ollie furious.
+
+"As if we were getting to Chicago today anyway. Who drove us this whole way again?"
+
+"Who was too scared to break into the car? Rebecca was less of a pussy than you."
+
+"Petey, out the car. Now."
+
+Petey stormed out the car as per my request. He would always argue if he didn't agree with something—it was immature, very unlike the rest of his personality. I think he believed he was better than this life, I did too. Sometimes I wish I never found him—I feel that I caused all his pain and frustration, but somehow he still loved me.
+
+I slammed my door, and walked around the car. He wasn't there. I panicked, and mistakenly screamed out his name. Unbeknownst to me, he had sat on one of the grassy hills next to the road. I slowly walked over—I knew he wasn't in the mood to fight with me, but I was still cautious.
+
+"You can't be like that the whole trip y'know?"
+
+"I'm right, everyone in that car knows it except for him."
+
+"...We're all tired. So 're you. I understand you want to get to Aunt's quick, but we cant do that if Ollie is too tired to even drive with his eyes open... yeah?"
+
+"I'm scared. They were feeders, but neither of 'em were Pop... you think-"
+
+"Maybe Pop forgot about us, he don't care one bit for you or me."
+
+I waited patiently for Petey's next response. He seemed as if he was contemplating if he wanted to inflict me with his next words.
+
+"Can I tell you something? Promise you won't tell nobody."
+
+"What is it?"
+
+"Few weeks back Pop woke me up and took me out of bed... I think he led me out of the house, down to the truck. We drove for a fair few miles n' it smelt even worse than usual, I was thinkin' he killed something in the back. Then Pops stopped down a road near a great big house, said it was all his. I didn't understand one bit so he took me out, just a bit away from the house into this little bit of forest. I see this hole and I can tell he dug it, there's a massive dirt pile and one little shovel laid next to it. "Let's see what's in it" he says... it's a coffin. I still don't get it at first so I ask him, he just says "listen." so I do. There's banging, and muffled shouts. He had a lady in there and she wasn't dead-"
+
+He stopped, lips quivering furiously. Then he made this strange noise, like a whimpering dog. I was about to respond when he opened his mouth to continue.
+
+"He passed me the shovel. He asked me to cover it up... I felt like I had to do it, so I just kept piling on dirt over and over. Then I couldn't hear nothin'. So that's when Pop looks down at me n' he says... "Don't go misbehaving like our Rebecca, will you boy?" Then in an instant I was back in my bed and waking up the next morning, like nothing happened."
+
+I didn't understand it at first. I looked at Rebecca sitting in the car playing with her hair and she looked back at me... it was unmistakeably her, I had spent enough time with her to analyse and remember each and every individual pimple and freckle plastered all over her face. Petey's story must've been a dream. Eventually he agreed to rest for the night, he even helped to set up the tents. I decided to sleep in the car, it felt uneasy sleeping outside—I don't think Rebecca slept in her tent either, but I couldn't be sure.
+
+This is all that I'm willing to write today, Thank you.
