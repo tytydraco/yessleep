@@ -1,0 +1,112 @@
+[PART ONE](https://www.reddit.com/r/nosleep/s/Sur2EzGdL3)
+
+[PART TWO](https://www.reddit.com/r/nosleep/s/43AXCF9Kot)
+
+I didn’t have to consider the dolphin’s offer for very long, the repercussions were horrific, but very simple. If I opened the habitat door, ocean water would blast in and if I’m not killed by the sudden force of the sea, I will surely drown.
+
+“No, that’ll kill me.” I said. 
+
+The dolphin let out a loud, assumedly frustrated yip. “We have been made aware of this fact but-”
+
+“Okay good, glad we’re on the same page about this.” I said picking up the scattered drink bottles from the floor. 
+
+“...This is of grave importance, Herman, your decision to take action will benefit all sapient creatures.”
+
+“How?”
+
+“You will fulfill your role as the missing harmony in our choir, you will know the oceans as you know yourself as part of them will be you and you part of them.” The dolphin said, seeming to believe some part of what he was saying 
+
+“Absolutely not, I mean this is fucking ludicrous. You expect me to believe that?  I mean, the nerve of you two fish that I met not even an hour ago, want me to kill myself to join your fucking ocean cult. You know what? You’re not real! Figment of my-”
+
+“YOU HAVE NO IDEA WHAT IS AT STAKE! THOUSANDS OF LIVES ARE IN YOUR HANDS!”
+
+“I’ll open that door when the diving bell is here.”
+
+I stood up and began to leave, looking at the whale, its single visible eye pleading at me.
+
+“I’m sorry you’ll have to find someone else, goodnight.”
+
+I flicked the light off, the dolphin and the whale stayed for a moment before swimming away. I made my way to the habitat’s bedroom and attempted to get some modicum of sleep. I did for a while, but just as soon as I drifted off to sleep…
+
+“Hello?! Herman, can you hear me?” A voice called from the comms.
+
+I shot up and ran to the radio next to the reverse aquarium's doorway.
+
+“Yes! Yes I can! Holy shit, you wouldn’t believe the stuff that’s going on down here.” I said almost laughing with joy. 
+
+“Listen, we've been doing a lot of work on the sand and we’re ready to bring you up.” The manager said.
+
+“Really? Amazing, when’s the diving bell gonna get here?” I asked.
+
+“It’s already there.” He said plainly 
+
+“What? Really? I mean, I didn’t hear it come down.”
+
+“Yes, well just open the door, get inside of it and you can leave the ocean.” As he spoke, I realised something was wrong about his voice, not the tone or accent but where it was coming from.
+
+The radio wasn’t on.
+
+It was coming from me, my own mind. Like the whale and the dolphin.
+
+As I thought that, he responded. “Open the door Herman, we’re waiting for you. We’ll be here for you” 
+
+I took off to the main room and looked at the reverse aquarium. My eyes adjusted to the dark deep in the ocean, past specs of debris. In the distance, I saw at least two dozen sea creatures all varying in shapes and sizes but seemingly all either dolphins and whales. They all floated, staring at me, waiting for me.
+
+Various aquatic shrieks and calls echoed through the barren water. It was basically a stand off.
+
+They were still, eerily still. If I didn’t know any better I’d think they were dead. 
+
+“We don’t like tricking you, Herman. It’d be easier for us all if you just complied.” The voice spoke out in the manager's voice again.
+
+“Leave me alone.”
+
+“We understand a decision like this is difficult for you. So, we will grant you the boon of not having to make one.”
+
+The sea life scattered in varying directions, revealing what was once behind them. An oblong thing. Floating vertically, one side with a rounded end the other with what looked to be a whale’s tail. Two, of what I could barely make out to be dolphins, grabbed the tail with their mouths and swam away.
+
+I stayed up the rest of the night. Dismantling the furniture and barricading the habitat's sole entrance. I was tired but I was equally restless. As I pushed chairs and the remaining mattress against the door, I heard a familiar voice.
+
+“I’m here, but I won’t be for long. I’d just like to talk to you. The others have gone. It would just be me and you. I can explain everything.” The whale said.
+
+I tried to ignore it, I thought about eating sushi, fly fishing and that documentary about whale hunters. I tried to fill my mind with everything that’d keep her away. 
+
+“You aren’t important to them in the grand scheme of all living things, but you are important to me. You are complex, random, you do not have an order or lineage you follow. You are your own creature, we envy that of you but I am the only one brave enough to admit it.” 
+
+I kept my back to the habitat’s exit, still not moving on my decision to not comply with this cohort of sea creatures. “You're a whale, there’s no laws, no rules, just swim away.” 
+
+“...It may not seem like it to you, but there are and I have broken them. I have failed our masters and am not fit for this world, this body, it was difficult for me to even swim here.”
+
+“Then why even come? Just leave me the fuck alone.” I blurted out.
+
+“I wanted to grant you one last portion of decency, honesty before your certain demise.” The whale's tone of voice juxtaposed the harsh words that filled my head.
+
+“Okay then, who are you masters?” Surely, if I entertain them for long enough they would leave me alone I thought.
+
+“They are strong, they are intelligent, they come from beyond the ocean and the land that imprisons them. They see your world, a barrier, and ours as home to share. But they are equally cruel as they are foreign, as careless as they are brilliant,” The whale’s haunting words echoed through the habitat as she continued, “We are but… things to them. Made to suit a purpose and to be tossed away if we do not fulfill it. An entire tribe will be destroyed if it fails, I can hardly imagine such an atrocity.”
+
+“I’m sorry, but what do they want from me? Why do ***I*** have to die?” I asked, almost feeling sorry for these creatures.
+
+“You wouldn’t die, Herman. With you joining us, we could help in their goals. Break the barriers and save my tribe.” She said, almost begging.
+
+I did think it over, how could I not despite the awful fate.
+
+“I apologise, but you have to find someone else.” I finally said.
+
+“We knew you’d be a stubborn one. This will be the last time you see me. Whether you open the door or not, could you be kind enough to say goodbye, face to face?” 
+
+“Okay.” I reluctantly creeped towards the thick glass wall of the reverse aquarium and flicked the outside light on. There the whale was, gone was her single beady pupil covered up by a blotch of a crab shell like skin.
+
+“Thank you for talking to me, Herman, they’ll be here soon.”
+
+“Yeah, it was nice talking to you too.” I said, trying not to look too startled at her new appearance.
+
+“Do you think I would’ve made a better human than a whale?” She asked, like an old friend.
+
+“Sure.” 
+
+“When they take you, remember they want what you have because of what you are. Not who.” She said before swimming away, I caught one last look at her tail which was now almost entirely stiff causing a rigid movement through the water.
+
+And there I was waiting for either humans or whales to open up that habitat door. I sulked in my own misery for a while, certain that a cold wet death was imminent.
+
+The intercom crackled to life, “Herman, mate you, there? I won’t be a minute”
+

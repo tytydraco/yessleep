@@ -1,0 +1,23 @@
+Hey everyone. My name is Cassandra, but for brevity's sake you can call me Cass. I've been living in LA for half a year, but last week was when things got... weird. A little bit about me before I get into the meat and potatoes. I'm a 30-year-old university dropout from Arizona with a proclivity for political history which I planned to take hold of and turn into my Bachelor's in Political Science, but uni proved to be not what I was expecting. After I turned off the lights on that waste of my time, I decided it was time for me to try something different somewhere else.
+
+Once I got the money, I packed my bags and moved out from my old place in Mesa to a decent enough apartment in Encino. This was my first time being able to actually live somewhere in another state rather than just staying in a hotel, so I had the usual jitters.
+
+As my plane crossed state lines into LAX, I felt a rush of slight nausea the second I entered the boundaries of the city. I attributed it to the anticipation, but I've been on an airplane before, so a part of my soul was apprehensive about what this feeling meant. Brushing it off, I got myself situated in the city fairly easily.
+
+I won't bore you all with every detail of how the past six months have been, but I landed myself a nice job as a librarian ( to satisfy my inner history nerd ) and I get to enjoy the nightlife of the city.
+
+Now, here is where things get weird.
+
+I have always been interested in the paranormal since I was a kid, with my first taste of it being when I was 11 and I saw a man in late 19th century clothing standing on top of a building and walk away while fading into nothing. Granted, these sightings have been few and far between, but from what I've heard talking to people who have also seen things, it shapes their entire perception of the world. You can tell what's fake and what's not by experience on the matter. 
+
+This is not to say I'm a whackjob about all other things paranormal. I don't believe in demons or fae causing people trouble. With how crazy this world is, you'd think somebody would have caught definitive proof on camera by now. But for all my time on this earth, I haven't once seen anything huge. 
+
+Until last week. 
+
+I was talking on the phone with my new boyfriend Chris about work. We've known each other for about eight months now. One of the reasons I wanted to move to LA was to be closer to him, and so far things have been working out well for us. I walked through the dining area, and out of the corner of my eye I noticed a utensil drawer was opened all the way despite it being closed for the entire time I was home. As I tried to brush it off and continue my conversation, I looked past the window and spotted a faint multicolored shimmering where I could see out into the rest of the neighborhood. Before I could get a better look, it seemed to drift out of sight, at which point the drawer slammed shut.
+
+Since that incident, I've noticed it more and more over the week. Sometimes chills come over me, I see something out of the corner of my eye when I'm out and about, things get moved when I'm not looking. I need answers, because the paranormal believer side of me has been slowly overtaking my rational side. 
+
+I can't help but feel like there's something else to Los Angeles that makes it feel the way it does. And that thing has something to do with it. Any help would be appreciated.
+
+Cass

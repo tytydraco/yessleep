@@ -1,0 +1,28 @@
+I don’t have much of a mechanic’s background or any level of knowledge somebody could call ‘blue-collar’ when it comes to cars, but I like to think that I’m a handy enough guy that can usually figure things out when there’s an issue with my vehicle using blogs and YouTube videos. But about a week ago, the front end of my car has been making a strange noise.
+
+The car in question is a 200X Chevy Impala. It was a mobile pile of shit with over 240k miles when I bought it, but I’ve managed to get it fixed up over the years into reliable transportation to get me to work. Basically, my car runs perfectly fine for all intents and purposes. 
+
+The engine is turning over properly, it changes gears good, no troubleshooting lights on the dash, and semi-functional A/C comes through just below room-temperature. Everything checks out except for this crazy noise it started making.
+
+It only happens when I start or stop the engine. For a few seconds after that big growl from the ignition, there will be this high-pitched jumbled whirring noise. Like a load of rice or beans in a big blender getting thrown around like hail. Definitely startled the shit out of me the first time it happened. I thanked my lucky stars it was the weekend and spent the better part of my Saturday trying to do diagnostics.
+
+I pulled back the engine cover and checked all my fluids. Good. I felt around the compressor, the block, pretty much anything that could have a loose bolt. Also good. Then I repeated the same process below to look for anything out of place. Nothing. 
+
+After giving it a test drive up and down the county road by my house, I figured it was one of those car problems that’ll resolve itself after enough time and that I shouldn’t worry about it. A couple days later I almost let myself forget about it. The noise was still there though. It would never sound exactly the same every time and that's the part that makes it so damn weird. Sometimes whistletoned rattling joined my transmission, and other times it sounded a way I could only describe as: ‘Roomba over wet sand.’
+
+By that point I know I should’ve taken it to an actual mechanic, but I’ve got my reasons. Mainly financial (broke) and geographic (rural; nearest shop is about a 45 minute drive away). So, I decided to just live with it for the meantime. But now I’ve definitely changed my tune.
+
+This noise problem was a non-issue until earlier this afternoon. I just got home from work and was pulling up to my driveway when I felt a slight rumble. For that I just assumed some deer or coyote tracks made the gravel less level than usual, but what followed gave me reason to doubt that and honestly, freaked me the hell out. My hand was either just turning the ignition off or had just shut off the car, frankly I don’t exactly remember, when that sound grinded out a bit more intense than usual. 
+
+That’s not what freaked me out. Among all that mess I swear I heard the words:
+
+“TAKE. OFF.”
+
+It sputtered out underneath the grinding and spinning chaos I’d been used to by this point. It was like a guy in a gas mask talking into an old ham radio and that radio was sitting in the middle of a construction site. Like a fucking ghost is what I mean. Buried under so much nonsense only the faintest idea of those words could get to me.
+
+I took a few seconds sitting in the driver seat, looking around wondering what just happened. At first, I didn’t really register the words but knew that something was way different with the sound. More curious than anything, I stuck the key back in and turned. Really wish I didn’t
+
+This time, the rattling sound was gone, and in its place this clumpy, banging sound that gently shook the chassis. You’d think I had a drying machine in my engine. Offput, I rushed to shut it off and in those winding down seconds before things settled, it got so much worse. This long, drawn out, *gurgling* choked out and tapered off into… a wheeze? A sigh? Whatever it was, I was already slamming the driver-side door and speedwalking my spooked ass up the driveway. 
+
+For the past few hours I've been searching online for some explanation and found my way to this website. Needless to say, I’m creeped out. Has anybody had an issue like this? I’m not sure if this is something a mechanic would know how to deal with and I’d appreciate a sanity check, because if it’s just me then I might have a bigger problem on my hands.
+
