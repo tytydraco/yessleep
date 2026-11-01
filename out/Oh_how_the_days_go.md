@@ -4,7 +4,7 @@ Really gives you a sense of perspective.I mean the place is beautiful.It's a sto
 
 Here's the thing, i'm usually alone here.That was infact why this place was so special to me.To get away from the outside world.Then I heard it, there was a song coming from across the lake.It was...a man's voice.A little rough around the edges, grating kind of but..smooth I guess?It was distant and hard to make out.
 
-I tried to pick out where the sound was coming from.Then I saw it, a lone boat drifting across the sea, carried by the waves.It looked like a starship across the vast emptiness of space.At the boats helm was the silouette of a man across the sea from me.Now the first time I saw him I was pretty jarred.I thought to myself. "Is this guy okay?"
+I tried to pick out where the sound was coming from.Then I saw it, a lone boat drifting across the sea, carried by the waves.It looked like a starship across the vast emptiness of space.At the boats helm was the silouette of a man across from me.Now the first time I saw him I was pretty jarred.I thought to myself. "Is this guy okay?"
 
  Eventually though he drifted out of sight.
 
@@ -40,7 +40,7 @@ Here you go.
 
 That last sentence was pretty unclear, since he well shouted it out.It was a gutteral scream that seemed to come from the depths of whatever troubles lied in his soul..After the song there was just silence.I was silent as well. The only motion was the boat just rocking steadily under his feet.That song evoked some kind of feeling that churned in my stomach.Whether it was,fear,pity,grief or dread.I dont know,be my guest.
 
-But the next thing I saw had to be some kind of trick of the light maybe.It looked like an apparition maybe?It was 3:00 am and I was tired.But nonetheless it looked like a long flowing white dress.But when I zoomed in with my phone camera I saw nothing.
+But the next thing I saw had to be some kind of trick of the light.It looked like an apparition maybe?It was 3:00 am and I was tired.But nonetheless it looked like a long flowing white dress.But when I zoomed in with my phone camera I saw nothing.
 
 But I did see the man the clearer than I ever had.It wasn't about whether or not I could actually see him since his face was still obscured.But I could make out one detail...that stuck with me.He looked with a sense of closure.Or maybe I was just seeing things that weren't there.I couldn't really see his face and yet somehow, I knew.After that he drifted away, becoming one with the horizon.The car ride back home was quiet.The only noise was the endless droning of car wheels.
 
