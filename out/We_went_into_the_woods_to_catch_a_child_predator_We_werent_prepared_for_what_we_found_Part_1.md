@@ -62,7 +62,7 @@ I didn't want him to think I was incompetent, so I made the edits.
 
 The video reached almost two hundred thousand views before Patrick released the complete conversation.
 
-Several of his claims were supported by messages Harrison hadn't included. As the controversy spread, the platform eventually removed our channel. Someone identified me as the editor, and before long strangers found my social media accounts and sent me abusive messages. A production company I'd been speaking to about a possible internship stopped replying to my emails. I was terrified that anyone who searched my name would see the controversy before they saw any of my work.
+Several of his claims were supported by messages online that Harrison hadn't included. As the controversy spread, the platform eventually removed our channel. Someone identified me as the editor, and before long strangers found my social media accounts and sent me abusive messages. A production company I'd been speaking to about a possible internship stopped replying to my emails. I was terrified that anyone who searched my name would see the controversy before they saw any of my work.
 
 Of course I was angry at Harrison for dragging me into it, but I couldn't pretend the criticism was entirely unfair. I knew which parts of Patrick's explanation I'd removed, against my better judgment. That was what made the whole thing so difficult to defend, even to myself.
 
@@ -499,4 +499,3 @@ She tucked the doll away, straightened the napkin on the tray, and picked up the
 I stared at the spoon. My wrist still ached, and I could feel her watching me, waiting for another objection.
 
 This time, I opened my [mouth.](https://www.reddit.com/r/AmoebaGold715/)
-
