@@ -1,0 +1,121 @@
+I worked as a delivery driver for a courier service over the summer. I quit after a month.
+
+ 
+
+The company mainly delivered appliance parts, what exactly they were I have no idea, and I didn’t care. What was great about this job for me personally is I could do my deliveries anytime between 7:30pm and around noon the next day, this meant I could do them at 2am if I felt like it. As a night owl who loved to speed, this was perfect. I could listen to scary stories on my drive through empty roads, and make use of the express lanes/tollways, which were paid for by the company.
+
+ 
+
+How it worked was the packages got delivered to an office building, then from there the drivers, I think there were around four of us, would take what was on our route and then go deliver them. My route had ten stops that I could get, but I never got all of them in one night. Some stops are on my route every day, some only about half the days, and some very rarely. The most stops I ever did was eight, usually I have between four to seven. The less the better, I get paid the same even if I only had two for a night.
+
+ 
+
+Again, great job. Only around four hours of work, sometimes less, of simple driving at night.
+
+ 
+
+On the last day of my job, it was business as usual. I got to the office actually earlier than I usually do, it was just before midnight. I was the only one there. I had five stops to do. I loaded the packages into my car, all fit just fine. I never had an instance when I couldn’t fit them all in, even with my small and frankly shitty car. The back bumper was gone, and the front was held together with gorilla tape and zip ties. I treated that car badly.
+
+ 
+
+Once I got the packages inside, I went back in to get my free snack. The layout of the office goes as follows: the front door leads to the main room where all the packages await to be taken, then go out the main room into a hallway. To the right of the hallway, there are two bathrooms, and a door to the kitchen. To the left are two offices and a storage room. The storage room door was closed. I only mention this because usually it’s just left open. I gave it an eyebrow raise then went into the kitchen. The snacks are more health oriented, like protein bars, jerky sticks, things like that.
+
+ 
+
+I immediately noticed all the empty wrappers left littered on the floor, about a dozen, and one of the boxes that held the chips was torn down the center. I sent a picture of it and a message to my boss saying someone decided to be a slob tonight. I threw all the wrappers away, grabbed a blueberry granola bar, and went to wash my hands. I am a spastic hand washer and will do it any chance I get even if I just touched the top of my shoe.
+
+ 
+
+As I was washing my hands, I could’ve sworn I heard a loud thump outside. I always leave the front door to the office open, since it makes taking packages out easier. Probably just an eighteen wheeler passing by I thought. When I got into the hallway, was the storage door fully closed or left slightly cracked? At that point, I couldn’t remember. I walked over and peeked inside. Nothing but boxes and two bicycles that belonged to my boss. There was also this strange smell inside. No food or anything that could have an odor was ever stored in there, so I had no idea what was causing it.
+
+ 
+
+Once I was on the road, things were getting irritating. I had just gotten a wobbly tire replaced, but I swear the back of my car was kind of vibrating, or like I kept bumping over stuff. I was dreading having to go right back to discount tire, I hated going to that place. Just tossing away money for a piece of garbage. I loved having a car, but I hated owning one.
+
+ 
+
+It takes about forty minutes to get from the office to my first stop, then from there each one after is around fifteen to twenty-five minutes from each other. My third stop was in a neighborhood. The house I deliver to is a part of it, yet it feels just outside it, like there’s a line separating it from the actual neighborhood. It’s the only house at the end of the street, and across from it is a wall of trees. There’s a single, very small, and very dim standing porch light that illuminates the area.
+
+ 
+
+I got the package and walked up to the house, using my shirt as a shield for my fingers to open the iron gate. Just before I stepped onto the porch, I could’ve sword I heard a thump from behind me. I turned to look. Though I was never really scared, this particular stop always made me feel a bit uneasy at this time of night.
+
+ 
+
+I nearly woke up the entire neighborhood when I heard a loud rustle from the bushes next to me. I jolted my head back to the porch. It was just a cat scurrying by. I put my hand on my heart, let out a small laugh, and put the package down.
+
+ 
+
+On my way to my fourth stop, I had to get gas. I always keep paper towels in my glove box to use to grab the gas pump with. Of course I forgot to put more in, I thought as I saw there weren’t any left. I said fuck it for this time and decided to grab the germ covered gas pump. My fourth stop is unique in that it’s the only place I have to go inside to leave the packages, which is nice because it gives me a chance to use the bathroom if I need, and also in this case wash my hands.
+
+ 
+
+My fourth stop is right across from another neighborhood. It’s a funny, almost cartoon-like array of small pointy white houses. My stop leads me to pull onto a short gravel road. There’s a fun game I like to play on this road, to see if the rabbit crosses. If it does, it means good luck. Every night one would cross two times, once as I was pulling in, and again as I left.
+
+ 
+
+I turned onto the gravel road, and there it was. Running from an open field that sloped slightly downward, crossing my path and disappearing into tall grass.
+
+ 
+
+I unlocked the door and put the package inside. I went to the bathroom and went pee. I heard a loud thump from outside. Like the office, I didn’t close the front door. I thought it was probably an eighteen wheeler passing by. I took extra care washing my hands this time, using a method surgeons use. I took some extra paper towels for my glove box.
+
+ 
+
+I went back outside ready for my final stop. My trunk was wide open.
+
+ 
+
+I never opened my trunk, none of my packages were in there. Did I open it on accident? Did I auto pilot press the button thinking that one was in there?
+
+ 
+
+I stood there confused. I looked around, there was dense tall grass to the right that leads into trees. I try not to stare, my mind can often make things scary and imagine something’s hiding in the dark.
+
+
+
+I checked my trunk to make sure I didn’t put a package in there. It smelled awful in there. I quickly shut it, then did a count of all my packages. I had the correct number, I thought. I got back in my car and backed up to get out of there. Since the road is gravel, I had to reverse slowly or else my tires would make an awful noise. I slowly made my way out of there. My mind jumped from the thought of the trunk to now solely focusing on the rabbit.
+
+ 
+
+I wondered if tonight was the night my good luck streak would end. I waited. The rabbit never passed again.
+
+ 
+
+I was sad, let out a “damn” and turned right off the gravel. I drove up to the stop sign at the end of the street leading out into the main road. I checked both sides, and before I turned, I saw something in my rearview mirror.
+
+ 
+
+A figure standing in the street.
+
+ 
+
+It was far behind me, right next to the tall grass by the gravel. I was so confused, it’s way too late for anyone to be out. I never saw anyone do their morning runs until at least 4am. I thought they might be hurt, they were walking funny, like they had a limp.
+
+ 
+
+As they got closer, I saw how torn their clothes were. Their skin was filthy too, like covered in a layer of grime. I wanted to drive off, but what if they were hurt?
+
+ 
+
+Getting closer, I could make out that it was definitely a man, but very skinny. He was also getting faster, like he was fighting the pain in his leg, hobbling over quickly to me. I finally saw the blood on his mouth. It was on his hands, his cheeks, it fell from his lips down his chin.
+
+ 
+
+“Open the trunk!” he screamed. His voice sounded like that was the first thing he said in years.
+
+ 
+
+He leaped forward and hit his chin on the trunk as I floored it.
+
+ 
+
+I drove straight home, taking the final package with me. I delivered it in the morning and promptly quit.
+
+ 
+
+When my boss asked why, I only told him one thing:
+
+ 
+
+“Get better locks.”

@@ -48,8 +48,6 @@ Casey shook his head and snickered with a bitter venom, “Not really. I think s
 
 I had finally finished stringing the tarp over my tailgate, and I cinched the rope hard with bubbling rage. I’d never made it known, but I’d always somewhat disliked Casey’s parents. Even though they were always cordial and provided a lot for our friend group over the years, we’d heard enough stories through the twins to form a more critical opinion.
 
-I didn’t appreciate the way they seemed to treat their kids more like accessories than actual living, breathing human beings. If either of the twins tried to pursue a hobby or passion that didn’t align with the typical roll of their gender or class, they were quickly shot down or punished until that dream left their heads.
-
 It figured that now that they were adults and could no longer be pushed around, their parent’s first option would be to go nuclear. If it was clear to them that their angel little girl had been sneaking around behind their backs seeing a—heaven forbid—*woman,* for God-knows how long, they would assume the matter was a lost cause. ‘If we can’t tell you what to do, then get the hell out of our house.’
 
 Casey spoke again, “She and Anna took off a bit ago with the first half of our stuff. I let her take my truck so she could get out of here. She wanted to get far away as fast as possible.”
@@ -350,7 +348,7 @@ Lacey nodded, “I’m with Jessie. This seems like our best option.”
 
 The guilt began gnawing at me again, but I swallowed it down. A cold, calm wind swept up the cliff side from over the Appalachian hills, cutting straight through me and leaving me hollow. For weeks I’d been wondering what our last day on Earth would be. How abrupt my death would come. What my last few moments would look like. Funnily enough, I missed the uncertainty. Living recklessly and accepting that death was a possibility somehow weighed lighter on me than knowing the end of my life was a mere three hours away.
 
-It had to be that way, though. Kait was right, even though her words were spoken under the pressure of my lie. Even with the most powerful forces guarding the door, there would be mistakes. There would be new rules and forces of the door that would ruin the innocent lives we dragged out to the manor, ultimately resulting in them being torn from existence. For anyone who didn’t die, they would be bound like we were. Unable to destroy the thing. Unable to burn it down. Forever hearing the godforsaken chimes of the clock that slept within the heart of the halls.
+It had to be that way, though. Kait was right, even though her words were spoken under the pressure of my lie. Even with the most powerful forces guarding the door, there would be mistakes. There would be new forces of the door that would ruin the innocent lives we dragged out to the manor, ultimately resulting in them being torn from existence. For anyone who didn’t die, they would be bound like we were. Unable to destroy the thing. Unable to burn it down. Forever hearing the godforsaken chimes of the clock that slept within the heart of the halls.
 
 I had to seal it. I had to spare anyone else from even another second of torment. Maybe that’s what I was telling myself, or maybe after seeing what had been done to Casey—what *should* have been done to \*me—\*that’s what I just wanted to believe. That I needed to die.
 
@@ -360,7 +358,7 @@ There was still a lot to do over the remaining hours; prep to make sure that aft
 
 Lacey nodded, “Everyone be safe, and keep us updated. Once this is over, I want to see everyone still in one piece.”
 
-There were nods of agreement, and Bryce and Carly gave each of us one last look over before turning and climbing into Bryce’s car. I wanted desperately to step forward and take them both into my arms one last time before they went. To tell them how much I loved them, and how they’d kept me alive through the hardest times. Doing so would blow my cover, however, so I just choked back my tears and stood quietly by the door of my truck.
+There were nods of agreement, and Bryce and Carly gave us a nod before climbing into Bryce’s car. I wanted desperately to step forward and take them  into my arms one last time before they went. To tell them how much I loved them, and how they’d kept me alive through the hardest times. Doing so would blow my cover, however, so I choked back my tears and stood quietly by the door of my truck.
 
 Kaitlynn made this harder to do with her and Lacey’s goodbye. The latter packed the shotgun into the back seat while the former approached me, looking up through her messy bangs. There was still suspicion in her eyes the way there always was with me—an attempt to see through the mask that never slipped—but mostly there was grief.
 
@@ -385,3 +383,5 @@ She pulled away and analyzed me again, but my mask had been re-affixed. She smil
 Then she turned and climbed into the car with Lacey.
 
 I did the same with my truck, and only once the others were pulling out the driveway with me in tow, and I was certain they could no longer see my face, that was when I finally let the tears fall.
+
+[{Next Part}](https://www.reddit.com/r/nosleep/s/doehcbuvj9)
