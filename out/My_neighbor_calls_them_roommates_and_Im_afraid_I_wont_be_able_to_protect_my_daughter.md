@@ -1,0 +1,155 @@
+Last night I saw them.
+
+With the current state of the real estate market, my wife and I had to look a little ways out of the city to find something we can afford, but eventually we did.
+
+A brand new build in a rapidly suburbanizing town about 45 minutes out of the city. Sure, the commute is a nightmare, but the house, three thousand square feet at a price we can afford in a neighborhood with three parks within walking distance, seemed like a dream come true for our growing family.
+
+At first there were only two problems. Our house was on a bit of a slope (we have a split level, and the hill leads up towards the back of the house, putting the back yard just outside our kitchen window) and my wife, who when we moved in had just entered the third trimester with our second child, was having a really hard time. Just going out to the mailbox was an exercise with her, and every step she took around the yard made her out of breath.
+
+It's a little on the extreme side, but as my wife likes to point out, women had babies in caves for centuries before modern medicine. This is normal pregnancy stuff, and she can handle it.
+
+The other problem: our next-door neighbors. They're a couple in their mid-50s, and from what we can tell they're a bit hippie-ish. We've seen them outside in the back yard, sometimes in the dead of night, doing the strangest dances.
+
+Maybe two weeks after we moved in, I met the wife at the mailbox one day. We chatted for a bit and she seemed pretty normal, but at one point she asked if I had met the roommates yet.
+
+"Um, you mean my family?" I asked, unsure of what to make of this question.
+
+"No, no, no, no, no." She shook her head, then looked around in a way that reminds me of my daughter when she's about to do something she knows I won't approve of and is trying to make sure I'm not nearby.
+
+Then she leaned to my ear and whispered in a trembling voice. "They don't like us very much, and they're not happy you're here."
+
+With that she turned on her heel and headed back into her own home.
+
+It was an odd thing to say, but then again this was also the same woman who I'd woken up to having a drum circle and singing in tongues at six AM, so I thought nothing of it at the time.
+
+But then last night I was up late doing some work. I work in IT and am part of an on-call rotation.
+
+It was a little after midnight, and the rest of my family was sound asleep when the internet went out.
+
+Odd and very frustrating. I'd heard more rural areas had more spotty access to the world wide web, but this was basically suburbia, and the whole month we'd been there nothing like this had ever happened.
+
+So I took out my phone to see if it was just a device issue. Maybe my phone had access, but it didn't. In fact, it didn't even have any bars, so I couldn't even call one of my co-workers to let them know about my internet issue. Or call my internet provider to get help getting my service back on.
+
+I went through all the usuals: turning the router off and turning it back on, resetting it, rebooting my devices. Nothing.
+
+Annoyed, I walked into the kitchen to get a drink, imagining what I was going to say to the internet people when I called them tomorrow.
+
+Our kitchen is in the back of the house, and we have this window over our sink that looks out across the back yard.
+
+I left the lights off. My eyes had adjusted to the darkness, and unable to do any work, my only options were to wait up for things to come back on, or go to bed. I chose the latter.
+
+When I looked up and out at the back yard to take a sip from my water is when I saw them.
+
+My first thought was intruders. I nearly spat my water into the sink with what I saw: three people looking directly at my home.
+
+911 was my next thought, until I pulled out my phone and saw it had no bars, so I turned on my heel and ran down to the basement to get my old baseball bat.
+
+The whole time I rummaged around the storage closet, my heart was hammering. How could this be happening?
+
+Safety is a priority to me. I'd even researched crime stats for the area, and the most severe crime in the past year was a bicycle getting stolen from a local park when the owner wasn't looking. This is the kind of thing that shouldn't, doesn't, happen, and with a pregnant wife and 3-year-old daughter asleep in their beds, the last thing I intended to do was fail as their protector.
+
+By the time I got back upstairs my face was red. I was ready to go. There was no way I was going to let anyone harm my family.
+
+I checked the window over the kitchen sink before stepping outside, and they were still there, just standing there staring at the house, as still as statues.
+
+I couldn't make out their facial features, or really any details of their clothes for that matter. It was like that grainy video of Bigfoot, only they looked human, and they were wearing what looked like dark green jumpsuits. I could just make out a nose as a little bump on each of their faces, but in the dark, even when I squinted, I couldn't see any of their other facial features.
+
+Pausing at the sliding glass door, I could feel the hair on the back of my neck standing on end. I was sweating, and I knew then that something didn't feel right about this, but I had a family to protect, so I swallowed my fear and threw open the back door, flipping on the back patio light and raising the bat as I stepped outside.
+
+Our patio light is bright enough to illuminate the entire yard.
+
+Leaves rustled in the giant oak, and the swings on the jungle gym swayed in the light breeze. There was a dog barking in the distance, and the grass was still.
+
+But there were no people out there. I was the only living thing in the yard, save for the chirping insects.
+
+Rubbing my eyes, I opened them and shook my head as if that would do anything, but there was still no one there.
+
+Maybe I was just imagining things. The move had been stressful, and with my wife nearing the end of her pregnancy, nerves about being a father of two were starting to set in.
+
+So I went back inside and closed the door. I checked the lock three times, then turned off the light.
+
+There they were again, back in the same places they had been before. This couldn't be real, but my eyes said otherwise.
+
+So I threw the light on again.
+
+Gone.
+
+Back off.
+
+Back.
+
+On. Off. There. Back.
+
+Panic rose within me with each flip of the switch. My brain was screaming at my body to stop, but I couldn't fathom what I was seeing.
+
+Just as I was nearing a breaking point, after maybe the tenth time I'd flicked that light off, they were gone.
+
+On, off again for good measure. Still gone.
+
+I stared out at my back yard for a while, wondering if what I had seen had really been there.
+
+Eventually I decided it was time to go to bed, and more out of habit, I pulled my phone out of my pocket and saw that both signal and internet were back.
+
+Relief flooded over me. Great, I could get back to work and wouldn't have to give my boss a "dog ate my homework" excuse when I'd have to explain why the issue was unresolved.
+
+Just then I heard my daughter screaming bloody murder. It was a petrifying screech, the kind that comes from the vivid nightmares that have a way of holding on to you long after you wake.
+
+I rushed to her room, down the hall opposite the kitchen at the back of the house, in the kind of panic you can only feel when your kid is crying.
+
+Bursting into her room, I found her sitting up in bed, hair a disheveled mess and face red and streaming tears.
+
+"What's wrong, honey?" I asked her.
+
+She didn't answer me, just pointed to the window on the opposite wall.
+
+Glancing out the window, I had a similar but slightly angled view compared to the kitchen window, but this time I saw nothing but the big oak tree at the back of the yard and stars dotting the night sky.
+
+Somehow I knew what my daughter was going to say before she said it.
+
+"There was a man standing at my window."
+
+I was failing to protect my daughter and to protect my wife, but I wasn't about to let my daughter know that, so I calmed her and told her to go to sleep and that it had probably been a nightmare. Daddy will take care of it; nothing is going to hurt her while I'm around.
+
+I kissed her good night and closed the door behind me as I left, guilt eating at me.
+
+And it's still taking little bites out of me today. I've resolved not to tell my wife, at least not yet.
+
+She woke up feeling more well rested than she had in months, telling me she was excited to have this baby. You can't imagine what a big deal it was to hear this from her after the difficult time she'd been having with her pregnancy.
+
+Our oldest was in such a happy mood too, the nightmare forgotten. She cheered when Mommy asked her if she was ready to be a big sister.
+
+To make matters worse, my wife kissed me on the cheek as she sat down next to me at the table, telling me how safe she felt with me.
+
+How could I let her down by telling her what I'd seen last night?
+
+So I did my best to forget about it and went about my day. It's Sunday, and I always mow the lawn on Sundays, so I put in my headphones and had almost forgotten all about it by the time I'd finished the front yard.
+
+Two things changed that when I moved to the back.
+
+The ground was a little wet with morning dew. Not a whole lot, but enough to keep it flattened longer if something had been pressing down on it.
+
+I found three sets of indented spots in the grass in the rough shape of footprints. They were small. I'm a size 10 shoe, and they were half the size of my feet.
+
+None of it made sense, least of all the fact that the figures I'd seen were more akin to an adult than a child, but they were in the exact spots I'd seen the figures standing in last night, and the way the grass was indented made me think there had been a lot of weight on those feet.
+
+I'd shut off my mower to look at one of them when I heard a voice calling me from the other side of the fence.
+
+"You met the roommates last night, didn't you?"
+
+I turned to see our neighbor, the woman, standing at the fence looking at me with a frown. Her other half was there this time. He just stood there, arms folded and glaring at me like I was a rotten piece of meat.
+
+"Excuse me?" I asked.
+
+"The roommates," she said in a shaky voice. "They don't like your daughter very much, and they said they'd hurt us if she doesn't leave. Don't make us do something we don't want to do."
+
+With that she turned and headed back into her house.
+
+"Did you just threaten my daughter?" I called after them, but they didn't respond.
+
+My first instinct was to call the cops, but what do I say? It's not like they'd act on vague threats from my crazy neighbor, and I'd probably be laughed at if I even mentioned the strange figures that disappear when a light goes on.
+
+I'm not going to let anything happen to my daughter, but I can't just pack my family up and leave. Most of our money is in this house, so the bank account is more than a little drained. We can't afford a hotel, and there's no one else in town we can turn to.
+
+I'm trapped in this house and my nightmare.
+
+Help me, Reddit.
