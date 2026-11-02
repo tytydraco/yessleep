@@ -40,7 +40,7 @@ I resisted the urge to frown for a second time. “You don’t think we should g
 
 She nodded her agreement, and we each chose our path. She went right and I went left, leaving the center for us to explore together should the need have arisen. Within a few moments, she was out of sight, and I was completely by myself.
 
-The eeriness of that maze was only amplified by my solidarity. Walking along that path alone, accompanied solely by the tall, impartial corn stalks on either side of me, filled me with an intense dread that I could not shake, and which only grew with each step deeper into the labyrinth that I took. I was only able to walk on for about a minute before I came to a dead end and I realized, with no small amount of relief, that I needed to turn back.
+The eeriness of that maze was only amplified by my solitude. Walking along that path alone, accompanied solely by the tall, impartial corn stalks on either side of me, filled me with an intense dread that I could not shake, and which only grew with each step deeper into the labyrinth that I took. I was only able to walk on for about a minute before I came to a dead end and I realized, with no small amount of relief, that I needed to turn back.
 
 I returned to the circular juncture hoping to find my friend there waiting for me. She was not. Some of that dread, which had receded a great deal as I entered familiar territory, suddenly returned to my stomach, but I told myself that it was unwarranted. She would be back any moment now, and we would continue on together.
 

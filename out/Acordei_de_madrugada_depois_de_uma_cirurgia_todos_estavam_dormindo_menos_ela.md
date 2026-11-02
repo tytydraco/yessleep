@@ -1,0 +1,57 @@
+  Eu me chamo Marcos e tenho um problema sério com hospitais no geral. Desde sempre tive medo do hospital, não sei bem porquê, acho que toda a ideia me assusta. A questão é que eu estava com algum tipo de inflamação na apendicite e eu teria que fazer uma cirurgia pra fazer a remoção do apêndice (Apendicectomia), eu nem tive opção de recusar.
+
+  Era uma tarde, eu estava na casa da minha tia e comecei a passar muito mal, eu senti uma dor muito forte na barriga, fazia um tempo que eu não tava me sentindo bem, mas eu ignorei, pensei que era por estar me alimentando mal, só que não era bem isso. A minha tia chamou uma ambulância, que me levou pra o hospital, lá eles fizeram alguns exames e me levaram pra fazer a cirurgia.
+
+   Eu juro que nunca senti tanto medo, todo aquele lugar, me fazia sentir uma sensação estranha, quase como um mau presságio. Enquanto me levavam para a sala de cirurgia, eu só conseguia olhar pra o teto e tentar respirar devagar, as luzes do corredor eram tão brilhantes que me deram tontura, ou eu só tava perto de um desmaio.
+
+A cirurgia foi um sucesso.
+
+   Depois de algumas horas, eu finalmente acordei, meio sonolento, dei uma olhada ao redor, percebi que eu tava em uma daquelas salas de pacientes, onde fica o monte de gente e cada cama é separada por uma cortina, só que as luzes estavam apagadas, mas eu ainda consegui ver algumas pessoas dormindo, tinha um senhor do meu lado e na minha frente tinha um cara com o braço e a perna engessados, do lado dele uma mulher.
+
+   Tentei me sentar, mas o meu corpo tava todo dolorido, eu senti uma dor aguda na barriga, parei de me mover na mesma hora, pensei que eu poderia ter rompido algum ponto, então eu verifiquei, mas não tinha nenhum ponto ou marca de corte, eu não tive nenhuma reação no começo, na minha cabeça não fazia o menor sentido, então comecei tentar buscar na minha mente se eu fiz ou não essa cirurgia.
+
+  Depois de pensar um pouco, me lembrei de ser dopado antes de começar, e apagar logo em seguida, então não sei se de fato aconteceu alguma coisa. A minha mente se encheu de perguntas e dúvidas, comecei até questionar a minha sanidade, Antes que eu perdesse a cabeça, eu decidi perguntar na recepção se eu fui operado ou não.
+
+   Com muita dificuldade, eu consegui me sentar e descer da cama, me segurei no suporte do soro e foi andando devagar até a porta da sala, com dor corporal e tendo que me virar pra enxergar, abri a porta que dava pra o corredor, as luzes estavam ligadas, mas não tinha ninguém, olhei em volta e vi que tinha algumas salas e mais pra frente eu vi o balcão da recepção.
+
+   Chegando perto, eu vi uma enfermeira sentada atrás do balcão digitando no celular, eu me aproximei um pouco mais e falei:
+
+— ehh... Boa noite, você sabe me dizer se eu fui operado hoje de tarde? Eu me chamo Marcos, é uma cirurgia de apêndice. — Quando eu terminei de falar ela olhou pra mim e arregalou os olhos.
+
+— O que? Você não deveria estar andando por aí essa hora, ainda mais depois de uma cirurgia. — Ela se levantou rápido e foi até o meu lado, analisando o meu corpo de cima a baixo. 
+
+— Você não está sentindo dor?
+
+— Só dor corporal, mas eu não tenho nenhum tipo de ponto ou corte na região da cirurgia. — falei enquanto colocava a mão na barriga.
+
+— Que estranho, eu vou verificar se você fez mesmo a cirurgia — Ela voltou pra trás do balcão da recepção e começou a digitar nas teclas do teclado do computador. — Vamos ver, pelo que parece, tá tudo certo, aqui diz que você fez a cirurgia e não sobreviveu.
+
+   Eu travei, senti um arrepio correr por todo o meu corpo, como assim "e não sobreviveu"? Ela leu errado? É algum problema no sistema? Como eu posso estar morto? Eu morri??
+
+Isso é algum tipo de brincadeira sem graça? Eu olhei pra ela com os olhos bem abertos, as mãos suando frio, tentei falar alguma coisa, mas não saio nada da minha boca.
+
+Ela olhou de volta e disse: 
+
+— Você não sabia? Quem vem pra esse lugar geralmente não tá mais vivo, no seu caso, parece que te trouxeram pra cá antes da cirurgia, por isso você não tem pontos. É triste pensar que alguns alimentos não tiveram nem a oportunidade de viver.
+
+   Era muita informação para processar de uma vez, eu já não sentia mais as minhas pernas, a minha respiração estava longe de estar regulada, eu não queria aceitar, eu não queria nem pensar na possibilidade de ter morrido ou está em algum tipo de purgatório estranho, tudo aquilo só poderia ser uma brincadeira de mau gosto, mas os meus pensamentos pararam assim que eu ouvi a palavra "alimentos", eu segurei a respiração e inconscientemente murmurei.
+
+— Alimentos...?
+
+   Ela sorriu pra mim, eu nunca vi um sorriso tão largo.
+
+— Sim. Alimentos... — A sua voz, que antes era fina e feminina, foi substituída por um tipo de chiado monstruoso.
+
+   Os dedos das mãos dela foram ficando cada vez mais longos, suas unhas caindo sobre o balcão. A pele dela foi perdendo a vida e a coloração. O seu corpo começou a crescer, braços, pernas e pescoço, a sua roupa se rasgando no processo. Os seus olhos ficaram completamente vermelhos e essa cor se espalhou por todo o rosto 
+
+   Em seguida, com as mãos, ela arrancou o próprio rosto, que aparentemente era na verdade uma máscara, revelando um espelho. Conforme o corpo crescia, as roupas terminaram de se rasgar, mostrando o seu verdadeiro corpo, cheio de máscaras vermelhas que parecem fazer parte dela.
+
+Os dedos da mão direita se uniram e cresceram ainda mais, formando uma lâmina afiada.
+
+   Eu não pensei, eu corri, corri o mais rápido que pude, corri como nunca havia corrido antes, corri até uma das salas de pacientes e me escondi atrás de uma das camas. Meu coração batia tão rápido que eu pensei que ele ia sair pela minha boca, as minhas mãos e pernas não paravam de tremer, eu abracei os meus joelhos e desejei que tudo isso fosse um pesadelo, e que eu iria acordar na casa da minha tia, com o cheiro de café e bolo assado. 
+
+Mas, não parecia um pesadelo.
+
+   Foi aí que eu percebi um rastro de sangue, pequenas gotas, o soro tinha se soltando enquanto eu corria, os pingos faziam uma trilha até mim, eu precisava sair de lá antes que aquela coisa chegasse, me levantei e parei o sangramento com a minha mão, antes de conseguir pensar em um lugar pra ir, eu vi a porta abrindo.
+
+   

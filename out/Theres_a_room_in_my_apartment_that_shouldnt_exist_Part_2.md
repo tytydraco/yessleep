@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/s/H7cZmLWGeg) 
+[Part 1](https://www.reddit.com/r/nosleep/s/H7cZmLWGeg)
 
 First off, I'd like to thank those who gave advice, or even looked into my story. It helps me feel not so crazy about this whole thing, or it did for a time at least. 
 
@@ -9,7 +9,7 @@ It’s been almost a week or two since the incident, and since then i’ve been 
 Best Regards,  
 Zeke”
 
-“Zeke! Been a while! G;ad to see you reached out, and yes! Me and Molly are doing fantastic, we finally tied the knot!
+“Zeke! Been a while! Glad to see you reached out, and yes! Me and Molly are doing fantastic, we finally tied the knot!
 
 Your situation is interesting, how is there even an extra room in your apartment? And also, a liquid that smells and stained your shoes??? I’m a bit worried here, I can’t lie, but as your friend I can do my best to help. 
 
