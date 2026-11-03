@@ -1,0 +1,408 @@
+In the center of the camp where I worked, there was a circle of staff cabins, and in the center of those cabins, there was a tent. 
+
+On my first day, when I asked what it was, the other staff told me not to touch it–especially if it was zipped up. I assumed it was because it belonged to one of them and they wanted privacy, or maybe it was some kind of hazing thing I was going to need to deal with later. Either way, I was a pretty boring kid looking to fit in, and I did what I was told.
+
+Most of the time, the tent stayed unzipped, flaps billowing in peaceful summer breezes.
+
+Every now and then, though, when we came back from a late-night bonfire or an early morning meeting, the tent would be zipped up.
+
+That’s how they knew.
+
+I remember the first time I saw it zipped. The other staff treated it the way you treat an overbearing manager or parent. They scoffed under their breaths and rolled their eyes.
+
+We were all supposed to be in the dining hall in five minutes, and nobody was eager to miss donut day.
+
+“Who’s got it?” Nico asked. Nico was a big redhead who slouched and grumbled until he didn’t. The lifeguard, Ava, always said he had the unique power of becoming a completely different person just by straightening his posture.
+
+No one answered him.
+
+“Hey!” Nico snapped, suddenly twice as loud, three inches taller, and (if I’m being honest) measurably cuter. He immediately lowered his voice once he had our attention, though his eyes still sparked. “I said who’s got this one? I’m not supposed to go twice in a row.”
+
+“I’ll get it,” Ellis grumbled.
+
+Ellis was Nico’s older brother, and the junior director for the week. He was the kind of guy who liked to look like he had it all together, and so it was no surprise that he volunteered for whatever this was.
+
+“Thanks Ellis. We’ll cover for you–and save you some donuts.” Nico said.
+
+The rest of us continued on toward the dining hall. The bell was going to ring any minute, and the Geriatrics (as we liked to call the middle-aged people who lived and worked at the camp year-round) had made it clear that us summer staff needed to start showing up for stuff on time.
+
+“What’s going on with the tent, anyway?” I asked.
+
+Nico and Ava exchanged glances. 
+
+Even though Nico was technically younger than most of us, the fact that he was the director’s son made him our defacto leader. He wasn’t the most gregarious out of his crew, but he knew literally *everything* about this place. He took it all more seriously than Ellis, too. Ava was always talking about how *he* would be junior director, except he didn’t want the gig.
+
+“For now, you just need to stay away from it,” Nico said. It wasn’t unkind, but it was firm.
+
+Still, I didn’t like that answer at all, and for some reason it particularly stung coming from him.
+
+Ava glanced back at me, like she wasn’t sure I was going to accept that answer. When I offered a reluctant smile, she smiled back.
+
+They had all known each other for a long time–most of them had been campers together since grade school, and while they had all been welcoming, there was only so much you could share when it came to inside jokes and childhood secrets.
+
+I followed Ava and Nico and the others down the hill to the dining hall. The camp was beautiful in the morning. Honestly it was part of the reason I wanted to work here in the first place–it gave me a prime opportunity to escape my parents’ city apartment and get out into the forest. Mist filled the emptiness between the trees, and lights hung above us, zig-zagging from tree to tree. Someone had laid down a good chunk of change at the local hardware store. 
+
+“Hey, wait up!” 
+
+I turned to see Ellis, half jogging, half tripping down the hill behind us. He caught up easily and smiled.
+
+“Are you done already?” Maria, our craft girl, asked.
+
+“Not yet.”
+
+Nobody asked him any more questions. 
+
+I sat through breakfast, trying to figure out what exactly was going on–why the veteran staff members seemed fairly nonchalant about this whole thing, but still wouldn’t talk to me about it. Eventually, I settled on the conclusion that it must be the start of a hazing thing–like they were trying to scare me or get me curious before they let me in on the whole story. 
+
+I noticed something interesting, though. Halfway through breakfast, Ellis wrapped two chocolate donuts in a napkin and left the building, whistling as he went. Ellis was allergic to chocolate. I learned that my first night here.
+
+\*\*\*
+
+A few days later, as we were all getting back from a night swim, I happened to look over and see that the tent was zipped up again. I poked Ava, and she looked over, too.
+
+“Aw shit. Tent’s zipped.”
+
+“I got this one,” Nico said.
+
+He darted off course and headed for the tent. I wanted to stay and watch what happened, but Ava grabbed my arm and steered me toward the cabin. “Let’s dry off and then we can start that fire,” she said.
+
+I looked over my shoulder once and saw Nico squatting next to the tent, holding a piece of paper.
+
+\*\*\*
+
+Our women’s staff cabin only had two shower stalls. Ava and I showered first, and I hurried through mine so Maria could jump in. After pulling on a pair of sweats and a hoodie, I walked back out into the main cabin. I was surprised to find Nico sitting there. He definitely wasn’t supposed to be, though the women went over to the men’s dorm all the time, and nobody stopped us. 
+
+“Uh, hi.”
+
+“Hi,” he looked worried. It was an expression I hadn’t seen from him before. “ Where’s Ava?”
+
+“Here,” she called, bright and bubbly.
+
+“Can I talk to you for a second?”
+
+“Yeah!” She plopped down on her bed.
+
+He glanced up at me. “Maybe outside?”
+
+I was starting to get annoyed. I thought Nico and I were friends–me and Ava too. I didn’t appreciate feeling like I was suddenly on the outside.
+
+To her credit, Ava gave a half little shrug on her way out, as if to apologize for how weird this was all becoming. Then she followed him out onto the porch.
+
+Immediately I jumped up from my bed and went to stand by the window at the entrance. There was a thing I learned early about that cabin–the maintenance staff pretty much avoided the staff quarters as much as possible, which led to all kinds of lame, gross, and semi-unsafe conditions. One of them was that the window didn’t shut all the way. The constant air whistling through the window made me crazy most nights–but that night it was welcome. That night it meant I could hear what Ava and Nico were saying on the porch.
+
+“What’s wrong?” Ava asked. “What did it say?”
+
+“It said it wants *her* for the next one. It wants Kit.”
+
+“Oh fuck.”
+
+I held my breath. *What* wanted me? I assumed he was talking about the tent, but I still had no idea what the tent was even about. If this was a prank or a hazing, it was a good one. How did they even know that I would listen at the window?
+
+“Yeah,” Nico said.
+
+“Has it ever asked for a specific person before?”
+
+He shook his head. “Not that I’ve heard of.”
+
+“When should we tell her?”
+
+The shower turned off, and I heard Maria walking across the bathroom floor. 
+
+I didn’t want to explain why I was listening at the window, so even though it killed me, I went back and sat on my bed and pretended to be busy on my phone.
+
+“Where’s Ava?” Maria stepped into the dorm, towel-drying her hair.
+
+“Not sure. She went outside.”
+
+“Probably heading for the campfire. You about ready?”
+
+I nodded, and a few minutes later the two of us headed out to the fire.
+
+\*\*\*
+
+When I got to the campfire, the Nico, Ellis, and Ava were already staring at me. It wasn’t pleasant.
+
+I took a seat beside Ava. She was scratching at the friendship bracelets encircling her arm. They reached from her wrist halfway up to her elbow like some kind of gauntlet. They looked newer the higher they climbed her arm, and I had a feeling she probably got several new ones every summer. 
+
+She looked stressed. She played with her bracelets when she felt that way.
+
+“What’s going on, guys?” I asked. 
+
+Nico leaned forward and handed me a piece of paper. It was old. Partially crumpled. I unfolded it, careful not to rip the brittle sheet. 
+
+“You’re gonna need to read these,” he said. 
+
+The Rules
+
+1. When the tent is zipped, send someone to go get the note.
+2. The person who picks up the note must read it and do exactly what it says. They may not tell any other participants what their note says until after they’ve completed their task.
+3. The task must be completed as soon as possible. She will know if you take longer than necessary.
+4. While you are completing your task, no other participants may look at the tent. It’s probably best if they leave the area entirely.
+5. Do NOT fail to complete a task. You will not like the sort of request that comes next.
+6. It’s up to you as to whether you invite new participants–but understand that if you leave the tent unguarded, *she* is free to do what she wants.
+
+I stared at the list of rules. Then I looked up at each of the others, searching for any hints of laughter in their eyes.
+
+“You guys must think I’m really dumb.” I finally said. Even as I said it, though, I felt a creeping feeling running along my spine. Something felt strange here.
+
+“No.” Nico said. “No, not at all. This isn’t a joke. We really need your help here. I wouldn’t be bringing you into this at all, but it specifically asked for you.”
+
+“And I know it’s weird the first time, but it’s never anything bad,” Maria said.
+
+That earned a look from Nico, “It’s never anything bad *anymore*.”
+
+Maria’s head fell, and Ava scowled at her.
+
+“Yeah,” Maria said. “Sorry.”
+
+Ellis turned to me. “ Look, basically just don’t be a fuck-up. Get the job done and we’ll be fine.”
+
+“Yeah,” Nico said. “You got this.”
+
+I looked at him for a long time. I trusted him the most out of everyone here, but that didn’t mean that he was above an elaborate practical joke. And I *had* to believe that this was a joke.
+
+\*\*\*
+
+Joke or not, the tent didn’t wait long to call me for the first time. It was early in the next morning, and I was about to head out for a morning jog, or maybe a quick paddle around the lake. 
+
+As I left my porch, my gaze happened to wander to the tent. That’s when I saw it was zipped up tight again. 
+
+I began trembling immediately. I didn’t want to do this. I didn’t want to participate. But I knew I didn’t have a choice.
+
+I started toward the tent. 
+
+“Morning, Kit.”
+
+I just about jumped out of my skin.
+
+Nico was standing on his porch.
+
+“Don’t look,” I whispered harshly. I realized then that there was a real part of me that bought into this thing–or at least I didn’t want to be wrong.
+
+Maybe it was some elaborate hoax. This would be a great way to haze someone.
+
+But my gut told me to take it seriously. 
+
+Nico dropped his eyes so quickly that in that moment, I was convinced he believed it, too.
+
+“Good luck,” he said softly. “Text me if you–well, no, I guess you can’t. But you’ll do great.”
+
+It was a frightening thing to say, don’t get me wrong, but reassuring too. Something in his tone told me that this was going to be okay. I was up for this task.
+
+The tent rustled as I approached it. At first I thought it was the wind, but as my feet padded across the pine needles, I saw the shadow-shape begin to rise up inside the dirty orange canvas. At first I thought it was only an ordinary head, but then I saw the protrusions and I stopped dead, questioning myself. My breath caught in my throat. 
+
+I tried hard to convince myself at that moment that this was a prank. It was a friend in a costume, backlit by the rising sun. The more I told myself that story, the more it gave me courage. As long as I could picture the others in their cabins, watching me and laughing, it made me feel better–no matter whether I believed it or not. 
+
+I thought I could push past the fear–the way my breath hitched with each step–and do this. 
+
+When I reached the tent, the thing inside let out a little chadder. It stopped me in my tracks. It wasn’t the sound I expected. It sounded almost happy–almost excited to have me there. Could it see me? Smell me? No, that was insane. It was just a staffer dressed up, making creepy noises in a tent, right? Just a friend.
+
+I couldn’t make myself believe it. My hands shook as I reached for the note.
+
+The thing inside the tent turned its head. There was something wrong with it. Something bulbous.
+
+I forced my eyes down to the note.
+
+*There is a small owl behind the woodshed. Get it and bring me a feather from its tail.*
+
+I folded it and began walking backward away from the tent. Already, the task was more difficult than I expected. I had no idea how to catch an owl. Maybe a bucket? Wouldn’t it struggle or just fly away?
+
+Still, it was better than staying beside this tent.
+
+I couldn’t talk to anyone about my task, so I ended up heading down to the workshop at the far end of campus. I had only been in there a few times, and there was something especially unsettling about it in the dim morning light. A free-standing band saw stood in the corner of the shop. It was at least as tall as I was, and I always felt like there might be something hiding behind it.
+
+I tiptoed past the saws and the workbenches and the jars full of sorted screws and nails and fasteners and found a pair of oversized leather gloves. Those would be helpful. I stuffed them in my pocket and looked around again. My gaze finally landed on a small cage jutting out from underneath one of the work benches. 
+
+*Perfect.*
+
+I tucked the cage under my arm and left the shop, looking both ways to make sure the caretaker wasn’t coming up the path from his house. I was fine. Everything was clear.
+
+As I started up toward the woodshed, though, something chattered from the woods. I looked up and there between the trees, I could see the edge of some kind of cloak silhouetted against the morning fog. The chattering stopped. I took a step forward, and the shape swirled away into the mist without a sound, leaving me to wonder if I had actually seen anything at all.
+
+I was already pretty on edge, and these woods suddenly felt strange and lonely.
+
+I hurried up the path to the woodshed, eager to get away from those trees as quickly as possible.
+
+It turned out I didn’t have to worry so much about catching the owl. I found her lying on the ground, wing dragging limply beside her, splattering and smearing blood along the forest floor. She was small, and she glowered up at me with wide golden eyes.
+
+Carefully, I reached down for her. She didn’t try to run or thrash or fight back. She just went still like she already knew what was coming. My gloves enveloped her to the point I wasn’t entirely sure she was there at all. I put her in the cage, careful not to hurt her as I retracted my glove. She weighed nothing, like I was picking up a cotton ball. I thought I could squish her without even trying.
+
+Then I started back to the cabins.
+
+Once I got closer to the tent, I paused in the middle of the trail and clipped one of the owl’s  tail feathers before continuing up the hill. When I reached the cabins, the porch lights were out and the rest of the staff already seemed to be gone for breakfast. 
+
+I carried the feather and the owl to the tent. Catching her had been so easy that I allowed myself to be confident about this part, too. I set the cage and the feather down in front of the tent. There was already another note tucked in the zipper. 
+
+*Very good. Leave the feather. Take the owl.*
+
+I looked down at the bird, and she looked back at me.
+
+The others were right. Maybe this wasn’t so bad. 
+
+\*\*\*
+
+I settled at the table between Ava and Nico. It was nice being part of the inner circle now, even if it came at a strange price. Even if it cost me my own fear.
+
+“There she is!” Nico gave me perhaps the biggest grin I’d seen all summer. “How’d it go?”
+
+“I can talk about it all now?” I asked, just to double check.
+
+“Yeah, yeah. You’re free to spill,” Ellis said. “So spill.”
+
+“It wanted me to go catch an owl and then give the tent a tail feather. And now I have a hurt owl to take care of. I don’t really know how though.”
+
+“Oh, don’t worry about it,” Maria waved me off like she dealt with this kind of thing all the time. “My aunt works at a wildlife refuge. I’ll give her a call tonight, but for now we can just put her in a cardboard box and let her be in the dark and throw a live mouse in there now and then. She’ll be fine.”
+
+She must have seen the wheels turning when she said *“live mouse”* because she quickly added, “You can get those at the pet store. It’s not a big deal.”
+
+I nodded. “So, can you guys tell me a little bit more about what’s going on now?”
+
+Ava glanced at Nico, and then leaned forward. Yeah. We can probably fill you in on the lore. “We call it the Witch.”
+
+“Seems a little on the nose,” I said. I was feeling brave now that I was drinking coffee and eating waffles in the warm light of the dining hall.
+
+“No, no–” Ava couldn’t stand it when people thought anything around her was lackluster. “Not like a normal witch. Like the Black Witch Moth”
+
+“Have you heard of it?” Ellis asked.
+
+I shook my head.  
+.  
+“They’re like–they’re like this massive moth that stalks the night and stuff,” Ava said. In some countries they’re seen as bad luck. Even bringers of death.”
+
+I couldn’t help it. I thought of the edge of the cloaked figure I had seen in the woods–the little chattering sounds–and I couldn’t help but shiver.
+
+“Sounds like you did great,” Nico said. It’ll probably be even easier next time. She just likes to have a little fun with newbies. But hey, you actually don’t even have to do it again. It’s voluntary.”
+
+I nodded. *Unless she calls you by name.*
+
+“Good morning, guys.”
+
+I looked up to see one of the Geriatrics standing at the end of our table. His name was Sphen, and there were several of us who suspected that wasn’t his real name. There wasn’t a lick of Scandinavian about the guy.
+
+“Hey, listen, I have a favor to ask you all tomorrow.”
+
+“Whatcha got?” Ellis asked.
+
+“We need to put on a strong show for family day,” he said. “We’ve got a couple of big donors coming in to visit their kids, and we need to up our game. Trust me, we could use the donations.” He gestures to a particularly bad crack in the ceiling. It leaked every time it rained. We had a bucket with a name and  a face on it and everything. “Kit, I’m going to have you help Nico on the climbing wall. I’ll take your walkie talkie and first aid backpack myself.”
+
+I nodded, glad I had finished my wall training.
+
+“Ava, I asked Susan if she would back you up on the waterfront, just for tomorrow. She’s not totally caught up on her certs, but she’s had enough years in the chair to make up for it.”
+
+“Great,” Ava smiled tightly. She picked at her armful of friendship bracelets.
+
+“Thanks guys,” Sphen drummed on the table and headed to wreak havoc in the kitchen.
+
+“Yay. Susan,” Ava said, rolling her eyes and flopping back in her chair. 
+
+\*\*\*
+
+“What a cute little guy!” Maria said, leaning over my owl’s cage. “I think it’s a screech owl, but she’s just a baby! Did you name her yet?” 
+
+“Not yet,” I said.
+
+“You gotta name her.”
+
+I was just starting to think about what I would call a baby screech owl when Ava’s voice carried up from the courtyard.
+
+“Damn it!” She snapped.
+
+Maria and I turned to look. Ava was standing in front of the tent, and it was zipped again. She turned to look at me. “You sure you did everything you were supposed to do, New Girl? It doesn’t usually happen this much.”
+
+“I did what the note said.”
+
+She let out a half sigh, half growl, “It’s *fine*.” She said, “I got this one.”
+
+She marched to the tent, and the rest of us went back to our cabins to wait it out. Maria flopped on her bed, and I flopped on mine, and we both pulled out our phones. We didn’t need to be anywhere for another half hour, and this was one of our few moments of peace in the day.
+
+For that reason, I almost didn’t interrupt it. 
+
+But I had questions about the tent and the Witch and everything that surrounded it, and I had a feeling Maria would be more willing to talk about it with me than Ava.
+
+“What did Nico mean when he said the Witch never asks for anything bad *anymore?”* I said.
+
+She looked up. She put her phone on the bed face down. “It’s just…it’s important we give the Witch *exactly* what she wants. Like the rules say, she escalates when we mess up.”
+
+“What happened that was so bad?”
+
+She looked at me like she was trying to decide if she had to answer. Finally she shook her head. “Look, I don’t think I’m the one to ask. I’m not one of the people who thinks that *everything* bad that happens around here is the Witch’s fault. But some people don’t agree.”
+
+I was about to push harder when Ava came storming back into the cabin. She walked in and slammed the door behind her.
+
+“Are you done?” Maria asked.
+
+“No.” She snapped. “No, and I’m not gonna do it.”
+
+Maria’s eyes went wide. “Ava, you have to.”
+
+“Yeah, not this time.” Ava turned to me, eyes fiery. “You must have screwed something up. *You* fix it.”
+
+I took a step back. I honestly had no idea what she was talking about. I’d done everything the Witch asked, as far as I knew. I did it quickly. I kept the secret.
+
+Maria stepped between us. “Kit, did you tell us everything the note said?” Even as she asked it, she nodded subtly as if to encourage me, and I had the feeling she was on my side.
+
+“Yeah! Yeah, I did!” At this point I was more afraid of Ava than the Witch.
+
+“I think she’s telling the truth, Ava. I think you just have to do it before you make things worse.”
+
+Ava glared at me. Then she stomped over to her bed and took the knife from the ledge on her bunk. I flinched. For a moment, that knife in her hand and look in her eye suggested something I didn’t want to think about. Then she pushed past me and out into the courtyard, and I breathed a sigh of relief.
+
+When Ava came back five minutes later, her friendship bracelets were gone.
+
+“Ava,” Maria said softly.
+
+“Yeah. Yeah it wanted my bracelets. The one from Claudette? It wanted my *dead friend’s bracelet!”* She practically screamed.
+
+My stomach turned.
+
+Ava collapsed onto her bed crying. The girl I thought was the strongest of all of us had just been torn apart by a tent in the middle of a circle of cabins in the middle of a summer camp. 
+
+That was the moment I truly believed. That was when I stopped doubting whether this was real.
+
+Ellis and Nico ran into the room seconds later.
+
+They seemed just as shocked to see Ava like this. Ellis sat down beside her and put his hand on her back. She sniffed loudly, and when she looked up, I thought she looked like she could attack any one of us at any moment. Her eyes were so red that they practically glowed, and they refused to focus on any of us.
+
+“I’m *not* doing this again,” she said. “I told it to fuck off, and if it doesn’t like it…well…” she didn’t finished the thought. She collapsed into tears again.
+
+Nico and Ellis exchanged a look. 
+
+That night, I tried to pull Maria aside to ask what was going on–who was Claudette? What did Ava mean when she said she wouldn’t do *this* again? Maria just shook her head, and said we would talk more tomorrow. 
+
+I expected that to be the end of things for the night. We went to bed without talking, and even Nico didn’t text me back. I wasn’t sure if it was because he was dealing with his own crap, or if he was mad because he thought I had done something wrong.
+
+Either way, I found myself drifting off waiting for a reply that never came. 
+
+I would like to say that I woke up the next morning and things were better. I would like to say that we all slept fine, and while Ava was still sad the next morning, she was better too. 
+
+That’s not what happened.
+
+The night had one more trick in store.
+
+I woke up, bleary eyed, to an unsettling clicking sound. I looked around the inky black room, and it took me a moment to register what was wrong. There was a shape in the bathroom doorway.
+
+My breath caught, and I froze in place. I knew at a glance that it wasn’t Maria or Ava. This figure was tall. So tall that she looked crunched down in the doorway. 
+
+She stepped forward. The floor creaked under her weight. She wore a cloak, furled around her body. She looked like a woman, but her face was bulbous and almost reflective. Something like antlers protruded from her head. She stepped closer. She reached my side as I struggled to open my mouth. Tears bubbled at my eyes, and still I couldn’t move. 
+
+She leaned over me, and I could see her antlers gleaming in the porchlight, barbed and clicking. 
+
+I didn’t dare move. I couldn’t. I couldn’t even tell if I was awake or asleep. I wanted to flail, to scream, to wake up Maria and Ava, but I couldn’t.
+
+Instead I just lay there. I lay there as she spread across me. I lay there as she extended her neck and breathed down on my bare shoulder. The breath itself was cold, and when her teeth sunk into my neck, they were cold too.
+
+Only then did I scream.
+
+Ava had the lights on within seconds. I’ll never understand how she got from her bed to the door that quickly. 
+
+In the buzzing fluorescent lights, the three of us were alone in the room. 
+
+I reached up for my neck, and I felt the hot liquid oozing down my shoulder. When I pulled my hand away, it dripped with blood.
+
+\*\*\*
+
+And now, ten years later as I sit in my respectable living room in my respectable town, I can sense her again. It’s not a complete shock. She likes to come around sometimes. 
+
+I have more story to tell, and I’ll try to get back to it, but first I need to take care of her. I think I can see her cloak flutter in my doorway. I think I can hear her chatter.
+
+I don’t think she realizes I’ve noticed her yet. That’s why I’m still typing–so she won’t realize I’ve spotted her. But now I need to get up. I need to turn on the lights. I need to do what I couldn’t do ten years ago. I need to face her.

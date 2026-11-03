@@ -1,0 +1,134 @@
+When you grow up in a small town, everyone tells you the world is tiny. They tell you that life outside your zip code is just bigger versions of the same strip mall, that people are the same everywhere, and that nothing ever truly gets lost because there are only three roads in and out. 
+
+They lie. 
+
+The world isn’t small. It’s impossibly, terrifyingly vast, and sometimes the seams come apart right where you’re standing. 
+
+My hometown was called Millbrook. If you look for it on a map today, you might find a dot nestled into the wet, dark pine valleys of the Appalachians, but you won’t find what it actually was. Millbrook was a town with a metabolic rate. It ate things. Over fifty years, we had nine unsolved disappearances, four murders that local sheriffs casually blamed on “drifters or bad weather,” and enough cryptid sightings that seeing something eight feet tall and velvet black crossing County Road 4 was treated with the same mild irritation as a raccoon in the trash cans. 
+
+You’d think growing up there would make you paranoid. It didn’t. When you’re twelve, horror is just the wallpaper of your life. 
+
+There were three of us: me, Luke, and Kenny. Everyone called Kenny “K.” 
+
+Luke was our self appointed field commander whose survival strategy consisted entirely of loud bravado and stolen cigarettes he didn't know how to inhale. K was different. K was skinny, had scraped elbows that never seemed to fully heal, and wore an oversized mustard yellow windbreaker even in mid July because he swore it made him look like a noir private eye. He collected things nobody wanted smooth pieces of bottle glass, dead cicadas with intact wings, porcelain doll arms he dug up from old creek beds. K looked at the world the way you look at a museum after hours: quiet, respectful, and slightly afraid he might break something precious. 
+
+The summer of 2001, we decided to explore the Old Millbrook Sanatorium on the ridge. 
+
+It had been abandoned since the late seventies. The town council kept voting to demolish it, but every contractor who went up there either had equipment fail or backed out after hearing “plumbing noises” in a building whose pipes had been dry for thirty years. To us, it was Mecca. 
+
+We rode our bikes up the overgrown gravel switchbacks, our spokes clicking against dry grass. It was late August, that golden hour where the sun turns the whole world into honey and dust. 
+
+Getting inside required Luke to execute what he called “a covert tactical breach,” which actually meant wedging his fat rear end through a broken basement window, ripping his jeans pocket clean off, and kicking down a stack of empty paint cans that sounded like a plane crash. 
+
+“Clear!” Luke hissed, sitting in a pile of dried mud, rubbing his tailbone. “Hostiles neutralized.” 
+
+“You killed three spider webs and your dignity, man,” I whispered back, climbing in after him. 
+
+K didn’t climb in. He kind of slipped through like water. He had this way of moving where he barely disturbed the air around him. He turned on his flashlight a cheap red plastic Eveready that flickered whenever he breathed too hard and shone it down the hallway. 
+
+The hospital was beautiful in the way only rotten things can be. Green ferns had broken through the cracked linoleum floor. Moss carpeted the reception desk. Long, pale curtains rotted in the breeze from shattered windows, swaying like jellyfish in deep water. Late afternoon light pooled on the floor in long, amber rectangles. 
+
+We wandered for an hour, doing what twelve year old boys do: Luke kicked open doors pretending to be a SWAT officer, I pretended to find a severed hand in a mop bucket, and K wandered behind us, trailing his fingers along the flaking floral wallpaper. 
+
+“Hey,” K said suddenly. He was standing at the end of the third floor pediatric wing. 
+
+“Find something?” I asked. 
+
+“Listen.” 
+
+Luke and I stopped. Luke was holding a rusty bedpan he’d claimed as a shield. “I don’t hear nothing,” Luke muttered, his voice cracking from early puberty. “Just the wind. Or ghosts. If it’s ghosts, I swear to God I’m throwing this bedpan at them.” 
+
+“Not the wind,” K whispered. He smiled not scared, just completely enchanted. “Music. It sounds like a music box under water.” 
+
+Luke and I exchanged a look. There was no music. There was only the dead, heavy hum of an empty concrete carcass sitting on a mountain. But K’s face was glowing. 
+
+“I’m gonna go check Room 314,” K said. 
+
+“No, dude, don’t split the party,” Luke said, trying to sound authoritative while visibly clenching his fists. “That’s how people get eaten in every movie ever made.” 
+
+“It’s right there,” K pointed. The door to 314 was open just a crack. Beyond it was a room with a large bay window overlooking the valley, bathed in blinding, liquid gold from the setting sun. “Just two seconds.” 
+
+He walked down the hall. His mustard windbreaker was the brightest thing in that whole decaying building. I remember watching his sneakers blue canvas with mismatched laces step quietly across the fallen plaster. 
+
+He pushed the door to 314 open. 
+
+“K?” I called out. 
+
+He paused in the doorway, silhouetted against the brilliant amber light of the valley. He turned back, looked at us, and gave this funny little salute he always did when he was leaving my house after dinner. 
+
+“Don’t eat all the fruit snacks,” he said. 
+
+He stepped inside and pulled the door shut behind him. 
+
+We waited. 
+
+Ten seconds. Thirty seconds. A minute. 
+
+“Alright, K, very funny,” Luke shouted, his voice echoing down the corridor with a tremble he couldn’t hide. “Come out or I’m stealing your bike pedals!” 
+
+Nothing. 
+
+We walked to the door. Luke reached out and turned the brass knob. 
+
+Room 314 was empty. 
+
+I don’t mean K was hiding under a bed. There were no beds. It was a completely bare, ten by ten concrete square. The floor was covered in an undisturbed layer of thick, grey dust. No footprints. No signs of a scuffle. The bay window on the far side was intact, crusted over with decades of grime, completely unbroken. 
+
+There was nowhere to go. No closets, no vents, no drop ceiling. Just four concrete walls and golden sunlight. 
+
+In the middle of the room, sitting neatly side by side in the dust, were K’s blue sneakers. Beside them lay his red plastic flashlight, standing upright on its base, beam shining uselessly up at the ceiling. 
+
+We didn’t scream right away. The brain takes a second to process something that breaks the rules of reality. 
+
+Then Luke dropped his bedpan. The clatter was deafening. 
+
+“K!” Luke shrieked, charging into the room, tearing at the walls with his bare hands as if they were made of curtains he could rip down. “K! Stop playing! KENNY!” 
+
+We searched for three hours until the sun fell completely and the hospital turned jet black. We screamed his name until our throats bled. At one point, Luke was sobbing so hard he threw up in the hallway, begging: “Kenny, please, I’ll give you my holographic Charizard, just come out, please, man.” 
+
+We finally ran down the mountain in the dark, tripping over our bikes, tearing down into town with our eyes blinded by tears. 
+
+The search that followed was the biggest Millbrook had ever seen. Dogs, helicopters, state troopers, volunteers with grid maps. They combed every square inch of that sanatorium. They tore up floorboards, drained the flooded basement boiler room, swept the surrounding woods for three miles. 
+
+They found nothing. Not a thread of mustard yellow fabric. Not a hair. 
+
+The police questioned Luke and me separately four times. They thought we made up the hospital story to cover for something else an accident in the woods, a fall into an old mine shaft. But our stories never changed. How could they? You don’t forget the light coming through that doorway. 
+
+Eventually, Millbrook did what it always did: it digested him. 
+
+A month later, a memorial service was held with an empty casket. Six months later, his parents moved three states away to a place with no mountains and no trees. A year later, people stopped mentioning his name at the grocery store, because in Millbrook, speaking the name of the lost felt like calling the rest of the dark to your own front porch. 
+
+Luke and I drifted apart. It’s hard to look at someone when their face is just a mirror of the worst second of your life. Last I heard, Luke works as an architect in Chicago. He builds high rises places made entirely of steel, glass, and light, with nowhere for anything to hide. 
+
+I still live about an hour from Millbrook. I’m thirty five now. I have a quiet life, an ordinary job, a house at the edge of the woods. 
+
+People ask why I don’t hate the town, why I didn’t run away. The truth is, I can't bring myself to believe K is dead. When someone dies, there’s an ending. There is a weight, a gravity, a body that goes into the earth. 
+
+K didn’t die. He was simply accepted into whatever vast, strange geography exists behind the curtain of our world. I remember the look on his face right before he stepped into Room F314 that quiet, radiant curiosity. He looked like a boy stepping onto a train he’d been waiting for all his life. 
+
+Every summer, on the last week of August, when the afternoon light turns thick and gold like honey, I drive out to the base of the ridge. I don’t go up to the hospital. I just sit on the hood of my truck, pop open a box of fruit snacks and leave one sitting on the roof beside me. 
+
+I look at the pines swaying against the mountain, and I listen. 
+
+I haven't heard the music box yet. But the world is so much bigger than they told us it was, and wherever K is, I hope he finally found the missing pieces to all those things he used to collect. 
+
+Sometimes people ask me why I’ve never gone back up to Room 314 with modern gearFwith drones, thermal cameras, or parabolic microphones. 
+
+The truth is, some doors only open when you aren’t trying to force them. You can’t hunt a miracle with a flashlight; you can only wait for it to remember you. 
+
+Last August, just as the sun slipped below the tree line and the valley turned that deep, bruised violet of early twilight, I packed up to leave. I climbed into the cab of my truck, turned the ignition, and glanced up through the rear window. 
+
+The single strawberry fruit snack I’d left on the roof was gone. 
+
+In its place, resting dead center in the thin ring of dust, was a smooth, ocean tumbled shard of amber bottle glass. 
+
+I sat there in the dark for a long time. There had been no footsteps. No rustling in the brush. No shadows crossing the gravel. When I climbed out and picked the glass up, it wasn't cold from the mountain air. It was warm, like something that had been kept safe inside the pocket of a yellow windbreaker all afternoon. 
+
+Before the engine caught the local station, the radio crackled with a soft burst of static, and beneath the hiss, three muffled notes chimed out slow, crystalline, and hollow, like a music box playing from the bottom of a deep lake. 
+
+Then the static faded, and there was only the hum of the heater and the wind in the pines. 
+
+I keep that piece of glass on my nightstand now. If you ever find yourself driving through a town that feels a little too quiet, where the road ends and the afternoon light turns to gold, don’t be afraid if the seams of the world start to slip. 
+
+Just keep your headlights on, listen for the music beneath the water, and always remember to leave a little sweetness behind for the ones who wandered ahead. 
+

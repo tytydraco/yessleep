@@ -1,0 +1,26 @@
+I don’t know if I killed that thing, well, if the fire did. I hadn’t heard any demonic animal calls since I left the ranger station either so I think I’m in the clear. It’s been an interesting trip to say the least.
+
+Yesterday was quiet. I did manage to finally get some sleep. No dreams no nightmares, legit rest. It helped some but I just woke up sorer than I’ve ever been. I thought about going back to sleep once I woke up, but I knew I probably wouldn’t make it back with that time line. I ate what little food I had left while I was still hidden in the drain, and continued down the mountain road. 
+
+After five miles or so, I started to hear a vehicle in the distance. This boosted my hopes further than I could’ve thought. Once I heard the hum of the engine I realized that I haven’t seen or heard any other vehicle up here since we were on our way down originally. I picked up my pace and started to run. The sight must have been something. As the truck came around the corner and into view it stopped. I kept running. I didn’t care if I looked like a madman from deep in the forest or not, that truck was a sure shot out of these woods and I could tell I couldn’t make the last twenty miles alone. 
+
+The truck, driver obviously in fear started to try and back up in the snow and reposition to turn around. I must’ve really looked like shit. It was no use though, given the snow and the narrow road the driver took a lot longer than they had thought and in no time I was at their door. Its tint was too dark to see through and my hot breath on the window only fogged it up more. I started to bang on the window yelling at them to roll it down. Eventually the driver did. It was an old man, bordering his eighty’s if I had to guess, he was alone besides his wiener dog in the front seat.
+
+“Young man what in all hell you lookin like that fer? The ways yous was runnin I thought you were a demon draggin those ripped clothes behind ya. Scared the shit out of me and Coop.” He patted his dog on the head.  
+“Sir I just need to get home.”  
+“Where’s home young man?”  
+“Off this fucking rock.”  
+“Alright I get ya, what you doin out here with no truck?”  
+“I came up with my friends and they crashed a bit up a ways, they didn’t make it, and I’ve been walking since.”  
+“Say no more.”  
+A solemn look crossed his face as I mentioned the crash and he leaned over Coop and opened the passenger side of the door. I wasted no time getting in. 
+
+Old man Jerry as he calls himself, is a real one. On our way down the mountain we stopped at his cabin in Dirthop for a cup of coffee and he gave me some dry clothes. I couldn’t have told Jerry thank you enough. The man saved my life and it’s just another Monday for this guy.  
+“Figure I’d drop you off at the sheriffs station down a ways, them boys’ll help ya with ya rig.” He didn’t mention Aaron and Ricky.  
+“I can’t thank you enough Jerry.”  
+“Yup it’s whatta old fellers here for, to help you young dipshits get on gettin.” He laughed. I tried to as well but my chest gave up.   
+“Hey Jerry,” I paused before continuing. He looked at me, letting me know I had his attention.  
+“Have you ever seen anything up there, up further on the mountain I mean.”  
+He looked at me and let out a long sigh before answering.  
+“All I know young man it that a body will fight infections, nature gonna spit whatever it can atcha if it don’t like what it’s getting in return.”  
+It wasn’t the answer I was looking for but it was good enough. And that was a good enough reason for me to ever go back up that mountain. Especially since all my tears have been black since I’ve gotten home.

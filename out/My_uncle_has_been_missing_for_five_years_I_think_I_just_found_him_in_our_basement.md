@@ -1,0 +1,59 @@
+The man in our basement is skeletal. His tank top is stained yellow and bug-eaten, his arms outstretched and pinned to the wall behind him with two loops of rusted chain. His eyes are also yellow, sunken deep into their sockets, and his teeth are black, tightly gritted. His hair has fallen out, clumps of it collected in the hollows of his shoulders.
+
+And the bugs. Clouds of them. Some of them clotted on his face, crawling in his nostrils. Maggots, gleaming white, wriggle around in the puddle that’s soaked into his lap.
+
+I don’t know what to do. I don’t know if I can even believe what I’m seeing. But he’s here, barely breathing,  his eyes big and glassy. And even though he’s looking at me, I know he isn’t *seeing* me.
+
+If there was a man in that body, he’s not here anymore.
+
+He’s almost unrecognizable, almost inhuman. The only reason I think it’s Uncle Ross is the star-shaped scar on his forehead. The one my dad gave him before I was born.
+
+I guess I should try to explain. I’m sixteen. Only child. I think I had a pretty normal life up until a few minutes ago, maybe even a great one. My dad owns a restaurant chain passed down from his father, and my mom’s a doctor, which means I’ve always lived in a house bigger than my friends’ and had a pantry that looked like a grocery store. I’ve cycled through my share of friends- kids who’d come over and jump on the trampoline or play video games but never really seemed to like me. I was okay with this. We’d talk about cartoons and Sonic or whatever, and they would fade away, replaced by another boy named Tanner or Brayden or Connor or something.
+
+Seeing Uncle Ross, my dad’s older brother, was my favorite part of my childhood. My dad called him “a drifter” and kept a hand clamped tightly around my shoulder when Uncle Ross blew into town, but no matter how hard my dad tried to keep him out, Uncle Ross would always end up in our guest room for a week or two.
+
+Uncle Ross was taller and heavier than my dad, covered from the neck down in tattoos. From the head up, he looked like a refined gentleman, with little round glasses and a carefully brushed mustache. And the scar. A pink raised star that made me think of that Dr. Seuss book, The Sneetches, the one where the birds strutted around with pink stars on their bellies and were real dicks about it.
+
+Uncle Ross would take me to museums and the skatepark. He would tell me about his adventures with the Peace Corps, then drive me hours to the little galleries that displayed his art. My dad hated his art, said anyone could make the same scratches and scribbles, and at first I agreed. But the more I looked, the more I understood it. How many shades of blue it took for him to paint a single ocean wave. I wanted to be an artist just like my uncle.
+
+One day, when I was ten, I asked him about the star on his forehead. Uncle Ross’s eyes sparkled. “From your dad.”
+
+“Dad?”
+
+He stooped down, both hands squeezing my arms. “It was a silly argument. I’m not mad. I never wanted the business anyway.” He traced the star with his fingertips. “He broke a bottle. The points are where the glass got me. I think it makes me look very *distinguished.*” He did a bad British accent that made me laugh even though I didn’t know what the word meant.
+
+That night, I waited for Dad to come home. I can still remember it: his neatly tailored suit, his cologne thick in the air. It always made me sneeze. “Dad? Did you hit Uncle Ross on the head?”
+
+My dad, who’d just sat down on the couch, shot straight up. “That’s not true! I never put a finger on him!”
+
+I didn’t understand why he reacted like that at the time. But as I got older, I did. You don’t drive a bottle into someone’s head to prove a point. You do it to kill them.
+
+We moved a few months after that night, into a three-story mansion with a pool and a game room. Uncle Ross took me out for hot dogs, and I never saw him again. My dad shrugged this off. Reminded me that he was a “drifter,” after all. At first, I thought about Uncle Ross all the time, but then those thoughts got buried under stress about school and girls and trying to find actual friends. I spent a lot of time in the game room. My dad didn’t let me into the basement. He said it was “his space” and that men have to “respect each other’s spaces.”
+
+Sometimes I stood in front of the basement door and tried the handle. Sometimes I would think I heard sounds, the faintest jangling or scraping. I’d press my ear to the door and listen, but as much as I strained, I could never be fully sure of what I'd heard. Eventually I’d get bored and go back to playing pinball.
+
+The basement has been locked for years. I thought I put two and two together recently. Thought I understood why my dad had been so adamant about me not being allowed into the basement.
+
+It had to be a wine cellar.
+
+It was easy to get a copy of the key. I slipped it off his key ring while he slept and ran it to the key copier at the store across the street. I thought I had it all planned out. I’d wait until he was supposed to be out of town, and then I’d have my pick of all his expensive wine. Surely he wouldn’t miss just one bottle.
+
+The door led to a staircase. At the bottom of the stairs, there was another door, this one much thicker than the first. My heart started to beat faster because the air was too heavy. It smelled bad. Far worse than I expected for a fancy wine cellar.
+
+I tried the key, and I think part of me hoped it wouldn't work.
+
+But now I’m here. Uncle Ross, or whatever’s left of him, blinking up at me.
+
+I want to throw up, but I can’t. Even with the smell. Even with the bugs. It just won’t come out. I’m rooted in place, trying to square what I’m seeing with reality. This can’t be real. But I can see his chest moving. I can see the star bobbing on his forehead.
+
+A stair creaks behind me. I whip around, and there’s my dad in his gray suit and shiny matching tie. He holds a handkerchief that smells strongly of his cologne to his nose. His eyes are clear as he looks at me.
+
+“You would’ve found out eventually.” He lifts up his keys. “I didn’t try that hard to keep it from you.”
+
+My voice shakes. “Dad?”
+
+His head swings over toward his brother. “I just couldn’t kill him. I should’ve done it years ago, but I couldn’t do it. I still can’t.”
+
+I want to say something, but I can’t. I just stand there staring at the man who was my uncle. A fly lands on his eyelid and rubs its legs together.
+
+Dad smiles at me. “But maybe this is better.”
