@@ -1,3 +1,13 @@
+Part 2: https://www.reddit.com/r/nosleep/s/CtqviM6Qno
+
+Part 3: https://www.reddit.com/r/nosleep/s/MXJiVsiUMJ
+
+Part 4: https://www.reddit.com/r/nosleep/s/ZngKKmNy5x
+
+Part 5: https://www.reddit.com/r/nosleep/s/cyMCFRKjW4
+
+Part 6: https://www.reddit.com/r/nosleep/s/RJhJ4y87ZU
+
 The first thing you need to understand is that the man we found wasn't chained up. No shackles, no ropes, nothing. The gate was locked from the outside, yeah, but inside that room he could move around all he wanted. When we finally got it open, he wouldn't come out. Not wouldn't—couldn't. His body just… refused.
 
 I spent twenty minutes crouched there talking to him like you would to a scared dog. Offered him food, water, help—anything I could think of. But his eyes kept darting past me down that empty hallway like something was gonna come charging out of the dark any second. Every time I gestured toward the door, he’d flinch back like I’d raised a hand to him.

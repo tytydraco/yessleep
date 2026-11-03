@@ -1,25 +1,39 @@
-I came home after working 12 hours, asked if he took my dog out, he did not. I was able to take her out in between jobs so it was 6 hours but I try to take her out every 4 hours or less. 
+I live in a converted 1920s brick building downtown. It’s the kind of place with thick plaster walls, heavy wooden doors, and radiators that clang like someone hitting a pipe with a wrench whenever the heat kicks on. I’ve lived in Apartment 4B for three years. It’s a simple one-bedroom.
 
+Last night around 2:00 AM, my phone woke me up with a push notification from my security app.
 
-Asked him if he could put my rehearsal dress on he said no, told him to put the dress on because I wanted to see what it looked like not wrinkled and he still said no.
+*Motion detected: Hallway North.*
 
+I sat up, rubbing my eyes. My apartment doesn’t have a North Hallway. It has a tiny square foyer that leads straight into the living room, a bedroom to the left, and a bathroom to the right. That’s it.
 
-Asked him again and he finally did it. Told me to take it off right after I showed him with the new shoes I bought that just arrived. 
+I opened the app, assuming it was a glitch. The software has been buggy since the last update, occasionally pulling phantom device feeds from neighbor units or the lobby. Except the thumbnail wasn’t a lobby or a stairwell.
 
+It was a narrow, low-ceilinged corridor with faded, water-stained floral wallpaper. There was a single bare incandescent bulb hanging from a twisted black wire, gently swaying.
 
-He told me to come over to him to help take the dress off. This is not a normal zip dress it has a corset. While coming over I was undoing the laces at the top, he told me to stop I said these need to get undone then he slapped my wrist and said stop. I walked away and undid it myself. Upset at the fact that he would hit me and treat me with such disrespect. 
+And in the corner of the frame, half-hidden behind a peeling doorframe, was the edge of a bare human shoulder.
 
+I sat there in the dark for a full minute, my thumb hovering over the screen, my heart hammering against my ribs. I figured someone in the building—maybe the super or a maintenance guy—had hooked up a smart camera in the basement or the boiler room and somehow my account got linked to the stream.
 
-I took a shower and decided not to make a big deal about it and tried to cuddle with him to go to sleep as I was really tired from the shift and didn’t want to make a big deal about it. Then he pushed me away saying ohh now your not mad? I said no, come here and cuddle and he said no you can’t just make a big deal then try to cuddle. 
+I tapped the live view.
 
+The video feed didn't buffer; it just snapped open. There was no sound except for a low, rhythmic hum—like an old refrigerator running in an empty room. The camera angle was low, mounted maybe three feet off the floor, angled slightly upward.
 
-So I said you shouldn’t get mad and hit me out of anger. I said it makes me feel sad when you do that and you don’t do that to people you love, he then started to explain how I disrespected him for not stopping undoing the lace. I said under no circumstance should he touch me like that. I said no one has ever touched me like that, he said maybe thats the problem I said no you are the problem. 
+As I watched, the bare shoulder in the corner shifted.
 
+A hand came out. It was too long, the skin the pale, sickly grey-blue of skim milk. Long, dirty fingers gripped the edge of the wooden doorframe, and a head leaned slowly into the light.
 
-I said adults don’t hit each other like that under any circumstances. I then started to cry and say why are you being so cold, why don’t you care, your upsetting me I’m crying and you don’t care, he then said you are upsetting yourself rolled over and left. 
+It didn't have eyes. Just smooth, pale skin stretched tight across the sockets, with two tiny, wet-looking slits where a nose should be. It didn't look at the camera. It looked straight down the lens—straight at *me*—and its mouth split open in a wide, silent, dry-lipped grin.
 
+I dropped my phone on the mattress. It bounced, the screen landing face up.
 
-He came back like 5 minutes later. I decided to get up and go to the couch as I was crying and he was just laying there silent not saying anything, and now I’m left all alone crying on the coach. 
+A mechanical, synthesized voice—the automated speaker warning from the camera app—echoes out of my phone’s tinny speaker, playing live into my quiet bedroom:
 
+*"Motion detected: Hallway North."*
 
-I don’t know what to do. We are supposed to get married in 2 weeks but I don’t feel like we are a team. I don’t think he care or Ioves me. I hate this. I want him to do better. I want to work this out but it’s so close to the wedding and he doesn’t seem to think that the way he treats me it wrong.
+I froze. That wasn't the app notification sound. That was the audio feed *from the other end* repeating my room's alert, or... or something inside my apartment triggering the sensor.
+
+Slowly, I reached out and picked the phone back up.
+
+On the live video feed, the thing in the narrow hallway wasn't looking at the camera anymore. It was standing upright, filling the cramped corridor.
+
+And right behind it, illuminated by the dim swaying bulb, was a coat rack I keep right beside my front door in Apartment 4B.

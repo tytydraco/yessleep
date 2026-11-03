@@ -140,7 +140,7 @@ If he'd threatened me, I could've said something. Instead he was friendly, and h
 
 Pam followed me out, and I saw him go to the front window and stand there, watching us, tea in hand.
 
-Pam pulled the door to behind her and I took her hands at the gate, her proper hands, cold and shaking like leaves.
+Pam pulled the door to behind her and I took her hands at the gate, they were shaking like leaves.
 
 "Pam," I said, quietly. "I can help. I can call someone, I'll stay with you right now, I don't care what he said..."
 

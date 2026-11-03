@@ -1,0 +1,196 @@
+Last night, I texted my friend about his game project that he told me
+few week ago. It was almost midnight, and he was about to go to sleep,
+but he said he wanted to show me what he had so far by streaming it over
+Discord.
+
+He told me he was making a horror game with the help of AI. He’s always
+been interested in making horror games, and this was the first time he’d
+tried making something like this.
+
+He sounded excited about it, and even though I’m a bit scared of horror
+games, I still agreed to see what he’d been working on.
+
+At first, I thought it was just going to be another small indie horror
+game project. I had no idea what I was about to see.
+
+I haven’t really asked him about his plans for the game yet, so I’ll
+keep the game’s title a secret for now. As far as I know, it’s still a
+work in progress.
+
+The first thing he showed me was the main menu.
+
+Honestly, it looked pretty decent. It almost looked like a finished
+game. But you know, a menu screen is still just the cover of a book.
+
+He clicked the Start button and showed me the intro.
+
+It started with a truck driving down a narrow road in the middle of the
+woods. Everything looked quiet, with trees on both sides of the road.
+
+Then, out of nowhere, the truck hit the log pretty hard and came to a
+stop. It looked like the impact had damaged the truck and it can’t drive
+any further.
+
+The character got out of the truck to check what had happened. He looked
+around for a moment, then started walking down the road. After only a
+few steps, he came across an old wooden cabin.
+
+At this point, my friend had control of the character. He walked inside
+the cabin and started looking around.
+
+There were a few items he could pick up, including some matches and an
+old flashlight. The flashlight wasn’t working properly. Its light kept
+flickering on and off.
+
+My friend explained that lighting was going to be a really important
+part of the game.
+
+He then showed me the first objective. The player had to find fuel and
+refill the generator outside the cabin. Since the game was still in
+development, there wasn’t much explanation about why we needed to do
+this. I just assumed it was to restore power to the cabin.
+
+At that point, everything seemed pretty normal for a horror game. I was
+actually pretty impressed with how good the atmosphere looked so far.
+The lighting, the cabin, and the dark forest all came together really
+well.
+
+But then something unexpected appeared on the screen.
+
+Right next to the player, there was a monster.
+
+I actually jumped a little when I saw it. Its design looked like a black
+reindeer, but with a skeleton-like body. Its muzzle was unusually large,
+with long teeth sticking out of its mouth. Its eyes were hollow, and its
+antlers were wide and stretched out on both sides of its head. There
+were also a few pieces of old cloth hanging from its antlers, which made
+the whole thing look even more terrifying.
+
+I was still staring at the screen when my friend casually said:
+
+“Oh yeah, this is the monster I created. I also made some basic
+pathfinding for it. Oh, and it doesn’t have an attack animation or the
+script to chase the player yet.”
+
+Honestly, the monster looked really good. At least, that’s how I felt
+about it. I’m not someone who plays a lot of horror games, so I get
+scared pretty easily. But there was one thing that made me feel a less
+nervous. The monster was still in development, so I figured it was just
+a creepy model that could walk around the map for now.
+
+At least, that’s what I thought.
+
+After that, my friend went back inside the cabin to show me some of the
+other things he’d been working on. He showed me a few assets, like a
+bookshelf and some pieces of cloth hanging around the room. He explained
+that he had made some of these himself.
+
+He even pointed out the difference in quality between his own models and
+the free assets he had downloaded from Unreal Engine. He said I could
+easily notice the difference in the small details and textures.
+
+While he was showing me around, he moved the camera toward a long
+hallway inside the cabin. The hallway was almost completely dark. There
+was only a little light coming through a window, barely enough to see
+what was at the other end.
+
+Then he suddenly stopped moving. At the far end of the hallway,
+something was standing there.
+
+It was the monster.
+
+At first, I didn’t think much about it. I just assumed my friend had
+placed the monster model there to show me how it looked in the dark.
+
+But then my friend said something that still gives me chills whenever I
+think about it:
+
+“Oh, how did it get in here? I’m pretty sure I set it up so that its
+model couldn’t enter this area yet!”
+
+At that moment, my heart sank.
+
+I looked at the screen again, trying to understand what he had just
+said. A few seconds ago, he was casually showing me his game assets.
+Now, he was staring at the monster at the end of the hallway, clearly
+confused about how it got there.
+
+At that moment, I just hoped my friend was joking and already knew what
+was going on. But he didn’t seem to be joking.
+
+He switched to Unreal Engine’s editor mode and started looking around to
+figure out how the monster had managed to get inside the cabin. He
+checked a few things, but he couldn’t find any reason why the monster
+was there.
+
+I don’t know much about Unreal Engine, and honestly, I don’t even know
+how familiar my friend with it. I was starting to feel a little scared,
+but I tried to stay calm.
+
+I told him that maybe it was just a bug. Maybe something went wrong with
+the monster’s pathfinding.
+
+That was what I really wanted to believe. I hoped that was the
+explanation.
+
+My friend agreed and said he would try to find a way to fix it. Then he
+started showing me around the editor mode. One of the things he showed
+me was a list of animations he had created for the monster.
+
+He explained that he had used AI to help generate some of the animations
+he had requested. There were animations for looking around, walking,
+crawling, turning its head, and a few other basic movements. Everything
+seemed normal until he reached the last animation on the list.
+
+He clicked on it.
+
+The monster suddenly stood up on its two back legs and raised both arms
+into the air. Then it started making a strange scratching motion with
+its hands.
+
+I stared at the screen for a moment. That looked a lot like a monster’s
+attack animation.
+
+My friend seemed surprised too. He watched it for a few seconds before
+saying:
+
+“Oh, that one looks creepy. I don’t remember asking it to make something
+like that.”
+
+I just kept looking at the screen and can’t believe what heard. Because
+if my friend was telling the truth, then who—or what—had made that
+animation?
+
+My heart started racing, and my mind was filled with questions.
+
+What exactly was going on with my friend’s game? Was he messing with me
+this entire time? Was this all some kind of joke?
+
+I was so caught up in my thoughts that before I could even ask him
+anything, I saw him close the game.He told me that was pretty much
+everything he wanted to show me. That was all he had so far for the
+project, and it was getting pretty late. We both had work the next
+morning, so we decided to call it a night.
+
+But even after we ended the call, I couldn’t stop thinking about what I
+had seen. Why was the monster able to enter an area where it wasn’t
+supposed to be? Where did that attack animation come from? Did the AI
+create it without my friend asking for it?
+
+I kept going over everything in my head, trying to find a reasonable
+explanation.
+
+There’s just one thing I can’t get out of my mind.
+
+My friend said the monster couldn’t attack because he hadn’t created
+that part of the game yet.
+
+But how can he be so sure?
+
+Maybe the monster really couldn’t attack him.
+
+Or maybe…
+
+Maybe it recognized that the person playing the game was its Creator.
+
+And maybe that’s the only reason it didn’t attack my friend’s character.

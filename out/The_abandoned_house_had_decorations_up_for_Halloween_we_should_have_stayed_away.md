@@ -117,11 +117,11 @@ I got on my hands and knees to find it, and when I spotted it, I reached over, a
 
 “Oh, my God!” Beth screamed, and I looked in terror as more decayed hands pulledl her first by her ankles, but she quickly fell down as more grabbed her shirt and hair. We all rushed to her aid and grabbed her arms as she screamed out in terror and pain, but their grips were too strong and they were pulling her into the earth. All we were doing was delaying the inevitable. I looked over at Steve who must have come to the same conclusion, as he let go of her and stared at me before saying what would be his final words.  
 “Just make sure she’s safe.”   
-Steve wedged himself between Beth’s body and wedged himself behind her and the haunted ground. The hands started to loosen on Beth, accepting Steve’s sacrifice, and he quickly started to be pulled under the ground. After we pulled Carly up to safety, I reached my hand out to try to help Steve, but as my hand caught his, I looked down in horror to see a decaying head shoot out from the pit and bit Steve on his neck, sending blood everywhere. 
+Steve wedged himself between Beth’s body and wedged himself behind her and the haunted ground. The hands started to loosen on Beth, accepting Steve’s sacrifice, and he quickly started to be pulled under the ground. After we pulled Beth up to safety, I reached my hand out to try to help Steve, but as my hand caught his, I looked down in horror to see a decaying head shoot out from the pit and bit Steve on his neck, sending blood everywhere. 
 
 Steve’s horrified gaze slowly shifted into one of no emotion as the life drained out of him. I let go of my friend as the hands continued to pull him under, and his body disappeared into the earth. 
 
-Beth screamed for him and even tried to throw herself back down into the now filled hole in the ground, but Bill and Carly held her back. Everyone was in tears, and I will never forget the look of despair on Beth’s face as the tears rolled down her painted clown face. 
+Beth screamed for him and even tried to throw herself back down into the now filled hole in the ground, but Bill and Carly held her back. Everyone was in tears, and I will never forget the look of despair on Beth’s face as the tears rolled down her face. 
 
 The thick fog began to rise from the ground again.   
 “Not this shit,” Carly said as we all hugged Beth, trying to calm her down. The fog lowered, and to my confusion, we were in the original basement, and the staircase we walked down reappeared at the corner of the now appropriately sized basement.   
@@ -129,7 +129,7 @@ Bill and Carly dragged Beth up the stairs, but I stayed, hoping Steve would appe
 
 When I rejoined the group in the foyer, Beth sat with her back to the wall and her head in her hands, and Bill and Carly stared at the front door whispering something to each other.   
 “What’s going on, guys? Is the door open?” Bill was choked up, and he just pointed at the locks.   
-“One of them is unlocked,” Carky said, before turning around to go console her friend.   
+“One of them is unlocked,” Carly said, before turning around to go console her friend.   
 “That can’t mean-” 
 
 “Just don’t. I just lost my best fucking friend.”
@@ -169,9 +169,9 @@ When I got to a part with a path on the right and left, I began to sprint down t
 From the corn, I saw the large monster tackle Beth out of my vision, and she screamed the loudest, most desperate cry for help for 2 seconds.
 
 And then it was over. The only sound that remained was the rain hitting the cornfield.  
-As the rest of us emerged from the path, I saw Bill and Beth pull ahead and keep running, but I had to stop. I needed my inhaler now, and I pulled it out and brought it to my mouth, fully expecting the creature to come and kill me next.
+As the rest of us emerged from the path, I saw Bill and Carly pull ahead and keep running, but I had to stop. I needed my inhaler now, and I pulled it out and brought it to my mouth, fully expecting the creature to come and kill me next.
 
-To my surprise, the rain started to stop, and I continued walking down the path, expecting to be ambushed and killed as Beth had been at any moment. I trugged through the mud, grateful the maze had stopped offering different options and reverted to the single path it had when we first started. I spotted Bill and Beth up ahead, waiting for me. “Exit’s this way,” Bill said, and as I got closer, I could see that at the end of the path there was an out-of-place green door not connected to anything, standing there, waiting for us. 
+To my surprise, the rain started to stop, and I continued walking down the path, expecting to be ambushed and killed as Beth had been at any moment. I trugged through the mud, grateful the maze had stopped offering different options and reverted to the single path it had when we first started. I spotted Bill and Carly up ahead, waiting for me. “Exit’s this way,” Bill said, and as I got closer, I could see that at the end of the path there was an out-of-place green door not connected to anything, standing there, waiting for us. 
 
 We approached it, and without hesitation, I opened the door and walked back into the foyer we had left through.   
 This time both Carly and I collapsed against the wall that Beth had previously, and we held onto each other as she began to sob. Bill, on the other hand, went right to the front door. This time there was only 1 more lock.  
@@ -183,14 +183,14 @@ A hideous laughter erupted from behind the door. 
 “We’re all going,” I said, and reached out a hand to Carly.   
 We all walked up the stairs; this time the door had two words on it: “By will.” As we opened the door, we found a quiet room, with a sea of lit candles arranged around a large chalk circle marked with stars and triangle patterns I didn’t understand. The flickering lights revealed  3 women, all dressed in the same black robes with large, brimmed, pointed black hats. Two of them stood up straight with perky smiles, and the other sat in the middle, her large, pointed hat obscuring her face. 
 
-“We need one more,” one of the beautiful women said, staring at us, her smile shifting to sympathy. “We’re just missing one more, and unfortunately this last one can only be done through sacrifice. We will make it quick; who’s it gonna be?” she said and approached us. As she did, I looked down at the big white circle and saw things from all our fallen friends arranged in smaller circles. Freddy’s glove from Steve’s sat at one end of a triangle, Carly’s red wig at the other, and in front of the sitting motionless woman at the top was an unfulfilled circle, as if it were waiting for something. 
+“We need one more,” one of the beautiful women said, staring at us, her smile shifting to sympathy. “We’re just missing one more, and unfortunately this last one can only be done through sacrifice. We will make it quick; who’s it gonna be?” she said and approached us. As she did, I looked down at the big white circle and saw things from all our fallen friends arranged in smaller circles. Freddy’s glove from Steve’s sat at one end of a triangle, Beth’s tiara at the other, and in front of the sitting motionless woman at the top was an unfulfilled circle, as if it were waiting for something. 
 
 We all froze and looked at each other, trying to process what these people were asking, as the other woman walked over to Bill. She said with empathy,  
 “The rest of you can go once the ritual is complete.”  He quickly balled his fist and punched her in the face, and the young witch staggered back.   
 Carly used the opportunity to throw herself onto the floor and knocked as many candles as she could into the big circle, the wax ruining the white chalk outlines.   
 “No!” The other woman screamed in a shrieking tone that made Bill stop his attack.  
 “She’s going to die! Our beautiful Cassandra!” She went over to the motionless woman and lifted her head, revealing the oldest woman I had ever seen. Her wrinkled face looked emotionless, and her eyes were pure white. When she let go of the woman, her head fell back down as it was already lifeless.  
-“That’s unfortunate for you bitch.” Beth said to them in a mocking tone; a menacing smile overtook her face. 
+“That’s unfortunate for you bitch.” Carly said to them in a mocking tone; a menacing smile overtook her face. 
 
 “Unfortunately for you. You broke the circle and ruined the ritual” The woman that Bill had punched said,   
 “That just means we can kill all of you now,” she said in a different wicked tone.  
@@ -200,21 +200,21 @@ Carly used the opportunity to throw herself onto the floor and knocked as many c
 
 The witches looked at each other, confused, then smiled, and the one Bill punched said:   
 “We can make a deal. Two of you, so one can leave? That’s too delicious to pass up, and Cassandra may even yet live.” She said, peering over to the seated woman.  
-Bill and I locked eyes and nodded our heads before he looked at Beth.   
+Bill and I locked eyes and nodded our heads before he looked at Carly.   
 “You’re going to be okay, baby,” Bill said and continued,  
-“I sacrifice myself.” He said, and his body collapsed to the floor. Beth began to sob.  
+“I sacrifice myself.” He said, and his body collapsed to the floor. Carly began to sob.  
 “Now, we did promise you that the one death was going to be painless, but just that one.” The witch said, pointing to my fallen cousin.    
 “This next one, we won’t be so nice.” The witches began to approach me, and I closed my eyes. The entire night flashed back, playing in my head as I reflected; I remembered earlier, before all of this started. What Carly did to me in front of everyone, humiliating me in front of the only friends I had made since arriving to this hell hole.   
-I opened my eyes to see Beth still on the floor hysterically crying reaching out for me.  
+I opened my eyes to see Carly still on the floor hysterically crying reaching out for me.  
 “Mark- I love you. Thank you. I will never forget you-”  
 As soon as our eyes met I said,  
-“I sacrifice Beth.”  
+“I sacrifice Carly.”  
 “Wait, what?” She said, breaking her cries. 
 
-The witches began to laugh hysterically, and walked over to Beth, and grabbed her dragging her into the broken circle. One witch held her there as the other got on her knees, reconnecting the circle with chalk, as the lifeless woman began to rise from her seat.  Beth started to scream at me for help, but I paid her no mind. I turned out of the room, shut the door behind me, and began to hear the women chant.   
+The witches began to laugh hysterically, and walked over to Carly, and grabbed her dragging her into the broken circle. One witch held her there as the other got on her knees, reconnecting the circle with chalk, as the lifeless woman began to rise from her seat.  Carly started to scream at me for help, but I paid her no mind. I turned out of the room, shut the door behind me, and began to hear the women chant.   
 *One by the hands of death,*  
 *One by the hunt,*   
 *And two by will*
 
-They cackled; their laughter and Beth’s screams faded as I reached the door and saw there were no more locks. I opened the door and left, turning around to see that the house had returned to its original decrepit state.   
-I couldn’t allow Bill’s sacrifice to let Beth live. I think if he were still around, he would understand. 
+They cackled; their laughter and Carly’s screams faded as I reached the door and saw there were no more locks. I opened the door and left, turning around to see that the house had returned to its original decrepit state.   
+I couldn’t allow Bill’s sacrifice to let Carly live. I think if he were still around, he would understand. 

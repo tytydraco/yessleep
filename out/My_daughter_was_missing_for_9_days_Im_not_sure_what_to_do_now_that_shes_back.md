@@ -107,3 +107,5 @@ I’ll admit I wasn’t sure whether it was healthier to play along with delusio
  
 
 That’s the last thing she said before she stopped talking to me, but I can still hear her crying. I’m typing this while I’m sitting on the other side of the door, making sure she’s at least still in the house. I don’t know what to say. I don’t know who to call. Is there even anything I can do to help her?
+
+EDIT: [We'll be fine](https://www.reddit.com/r/nosleep/s/mjVSHwZggF)
