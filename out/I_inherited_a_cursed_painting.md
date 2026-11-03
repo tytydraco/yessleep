@@ -1,0 +1,60 @@
+It all starts with my grandma.
+
+She was probably my best friend in this whole world. She told me stories of when she was little, she made me woolen scarves whenever I came to see her, and she taught me how to cook. If it wasn't for her, I probably wouldn't have the skills I have now. But just a few months ago, she got cancer, and they caught it way too late. She was gone in weeks. I inherited most of the stuff that didn't go to charities or places like that. It was mostly old relics from her past, and the occasional junk whatsoever. Until that fucking painting.
+
+It came under my ownership a few days after grandma died. It had to be given to me by some special lawyer, as grandma had marked it 'special'. Never knew grandma has lawyers just for this.
+
+"It also comes with some special caretaking instructions. There's also a envelope coming to you, but there's some legal obstructions as of now. I'll get back to you on that soon."  
+I had never met a lawyer before, but I wasn't expecting them to be this curt.
+
+At first, I didn't care much for the envelope, but the instructions for the painting is what bothered me. It went something along the lines of:
+
+>**-The painting curtains should be closed from the hours of 12.00 a.m. to 6.00 a.m. Never attempt to look behind the curtain while it's closed.**  
+**-The expression of the woman in the painting may change. However, if the woman begins to smile unnaturally, close the curtains, and wait for a day until re-opening them.**  
+**-If the painting appears in a different room as to where it was before, put the painting back where it originally was. Never look at the painting while doing so.**  
+**-The painting may try to trick you with voices. Never listen, even if the voices sound familiar.**
+
+That's all there was for the instructions. I thought it was some religious relic that grandma kept, and she must've been strict about it so I didn't question it. I needed something to remember my Grandma by, so I took the painting home with me.
+
+The painting was of a woman.  
+Not just any woman. This woman was hideous. Her nose was too pointy, her locks of hair too oily, and her posture was crooked and bent. I seriously began to regret taking it, but what's done is done. I thought hanging it in the spare bedroom where no one could see it was best. So that's what I did.
+
+For the first few weeks, nothing strange happened. I followed the rules, and I went about my life. I still missed grandma, but the painting made her memories slightly more sweeter. Even if it was batshit ugly. I genuinely thought that I would be able to cope with not having anyone to talk to anymore. Until the woman began to smile.
+
+I just went int he space bedroom when I saw it. It wasn't a friendly smile. The kind of sadistic, evil smile when a serial killer's got their victim trapped. And this smile stretched the woman's face way too far. I closed the curtains, and I didn't look at it again for the rest of the day. Thoughts raced my mind, with the main one being:  
+"HOW THE FUCK IS THAT SHIT POSSIBLE?!"  
+The week didn't get any better after that.
+
+I was subjected to more smiles, and instances of the painting moving of it's own volition. Each time it happened, I lost a piece of my sanity. I think I finally snapped when I heard my grandma's voice.
+
+It was a complete shock. I was ironing my clothes, when I heard the faint whisper of my Grandma saying:  
+"Take the painting".  
+I think I broke down in tears. Hearing her voice again, even if it wasn't real, was too much for me.  
+And as for the painting, I'll tell you what I did.  
+I burnt that shit.
+
+I had enough. It was killing me slowly. I couldn't take it anymore. So I got a lighter, and I burnt it to ashes.
+
+It all stopped that day. 
+
+I could finally concentrate, I wasn't worried sick, and I wasn't scared. That mattered a lot to me.
+
+But I'm not posting this so that I can talk to you about a happy ending. I'm telling you this because I got the envelope that lawyer was talking about yesterday.
+
+When I got it, it said:
+
+>*Dear Rosie,*
+
+>*The painting may be a burden for you. It may make you want to do things. But as long as you follow the rules, it will all be fine. But there is one thing. Under no circumstances are you to destroy the painting. It will release her.*
+
+Well shit.
+
+I've been writing all this in my locked room. I don't know what to do now. Because earlier, I saw another shadow in my home. It looked like the woman from the painting.
+
+I don't know if she will get in here.
+
+I just heard her call out my name.
+
+Her voice was soft and delicate.
+
+Just like grandmas.

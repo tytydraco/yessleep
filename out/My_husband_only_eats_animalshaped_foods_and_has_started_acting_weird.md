@@ -1,0 +1,160 @@
+It was some weird hyper-fixation Jerry always had. Even as a kid his favorite snack was animal crackers. Dino nuggets. Sandwiches cut with animal shaped cookie cutters. He even told me at his grandparents’ house they had a waffle maker that had barnyard shapes on it, like a barn, a rooster, and a cow, but he would never eat the barn. After we got married and I introduced him to food that wasn’t just fast food or frozen meals, he started branching out more. I was shocked to find out he didn’t think he was autistic or something. I thought he was diagnosed. He was obviously sheltered growing up and didn’t get out much. That was fine. He provided for both of us and was a great guy to everyone. He even got to where he could help me in the kitchen without getting in the way. We had guests over one night.    
+     
+“You know,” he said to his friend, “I’ve gotten to where I don’t eat that store bought food.”    
+     
+“Store bought food? What do you do, forage for berries?”     
+     
+“Naw, I mean like you make it at home.”    
+     
+“So homemade.”    
+     
+Jerry gave a sarcastic smile. “If that’s what you wanna call it.” I was on the couch next to him holding our cat, Tinkles. I felt a kick and grimaced. Little David must have been getting restless in there.     
+     
+I felt my swollen belly. “Any day now,” I said, “you already waited this long.” After everyone left, Jerry helped me pick up the plates and cups. I noticed he had shaped the rest of his tomato sauce from his spaghetti into the shape of… something?     
+     
+“Jerry.”    
+     
+“Yeah?”    
+     
+“Were you drawing with your tomato sauce?”    
+     
+“Yeah, I was trying to draw a chicken, but it turned out more squidish.” He laughed. “You never know what they come up with these days.”     
+     
+It sounded to me like he wasn’t taking his meds again. He had gotten arrested a few months back for knocking an entire aisle shelf over while trying to ride his shopping cart at Piggly Wiggly. I couldn’t have him relapse again. Next Sunday was Easter, and I didn’t need him acting a fool in church.    
+     
+The next morning, we woke up to the central air unit not working. It was still dark outside, but it was hot and sticky inside the house. I sat up and peeled my back off the damp sheets underneath me. There wasn’t even any air movement. Jerry was up right when I was. He went outside with a flashlight, cussing the whole way. He had work in two hours and usually only woke up in one. He came back and set up a box fan for me.     
+     
+“It looked to me like something bit through one of the big wires, probably a squirrel. I hate a damn squirrel.”    
+     
+“Oh I know,” I laughed. He used to sit on the porch and shoot at them with his pellet rifle. Sometimes he would cook it if he hit one. I never tried it. When he skinned them, they always looked creepy.    
+     
+“That’s nothin,” he told me one time, “my great-grandma used to put canned squirrel brains on a cracker and eat it that way. Possum soup too.” I didn’t want to think about it. For breakfast I started making his usual, but he took out a box of cereal instead. It had a frog surfing on a milk wave on the front of it.     
+     
+“I thought you didn’t like super sweet cereal,” I said.    
+     
+“Well, you see, sometimes a man changes. Sometimes he’ll change his habits, most times he just changes his underwear.” He chuckled as he poured the cereal into a bowl. I went to take the milk out of the refrigerator for him and he slammed it shut.    
+     
+“No milk!” I just stared at him. He hung his head and wiped his brow. “I’m sorry, I just can’t stand wet cereal.”    
+     
+“Well, I’m going back to bed then,” I said. I wasn’t doing this. Later while he was at work, he sent a list of texts apologizing for it.     
+     
+“I just don’t like milk anymore” “It doesn’t have any shape” “It scares me” “Nothing natural has no shape” “I’m not sure if water is real sometimes lol” “Are you there?” “Maybe we can go to that Chinese buffet you like after work”    
+     
+After ignoring most of the texts, I got over it and answered back that it sounded like a plan. Tinkles kept eyeing the ceiling and we both heard the tumbling clawing of squirrels on the roof. There were probably some in the attic. Great. That was around noon. When he got off work, he showed up with flowers. Everything was fine again, but at the buffet, he barely ate anything. Except the whole shrimp. He tried swallowing one without chewing and almost choked on it.     
+     
+Lying in bed, the fan blew and mixed the already warm air around the room and over us. No comforter, just a thin sheet. I had to ask him.    
+     
+“Jerry?”    
+     
+“Yeah?”    
+     
+“Have you been skipping your medication?” He didn’t answer for a minute. It seemed like the cicadas got louder the longer he waited.     
+     
+“What makes you say that? You think I am?”    
+     
+“I didn’t say you were, I asked if you were. You’ve been acting weird.”    
+     
+“I’m sorry. I haven’t been eating much lately. I guess I’m hangry.”     
+     
+“Why not?” He shifted and turned to his side away from me.    
+     
+“I don’t know.”    
+     
+I fell asleep.    
+     
+On Sunday during the church service, when the preacher finished the sermon on the Resurrection, communion began. Jerry caught a line of drool on his chin and wiped it off. After the preacher said the line about the bread and wine being the body and blood of Christ, Jerry started breathing hard. When it got to us, he tore off an extra big piece of bread and gulped down his little communion shotglass of wine. He whispered and asked if I thought they allow seconds and I gave him a look.    
+     
+After the service, the kids were doing an Easter egg hunt at the community house across the street. The kid who finds the golden egg would win the extra-large chocolate bunny. I sat at the table with everyone else while Jerry annoyed the shit out of the preacher. David was getting especially heavy, and my bump could have been its own part of the table.     
+     
+“So is it literally the body and blood of Christ?”    
+     
+“Well Catholics and Orthodox believe that, yes, it literally is the body and blood. But for Protestants it’s more of a symbolic ritual.”    
+     
+“So like, it’s not really flesh and blood?”    
+     
+ “Maybe if you convert.” The preacher laughed. Jerry started looking around and started heaving. Staggered outside and right on the front steps, he stuck two fingers down his throat and vomited. I stood up and rushed over to him as quickly as I could manage, but everyone got to him first. Jerry leaned back on the door.    
+     
+“I’m sorry. I’m just so hungry.” He scrubbed his face with his hands and shook his head. The kids and youth pastor came in the opposite set of doors. The leading kid held his buck toothed smiling chocolate prize. He skipped over to his grandma at the table.     
+     
+“Look granny, look what I won-” Jerry snatched it out of his hand and tore the box open. The kid grabbed for it “Hey what are you doing?!”     
+     
+Jerry shoved the head of the bunny into his mouth and bit down on it and broke it off. Melted chocolate on his lips and brown drool ran down his chin as he tried to chew the piece too big for his mouth.     
+     
+I gripped his arm, “Jerry what the hell is your problem?!”    
+     
+The grandma stood up and swung her cane. “Give my boy back his chocolate bunny you piece of shit!”     
+     
+“Fucker!” The boy added.    
+     
+Jerry ran out and knocked damn near everything and everyone down in the process. He took off in the car, still gnawing at what was left of the bunny. I went to try and chase, but then-    
+     
+“Look granny that bitch is pissing herself!” Granny slapped him and they left. I felt it run down my leg. It wasn’t piss. A man and a woman ran up and grabbed me and helped me sit down and the contractions started. The couple called an ambulance and soon I was in the hospital. David came out perfectly. He was healthy. My mom cried and held him. Jerry wasn’t there. After the whole commotion was over and I had a day of sleep, my mom and I had a sit-down talk.    
+     
+“He needs to go,” she said. “He’s done this too many times. If he wanted to be better, he would be.”    
+     
+“He can’t help it.”    
+     
+“Either way.”    
+     
+“I know.”    
+     
+“And what’s with the chocolate bunny?”    
+     
+“You know Jerry used to only eat animal shaped foods. He said in third grade, he only ate animal crackers for two weeks, then he had to switch to gummy bears. He got admitted after that.”    
+     
+She leaned in and took my hand. “You are going to stay with me until his ass is gone out of that house. You don’t have to do it all now, but not before too long.”    
+     
+My phone rang. It was our next door neighbor Andy. He had been taking care of Tinkles and watching the house for us.    
+     
+“Hey Andy.”    
+     
+“Cheryl, is Jerry okay?”    
+     
+I looked at my mom. “He’s been alright, why?”    
+     
+“I was out doing some yard work, and I saw Jerry on the roof of ya’ll’s house. He had caught a squirrel.”    
+     
+“In a trap?”    
+     
+“With his hands. I watched him. He had one in each hand. He- he bit the head off of one. Tore the spine clean out of it. He saw me, laughed, and said, ‘Just like a sardine.’ Then he bit the stomach out of the other one. They were alive when he did it. I ran inside. I don’t know if I should call the cops or not. I got my gun on me either way.”    
+     
+I didn’t know what to say. Mom grabbed the phone.    
+     
+“This is Cheryl’s mother, what’s going on?” Her eyes widened as Andy repeated himself. She hung up. I teared up and just stared at her. “Don’t go over there.”    
+     
+A few weeks later I was back up and walking again. Nobody had seen Jerry, even after the cops went over there and searched. I told Andy to keep me updated, and I didn’t hear anything from him. I felt certain maybe Jerry was just skipping town or was simply gone somewhere. It had never been this bad before, but it didn’t surprise me anymore. While I was trying to get my own money back out of the joint bank account, I realized I didn’t have my bank information with me. It was back at the house. I didn’t tell my mom and went back home and took David with me.     
+     
+The yard was a mess, hadn’t been mowed since the week before Easter and the weeds and wildflowers were thick and high. Mail sat at the front door. “Damn it, Andy,” I said. He was supposed to be picking it up for us. I held David close as I picked it up. It was all from this week. I looked over and noticed his yard also wasn’t looking too good. He always kept the grass short, but it was getting tall. I pushed open the door and went in.    
+     
+The inside was wrecked. I could feel the hot stagnant air get sucked out by the door opening up. The air hadn’t been running. I flipped a switch and the lights didn’t even turn on.     
+     
+“Great.”     
+     
+The damp musty air gave way to a rotten smell. It was coming from Jerry’s office. I crept through the house looking for Tinkles. I opened the door to Jerry’s office and there was an explosion of animal crackers, frog cereal, half finished melted chocolate bunnies, fish crackers, easter chick marshmallows, and so on, and so on. It was like a rat nest of snacks and candy. I froze when I realized mixed with it was fur and pieces of bones. Tinkles’ tail and half of a paw sat near his torn off collar. I heard heavy thudding in the attic. It was no squirrel.    
+     
+I backed into the hallway and the attic door dropped open. What was left of Andy fell out. His head hit the ground and his body slumped and tumbled over itself. His face was gone and a red skull with one busted open eye stared back. His fingers were gone on one hand and the whole hand was gone on the other. His stomach cavity was empty, and the lower part of his spine was bare. David cried. I heard from the attic entrance above me:    
+     
+“He was too big.”    
+     
+I screamed and jumped back. Jerry stared down at us. He had dried blood all over his mouth and down his bare chest. He clambered down the ladder and pushed himself upright. “I like it when they fit in my mouth, whole.”    
+     
+“Jerry… what… what the fuck-”    
+     
+“I always was this way. I just never let it loose. After the chocolate bunny I realized I just couldn’t eat any more of that store bought food.” He realized something.    
+     
+“That’s our son.”    
+     
+“That’s- that’s right.”    
+     
+Jerry smiled, then let out a wail and punched the wall. “Oh I can’t do it! I can’t do it!” He sobbed. I couldn’t run. I could only shuffle back into the living room. That’s when I noticed Jerry had a line of meat missing from the side of his arm. There was a bullet hole in the wall and Andy’s gun was in the corner. Andy was a crack shot too. Jerry must have been really moving to not get hit. Or maybe Andy was so frightened he couldn’t make the right shot. Poor Andy.    
+     
+“I have to.” Jerry stopped crying and stared down the hall away from me. I stopped thinking about Andy. He turned and walked toward me like his legs were asleep. “David. Little Davie,” he said and stopped. “Daddy loves you.”    
+     
+Using both hands, he reached in his mouth and broke his jaw out of socket and pulled it down and open and tore his cheeks back to his ears. I almost dropped David. Jerry let out a cry and tears fell down his face. He grabbed David from me quicker than I could react and shoved him headfirst into his gaping mouth. I screamed and grabbed Jerry and tried to hurt him any way I could, but he kept gagging and swallowing more and more.    
+     
+I ran over to the gun and checked to see if it was loaded. It was. I could hear David’s screams muffle as he slid down. Jerry got on his hands and knees and tried to force him down more, but his swinging jaw wouldn’t close. His neck and chest were ballooned and stretched further and further until I heard a gulp. He stood up and his stomach and chest cavity were swollen and moving. I took aim. He crammed his jaw back into place and through the torn and stretched skin of his face I heard a flabby: “Cheryl, I’m sorry, but-”    
+     
+I pulled the trigger and a chunk from the top part of his head exploded and flew everywhere. His brains squeezed out of the hole and he fell backwards. He stared at me upside down from the hall. I was sure he was dead. Everything had poured out of his skull. I grabbed a kitchen knife and cut delicately along Jerry’s swollen abdomen. It didn’t take much after the first cut and his skin split open from the pressure. I cut open his esophagus and stomach and pulled David out. I did infant CPR on him for God knows how long. He finally coughed and cried, and I wiped him down with baking soda and a wet washcloth.     
+     
+After the police arrived, they carried Jerry’s body away and I had to explain everything. The ambulance treated David, and while they said he wasn’t in great shape, he would be okay in the long run. We didn’t have a funeral for Jerry. When it came time for David’s baptism, he did it with no fuss. The preacher told me he was now born again. I didn’t tell him it would be his third time.    
+ 
