@@ -127,3 +127,5 @@ I shook my head.
 My daughter is currently in her room, probably chatting with her friends and catching up with them. We’ll watch a movie or two tonight, and we’ll carry on living. I’m sure there are going to be bumps in the road, but that’s just life. I’m not going to pretend my daughter is fine, but things are close enough to normal that we can work through the rest together.
 
 As I said, this was a quick update for those who were worried about us. As far as I’m concerned, those who claimed my daughter is a Bigfoot or whatever can go eff themselves.
+
+[Forget all of this.](https://www.reddit.com/r/nosleep/comments/1xnp09r/update_2_my_daughter_was_missing_for_9_days_ill/)
