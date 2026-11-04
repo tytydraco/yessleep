@@ -1,0 +1,80 @@
+"Look at this one," my husband, Corey, said, touching the terrarium.
+
+"Wow, look at his mouth," I answered.
+
+"It's actually a horn, Kat." 
+
+"Oh, sorry, my bug man."
+
+He frowned.
+
+"I'm telling you, so you don't embarrass yourself."
+
+"I know, love."
+
+I loved teasing my Corey. Every few months, he got a new interest. Last time he got really into trains. I'd drive him all the way to Pennsylvania every weekend to watch them. It got tiring quickly, so I was happy when his next interest was something he could do from home.
+
+He moved the light over the three large terrariums buzzing with beetles.
+
+"They're so loud. Your ears okay? I feel like mine are gonna pop."
+
+"Mm-hmm"
+
+"Okay, I'll leave you to it, Corey."
+
+I rubbed his golden hair and walked upstairs to watch Love Island. He was still downstairs even after seven. He usually came up to sit with me or get dinner then. 
+
+Only after eight did I hear him walk up the stairs. He sat on the couch and rubbed his hair with both hands, like a beetle adjusting its horn.
+
+"How are the bugs?"
+
+"Oh my god, Kat. You won't believe this. The rhinoceros beetles were going crazy. Two of the males put their horns against one another and…"
+
+A couple on the TV began arguing. I looked away for a second. Corey made a buzzing sound.
+
+"You're not listening."
+
+"Sorry, it was just a second."
+
+Corey didn't say anything. He got up and walked toward the basement.
+
+"Corey?"
+
+The door shut behind him. I got up to follow him, but I stopped halfway through the hall. I wasn't the one in the wrong. I looked away only for a second. He never thanked me for traveling to Pennsylvania with him either. I sat back on the couch and turned up the volume.
+
+We saw each other less and less the next few days. Corey spent more time in the basement, and he'd usually only come out for food. Each time he heard me come into the kitchen, he'd shoot his head toward me and run back down. 
+
+As more time passed, I started to feel bad. He was sensitive, and I loved that about him. I knew things got to him easily, and his overreaction was probably because I made fun of him earlier that day too.
+
+One morning I came into the kitchen. My eyes felt tired even though I just got up. I hadn't been sleeping well since the argument. Corey sat at the table, stroking his hair like a beetle again.
+
+"Corey?"
+
+His head turned sideways. He let out that buzzing sound and ran into the basement.
+
+"Can we talk?" I yelled after him, but he didn't answer.
+
+I rubbed my face and sat in his chair. My stomach growled. There was a half-eaten sandwich. I picked it up and took a bite. Bitterness filled my mouth. I spit it out and opened it. Just a few leaves were between the two slices of bread. I had to talk to him.
+
+The next morning, I woke up earlier than usual. It took a few minutes for my eyes to open. I didn't even get dressed and walked downstairs in my nightgown. The floor felt cold on my bare feet. I sat in the chair and stared at the clock. Corey would come in a few minutes. The memory of the sandwich and the way he stroked his hair flew through my mind, but I just shook my head. I'd talk to him, and it would all be okay.
+
+The basement door opened. The floorboards creaked under his steps, but his steps sounded strange, as if he were stepping with both feet at once. I slowly got up from the chair and walked to the hall.
+
+Corey was on the floor, walking on all fours like a bug. I had to lean against the wall so as not to faint. He stopped and looked up. His buzzing sound echoed in the hall. He opened his mouth wide. A small beetle flew out. Corey turned around and bolted to the basement.
+
+I swatted the beetle away and ran after him. The basement was warm, humid, and dark. The buzzing was so loud down there. My feet felt like they would stumble with each step. The lamps above the terrarium were still on, but no more bugs were inside.
+
+"Corey?"
+
+A tapping of feet. The buzzing again. I turned my head. Corey crawled from below the table on all fours. He looked deep into my eyes. In the dark, they looked black and empty. He opened his mouth, and a giant swarm of beetles flew out toward me.
+
+I shrieked and ran out. My heart pounded against my ribs. The buzzing was all around me. I opened the door and ran into the street. Their sticky little legs kept landing on me, no matter how many times I swiped around. I ran toward my neighbors, but my foot hit something on the pavement. I landed hard on the concrete. My whole body ached, but it didn't matter. The bugs could get to me so easily now. Their legs, their horns, their wings were all over me.
+
+I woke up in a hospital. A neighbor saw me lying in the middle of the road, screaming and swiping my hands around at empty air. The nurse said there were no bugs around me. 
+
+The police went into the basement. They didn't find Corey whole. Only his skin, split in the middle, lying under the empty terrarium.
+
+The doctors say I'm exhausted and have not been sleeping well. They're right. It's hard to sleep when it's this loud. My ears feel like they'll pop any minute. 
+
+This morning my mother brought me a salad. It's the one thing I've been craving. The nurses keep saying there are no bugs, no buzzing, but I know they're lying. I know what I hear inside my ears is real.
+

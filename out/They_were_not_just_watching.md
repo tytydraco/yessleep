@@ -1,0 +1,102 @@
+ My family just wanted a relaxing week away from the city, what we got was so much worse. It started when my dad had brought up the idea, “Well everyone, the winter is coming up soon, so it might be the last time we’ll get to go out for a while, until it’s really snowing.” We’d sometimes go to a cabin for Christmas, but most years we hosted or visited family. I was already complaining, because it was senior year for me and I had plenty of friends I wanted to hang out with, shows to watch, and a million other things to do instead of sitting in a cabin in the woods, with spotty service. Although the cabin we always rented was nice enough, for the cheap price, with a lake that froze over sometimes in Winter, the closest other cabins far enough away we never really heard from them unless they were really loud, and a decent enough grill for cooking on. 
+
+Well, dad got his way, and the family was bundled up and off to the cabin two weekends later, after getting the Halloween decorations put away. The first evening was the same as usual, putting away the things we brought, checking and rechecking the signal hopelessly, and checking on the stock of board games left for the visitors. My sister was already in the middle of taking a few dozen pics and making videos of her ‘roughing it’ in the woods. At least two people were going to enjoy the trip, apparently.
+
+The next day is when things started changing. Around the morning, when dad was preparing some pancakes outside in the cool air, I came outside to watch the sunrise. From the edge of the trees, I saw something moving slightly. When I pointed it out to dad, he was a little freaked out too, but shrugged his shoulders after watching for a minute, “must be the neighbors. Guess someone else DID have the idea to bring their family along.” He said it with such a smug look on his face, I didn’t even bother to tell him about a couple of the pancakes starting to burn. With a short wave to the family, he called out an invitation to join us for breakfast. 
+
+The tallest member of that family, maybe the dad, also waved back, a few seconds after dad started. Still, none of them got any closer. There were four of them, like my family. A father, a mother, and two kids. I could kind of see their figures, but I couldn’t make out any details without the sun where it was. Dad started to invite them over again, but I pointed out the pancakes this time, to get his mind off them. After a bit of scrambling, we looked up again but they were gone. Shrugging at each other, dad got back to cooking and I looked out to the trees as the sun started coming up more. 
+
+I told my mom and sister about the weird encounter, and dad backed me up, but he didn’t seem worried, “probably just some hikers, had to get moving quick to not lose out the best light. We can probably catch up to them if you’re all up for it!” After a round of uninterested sounds from the family, he leaned back and focused on the pancakes. 
+
+The day was spent like most holidays, sis was on her phone, dad was relaxing and planning to go fishing tomorrow, mom was reading a book, and I was trying to figure out a game’s rulebook. After a somewhat fun day relaxing around the cabin, dad was once again cooking on the grill around sundown for dinner. Looking out to the trees again, I spotted the family, pointing them out to my dad. “Guess they came back after hiking all day.” My dad seemed relaxed, flipping a couple slabs of meat. He asked me to bring over some plates for the food. I was halfway over to the door to get plates when I stopped. One of the family members by the trees, started to move a couple of seconds after. 
+
+Walking in the same direction as I was. 
+
+Stopping, I looked over at him, standing there and not moving, I could almost feel the guy’s eyes boring into me. Walking back to my dad to check something, I saw the guy do the same thing, walking back into the trees, taking the same number of steps. Pointing out to the group, I told my dad what I saw, and could see the doubt in his eyes right away. Waving again to try and invite them over, even calling out to them. The dad did the same thing, we could even see his mouth moving in the darkening sky but no sound came out. My dad called mom out and when she arrived the ‘mom’ also started looking at her. 
+
+When my sister came out to check on the commotion, the same thing happened. Then, all four were staring at their counterparts. I even jumped three times, just to see how far they were going with this, and stopped when the guy around my size also jumped, then stopped too. Dad called out to tell them to leave us alone. “Get outta here! Go back to your cabin!” 
+
+The ‘dad’ over there did the same shushing motion then they stood there.   
+Then nothing.   
+For five minutes. 
+
+Eventually the group left, walking back towards the other cabin on the other side of the trees. We didn’t see them the next morning though, almost like they had already confirmed we were here. Dad and I went over to where they were standing last night and didn’t see anything other than a few impressions on the ground where they’d been standing. Nothing else. As though they’d remained motionless there for hours. 
+
+Then they came back the next afternoon.  
+Just staring at whoever was outside or near a window.
+
+We decided to test them, moving in weird ways, waving and stopping mid motion, jumping on the patio. They were doing the same thing. I tried closing the curtains and doing another jump, but dad said my counterpart didn’t do the same thing. At least, not until I opened the curtains again. Dad decided all the curtains were getting closed every afternoon. Mom asked if we should just leave, since some creepy family seemed to be staying next door. Dad refused, he said he’d paid for the cabin for the week, we were going to stay for all seven days. Regardless of what kind of neighbors we had. 
+
+All curtains were closed.   
+Doors securely locked.
+
+And it worked.   
+For one night. 
+
+The next night, after a somewhat tense day, we were winding down when I was brushing my teeth, starting to peek out but stopped when I saw my counterpart, staring back. He was past the trees, something like 15 feet closer. Before I could do anything else, he raised his hand and I copied his motion, but no, it wasn't a copy, I meant to raise my hand to flip the light switch next to me. 
+
+Freaked out, I turned off the light anyway headed downstairs to rinse in the kitchen sink with everyone else there. At breakfast, my sister said she'd been posing with hers for pictures. She sounded happy that it was getting closer to make the pictures clearer. “She's even getting the poses right, even when I'm sitting in a chair!” Of course, she got annoyed when mom told her to stop encouraging it. At lunch, she said she could see hers smiling sometimes. Mine didn't smile. 
+
+The next night, dad saw them mouthing along, even when the others weren't facing them, like they already knew what words we'd be saying. He told us to stop, and we did. The others didn't though. We'd been talking about another vacation in a sunny place, and dad swore that the others were still talking about it. He could see their lips moving and could almost make out the words. 
+
+That was enough for Dad.   
+The next morning, only the fourth day there, he got us packed up and into the car. “We're out of here, four days is enough of ALL THIS. I wasn't going to argue with that, so I helped toss the bags into the trunk, we even left a bunch of food, he just wanted us out of there. 
+
+Driving away, I turned back and saw four figures waiting at the edge of the treeline, the ‘dad’ waving goodbye. 
+
+We drove for half an hour, down the same path. Literally. Nothing changed, the trees looked the same, almost like the whole car was on a treadmill. Eventually a turn came up and dad took it, but we turned back into the cabin’s driveway. How?
+
+And there were the four ‘people’ waiting in their same place. The ‘dad’ was waving again. I think it was ‘hello’ this time. Welcoming us back. 
+
+Dad drove in reverse, away from the cabin. He kept driving, even when the path didn't change. I think I saw our four counterparts among the trees, still waving. I hoped it was them and not even more of whatever they were. We backed up into the driveway. Dad tried again, he even stopped on the road and got out but he rushed back in and started driving as soon as he looked into the trees. No one asked what he saw. Eventually, we made it back to the cabin again, and we stayed there. 
+
+Mom and Dad brought us back in and started boarding up the windows, blocking the doors with furniture. They made sure we stayed away from them all when night fell. 
+
+Then we heard it.   
+Tapping. 
+
+Not knocking, it was more like a tap on one wall, then a tap on another, one after another, until they stopped. My sister laughed when she looked out the window, “mine found me!” She was pointing just outside her window. I barely glanced out when I saw mine. Her laughter stopped the next night, when she stopped looking outside. She sounded scared, “I can feel it copying me…” 
+
+Soon after, we heard a crash outside, almost like metal on metal. Dad shouted that they were going after the car and hauled away the desk from in front of the door. He'd barely opened it when he froze, just staring outside. I leaned to the side and saw my copy and dad’s copy almost perfectly synchronized. 
+
+My dad breathed.   
+His copy breathed.   
+I blinked.   
+My copy blinked. 
+
+They were standing there, in a group, all four of them, waiting. I saw the ‘mom’ pull the ‘sister’ to her. Looking back, I saw my mom doing the same thing. 
+
+No delay at all.   
+We froze on the spot  
+Standing there for several seconds.   
+No one on our side moved.  
+Then they smiled  
+None of us did.
+
+Even while we were just staring at their smiling faces, it didn’t sink in that they were walking forward until they’d taken several steps. Dad slammed the door shut and I helped him shove the desk back in front of it before backing up. “They weren't copying us anymore! Dad, what does that mean?!” I was freaking out, because not just their smiles, their faces had started looking more familiar. Then the front door started rattling. There was tapping on the windows, before they broke under what sounded like punches. 
+
+The copies looked inside from the windows, leaving the door alone, but they weren’t looking at just anyone, each copy was staring at their counterpart. Staring with those smiles still on their faces. Dad’s copy started climbing in reaching for dad. Mom’s did the same for mom. My sister’s and mine were waiting to climb through after, leaning around to keep their eyes focused on us. We ran, my sister and I did at least. Mom and dad stayed there, holding them back as my sister and I ran upstairs and hid in separate rooms. I couldn’t think, I was freaking out, they hadn’t said anything the whole time, just mouthing words and smiling as they started grabbing at my parents. After several minutes of struggling sounds coming from downstairs, I heard people coming up, opening doors and looking around. 
+
+I was ready to rush out when my dad opened the door and waved me down, “we have to go. Now.” Breathing a sigh of relief, I relaxed a little and asked about the copies. He shrugged it off and said they had run off. Stepping out of my room, I saw my mom helping my sister out of another room, both looking freaked out but ready to leave. Dad called out to make sure we were all alright. Mom sounded scared, but said she was good. My sister said she still had her phone, so she was alright. She looked at the black screen and smiled a little. 
+
+Moving downstairs, I almost slipped on the stairs at the bottom. Looking down, I saw a trail of blood on it, leading from where they must have fought and back to the window. Where the copies had climbed in. Then I looked at my parents, without a real mark on them. Except for the blood dripping from beneath their fingers. My eyes sluggishly moved over to my sister’s hands and saw small drops falling from hers too. Then my eyes turned towards the door and the dark porch waiting outside, and a barely discernable shoulder sticking out from the doorframe. 
+
+Before my ‘mom’ and ‘sister’ could get behind me and close me in, I turned and bolted out of the back door. I heard them calling out behind me, maybe thinking I was going to get some food or something, but when they saw me open the backdoor, they called out in my parent’s voices as they started walking after me, my counterpart walking through the open front door after the rest. Not running. Not yet. 
+
+By the time I made it to the treeline, I saw them start to pick up the pace, almost like they needed time to speed up. The rest of the ‘family’ was left behind though, my copy was the only one moving faster. Running into the trees, I barely caught glimpses of it as I tried to make my way towards the highway, or the entrance to the park, but the same thing happened. It felt like I was running in place, the same spots coming up over and over again. At the same time, I caught sight of my copy starting to speed up, matching my stride, making the same movements, but still catching up. 
+
+Then I tripped. 
+
+I fell into some mud and it was kind of nasty, but I heard a duller THUD come from behind me. Looking back, I saw that my copy landed on bare stone, breaking open their chin and letting a little blood ooze out. Seeing that, I tried again a couple minutes later, running towards a tree after taking a sharp turn and seeing my copy hit one that was closer. I stopped and crawled through some bushes and my copy had to slog their way through some mud. Every time they were slowed down, it felt like the woods started changing, like I was breaking through whatever was holding me here. I even saw an orange glow in the distance, almost flickering. 
+
+It took a bit longer before I got close enough to confirm it was a Campfire. I entered the clearing and saw several people sitting around it, warming their hands, or eating something. My copy stopped at the edge of the clearing. I looked from the people then back to it, raising one hand to see if it was still copying me. It was, but while it had its hand raised, I saw it start to ooze a little, almost like candle wax.  It moved back into the trees, away from the light. 
+
+One of the other people by the Campfire came up to me and raised a hand like me. The copy seemed to hesitate, looking between us and freezing up, making jerky little movements almost like it couldn’t really understand what it was seeing, or if it could copy them too. Its second arm twitches. Its face seemed to change a little, trying to match the person, but nothing else. Just barely catching my breath, I told the person, “it was copying me. I-I think there are more out there, they took my family!” Nodding slowly, he pulled me towards the Campfire, telling me to stick close to someone else for a while. Walking back to the Campfire, I turned back one more time and saw it starting to melt more fully until it took more steps back, barely visible as an outline in the dark. 
+
+More figures emerged from the trees beside my copy.  
+Some looked horribly familiar.
+
+Sitting down with the others, one person leaned over and assured me, “Don't worry. Mine's been trying for three nights.” Before pointing to one on the far side, barely twitching. The first guy handed me a large cup of water, “You're safe until sunrise.” “And after that?” The man looked toward my copy. 
+
+“Stay close to someone who knows you're you.”
+
