@@ -12,6 +12,8 @@
 
 [\[Part 7\]](https://www.reddit.com/r/nosleep/comments/1xaca6b/im_a_furniture_mover_my_buddy_convinced_me_to/)
 
+[\[Part 9\]](https://www.reddit.com/r/nosleep/comments/1xnf89o/im_a_furniture_mover_my_buddy_convinced_me_to/)
+
 Sorry this update took so long. A lot has happened over the last few days, and I wanted to get it in the right order before posting. Some of what CATALOGUE showed me finally explains where the furniture came from.
 
 On Saturday night, I ended up on Alicia's living room floor with my work boots still on and my spine jammed against the base of the couch where Toby was sleeping. I hadn't planned on it. Next thing I knew, daylight was coming through the blinds, and Rebecca was standing over me holding a mug.

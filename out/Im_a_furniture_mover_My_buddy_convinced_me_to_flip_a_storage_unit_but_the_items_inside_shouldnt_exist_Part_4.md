@@ -12,6 +12,8 @@
 
 [\[Part 8\]](https://www.reddit.com/r/nosleep/comments/1xfwrqb/im_a_furniture_mover_my_buddy_convinced_me_to/)
 
+[\[Part 9\]](https://www.reddit.com/r/nosleep/comments/1xnf89o/im_a_furniture_mover_my_buddy_convinced_me_to/)
+
 I haven't posted in a while. I wish I could say that was because nothing happened and everything went back to normal. I've been given time off work, so here's the update.
 
 Henry is still in the hospital. They know he can move his legs now, but that doesn’t mean he’s walking out anytime soon. His spine took the brunt of the impact. The doctors keep throwing around words like "swelling," "compression," "rehabilitation," and "we’ll know more with time." Nobody will give me a straight answer.

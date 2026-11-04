@@ -12,19 +12,17 @@
 
 [\[Part 8\]](https://www.reddit.com/r/nosleep/comments/1xfwrqb/im_a_furniture_mover_my_buddy_convinced_me_to/)
 
+[\[Part 9\]](https://www.reddit.com/r/nosleep/comments/1xnf89o/im_a_furniture_mover_my_buddy_convinced_me_to/)
+
 The day after CATALOGUE left, nothing happened in my house. For weeks there'd been talking radios, moving reflections, and new things on my workbench. Now there were forty-one objects gone. The dresser, the tank, and the portrait were still waiting on a transport crew. I checked the wardrobe repeatedly that night, listening for creaks or voices. 
 
 I had a lot of time to think this week, and I want to be honest that I hated it.
 
 I hadn't touched a drink in days. I still thought about Alicia's voice coming from the radio and how I'd sounded answering her. I'd spent so long telling myself our arguments had gone differently that hearing them again felt like being caught in a lie. Maybe the radio had invented some of it. But I remembered enough to know it hadn't invented everything.
 
-On Wednesday, I finally met with the family lawyer I'd been talking to for months. After depositing CATALOGUE's money, I called from the bank parking lot. For once, I could afford to retain him.
+On Wednesday, I met the family lawyer I'd been speaking to for months. CATALOGUE's payment finally meant I could retain him. My visitation record was poor, and full custody was unrealistic, but he thought there was room to negotiate.
 
-We spent an hour going through my situation. He didn't sugarcoat anything. My visitation record was poor, and asking for full custody would get me nowhere. But he said there was room to negotiate, provided I could demonstrate that I was taking things seriously.
-
-He helped me put together a proposal for Saturday's mediation. More time with Toby, a gradual move away from supervised visits, and a review further down the line. Nothing guaranteed, but it was a start.
-
-I walked out with a folder under my arm and, for once, something resembling a plan.
+We drafted a proposal for Saturday's mediation: more time with Toby, a gradual move away from supervised visits, and a review later. Nothing guaranteed, but I left with a folder and something resembling a plan.
 
 On Thursday I went to see Henry.
 

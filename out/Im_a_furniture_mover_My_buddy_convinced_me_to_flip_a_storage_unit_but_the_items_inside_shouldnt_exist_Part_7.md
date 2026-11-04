@@ -12,6 +12,8 @@
 
 [\[Part 8\]](https://www.reddit.com/r/nosleep/comments/1xfwrqb/im_a_furniture_mover_my_buddy_convinced_me_to/)
 
+[\[Part 9\]](https://www.reddit.com/r/nosleep/comments/1xnf89o/im_a_furniture_mover_my_buddy_convinced_me_to/)
+
 Saturday was supposed to be the day I fought for more time with Toby.
 
 I had a folder and a proposal all set out, and now it was all for nothing. I called my lawyer from the driveway, and he said he’d already spoken to Alicia’s attorney, and everyone agreed to postpone. “The existing arrangement stands,” he said. “Ian, I’m going to say this once. Don’t make decisions about Toby just because she can’t object right now.”

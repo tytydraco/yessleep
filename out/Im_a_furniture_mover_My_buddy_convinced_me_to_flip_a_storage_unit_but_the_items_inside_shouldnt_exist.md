@@ -12,6 +12,8 @@
 
 [\[Part 8\]](https://www.reddit.com/r/nosleep/comments/1xfwrqb/im_a_furniture_mover_my_buddy_convinced_me_to/)
 
+[\[Part 9\]](https://www.reddit.com/r/nosleep/comments/1xnf89o/im_a_furniture_mover_my_buddy_convinced_me_to/)
+
 I need to get this down while it's still fresh. I can already feel my memory going fuzzy like a dream does an hour after you wake up. If I don't write it down now, I'm worried I'll talk myself out of it by morning.
 
 Some background, so this makes sense.
