@@ -1,0 +1,45 @@
+The radio in my truck only picks up two stations: static, and a weak AM broadcast that plays the exact same local weather report from 2012 on a twenty-minute loop.
+
+I work the night shift at the county water treatment plant out on Route 9. It is a concrete box surrounded by chain-link fence, a dozen chemical tanks, and three hundred acres of dense, black timber. Nobody comes out here after dark. That’s why they pay me twenty-two bucks an hour to sit in the control room and watch digital gauges blink green.
+
+At 3:14 AM, the main pressure monitor for Sector 4 dropped to zero.
+
+Sector 4 is the old underground main that feeds the abandoned state sanitarium on the ridge. It hasn’t been active in twenty years; the valve was locked and chained shut back in the late nineties.
+
+I grabbed my flashlight and a heavy iron wrench, stepping out into the damp, freezing October air. The mist off the reservoir was thick enough to chew on. As I walked the gravel path toward the Sector 4 junction box, my boots made a loud, crunching sound that felt way too exposed in the dead quiet.
+
+When I reached the concrete pit, the heavy iron hatch was pushed slightly ajar.
+
+*I locked that on Friday,* I thought.
+
+I knelt down and shined my flashlight beam down the rusted ladder. The beam cut through a plume of pale, heavy vapor that smelled faintly of copper and old wet soil—not chlorine, not rust. Just something metallic and sweet.
+
+“Hello?” I called out. My voice sounded thin, swallowed instantly by the dark.
+
+No answer. Just the steady, rhythmic *drip... drip... drip* of water echoing from deep inside the pipe.
+
+I told myself a local homeless person had probably tried to break in out of the cold. I gripped the flashlight in my left hand, rested my right hand on the iron wrench, and took the first step down the ladder.
+
+The rungs were slick. By the time I hit the concrete floor ten feet down, my breath was pluming in the damp dark. I clicked the beam along the vaulted brick ceiling of the drainage tunnel. The walls were crusted with white mineral deposits that looked, in the pale LED light, like clustered rows of tiny, half-formed teeth.
+
+Then I saw the wrench I keep in the junction box. It was lying on the wet floor a few yards ahead of me, covered in dark, sticky mud.
+
+“Hey! Get out of here,” I yelled, trying to sound braver than my skeleton felt. “This is private property. The police are on the—\`
+
+The water in the shallow trench at my feet stopped flowing.
+
+Not slowed down. *Stopped.*
+
+In the absolute silence that followed, I heard a sound coming from further up the dark pipe toward the sanitarium. It wasn't an animal. It was a wet, rhythmic sliding sound—like a heavy canvas sack being dragged very slowly across rough concrete.
+
+And then came a voice, muffled and reverberating through the damp brick, speaking in the exact flat, monotone cadence of the weather broadcast from my truck:
+
+*“Current temperature... thirty-eight degrees... pressure dropping... sector four... has... been... opened.”*
+
+I didn't turn around. I dropped the wrench, scrambled up the slick iron rungs of the ladder like a panicked insect, and threw my body through the hatch, slamming the heavy iron lid down. I didn't bother locking it. I sprinted back to the control room, locked the deadbolt, barred the door with a steel folding chair, and stared at the monitors.
+
+Sector 4 is reading normal again.
+
+The pressure is fine. The flow is fine.
+
+But every three minutes, the digital log prints out a new entry stamped with the current time, listing a water usage volume that matches the exact weight of an adult human body.

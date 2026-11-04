@@ -1,4 +1,7 @@
-**\*\*Contains suicide, family violence, and drug abuse. Reader discretion advised\*\***
+**\*\*Contains suicide, family violence, and drug abuse. Reader discretion advised\*\**
+
+[Part 2](https://www.reddit.com/r/nosleep/s/TJ3kbfpd3y)
+
 
 We are all cogs in a machine, we must go on to allow the machine of society to function. When a gear jams, a spring kinks, or when death makes itself present, all must go still until an adjustment has been made. Timing is an underrated phenomenon, without it all would run haywire. Time is also a construct, and without it all of God’s creation rest in their peace. They care not for when their next meal may come, they have no anxieties about whether or not they will wake when the sun rises, or if their loved ones are still living, breathing, returning to their embrace. They are gifted the ignorance of time and the thought that one day said time will run out. I remained cursed by the knowledge of futures untold, futures untrue, futures that may only exist in the recesses of my anxious mind. Knowledge is a curse while ignorance can remain a blessing. This was the revelation I had when my father told me Uncle Tyler committed suicide.
 

@@ -8,7 +8,7 @@ I turned twenty-nine on a Thursday in March. My class made me a card that said H
 
 I had a father, technically. When I was eight, I made it to the final round of the school spelling bee, and I spent the whole competition watching the gym door, because he’d promised he would come. He didn’t. I won anyway, on the word necessary. He left us that same week. The only thing my mother ever said about it was, “He didn’t leave because of you, mija.” When I was little, that comforted me. When I got older, I decided it was just the kind of thing you tell a kid. I kept the blue ribbon in my desk drawer for twenty-one years, in case he came back and wanted to see it.
 
-Mom raised me alone, six hours south, working two jobs and going gray before she was thirty. When I found a teaching job up here on the coast, in the little town where she grew up, she begged me not to. When I took the offer anyway, she cried on the phone for an hour.
+Mom raised me alone, six hours south, working two jobs and going gray before she was thirty. When I found a teaching job up here on the coast, in the little town where she grew up, she begged me not to leave. When I took the offer anyway, she cried on the phone for an hour.
 
 So that was my birthday: a crooked card, a beagle, and a mother six hours away. After school I bought myself a fuzzy cardigan, because if nobody else was going to spoil me, I was perfectly capable of doing it myself. Then I took a stack of spelling tests to a bar with dark booths and photographs of dead people on the walls.
 
@@ -124,7 +124,7 @@ I kept going, faster. On the second shelf, behind a picture of a girl on a beach
 
 My mother.
 
-Behind her, face down, were two photos of me. One was my college graduation, taken from somewhere in the audience. I had never seen it before. I don’t own it.
+Behind her, face down, were two photos of me. One was my college graduation, taken from somewhere in the audience. I had never seen this picture before. I don’t even own it.
 
 The other was taken from the back of a school gym. A little girl in a yellow dress stood at a microphone, staring toward the camera with an expression I know from the inside, because I remember wearing it. She wasn’t looking at the camera. She was looking at the door it stood in.
 
@@ -248,14 +248,12 @@ I walked over to what was left of them in the clogs I wear for recess duty, and 
 
 I got my keys out of the hall closet. I took my two photos off the shelf, the cliff and the spelling bee, and left the rest of the girls where they were. I think they’d want to be found.
 
-I called my mother from the porch at 11:06. She answered on the first ring, sobbing, with her laptop open and, she told me later, her finger already on the button. “Mija,” she said. “My hair. It’s black. It’s black. Where are you?”
+I called my mother from the porch at 11:06. She answered on the first ring, sobbing, with her laptop open and, she told me later, her finger already on the call button. “Mija,” she said. “My hair. It’s black. It’s black. Where are you?”
 
 “Leaving,” I said. “It’s way past their bedtime.”
 
 When I got home, Pancake met me at the door, sniffed me for a long time, and then climbed into my lap for the first time since March. He didn’t move until morning.
 
-It’s been three days. My knees work. My hands are my hands. My students have stopped making cracking noises when I sit on the reading rug.
-
-Claire found me yesterday through the school district website. She sent a photo of herself, twenty-six and laughing, wearing my fuzzy cardigan, with a message that just said: It came back. All of it. She’s already found two other women from the shelf. We have a group chat now. Claire named it Our Girls. We’re taking the name back.
+It’s been three days. Claire found me yesterday through the school district website. She sent a photo of herself, twenty-six and laughing, wearing my fuzzy cardigan, with a message that just said: It came back. All of it. She’s already found two other women from the shelf. We have a group chat now. Claire named it Our Girls. We’re taking the name back.
 
 So if you’re one of them, Ruth or Diane or Jess, or anyone whose photo sat on a shelf in a house by the ocean, or if your mother went gray too young and never told you why, we’re looking for you.
