@@ -1,0 +1,615 @@
+I assume most of you know what a Denen is.
+
+If you don’t, the short version is that they’re five-to-seven-inch primates native to North and South America, though established populations exist pretty much everywhere now. Cryptanthropus denicola, if you want the scientific name.
+
+Officially, there are about 1.8 billion living across the continental United States. Most serious estimates put the real number closer to five billion, but nobody really agrees.
+
+What matters is that they do not live in dens.
+
+I know that seems a little confusing. It’s confused biology students for almost a damn century.
+
+Denicola roughly means “den-dweller,” and it’s probably one of the worst names we’ve ever given an animal. Denens build fucking houses. They create towns. Some of their permanent settlements predate the states surrounding them.
+
+The name comes from forty-seven Denens discovered inside a fox den in 1934.
+
+For ninety-two years, we’ve been entirely wrong about why they were there.
+
+Anyway, with that all out of the way, my name’s Tegan. I’ve studied Denen population ecology at my local university (Details hidden) for the last six years.
+
+Last Monday, Oklahoma Wildlife called me about a property outside Joséke. Their officer, Pruitt, had found forty-four Denens living inside an abandoned fox den.
+
+I told him he must have been mistaken. That’s the oldest misconception in the field, so hearing it from a field report… it just didn’t sit right with me.
+
+Pruitt met me at the end of a gravel road about twenty minutes outside the Grove. He was younger than I expected, maybe thirty-five, with a dark tan. I’d driven over from the university with Dek—my second-year—who loves to bring snacks to fieldwork. He was thrilled about this news. I couldn’t say I was.
+
+The property belonged to a man named Kessler, who watched us from his porch with a cup of coffee. I actively saw the steam disappear from getting cold. All this without him taking a single sip. Can’t say I’m surprised; people always want to come along. They always want to watch.
+
+“Back here,” Pruitt said.
+
+The garage sat at the far end of the lot, leaning hard to the left. One window had gone out, and the slab foundation had cracked and was sinking in multiple spots. In one of the spots it sank, there was a gap, and behind the gap, the damn den. It was fairly large and very old. There was fox scat along the lip.
+
+“Kessler said five foxes in two weeks,” Pruitt said. “All right here. No blood or nothing.” He nodded at a flattened patch of grass. “They looked like they’d stopped dead in the middle of a bark.”
+
+I wrote everything he told me down in my notebook.
+
+I knelt at the entrance with my flashlight, and I won’t lie, all I could think about in that moment was: I’m so fucking annoyed. Forty-four Denens in a fox den is not a magical moment.
+
+It’s a shit-load of paperwork.
+
+And, more importantly, it’s three months of emails from everyone asking if this proves Dr. Sampson was right. It’s somebody at the university wanting to put my name on a press release. It’s another generator of freshmen drawing little burrows on their Denen habitat diagrams because they saw pictures online.
+
+Assuming there were actually Denens down there.
+
+The den was honestly clean. I noticed that, besides the scat and some fur, of course. A den this old, with years of foxes, should smell like the inside of a cow’s asshole. This den just smelled like cold dirt.
+
+“Have you seen inside yet?” I asked.
+
+“Just the light,” Pruitt said. Then, after a second: “Can’t see past the first bend.”
+
+I opened my backpack, pulled out the snake camera, and fed it into the den until the lens cleared the first bend.
+
+The first thing I saw was eyes. Dozens of them, most of them low to the ground, pressed back against the walls of the den and the tunnels behind it. My first thought was, obviously, fox. But there were too many, too close together. Too small of eyes for a fox.
+
+Denens.
+
+“Son of a bitch,” I whispered.
+
+“What?” I heard Dek ask behind me. I tilted the screen so he and Pruitt could see. Pruitt gave a look I chose to ignore.
+
+“Alright. You weren’t mistaken.”
+
+“Appreciate that.”
+
+I pushed the camera another few inches.
+
+The picture wasn’t great. The lens was made for plumbing and crawlspaces, not wildlife photography, and every time the cable scraped against the dirt, half the screen turned brown. Still, I could make out enough.
+
+The first chamber was packed. There were maybe twenty Denens in that one space alone. Adults mostly, though I spotted at least three children tucked farther back. They were wearing clothes. Shirts, trousers, dresses, coats. One man had a pack sitting beside him. Another had what looked like a carpenter’s hammer across his lap.
+
+None of them moved away from the camera. I thought that was strange. You need to understand how loud Denens are when they’re scared. I have been screamed at by a six-inch woman through drywall for forty minutes, and I’m telling you now, it is a remarkable amount of sound from a body so tiny.
+
+I moved the lens slowly from left to right. There were more people in the tunnel behind them.
+
+“Jesus,” Dek said.
+
+I counted thirty-one before losing track.
+
+Pruitt crouched beside me. “Told you.”
+
+I smiled a fake smile and kept looking. Something bothered me about the chamber. It took me a second to figure out what. Then I realized there was nothing in it.
+
+No furniture, partitions, shelves, lamps, or bedding that I could see. Nobody had reinforced the walls or laid anything over the dirt. There wasn’t even a proper cooking area.
+
+That doesn’t sound weird if you don’t know Denens. But it was fucking weird.
+
+Denens build. Give four Denens a shoebox for a weekend, and by Monday they’ll have a second floor.
+
+That’s an exaggeration, obviously, but not much of one. I’ve documented settlements inside everything from storm drains to abandoned vending machines. They adapt. That’s part of what makes studying their populations such a pain in the ass. A structure that looks completely uninhabitable to us can contain several thousand people and infrastructure sophisticated enough to keep them there for generations.
+
+These people hadn’t built shit. They had cleaned, though. That explained the smell.
+
+I could see scrape marks along the dirt where something had been dragged toward the entrance. The floor had been cleared of bones and old nesting material. There were little bundles of what looked like fox fur piled against one wall. Someone had even spread crushed leaves over a damp patch near the back.
+
+They’d made the den sanitary enough to occupy. But they hadn’t bothered to make it a home.
+
+“Refugees?” Dek asked.
+
+It was exactly what I’d been thinking. “Maybe.”
+
+“From where?”
+
+“No idea.”
+
+Pruitt pointed at the screen. “What’s that?”
+
+A woman had stepped toward the camera. She was older, maybe sixty, though estimating a Denen’s age from a shitty snake camera is mostly guesswork. Gray hair had been tied behind her head, and she wore a faded green dress under a little canvas coat.
+
+She had a smear of old dirt across one cheekbone, and she was looking directly at me, and I looked back, and I saw her lips.
+
+There was a black thread through them. About seven stitches pulled tight. The skin around them was swollen and dark.
+
+She stood there with her hands at her sides and stared into the camera. It made me stop moving altogether.
+
+“What the fuck?” Dek whispered.
+
+Her eyes snapped past the lens, towards the entrance. A man grabbed one of the children and pulled her against his chest. Two others backed farther into the adjoining tunnel. The man with the hammer lowered it from his lap and wrapped both hands around the handle.
+
+None of them made a sound.
+
+“Dek,” I whispered. “Shut the fuck up.”
+
+“Why?”
+
+The woman jerked again. I turned around and put my finger against his lips. Pruitt looked from me to the screen.
+
+“What is—”
+
+I grabbed his sleeve, and he shut up. When I looked back at the monitor, the woman was still staring toward the entrance.
+
+I moved the camera slightly.
+
+The man beside her had stitches too. So did another woman behind him. I zoomed the lens as far as the plumbing camera would let me, which was not far. The picture went soft and grainy, but it didn’t matter. The thread was black and coarse, the kind you’d use to patch canvas. It went in and out of the woman’s lips in neat little loops.
+
+I zoomed in on more people, and they were everywhere.
+
+Some had black thread. Some brown. One man’s lips had been closed with what looked like fishing line. A younger woman had only three stitches, spaced far enough apart that I could see the yellow stain of her teeth between them.
+
+Not everybody had done it.
+
+The children hadn’t. Most of them had a hand over their mouths.
+
+My stomach had started doing backflips.
+
+Self-mutilation isn’t unheard of among Denens. It isn’t unheard of among us either. But seventeen people independently sewing their mouths shut wasn’t usually what you see.
+
+I eased the camera back a few inches, switched it off, and set it face-down on the grass. Nobody spoke. It was the first time all day that Dek didn’t say anything, and I’ll be honest, it did not make me feel better. He’s always so chatty.
+
+“I’m calling Sampson,” I whispered.
+
+Pruitt looked at me like I’d announced I was quitting.
+
+“He’s my advisor,” I said. “He’s also the reason that sentence about the university press release made me want to throw up. He’s spent thirty years arguing that Denens are facultative burrowers, that the fox den in 1934 was natural behavior and everybody since has been overcomplicating it.” I stood up. “If I tell him this, he’s going to be insufferable forever. But he’s the only person I know who’s read the original founding report cover to cover.”
+
+I walked to the far end of the lot, near Kessler’s chain-link fence, as far from the garage as I could get while still seeing it. Kessler was still on his porch. He hadn’t moved. The coffee had stopped steaming a long time ago. Dek ran up to me and was spewing something about the camera; I waved him on after Sampson picked up. On the fourth ring, mind you.
+
+“Tegan! Tell me you’ve finally stopped wasting your time with the storm drain people.”
+
+“I’m at a property outside the Grove,” I said. “Forty-four Denens in a fox den. Maybe more.”
+
+I’d planned for this. I’d rehearsed his gloating on the drive. Sampson doesn’t celebrate being right; he fucking marinates in it, and I’d already decided to let him.
+
+He didn’t say anything.
+
+“Dr. Sampson?”
+
+“A fox den?” he repeated.
+
+“Yeah. An abandoned one. Pruitt, the wildlife guy, found them. I know what it sounds like, but they’re not building anything. They’re just sitting in there. They’ve cleaned the place out, and they’re just—”
+
+“Tegan.” His voice had changed. I’d known him six years and I’d never heard his voice get like that. It was measured, like a man trying to close a deal. “Are they vocalizing?”
+
+I thought I’d misheard. “What?”
+
+“The Denens. Are they making any sound?”
+
+“No,” I said. “Actually, that’s the weird part. They’ve all sewn their mouths—”
+
+“Tegan, did you make any noise near the entrance?”
+
+I’d been talking since the car. I’d said son of a bitch. I’d said what the fuck. Dek had said both and so much more. I’d whispered at the top of my lungs into the throat of the den for ten minutes straight, and now my advisor, who I’d just told about forty-four people with thread through their lips, wanted to know if I’d been “loud”.
+
+“I mean,” I said. “Yeah. A little, I guess.”
+
+I heard him breathe out. “Okay,” he said. “Listen to me. I want you to leave the property. Right now. Don’t go back to the den. Don’t touch the camera, whatever you’ve got in there, leave it. Don’t go near the entrance and don’t speak toward it, even if you think they’re hurt. Even if one of them comes out.”
+
+“Dr. Sampson, I’m not leaving forty-four—”
+
+“Call the regional office, Tegan. They’ll know what to do.”
+
+“What? Why?” And then I stopped, because I did know why. Everyone knew. It’s in the boxed paragraph on the inside back cover of every field guide printed since 1954. If a Denen population voluntarily abandons a constructed settlement and enters an animal burrow, do not attempt removal. Contact the regional office.
+
+I’d always assumed it was a leftover. Somebody’s panicky response to the 1934 report. Enshrined in regulation and never revisited, like the leeches in medical textbooks. Or bloodletting.
+
+“That’s a legacy rule,” I said. “Those are all bullshit. Just like we know Denen don’t actually—”
+
+“I know,” Sampson interrupted. “I know what you think it is.” And he sounded tired. Like on the end of his rope tired. I didn’t understand it then, going from cheerful to end me now.
+
+“Why do they want the quiet?” I whispered. “What happens if we’re not?”
+
+“Tegan, I need to find something in my office. Please. Please. Just get everyone away from that hole.”
+
+He hung up.
+
+I stood there with the phone in my hand. The wind came through, and somewhere on the porch a screen door creaked open. I turned around to tell Pruitt we were leaving.
+
+Pruitt was standing next to the garage, alone, with one hand on the doorframe. Dek wasn’t with him.
+
+I surveyed the lot. The front and sides. I’d been so focused on Sampson that I hadn’t noticed the little gravel path along the north wall of the garage, the one that curved toward the back. There was a second hole back there; I’d have bet my check on it. A den with that many tunnels doesn’t have one mouth.
+
+“Where’s Dek?” I called.
+
+Pruitt turned his head and pointed down the road.
+
+A column of dust was settling over the gravel, about a quarter mile out, and at the end of it was the back of my Subaru, shrinking.
+
+“He said you told him to go,” Pruitt said.
+
+I opened my mouth to say that I hadn’t, and then I remembered. As I was walking off to call Sampson, Dek had said something. His voice had a little rise in it, the kind he gets when he’s pitching an idea. Doc T, the snake cam’s battery is, like, ten percent, and I’m thinking the thermal rig- we’d get a real head count; I could be there and back in forty minutes? And I’d flapped a hand at him without looking up. Yeah, fine, go.
+
+I’d been thinking about Sampson’s press release, and about myself.
+
+“He took the keys out of the cup holder,” Pruitt said. “Said to tell you he’d text.”
+
+I pulled out my phone, and there it was, about a minute old:
+
+omw to the wh!! Thermal rig + extra battery. back in 40. don’t find anything cool without me 🙏
+
+Goddamn Dek. Eager and utterly harmless until he takes the fucking car I need to leave in.
+
+“How far’s the wildlife office?” I asked.
+
+“From here?”
+
+“No, Pruitt. From fucking Belgium.”
+
+He looked at me.
+
+“Sorry, but Sampson said we need to leave now.”
+
+“About twenty-five minutes. We can take my truck.” He pointed toward the road. There was a white Oklahoma Wildlife pickup parked beside where my Subaru had been.
+
+I could have kissed him. “Perfect. We’re leaving.”
+
+We were halfway across the lot when I realized we’d have to pass Kessler’s porch. Pruitt’s truck was parked at the edge of the gravel, nose toward the road, and the shortest line to it ran right in front of the house.
+
+Someone should tell the landowner. Someone should say, sir, for your own safety, please keep your family inside. I’d been trained for this. Forty minutes of crisis communication, taught by a woman who’d never seen a Denen.
+
+Kessler hadn’t moved. He was standing at the top of the steps, on his porch, a man in his fifties with a ball cap, with both hands wrapped around a mug that had been cold for an hour. He watched us come. He didn’t say a word until we were close enough that I could practically smell his house.
+
+“Y’all done?” he asked.
+
+“Mr. Kessler,” I said. “We’re going to go call some people. I’d like you to take everyone inside and stay there until—”
+
+“My girl’s in the house,” he said. “She’s seven.”
+
+I stopped. “Okay. Then take her to the back room. Away from the garage side. And I know this is going to sound strange, but if you hear anything from outside, anything, don’t—”
+
+“Tell me you two jack-offs didn’t answer it.”
+
+I’d never heard anyone say something so soft yet loud before.
+
+Pruitt had stopped beside me.
+
+“Answer what?” I said.
+
+He didn’t so much as even look at me.
+
+“Started about a week after the first fox,” he said. “Middle of the night. I’m in the kitchen, and I hear my wife call me from the back porch. Issue is, she’s been gone six years.” His nose twitched. “I went to the window. And I thought, huh. And I didn’t say, nun.”
+
+“Mr. Kessler—”
+
+“Next night it was my brother. Then the boy from down the road who used to mow for me. Then my daughter.” Now he looked at me. His eyes were stained red yet remained perfectly steady. “I stopped going to the garage. I told Pruitt about the foxes because the foxes were answering. Every night, one of them would bark back, and the next morning it’d be lying out there. Just—stopped.”
+
+They looked like they’d stopped dead in the middle of a bark. I felt my own mouth go dry.
+
+“I didn’t say a word to it,” Kessler said. “Not once. I made sure.” He lifted his mug an inch, like a toast. “Hell of a thing, to stand on your own porch and be scared to talk out loud.”
+
+I opened my mouth to say something, and from the corner of the garage behind me, bright as day, a voice said:
+
+“Hey, Doc T.”
+
+I hadn’t noticed until later, but Kessler’s face went white.
+
+“Come look at this.”
+
+It was Dek. It was exactly Dek. The shit he says every time he needs my attention.
+
+“One second,” I said.
+
+It came out of me before I knew I’d opened my mouth. And then I heard what I’d said.
+
+Kessler closed his eyes.
+
+Pruitt’s hand clamped on my arm, hard enough to bruise. “Ma’am,” he said. “Dek just left.”
+
+I looked down at my phone, still in my hand. The text was right there, still glowing. back in 40.
+
+And from the corner of the garage, again: “Hey, Doc T.”
+
+I didn’t answer that time, and I noticed I stopped moving entirely. I felt like I was waiting for some insane thing to happen. I don’t know what. My heart to stop, I guess? Five foxes had apparently yipped at whatever was behind Kessler’s garage, and well, five foxes were dead. And I had just yipped back myself.
+
+My heart was beating out of my chest. “Am I going to die?” I whispered.
+
+Kessler groaned slightly, “Couldn’t tell you.”
+
+That was apparently all the information he had. The foxes made noise back; the foxes died. He hadn’t answered anything himself because, in his words, he wasn’t an idiot. Fair enough.
+
+Pruitt got me moving again. We were almost to his truck when I looked back at the garage. I really wish I hadn’t.
+
+Someone was standing in the gap beneath the foundation. The older woman. I recognized the green dress first. At our size, she barely came above the cracked concrete, but she’d climbed all the way to the mouth of the den. The black stitches were still pulled through her lips.
+
+She was staring at me.
+
+I stopped. Pruitt almost walked into me before he saw her too. She lifted one arm and pointed toward the road. There wasn’t much ambiguity there.
+
+Go.
+
+Then she pointed at me. And her hand went to her mouth.
+
+I don’t exactly know how to explain the gesture she made next. She hooked two fingers beneath the black thread and pulled until her lips stretched around the stitches. Then she shook her head.
+
+I first thought she was trying to tell me to do the same thing. To sew my mouth shut.
+
+Which, I’m sorry, but absolutely fucking not.
+
+But then she pointed at the garage again. Toward the broken window. I traced her finger but saw nothing there. At least, not that I could see.
+
+When I looked back, she’d disappeared.
+
+“Get in the truck,” Pruitt said.
+
+He practically threw me into the passenger seat before running around to the driver’s side. Kessler was already going back inside as Pruitt started the engine.
+
+And from somewhere behind the garage, Dek called my name again.
+
+But this time, he said, ‘Tegan.’
+
+I looked over at Pruitt; he was dead-stone staring ahead.
+
+“Tegan, wait.” The voice sounded closer. “Please. Stop.”
+
+Pruitt put his foot down.
+
+The truck lurched forward, throwing rocks against the underside of the wheel wells. I twisted around in my seat and watched the garage disappear behind Kessler’s house.
+
+Nothing came running after us.
+
+I think I’d expected something to happen. Some creature of the abyss to chase us, deforesting the world around us.
+
+But instead, we just drove out of there.
+
+Pruitt didn’t speak until we’d reached the paved road.
+
+“You alright?”
+
+“Absolutely not.”
+
+I looked at my phone; there were no messages from Dek.
+
+“Can you take me to the wildlife office?”
+
+“That’s where I’m going.”
+
+I just nodded. He glanced at me.
+
+“Don’t call him.”
+
+I hadn’t realized I’d opened Dek’s contact. “Why?”
+
+“Just… don’t.”
+
+I stared at him.
+
+“Pruitt, if there’s something you know about what’s happening, now would be a fantastic fucking time to tell me.”
+
+He tightened his grip on the steering wheel, but didn’t say anything else the rest of the ride.
+
+When we finally arrived at the wildlife office, Dek wasn’t there. Neither was my Subaru. His car was still sitting in the university parking lot, where he’d left it that morning, but the woman at the front desk said he’d come in about fifteen minutes earlier, collected the thermal camera and two batteries, and left.
+
+“Did he say where he was going?”
+
+“Back to some property, I think.”
+
+I checked the time. He should’ve been halfway there. I called him, but it rang four times before going to voicemail.
+
+“Hey, it’s Dek. You know what to do.”
+
+I hung up and sent a text.
+
+Where are you? don’t go back to kessler’s. call me.
+
+Three minutes later, he replied.
+
+aye aye, cap’n!! had to stop for gas. everything okay?
+
+I nearly laughed.
+
+NO. come to the wildlife office. NOW.
+
+okay okay damn lol
+
+I sat down in the waiting area and waited. After forty minutes, I texted again.
+
+dek? But I got nothing.
+
+An hour later, he texted back:
+
+hey sorry doc t. got caught up. heading home. can we talk tomorrow?
+
+I called him immediately, but it went straight to voicemail.
+
+you have my car, dek. i need that back.
+
+oh shit LOL. sorry. i’ll bring it by tomorrow.
+
+I stared at the screen. I wanted to be angry. Hell, I was angry. I’d just had the worst afternoon of my entire fucking professional career, and my second-year had apparently decided to take my goddamn Subaru home.
+
+But something else about it bothered me, drowning out the anger I was feeling.
+
+Dek had never ignored my calls before. Not once.
+
+I didn’t sleep much that night. Every time I closed my eyes, I saw the older Denen woman pulling at the thread in her lips. I kept thinking about how much that must have hurt.
+
+Seven stitches through her own mouth. And she’d done it voluntarily?
+
+It gave me the shivers, and at about three in the morning, I got up and dug through my bookshelf until I found my old field guide.
+
+North American Denen Populations: Identification and Management.
+
+Fourth edition. 2018.
+
+I flipped to the inside back cover. And there it was.
+
+BURROW REFUGE EVENTS
+
+In cases where an established Denen population has voluntarily abandoned permanent structures in favor of an existing animal burrow, personnel are advised against physical intervention. Do not attempt relocation. Contact the appropriate regional authority.
+
+I’d already read that over dozens of times. I’d make fun of it during lectures.
+
+There was a phone number beneath it, and I called.
+
+An automated voice informed me that the number was no longer in service. Of course it fucking wasn’t.
+
+I emailed Sampson.
+
+Need to talk about the burrow refuge protocol. Something happened after our call. Please call me ASAP.
+
+Then I sat at my kitchen table until the sun came up.
+
+Finally, by Tuesday morning, Dek texted me at 8:17.
+
+hey doc t!! sorry about yesterday. rough night. can i bring your car friday?
+
+Friday? Are we fucking serious? That was three days away.
+
+I called him. Straight to voicemail again.
+
+Why Friday? Where are you?
+
+family stuff. nothing serious.
+
+Dek, you need to answer your damn phone.
+
+can’t rn. sorry!!
+
+I was starting to get genuinely pissed off. I told him I needed the car for work. All he did was apologize again. Then he just stopped responding altogether.
+
+At eleven, I walked to the university.
+
+Dek wasn’t in class. That wasn’t that unusual. He’d missed classes before. But when I asked one of his friends if she’d seen him, she shook her head.
+
+“Not since yesterday,” she told me.
+
+Apparently, Dek had been texting a few people from the department, but nobody had actually seen him since Monday. One of his friends mentioned that he’d asked about Friday’s departmental mixer, which was strange because Dek had already told me he wouldn’t be attending. Something about visiting his parents, but I couldn’t remember exactly.
+
+I spent most of that day trying to get a hold of him, and by the next day, I’d pretty much exhausted every reasonable explanation for what was happening. His roommate hadn’t seen him, his professors hadn’t seen him, and his parents thought he was staying with a friend. Meanwhile, Dek was still texting me like everything was normal.
+
+He even sent me a picture of a gas station hot dog.
+
+five star dining, doc t.
+
+I didn’t find it particularly funny.
+
+I tried calling Sampson again, but he was apparently too busy doing whatever the fuck he’d been doing since Monday to answer. I left him another message explaining what had happened at Kessler’s property, including the voice that had called to me from behind the garage.
+
+I didn’t mention Dek’s disappearance. At that point, I wasn’t even sure I could call it a disappearance. He was still responding to my messages, after all, and I’d seen the Subaru-sized hostage driving away with my own two eyes.
+
+That afternoon, Sampson finally called. He’d found the original 1934 report, along with several photographs that hadn’t been included in the published findings. According to him, the forty-seven Denens weren’t the only ones discovered at the site. There had originally been fifty-one, but four were found dead in the surrounding woodland.
+
+The report described them as suspended among the branches of several trees. Initially, the researchers believed they’d become tangled in spiderwebs or some other material, but the photographs showed no visible means of suspension.
+
+I asked him why something like that wouldn’t have made it into the published report. He said he didn’t know.
+
+I asked whether the bodies had been examined.
+
+They had, apparently. Their mouths were open, and there was extensive damage to the tissue surrounding their throats. Beyond that, the report was frustratingly vague. The four deaths had been attributed to an unidentified predator, and the remaining forty-seven Denens were removed from the burrow for observation.
+
+That was the part that intrigued me.
+
+The Denens had been removed. I never knew that. I figured they just left them there; better to not aggravate local Denen laws.
+
+And yet, a group of researchers came along, pulled them out, and spent the next ninety-two years telling everybody they’d discovered a previously undocumented burrowing behavior.
+
+I asked Sampson what happened to those forty-seven Denens afterward.
+
+He told me they were transferred to a university research facility, where they remained for several months before being released.
+
+According to the records, they never once vocalized during captivity.
+
+Those Denens were hiding because they were afraid of being heard by something too.
+
+Pruitt called me Thursday morning.
+
+Kessler had found my Subaru parked behind the garage, partially concealed by the trees. The driver’s door was open, and Dek’s backpack and the thermal camera were still inside.
+
+There was no sign of Dek.
+
+I asked Pruitt to come get me.
+
+He didn’t want to, which I understood. Hell, I didn’t particularly want to go back either. Sampson had practically begged me to stay away from that property, and after what happened Monday, I had every reason to listen to him. But Dek was my student. I’d let him take my car, and nobody had seen him since. Now that same car was sitting abandoned behind the garage, with all his belongings still inside. I couldn't just sit around waiting for somebody to explain what had happened to him.
+
+By the time we arrived, Kessler had already gone back inside. I could see him watching us through the kitchen window, though he disappeared as soon as I looked in his direction.
+
+The garage looked exactly as it had on Monday. Not a thing changed.
+
+I walked over to the den.
+
+The snake camera was still there, its cable disappearing into the dirt beneath the foundation. I picked up the monitor and switched it on, expecting the battery to be dead.
+
+The screen flickered on. Apparently, whatever charge it had left on Monday had been enough.
+
+The picture was dark at first, but after adjusting the brightness, I could make out the first chamber. It was empty.
+
+I pushed the camera farther in, scraping the lens against the walls as I tried to reach the adjoining tunnel. There was nothing there either. Not even the little bundles of fox fur I’d seen on Monday.
+
+Forty-four Denens had been living inside that hole three days earlier.
+
+Now they’ve somehow disappeared.
+
+I don’t know whether they left Monday night or sometime afterward. I don’t even know how they managed to move forty-four people out of that den without Kessler noticing. Or maybe he did see them, and just didn’t care too much.
+
+But they’d left. And I couldn’t help thinking that they’d known something was going to happen.
+
+I told Pruitt what Sampson had found in the original report. He listened, occasionally looking toward the trees behind the garage whenever a small noise occurred. When I mentioned the four bodies suspended in the woods, he stopped looking at me altogether.
+
+There was a narrow trail leading into the trees, and beside it were several impressions in the mud. They were difficult to make out, but one of them looked like the tread of a hiking boot.
+
+Dek had bought a new pair in September. I’d recommended them.
+
+We followed the trail, and I don’t know how far we walked—maybe a hundred yards, possibly more—but the woods were thick enough that we lost sight of the garage almost immediately, and the ground sloped downward toward an old creek bed.
+
+Pruitt was ahead of me when he stopped. I nearly walked into him.
+
+At first, I thought he was looking at something caught in the branches. There was a patch of blue between two trees, several feet above the ground, and something beneath it that looked like a pair of boots.
+
+Then I realized what I was looking at.
+
+It was Dek.
+
+He was suspended about six feet above the ground, his back bent slightly, and his legs hung beneath him. Both hands were wrapped around his throat, and his mouth was stretched open so wide that I could see his teeth from where I stood.
+
+There wasn’t anything holding him up. I didn’t see rope or branches.
+
+I walked around him, trying to understand what I was seeing. His body didn’t move when I approached, not even when Pruitt reached out and touched one of his boots.
+
+I touched his arm, and his skin was cold.
+
+I don’t remember much of what happened immediately afterward. I just vaguely remember Pruitt pulling me away, and me sitting on the ground with my hands over my mouth, hyperventilating.
+
+I was so annoyed with Dek for taking my car, and at him for not answering his fucking phone. Just to see him like that.
+
+And then I remember my phone vibrating.
+
+It was Dek.
+
+hey doc t!! where are you?
+
+I looked up at him. His mouth was still open. His hands were still around his throat.
+
+And his phone, wherever it was, was still sending me messages.
+
+I don’t know why I hadn’t considered it before. I knew something had been using his voice on Monday. I’d heard it myself, and I’d answered it. But I’d spent the last few days sort of assuming that because Dek was texting me, he must still be alive.
+
+Well, there I was looking directly at the proof that he absolutely wasn’t.
+
+Pruitt helped me stand, and we started back toward the garage. Neither of us said anything. I think he was afraid of making noise, and I certainly wasn’t interested in finding out what happened if I answered another voice.
+
+We’d almost reached the top of the creek bank when I heard it.
+
+“Hey, Doc T.”
+
+I stopped. It came from somewhere behind us, back toward the trees where we’d found Dek. His voice.
+
+I turned around, but Pruitt grabbed my arm before I could take another step. But before I could even react, I heard something else.
+
+“One second.”
+
+It was my voice.
+
+I don’t mean it sounded similar to me. I mean it was exactly my voice, down to the way I’d said those two words on Monday afternoon.
+
+Pruitt practically dragged me the rest of the way to his truck. I didn’t look back, and I didn’t hear either voice again.
+
+I’m writing this Thursday night. Everything is still so new.
+
+Pruitt contacted the sheriff’s office after we left. I don’t know what they’re going to do about Dek, or whether they’ll even find him where we left him. I haven’t heard anything from the department, and Sampson has been calling me for most of the night.
+
+I haven’t answered. I know how stupid that sounds. I spent so long trying to get a hold of him to just now ignore him, but after hearing my own voice coming from somewhere it shouldn’t, I haven’t felt interested, or safe, for that matter, in talking to anybody.
+
+I did manage to send one email, though. To the department chair, asking her to cancel Friday’s mixer. I told her there had been an incident involving one of our students, and that I didn’t think it was safe to hold the event.
+
+She responded about twenty minutes ago. Apparently, she’d already spoken to Dek, and he’d assured her everything was fine. She said he’d even called to confirm he’d be there.
+
+I haven’t told her, or anyone, what we found in the woods.
+
+I don’t know how to tell her that whoever is coming to that mixer, it isn’t going to be Dek.

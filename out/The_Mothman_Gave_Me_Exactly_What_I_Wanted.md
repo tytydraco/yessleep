@@ -590,6 +590,7 @@ I started crying again.
 "That thing took her," I said. "I tried to save her."
 
 They questioned me several more times over the next few weeks. They searched my truck, my trailer, and the woods around the station. Both gas pumps had fried circuit boards, and the security system was ruined. There were enormous scratches in the asphalt that nobody could explain.
+
 Katie's mom told the police about the pregnancy and how I'd been looking for a way out of getting married.
 
 That made me the prime suspect in her disappearance for a while. But they didn't have a body, and they couldn't prove I'd hurt her.
@@ -751,7 +752,7 @@ I think about her sometimes, especially when I hear somebody say my name in a ce
 
 The way Katie had drawn out the first syllable of my name when she begged me to save her.
 
-Traaavis.
+*Traaavis.*
 
 I can still hear it.
 
@@ -771,6 +772,6 @@ Some things haven't changed.
 
 I wish I could tell you I regret what I did every day.
 
-[I](https://www.reddit.com/r/PageTurner627Horror/comments/1xhi5v9/joint_custody/) [don't](https://www.reddit.com/r/PageTurner627Horror/comments/1tsovdx/resist_the_devil_part_1/).
+[I](https://www.reddit.com/r/PageTurner627Horror/comments/1x9lyxi/the_last_tour_of_the_evening/) [don't](https://www.reddit.com/r/PageTurner627Horror/comments/1tsovdx/resist_the_devil_part_1/).
 
 
