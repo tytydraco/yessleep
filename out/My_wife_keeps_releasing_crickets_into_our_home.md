@@ -1,0 +1,105 @@
+I know how strange this sounds, if it didn’t didn’t happen to me, I probably wouldn’t believe it either.  But my wife has been buying crickets, bringing them into our studio apartment, and letting them loose.
+
+Technically she warned me first.  She asked me before she did it, saying it like it was a completely normal thing to do to give our cat some enrichment.
+
+I naturally assumed that this was some bizarre joke from her, even if she’d never partaken in such absurdist humor before, she said it so nonchalantly that I never even considered that she was serious when I told her to go right ahead.
+
+What makes it even worse is we don’t even own a cat.
+
+It had seemed so ridiculous that I had completely forgotten it until later that night, when laying in bed next to her there was the distinct sound of crickets chirping all around our room.
+
+I rolled over to look at her, still not even remembering what she had said, until I saw the smile stretched across her face, visible even through the darkness.
+
+When I asked if she had actually done it, head still full of disbelief that she would even consider actually bringing those pests into our home.  But she had and was proud of it.  The cat was going to be so enriched, my wife would say.  She’d been looking sad lately and clearly needed more things to do in such a small apartment.
+
+For as long as I could I tried to deny that she had actually gone through it, despite being kept awake all night from their chirping, unable to sleep from the unease as much as the noise.  The next day I even found a few of them.
+
+Still I told myself it was some bizarre prank, that at any moment our family extended family or maybe a camera crew would waltz in proclaiming that I’d been had.  But, I’m still waiting for them.
+
+Over that period every time I brought it up to her, that I was upset or confused at what she had done she would simply brush me off, even make me feel like I was the one being unreasonable.  Our cat needed them, silly, we’d do anything for her right?
+
+And when I pointed out that we never had a cat over the entire course of our marriage, she just laughed at me and changed the subject.
+
+At one point when I kept pushing especially hard she started crying and begging me to stop talking to her.  I slept on the couch that night, and left it at that.  Content that at least they’d be gone soon as I heard fewer withs every passing day.
+
+The following night when the last of them had seemingly starved or escaped, I felt relief that we could put this all behind us.  She made no mention of it as we laid there in bed and I was perfectly happy to put this behind us and never speak of it again.
+
+And for a few days we did, life returned to normal, and I was able to get some real sleep.  The relief was immense, I had become a zombie over those four sleepless night.
+
+Its not like the sound alone had kept me up, I had no problem falling asleep on camping trips out in the wilderness.  But the sound had come to be a reminder that there was something seriously wrong, we wren’t out in nature, she had brought them into our home.
+
+So when a few nights later, laying in bed, I heard those chirps creeping in around us, I nearly broke down.  I turned to her and fought to stop myself from yelling out.  She was clearly going through something, and as odd as it seemed I needed to support her however I could.
+
+Still, she had once again let those things into our home, to make a cat we didn’t have happy.
+
+I forced myself to calmly ask her, if she had once again bought crickets.  She had, the cat we didn’t have, had seemed sad after the last one of them died out.
+
+And so the next few days I laid awake at night, staring up at the ceiling questioning what was happening, kept awake by the uncomfortable reality just as much as the noise.
+
+There came a day when I mentioned her visiting a therapist, alone or together, how it would be better for both of us, but she rebuffed the idea all together.  The same way she had over the crickets prior.  Why would she need a therapist if she hadn’t done anything wrong after all?
+
+I walked away from that conversation questioning if I was the one who needed therapy for doubting something that was so obviously necessary.
+
+Last night though they got a bit quieter, and I looked forward to the last of them dying out once again, except that night never came.  One night there was a solo cricket chirping alone in the room, and the next the room was full with an entire chorus.  She had bought more of them.
+
+Many more sleepless nights passed, I cried, I begged her to talk to a therapist, to stop with the crickets, but nothing changed.  
+
+I spoke to a therapist about her, hoping that there would be something else I could do, something they could do.  But their only advice was that if she wasn’t actively harming herself, I could either get her to open up or leave her, no doubt it was odd, she was clearly going through something.  But they couldn’t do anything on their end without her cooperation.
+
+And so, over time I got used to the crickets, she still refused to acknowledge them, as they spread around the home, getting into the vents, their chirps distorting into deeper echoes through the night.
+
+I got used to checking there were none in my cereal each morning.  Every time I sat on the couch there was a flurry of movement as crickets jumped out of my way.  And as I got more used to the crickets, she began to talk more and more about her imaginary cat, I refused to indulge in her delusion, but every time I tried to broach the conversation that there was something very wrong with all of this, she sobbed at my words.
+
+The cat was so happy she would say, never actually saying where this cat was, just how much she loved all these crickets, all these friends, to play with.
+
+Every day I thought about leaving her, while I had gotten used to their presence, I was still horribly aware of how wrong this all was.  But I could feel deep down that if I left her she would get even worse, as if I was her last tether to reality.
+
+At some point through all this she had stopped going to work entirely, I had only found out about it when I happened to catch a concerned call from her supervisor.  She hadn’t been there in a few weeks and they wanted to make sure she was ok.
+
+Even stranger is that as this has gone on, I started to hear movement in the vents at first I was sure it was the echoes of the crickets that had gotten in there.  But overtime it became clear there was something larger in there, the thuds were too deep to be excused as resonating chirps.
+
+I told myself that rats had gotten in, probably eating the dead crickets that made their way into the vents only to starve.
+
+This all led up to last night.  I laid next to my wife in our bed, the room aa chorus of crickets, seemingly coming from every direction, I had no idea how many there were.  Despite my exhaustion, I could not sleep, their chorus had grown too large, this was too wrong.  But I kept my eyes closed nonetheless, hoping for a release from this strange torment.
+
+Im not sure how much time passed like this, maybe I even did find some sleep, but at some point late into the night, the crickets began to quiet.
+
+It was gradual at first, a few of them stopped at the opposite end of the room, a few more in the vents.  But rapidly the bulk of them quieted, ceasing their chirping despite it still being the middle of the night.
+
+At first I thought my prayers had been answered, that I would finally have a good night’s sleep.  As the room became incredibly still.
+
+But I could sense there was something just as wrong with this, they hadn’t all just died, and the room was still pitch black, and unease began to creep into the back of my mind.
+
+Far off in the vents bangs echoed periodically, broken up by long periods of silence.
+
+I laid there as still as I could on my back, my eyelids squeezed shut, telling myself it was just building settling, but each one was just a little louder than the last, a little closer.
+
+There was one noise particularly close, and then nothing, complete silence once again.
+
+I couldn’t tell how much time passed like this, my heart pumping in my my chest, listening as much as I could for the slighted bit of noise.
+
+And as I laid there in silence, completely unmoving, breathing as softly as I could, I felt something small lightly step onto my chest.  First one foot, then another, then another, then another.
+
+I was completely frozen, it didn’t weigh more than ten pounds but whatever it was, it was not a cat.  I did not dare open my eyes.
+
+Its proportions, its weight, the way it breathed, none of it added up, I had no idea what had crept up onto my chest, but it was not a cat.  And I could feel its eyes burning through my skull.
+
+It sat there completely still, and the weight began to feel heavier on my chest, I still breathed as light as I could.  As if I was hoping this thing was unaware of me somehow.
+
+I felt its weight shift a little, it seemed to lift each of its feet and when it stepped back down there were sharp pains where it stood.  Seeming to flex its claws into me at will, as if it wanted to make squirm, to leave its mark.  I gritted my teeth through the pain, still controlling my breathing as much as I could.
+
+It returned to the sitting position, somehow feeling heavier now, its body pressed against mine, its feet now painfully dug into my chest and stomach.
+
+“Can you hear her purring?  She finally likes you.”  My wife mumbled sleepily.
+
+But there was no noise, no sound at all, except my own breathing.
+
+I can’t say how much time passed like this, but eventually it stepped off my chest, not making any sound as it did so.
+
+I did not sleep the rest of the night.  I’m not sure what else I can do but leave.  I feel horrible leaving her with that thing, with all that crickets, but I took the day off from work and have been packing my stuff.
+
+My wife is here too but she hasn’t said anything, she’s just kind of sat around looking at me sadly.  But I can’t spend another night with the crickets, can’t spend it with that thing.
+
+I’m just hopeful someone on here will have some advice for me, something I can still do for her.  I should’ve tried harder, I know, before this all became normal, but somehow I don’t think it would have made a difference.
+
+As I sit here, writing this on my phone, packing away what I can, I swear I can hear meowing coming from the vents, far off in the distance.  And for some reason, I caught myself checking for pet supply stores along the route to my hotel.

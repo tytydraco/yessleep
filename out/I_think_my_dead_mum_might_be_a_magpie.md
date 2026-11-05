@@ -48,6 +48,6 @@ There are two magpies I keep running into up there, and they're always together.
 
 They look so happy. Daft, loved-up, over-the-moon happy, the sort you couldn't fake even if you were a bird.
 
-And know you're all gonna say a magpie is just a magpie.
+And I know you're all gonna say a magpie is just a magpie.
 
 But I salute them every time.
