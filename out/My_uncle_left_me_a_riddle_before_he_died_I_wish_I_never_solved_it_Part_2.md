@@ -132,4 +132,4 @@ I walked down the hall. I didn’t want to pass the window, but I did. Seventy y
 
 “Why did you do it, Tyler?” I asked no one.
 
-No one answered. But somewhere behind me, soft and dry, something rattled and cooed.
+No one answered. But somewhere behind me, soft and dry, something rattled and [cooed](http://www.reddit.com/r/DeepInTheMarrow).

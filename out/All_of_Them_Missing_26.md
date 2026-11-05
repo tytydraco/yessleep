@@ -1,0 +1,58 @@
+I really couldn’t tell you. Can't explain what had actually happened to that campsite. It was so wrong in every single definable way, every aspect askew. Nobody would believe me.
+
+It was the October of 2018. A Boy Scout trip that I had tagged along with. My brother had been a member for a while, and every fall there was an annual Friday to Sunday camping trip at a not too far campsite.
+
+I feel like there comes a time when everyone has to reckon with the fact there Are things that we shouldn’t see, that deserve to stay within the confines of a story. When you confront the impossible, that incredibly important becomes Crystal Clear. You Don’t Want To Know. It’s for the best.
+
+I didn’t get a choice in the matter. I fear that I came face to face with The Beast.
+
+It was the second evening of the trip. The weather had been promising so far, and the temperatures had been on the slightly cooler side. We had done the Friday hike without issue, and were gearing up for the evenings campfire tradition that was code for “we can eat everything we normally can’t, and none of the parents would attempt to stop us.”
+
+Our campsite was a bit isolated, and it would’ve taken some time to reach the main road. The only other campsite was within walking distance, and we had been eyeing it since it wasn’t in use at the time. We assumed that no one had used it in a while, and that it would be fine to play in the site as long as we didn't disturb the set up.
+
+The sun had ducked under the horizon 20-25 minutes prior. It was at that brief moment in twilight where everything felt slightly hazy, the world glowing in deep shades of evening blues. That was usually the time when us kids began to roam around and let off steam from the constraints of the structured activity.
+
+My brother is two years younger than me but wasn't scared by much. He could do haunted houses and blow through horror movies like a pro. My many routine attempts to spook him got me nowhere, so I didn't think daring him to check out the campsite with me would be a big deal. I tried every angle, asked in every way I could think of. He relented, and we headed over.
+
+Something was wrong. The moment we stepped onto the site, a sickly unease spread through me. The air hung in clumped pockets of thick static. I turned to my brother, who was equally as disarmed. We shined our flashlights across the site, hoping to get a glimpse of what was causing the sensation. Our flashlights, which had been normal before entering the premises, strangely only seemed to illuminate the interior of the sites space. It was almost as if a wall was dividing us and our campsite.
+
+As we looked around, Everything about the campsite seemed normal. The fireplace was upright, the ground clear of debris. We were about to head back when my brother spotted the shattered bulletin board, papers littered on the ground. Among the miscellaneous brochures and awareness items was a site occupancy log. I flipped through it, starting all the way at the beginning.
+
+The first page dated back to August of 2007, with little notes written on the side penned by camp group leaders and Scout leaders. I flipped through it, scanning the lines for info. I got to the last page, which was from September of 2016. One of the notes columns at the bottom of the page had a note that said: "Jim Cherny, if you see This, Check the back please. --->"
+
+I slowly turned to the back.
+
+In it was a note, six bullet points long.
+
+1. Don't be afraid of The Beast. He likes it when you are.
+2. If you're reading this note right now, he's already smelled you.
+3. That energy field, it's a sign that you've entered His domain
+4. All of them missing, 26.
+5. Wait till tomorrow.
+6. Mouth so Wide, Teeth like Knives
+
+A branch snapped. A thick loud crack jolted through my nerve fibers. Something huge and fast was moving through the forest towards us. I grabbed my brothers hand and bolted without looking back.
+
+That night, I dreamed I was back at the campsite. This time, I was alone... or so I thought. The air was heavy with that familiar staticky sick. There was no other campsite for miles, instead an endless forest of sickly decayed trees swaying in the evening breeze.
+
+I heard a voice hiding behind a tree at the edge of the clearing. It was deep, gooey and squeaky. At first it mumbled strange incoherent strands of gibberish. I walked toward it, my body urging me to stop and turn away. But I couldn't. I need to know what was making that noise.
+
+Just as I had reached the sound, it stopped. I looked around the tree, confused.
+
+  
+I felt a tap tap tap on my shoulder.
+
+  
+There he was.
+
+Huge wet eyes stared down at me curiously, examining my fear like a predator eyeing prey. Teeth like piano keys perfectly lined up, decorated by a fleshy hungry grin that dripped with strands of inky saliva. It was one of those faces that said so much yet remained impossible to read. He slowly, as if his pit of mouth was fading in and out of existence, said the words: Ate Them. Stripped the Flesh off the Bone and Buried them Deep. 26, all of them Missing.
+
+Then, he opened his mouth wide and lunged.
+
+I woke up.
+
+The morning after we went back to the campsite, and it was completely destroyed. The fire pit was completely dented and at the edge of the campsite. Camp gear which had not been there before was littered across the ground. Everything was askew except the bulletin board.
+
+To this day I have no idea what we actually witnessed or what had happened to that campsite. What that terrifying nightmare meant. All I know that we escaped something incomprehensibly terrifying, and are lucky to have gotten out alive at all.
+
+But that horrible grin, and those inky black soulless eyes..... How could I forget?

@@ -1,0 +1,23 @@
+Well, my name is Eric, and I've been a mobile mechanic for a few years now. I live in a rural, agricultural area in my state. Since most of my customers are in the city, I make the trip several times a week. I've been following this routine for many years, and I've seen just about everything along the way. The more wooded parts have a rarely used road, so it's a perfect spot for anyone who wants to do something without being seen.
+
+Couples getting intimate, highway robbers, people asking for rides, out-of-control animals, wildfires, injured or lost people. All of that is part of my daily routine.
+
+I've had some pretty nasty scares, like the time my tire went flat and I had to walk back from a gas station. On the way, a wild boar chased me. That damn pig nearly made me fall into a creek. I've never craved bacon as much as I did that day.
+
+Other than that, everything had always been pretty ordinary. I kept an old pistol in the trunk, and that was enough for my own protection.
+
+But last Friday, something kind of strange happened. There was a really heavy rainstorm. A few years ago, getting rain like that at this time of year would've been unusual, but lately, you never know when a freaking downpour is coming. The storm caught me halfway through my trip. I was far from home and far from the gas station, right in the middle of nowhere. I parked my car as far inside the woods as I could. Feeling everything shake in the wind is the kind of thing that scares you, no matter how many times you've been through it.
+
+That day, the storm was so strong that a hailstone broke my side mirror. I stayed there waiting for it to pass, until I even prayed (something I hadn't done in years) to try and calm myself down. I must've spent about two hours on that road. When it finally stopped, I even got out of the car to check out the hailstones. Some of them were the size of golf balls. I took a picture and decided to pick one up, but before I could get back to my truck, I saw that shit.
+
+Believe me, seriously, I don't give a damn about ghosts or any of that stuff. I'm actually pretty skeptical. But when I saw that thing, I genuinely felt a chill down my spine like I hadn't felt in years. It's kind of funny to think about it now. It seems less terrifying than it actually was. The forest was covered in the aftermath of the storm, mud was everywhere, and the mess continued further into the woods. Beyond a small tree that had been bent over and was about to fall, I saw something, hunched over and searching for something on the ground.
+
+At first, I thought it was a deer, but there aren't many around the area where I live. Then it stood up, and I saw its face. It was a guy, covered in mud, and when he stood up straight, I realized he was naked. Well, someone getting lost after a storm wasn't unusual around here, and there are plenty of perverts on that damn road. But that guy just kept staring at me. After a while, which I honestly can't say how long, I yelled at him and asked if he was okay. He didn't answer.
+
+He just stood there, so I decided to head back to my truck. When I moved, he moved. I took a step back, and he took one forward. I stopped. That shit genuinely scared me. I slowly started backing away, and he slowly took steps along with me. I was way too nervous for a naked pervert in the woods. I'd encountered plenty of them before, so the chill this particular one gave me was surprising. And now, looking back, it seems almost unreasonable. I thought about the pistol in my trunk, but I was too far away, so I just turned around and ran. I locked myself in the car, and when I turned around, I saw him a few yards away from it. Close enough for me to see him slowly open a calm smile, and then, in a bizarre way, he started walking backward. He didn't turn around. He was literally walking backward. Moving just like when you rewind a tape, and when he reached the spot where he'd been before the storm, he turned sideways and ran off, silently.
+
+I don't know how long I stayed there, sitting in the car. I jumped into the driver's seat, grabbed the pistol, and hit the gas. The damn car skidded, and I nearly had a heart attack.
+
+I'm home now. I haven't had any work because of the storm, and my house had a hole in the roof, so I've been busy. But tomorrow I have to go back to the city, and I keep thinking about stopping by that place again. I told my friend about it, and he said it could just be some crazy guy, since there are so many around here, but I can't get that thing out of my head.
+
+I don't know if I'm being stupid for getting scared over this. Has anyone here ever had an experience like this?
