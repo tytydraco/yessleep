@@ -142,3 +142,5 @@ If I do nothing, however, I'm already dead.
 I’m only writing these words out because, whatever happened to the girl who came out of my womb, may she rest in peace, I want the world to know that I had another daughter.
 
 She was human.
+
+Edit: thought you'd seen the [last of me](https://www.reddit.com/r/nosleep/comments/1xowg8x/final_update_my_daughter_was_missing_for_9_days/)?
