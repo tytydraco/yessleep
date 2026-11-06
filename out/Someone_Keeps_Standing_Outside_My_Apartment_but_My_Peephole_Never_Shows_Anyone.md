@@ -1,0 +1,287 @@
+I live on the third floor of an old apartment building.
+
+The hallway outside my unit is narrow, with four apartments facing each other. My front door is slightly recessed into the wall, leaving a small space beside it where someone could stand without being visible through the peephole.
+
+I'd never noticed that space before.
+
+Not until the hallway light started turning on every night.
+
+It's motion-activated. Whenever someone walks through the corridor, it switches on for about thirty seconds.
+
+The first time I noticed it was around 2 AM.
+
+I woke up because light was coming through the gap underneath my bedroom door.
+
+I checked my phone, listened for footsteps, and went back to sleep.
+
+The next night, it happened again.
+
+2:13 AM.
+
+The light came on.
+
+No footsteps. No elevator. No doors opening.
+
+Just the light.
+
+I checked through my peephole.
+
+Nobody was there.
+
+I waited for the light to switch off before returning to bed.
+
+It happened again the following night.
+
+And the night after that.
+
+By the fifth night, I was starting to get annoyed.
+
+I decided to record it.
+
+I propped my phone against a glass on the kitchen counter, pointing toward the entrance, and went to bed.
+
+At 2:17 AM, I woke up to a faint scraping sound.
+
+It sounded like fabric brushing against the front door.
+
+I got out of bed and walked into the living room.
+
+The hallway light was on.
+
+I checked the peephole.
+
+Empty.
+
+I picked up my phone and watched the recording.
+
+At first, there was nothing unusual.
+
+Then I noticed a shadow.
+
+It appeared at the bottom-right corner of the door.
+
+It stayed there for almost twenty seconds before disappearing.
+
+I replayed it.
+
+The shadow wasn't moving across the hallway.
+
+It was staying in one place.
+
+Someone was standing directly beside my door.
+
+I immediately checked the peephole again.
+
+Still nobody.
+
+I felt stupid standing there, staring at an empty hallway, but I couldn't shake the feeling that someone was just inches away from the other side of the wall.
+
+The next morning, I called the building receptionist.
+
+She told me nobody had reported anything unusual.
+
+I didn't mention the shadow. I just asked whether the hallway cameras covered my apartment entrance.
+
+She said they pointed toward the elevator and stairs.
+
+That night, I pushed a chair against my front door.
+
+I know it wouldn't have stopped someone determined to get inside, but I felt better having something there.
+
+At 2:09 AM, the hallway light switched on.
+
+I was already awake.
+
+I sat on my bed with my phone in my hand.
+
+Then I heard a scrape.
+
+Right outside my apartment.
+
+I opened the camera app and started recording.
+
+A few seconds later, something tapped my door.
+
+Once.
+
+I froze.
+
+Another tap.
+
+Then another.
+
+I slowly approached the entrance.
+
+I looked through the peephole.
+
+Empty hallway.
+
+I was beginning to convince myself that I was imagining things.
+
+Maybe it was a neighbor. Maybe the building was making noises.
+
+I reached for the deadbolt.
+
+Then I heard breathing.
+
+It was so close that I instinctively stepped backward.
+
+I couldn't see anyone.
+
+I couldn't even tell exactly where the sound was coming from.
+
+Then a man's voice whispered:
+
+"Hello?"
+
+I didn't answer.
+
+There was a short pause.
+
+"Sorry."
+
+I stood completely still.
+
+Then he said something that made my stomach drop.
+
+"I thought you were asleep."
+
+I ran into my bedroom and locked the door.
+
+I called security.
+
+They arrived about ten minutes later and searched the hallway.
+
+Nobody was there.
+
+I showed one of the guards my recording.
+
+He watched it twice before asking me where I'd heard the voice.
+
+I pointed toward the right side of my entrance.
+
+He walked over and stood beside my door.
+
+Then he leaned against the wall.
+
+His entire body disappeared from my peephole.
+
+I could only see the empty corridor.
+
+He stepped out again.
+
+I looked at him.
+
+He looked uncomfortable.
+
+"Someone could stand here," he said.
+
+I asked if the cameras covered that spot.
+
+He shook his head.
+
+"No. There's a blind area."
+
+I didn't sleep in that apartment again.
+
+The following afternoon, I packed some clothes and stayed with my cousin.
+
+I contacted the landlord and requested that the locks be changed.
+
+He agreed and sent a locksmith.
+
+While inspecting the door, the locksmith asked me something.
+
+"Do you know who else has a key to this unit?"
+
+"Just the landlord, I think."
+
+He looked at me.
+
+"There's a master key for the building. It works on this lock."
+
+I immediately called the landlord.
+
+He told me the master key was kept for emergencies and that nobody had entered my apartment recently.
+
+I asked him to check the access records.
+
+He called me back later that evening.
+
+The master key had been used three times during the previous month.
+
+All three times were between 2 AM and 2:30 AM.
+
+He couldn't tell me who had used it.
+
+I told him I wanted to move out immediately.
+
+He agreed to return my deposit.
+
+A few days later, I returned with my cousin to collect the rest of my belongings.
+
+Everything looked normal.
+
+My furniture was still there. My clothes were untouched. Nothing appeared to be missing.
+
+I was packing the last of my things when my cousin called me from the bedroom.
+
+"Hey. Is this yours?"
+
+He was holding a photograph.
+
+**It was a picture of me sleeping in my bed.**
+
+I recognized the blanket. I recognized the pillow.
+
+But what made my stomach turn was the angle.
+
+The photograph had been taken from the doorway.
+
+Someone had been standing inside my bedroom.
+
+I checked the date printed on the back.
+
+It was from the previous Thursday.
+
+The same night I heard the voice.
+
+I immediately called the landlord and demanded an explanation.
+
+He told me he'd look into it.
+
+I left the apartment that afternoon.
+
+I haven't returned since.
+
+Yesterday, I received a message from the person who moved into my old unit.
+
+He said he was having trouble with the hallway light and wanted to ask whether I'd experienced anything similar.
+
+I told him about the motion sensor.
+
+Then he sent me a photograph.
+
+It showed my old apartment door.
+
+The hallway light was on.
+
+And someone was standing in the narrow space beside the entrance.
+
+I could only see part of his shoulder and one hand resting against the wall.
+
+The new tenant wrote:
+
+"I checked through the peephole before taking this. Nobody was there."
+
+I zoomed in on the photograph.
+
+The man's hand was holding something.
+
+A printed photograph.
+
+It was the picture of me sleeping in my bedroom.
+
+And on its back, in handwriting I didn't recognize, were four words:
+
+**"He still sleeps here."**

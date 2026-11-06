@@ -1,0 +1,271 @@
+It was the end of summer 2016, and I was hauling a shipment from Los Angeles to Roswell, New Mexico. My uncle Benny lived in a small, run-down town along the route, so I arranged to stop there for two nights.
+
+I pulled into the empty truck-stop lot around six-thirty, just before sunset. Benny worked there, though I didn’t see him inside. He was waiting beside his pickup parked alone in the lot.
+
+He’d converted a portable building on his property into a home and set up a room for me: a full-sized bed, a nightstand, and an old lamp with a crooked shade. The walls were dark-stained wood, the floor smooth vinyl. It smelled faintly of dust and cheap fragrance. There was no bathroom, but a gas station nearby let us use theirs.
+
+Benny told me he’d bought the lamp for a few dollars at a pawn shop the last time he’d gone into the city.
+
+We ate at a diner about five miles away. The conversation never quite got going. We talked about work, the weather, the kind of things you say when you’re trying to make a visit feel less awkward. I thanked him for the meal and offered to pay, but Benny insisted he had it.
+
+The diner felt strange. It was old-fashioned and run-down, and nobody seemed happy to be there. The waitress, the busboys, even the other customers all wore the same blank expression, staring at their plates and murmuring to one another.
+
+On the drive back, Benny mumbled along to some old rockabilly song playing on the radio and cracked jokes about the diner with me. We got along better in the truck than we had at dinner.
+
+“Place felt dead,” he said.
+
+“It’s a diner.”
+
+“I mean dead dead.” He laughed. “People here get superstitious around this time of year. Something about fog rolling in before fall.”
+
+“You’re making that up.”
+
+“Swear to God. Weirdest thing ever.”
+
+By then we were just about turning into his block.
+
+We got back around ten-thirty. Crickets chirped in the dark, and a warm summer breeze stirred the dust along the road. Benny sat in his recliner while we watched television for half an hour. I was exhausted from driving all day, so I went to bed.
+
+The moment my head hit the pillow, I sat upright again.
+
+I don’t know why. I wasn’t dreaming, at least I didn't think so. I just felt suddenly awake, and the room didn’t seem as cozy as it had earlier. The shadows looked deeper. The lamp’s crooked shade made the walls seem to lean.
+
+I went into the living room. Benny’s recliner was empty.
+
+I stepped onto the porch and looked around. It was nearly one in the morning. The crickets had gone quiet. The breeze was still there, but it had turned cold—sharp enough to make my shoulders tense.
+
+Then fog began to gather along the road.
+
+Across the street, a house stood on a slight rise. Its lights came on, and the curtains opened. I could make out two or three people moving behind the windows, all looking toward me.
+
+An old man came outside and leaned over a waist-high fence.
+
+“What the hell are you doing out this late?” he called.
+
+“Sorry. I just came out for some air.” I raised my voice so he could hear. “You know where my uncle went?”
+
+“You ain't from here, are ya?”
+
+“No.”
+
+“You can’t be out here past midnight. It ain't safe.”
+
+I waited, trying to tell if he was joking.
+
+“What do you mean?”
+
+The old man sighed. “When the fog comes in, everyone’s s'posed to stay inside!”
+
+He turned and went into his house. I heard the door shut, then the locks click into place. A few moments later, the lights went out.
+
+I sat back down on the white plastic chair.
+
+“Making friends already?”
+
+Benny’s voice came from beside the portable. I jumped, then laughed to cover it.
+
+“You scared the shit out of me, Ben!”
+
+“My bad son. Just checking up on my nephew.”
+
+He sounded like himself again, but something in his tone had changed.
+
+“You should go back to bed,” he said. “It’s getting late.”
+
+“Where were you? I came out and you weren’t in the recliner.”
+
+“Working in the back.”
+
+“At one in the morning?”
+
+Benny paused. Then he smiled.
+
+“Head to bed, kiddo. We’ve got a big day tomorrow.”
+
+He’d called me “son” and "kiddo" earlier. I was twenty-eight, but maybe when you're fifty-four, twenty-eight just doesn't feel like an adult. I told myself that was all it was.
+
+I went back to my room and closed the door. As I lay down and closed my eyes, a woman’s voice whispered in my ear.
+
+“Leave this place.”
+
+I sprang up.
+
+A small woman stood beside the bed. She had skin so dark it seemed to swallow the room’s shadows, tangled white hair, and a faded, yellow-grey dress beneath a layer of ragged cloth. Her eyes were a faint, watery blue.
+
+I reached for the lamp.
+
+When it came on, she was gone, just as quick as she appeared.
+
+Benny hurried into the room, bleary-eyed and half-dressed.
+
+“What happened?” he mumbled groggy and half awake
+
+“Nothing. Sorry, I must’ve had a nightmare.”
+
+He looked at me for a moment, as if deciding whether to believe me.
+
+“Okay,” he said. “See ya in the morning, Lance.”
+
+I checked my phone. It was 3:26.
+
+When I left the portable around seven-thirty, the old man across the street was getting his mail. I caught myself staring at him. He looked up, met my eyes, and hurried back into his house.
+
+At breakfast, Benny made eggs, bacon, and pancakes—the works. He set a plate in front of me.
+
+“How’d you sleep?” I asked.
+
+“Fine, until you woke me up with that nightmare.” He chuckled and sat across from me. “What about you?”
+
+“Not too bad. I had a weird dream about the neighbor.”
+
+“What neighbor?”
+
+“The old guy across the street. I talked to him last night.”
+
+Benny cut into his pancakes. “You didn’t talk to him.”
+
+“I did. He came outside.”
+
+“Lance, that man’s a recluse. I’ve barely spoken to him in the ten years I’ve lived here. He hardly ever comes outside, let alone at night.”
+
+I thought of the lights in the house, the open curtains, and the locks clicking shut.
+
+“Maybe I was dreaming.”
+
+“Maybe.” he said sarcastically.
+
+Benny wiped his mouth with a napkin. “His daughter works at the library. She’s about your age. You might get along.”
+
+“I’m not looking to meet anyone.”
+
+“I didn’t say you were.” He stood and put on his coat. “It’s a small town. Hardly anybody visits the library. She’ll appreciate the company.”
+
+I had the day free before I needed to continue east, so I decided to go.
+
+The town was bigger than I’d expected. It was mostly trailers and converted shipping containers, with a few small houses scattered between them. But even then, there couldn’t have been more than a couple hundred people.
+
+The library had lights on, though there were no cars in the lot. A young woman sat alone at the front desk. She wore jeans and a faded blue flannel, and her long, dark-blond hair was tied back.
+
+She stood when I came in.
+
+“Oh—hi. Sorry, we don’t get many visitors.”
+
+“Hey there. I’m staying with my uncle for a couple of days. Benny.”
+
+“You're Benedict's nephew? Everyone knows Benny.” She smiled. “Well, everyone except my dad. He only knows him 'cause Benny fixed his car last year. I’m Candice.”
+
+“Lance. Nice to meet you.”
+
+I asked if the library had a computer. She led me to one in the back, and I searched for the town.
+
+There was hardly anything other than Google Maps and on-route gas stations. One blog post came up, the only entry on the site. It said the town had begun as a small mining camp in the late thirties. The mine had closed after a few years, leaving a handful of workers stranded when their vehicles stopped working. Some stayed, the post claimed. A number of them died during a winter of hunger and sickness.
+
+The article blamed the deaths on a curse tied to something the miners had uncovered underground. It called the story a local legend, though it didn’t name a source. The last paragraph described an old sickness that had supposedly spread through the camp. The explanation was vague and full of typos and errors.
+
+I read the page twice, then a third time.
+
+“Did you know about this?” I asked.
+
+Candice leaned over my shoulder. Her smile disappeared as she read.
+
+“No. I’ve never seen this page before.”
+
+She scrolled down, looking for a date or a name. There was nothing but the article and a broken link to an archive.
+
+Behind us, the library door creaked open.
+
+Benny stood in the entrance, still wearing his work coat. He looked from me to the computer screen.
+
+“Find anything interesting?”
+
+Candice closed the page.
+
+“Just an old story,” I said.
+
+“Good,” Benny said. “Stories can keep you in a place longer than you mean to stay.”
+
+He stepped outside without waiting for us.
+
+Candice looked at me. “That was weird.”
+
+“Yeah.”
+
+She took me to a cabinet of old town records. We found a stack of newsletters, a few boxes of photographs, and a ledger with several pages torn out. One photograph showed the old mining camp: a row of low buildings, a slope of barren earth, and men lined up in front of a rough wooden sign.
+
+Near the edge of the picture stood a woman in a pale dress.
+
+Her face was turned away, but her white hair showed clearly against the dark hillside.
+
+Candice held the photo closer to the light.
+
+“Could be a trick of the damage,” she said.
+
+Maybe it was. The picture was scratched and faded. Still, I couldn’t stop looking at the woman’s shape.
+
+Another photo showed a man in a miner’s clothes. Dust and soot covered his face, and one arm was raised, pointing beyond the photographer. He looked older than the others, though not by much. Someone had written a year on the back, but the ink had smeared. I couldn’t make out the last two digits.
+
+I took a picture of both with my phone.
+
+Candice and I spent the afternoon talking. She told me she’d moved to town to live with her stepmother and father. She missed the city, but her stepmother had gotten sick, and Candice didn’t want to leave her alone. She also said she used to think she’d get out once she had enough money. Lately, she wasn’t sure where she’d go.
+
+I told her about the deliveries I made and the places I’d seen from behind a windshield. For the first time since arriving, the town didn’t feel entirely empty.
+
+That night, Benny didn’t mention the library. He sat in his recliner and watched television with the volume low.
+
+I packed my things before dinner.
+
+He didn’t try to stop me. He didn’t ask why. He only looked up at me once, then returned his eyes to the screen.
+
+At eleven, I carried my bag out to the semi. Candice had walked with me as far as the truck stop. She stood with her hands in her coat pockets, the fog beginning to collect in the ditches behind her.
+
+“You’re really leaving?” she asked.
+
+“I have a delivery to make.” I replied without looking back.
+
+I looked at the road. I thought about asking her to come with me. Then I thought about her sick stepmother, her life here, and the fact that I’d known her for less than a day.
+
+“I’m sorry,” I said.
+
+She nodded, not quite looking at me. “Drive safe Lance.”
+
+Benny stood on the porch behind us.
+
+“Best wait until morning,” he called.
+
+“I can’t. I have to keep moving.”
+
+He nodded as if he’d expected that answer.
+
+“Then take the highway,” he said. “Don’t stop for anyone.”
+
+I climbed into the cab, locked the doors, and started the engine. The fog had thickened across the road. I could still see Candice and Benny behind me, though they looked farther away than they should have.
+
+I drove.
+
+Within a mile, my phone lost its signal. I pulled onto the shoulder, intending to check the route on my map. The road behind me was already gone beneath the fog.
+
+A man stood in the lane ahead. He wore a miner’s clothes and a broken headlamp, his face grey with dust and soot. He raised one hand and pointed back toward town.
+
+Then someone knocked softly on the passenger window.
+
+I turned.
+
+The woman from the photograph sat in the passenger seat.
+
+Her hair was tangled and white. Her eyes were pale blue. I should have been afraid of her, but I wasn’t. She looked tired.
+
+“Not that way,” she whispered.
+
+I looked in the side mirror. There was no road behind me, only fog.
+
+Behind me, I could still feel the looming presence of the small town full of RVs and makeshift homes, covering the ruins of a dark, dark past. What was once a mining town still withering away, hidden below a billowing blanket of thick fog. For a moment, I thought I heard Benny humming that rockabilly song. The voice seemed to come from somewhere behind the fog, further than I should've been able to hear it.
+
+I put the truck in reverse. The woman smiled as if she was relieved, then vanished.
+
+I backed up slowly, then turned around. The road reappeared in front of me, a light strip of asphalt leading toward the highway. I drove without stopping. When the sky began to lighten, I was already out of the desert.
+
+Years later, I tried to find Benny’s town on a map. I found the truck stop, the highway, and the stretch of desert where I remembered the turnoff.
+
+There was no town there.
+
+Sometimes, when the fog rolls in, I hear my uncle’s voice somewhere behind me, humming that same old rockabilly song.

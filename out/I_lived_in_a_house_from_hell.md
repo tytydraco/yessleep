@@ -1,0 +1,259 @@
+In my early adult years, I moved into a home on a suburban block.
+
+
+
+I felt a little uneasy to move into a new place. Being by myself the first time was daunting. But I was able to ease in enough.
+
+
+
+I watched TV throughout the day. After a week in, while in the living room. Over the sound of the TV, I heard the sound of glass “pop”.
+
+
+
+I jumped up and turned. I walked over and found shattered glass. The kitchen light bulb popped.
+
+
+
+I knew the house was checked. My dad looked all throughout. Yet, found nothing. Nothing to suggest a sudden pulse break a glass. I thought maybe something hit it. But that would be impossible. Unless...
+
+
+
+Something hit it.
+
+
+
+I scoffed at the idea but I then gave it some thought. Fear took hold of me and I needed to investigate. I tip-toed through the kitchen. I looked around the whole home, nothing.
+
+
+
+I was relieved and just wanted to forget about it. After all the glass breaking made me more annoyed than anything. Yet, every so often I would still remember when a bulb shattered for no reason..
+
+
+
+I was asleep at night when something woke me. I felt a chill. I woke up, usually cold is better for sleep. But it was so sudden it was like someone slapped me. I sat up and checked my phone. (It’s a bad habit of mine.)
+
+
+
+It was dead.
+
+
+
+But, I had charged it before. I knew I did!
+
+
+
+I ignored this upon feeling a rush of heat. It passed through the room, I felt it move. Then it was coming in one direction. I turned and saw something.
+
+
+
+There, in the corner of my room. A figure, it was a shimmering shape. Like looking over a fire. Then, I felt the current move up. My eyes followed the figure as it rose up. . .
+
+
+
+It vanished into the ceiling along with the heat. I knew that was basically nothing, it was just a weird experience. At least, that is what I told myself. But I could not deny how cold I now was.
+
+
+
+The room was freezing, like it had all of its heat zapped.
+
+
+
+It made me remember the light bulb. Though I did not want to. Something like that is impossible to move that way. Yet it did and could have done it twice. Once in the kitchen, another in my bedroom.
+
+
+
+But, is this an energy anomaly of some kind? After all I was scared of what that could entail. But I tried to go back to sleep. Shortly then, I fell asleep.
+
+
+
+I woke up to the sound of something buzzing. It was my keys on the nightstand. I was so tired I ignored it. But I still remember this somehow.
+
+
+
+The next morning I was in the washing room. As I got the clothes out of the dryer, and turned on the washing machine. I heard rumbling coming from the garage.
+
+
+
+I brushed it off and did the laundry.
+
+
+
+When I came back to the den, the washing machine was off.
+
+
+
+But I had just started it. The rumbling sound was gone. But I sensed something. It felt like when you dip into water. I felt something was around me as I stood there, in the den.
+
+
+
+Then, I heard something again. The light in the kitchen, it was coming from that same light. I panicked that it would break again like last time. It started to flash, but then it was at a steady rhythm.
+
+
+
+It beat like a heart...
+
+
+
+By some instinct I got prepared. Not sure what for, I just waited.
+
+
+
+It then started to beat in a specific way, over and over. It was like I could count it. Then I remembered I heard this before.
+
+
+
+Back in school I taught myself Morse code to curse around my dad.
+
+
+
+It was such a random memory, but it was right. It did sound like a word I learned in Morse code.
+
+
+
+I managed to decipher it, but more from memory. I could not have expected it to form anything coherent. But to my amazement, and horror.
+
+
+
+It did.
+
+
+
+It was just one, word.
+
+
+
+LEAVE
+
+
+
+I felt paranoid after that. Around the house watching TV, I felt like I was being watched. When walking, I would feel a sense that there was something around the corner.
+
+
+
+One day it was storming outside. I was there in the living room. Trying to just relax in the day. I was not sleeping that well by that point. But with the rain, somehow I managed to feel a little relaxed.
+
+
+
+However, I started to feel tired.
+
+
+
+Given I had not been sleeping well. I managed to doze off.
+
+
+
+When I woke up, first thing I noticed was somehow I managed sleep. But then I was wide awake when there was one missing detail.
+
+
+
+The TV was off.
+
+
+
+It was on when I fell asleep. My heart sank. But for some bizarre reason, I felt like the feeling left me. That feeling of me being watched. It was like I could finally go to sleep.
+
+
+
+That realization, made me tired. Because I could finally sneak in some good rest. After all, it was just late in the morning. I got off the couch and saw something.
+
+
+
+At the corner of my eye, a figure. It looked like a shadow. But also that “mirage” again I saw before. It was at the end of the hall.
+
+
+
+It vanished traveling up through the ceiling.
+
+
+
+My heart was pounding, I almost did not want to sleep anymore. But I pushed it down. What could it really do? It’s not a person or animal. It’s just a “mirage”. Worst thing it could do is raise my electric bill.
+
+
+
+I was sleeping like a baby then and there...
+
+
+
+I woke up, feeling heat. It moved across my body, like I was being touched. It felt that close. As I stirred, it quickly ran out the room. A heavy draft filled the room in an instant.
+
+
+
+I sat upright, then I heard something. In the attic, the sound of an old clock. Playing a particular melody I remember.
+
+
+
+It was the Westminster Chime.
+
+
+
+My hair was standing up...
+
+
+
+It was just in the middle of the day. Probably past 5 AM. That was early enough to still have sunlight. Considering it was spring at the time.
+
+
+
+I felt confident, unlike if it had been in the middle of the night. So I got out of bed.
+
+
+
+I walked through the hallway and into the kitchen. I somehow knew the path it went. It stopped just down the hall ahead.
+
+
+
+It was the same one where I saw that figure. That hall in specific has the door to the attic.
+
+
+
+I was shaking, noticing even my breath was showing. I walked down the hall, and reached for the door. I pulled down the ladder, and prepared to head up.
+
+
+
+I slowly went up each step. I was now in the attic.
+
+
+
+I noticed there were a few things left behind. But otherwise it was a surprisingly spacious dark attic. One of the things left behind was an old grandfather clock. I figured that is where that sound came from. But what could have made it come on?
+
+
+
+The attic was not all dark. Dreary daylight outside was cracking from a small window. It went past me and behind to the rest of the space.  
+  
+In the light’s direction, I felt a source of heat. It moved...
+
+
+
+There it was, in the darkness. I squinted my eyes towards it. There I saw a figure, but not just any;
+
+
+
+It was in the shape of a child.
+
+
+
+My heart started pounding, but I was still curious. What could something like this be? If it really was some anomaly I would not know what. All I could assume was it’s merely something odd, and I was the first to discover it.
+
+
+
+But, something dawned on me. The idea cracked through weeks of attempts at ignoring. Whatever the thought was I brushed off. As I felt something move, it was the heat. Strangely, I felt as if the attic was now empty. I looked and saw nothing in the room. I concluded the attic truly now empty.
+
+
+
+I prepared to go down the ladder. About to descend, I noticed the room was somehow darker.
+
+
+
+As I fixated in one particular spot in the void...
+
+
+
+I heard the sound of a child giggling.
+
+
+
+I was out of there not long.
+
+
+
+I never went in that house again.

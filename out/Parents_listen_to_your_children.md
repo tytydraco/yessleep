@@ -177,3 +177,23 @@ I didn’t know what to do. I didn’t bring my wallet, so there was no ID and n
 I asked him what he meant and how he knew that.
 
 He pointed at the dashboard. At the vent. It’s turned off. I’ve had it off since yesterday. It’s making a soft sound. It sounds like breathing.
+
+
+**UPDATE**
+
+Thank you all for your concerns. I've had a couple people in the comments worried about our situation and it helps to know im not alone in this. One gentleman had asked if I thought it was a phroger trying to live inside our house.
+I had to look up what they meant. I really wish this was just some man who was living in my house. Maybe some kind of sqauter. I don't know anymore. 
+
+I was in this parking lot probably looking a lot like a methhead trying to figure out how the man got into my A/C. I was scaring Eli when I was screaming at my car for the man to leave. Eli started crying again. It didn't mater that he was holding the blanket. My poor child started weeping at the sight of my insanity. I didn't know what else to do. Have I gone crazy? Has my son been hearing things and I'm just caught up in the hysterics. 
+
+This is what I thought until I received a return call from an Officer Torres. 
+
+Someone at the 7-Eleven called the cops on me. I know i probably looked pretty crazy, and to be honest I was halfway there. I explained my situations to the officers approaching me. They were all very nice and heard me out. I explained that I had been wainting for a call about a possible home intruder and around that time Officer Torres rang my phone.
+
+"Hello?" I asked.
+
+Hello, Mr. [Redacted] l, this is Officer Torres from the [Redacted] Police department. We had several officers comb through your home. We didn't um... we didn't find anybody, but if you can... we'll, you're probably going to want to come back to your house. I'm not one for clichés and I'm just at a lost of words on what I'm fully looking at, but your going to want to see this with your own eyes."
+
+I thanked him and told him where I was and that it would be about a days travel. He said not to worry, just to call him when im in town.
+
+I called Stephanie next and asked her if she'd be able to watch Eli over the weekend. Money's never been a problem and I expressed that with my generous offer towards her. I scheduled an Uber. Now im just waiting for it. No way in Hell am I about to start my car back up. Even if I could peice it back together. God, I look like a methhead out here.

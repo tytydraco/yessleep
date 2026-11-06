@@ -124,9 +124,9 @@ I reached behind my back and grabbed at my waistband, only to find my weapon gon
 
 Disappointed, I tucked my chin into my chest and took a closer look at the hand that held me. In the light, its chalk-white skin gleamed. Its hand and the part of its forearm I could see were almost human.
 
-But its fingertips betrayed they weren’t. Instead of nails, oversized branchlets grew from its hand.
+But its fingertips betrayed they weren’t. Instead of nails, thick branchlets grew from its hand.
 
-In fact, its forearm was punctured all over, twigs growing from the holes as if from a bough.
+In fact, its forearm was punctured all over, twigs sprouted from the holes as if from a bough.
 
 It stood there, staring at me as I wiggled around, hoping to escape its grasp.
 
@@ -174,7 +174,7 @@ The ground shook under me as the world boomed:
 “My patience grows thin:  
 You’re no mother of my kin!  
 A pig likening their scat to a rose!  
-Wouldn't you justly oppose?”
+Wouldn't you too justly oppose?”
 
 An abyssal breeze, cold as death, swept through the antechamber. After it had passed through, the soothing voice was restored:
 
@@ -194,13 +194,13 @@ My word is steel.”
 
 A massive timber landed into the circle as the creature stepped into the light, its enigmatic evil suddenly transformed into dazzling elegance.
 
-Oberon was sculpted from marble—the magnum opus of a forgotten Greek artisan. Every muscle in its body was perfectly defined: its biceps rose in pronounced mounds; its abdomen was carefully moulded into eight distinct sections, with no navel to interrupt their symmetry; its rounded shoulders flowed seamlessly into its pectoral muscles; its powerful thighs flanked a generously proportioned organ.
+Oberon was sculpted from marble—the magnum opus of a forgotten Greek artisan. Every muscle in its body was perfectly defined: its biceps rose in pronounced mounds; its rounded shoulders flowed seamlessly into its pectoral muscles; its abdomen was carefully moulded into eight distinct sections, with no navel to interrupt their symmetry; its thick thighs flanked a generously proportioned organ.
 
 But all this power appeared effortless and elementary, as if its muscles were nothing more than the natural shape of its body.
 
 The same impossible perfection extended to its jaw: sharp enough to cut diamonds but softened by a subtle roundness suggestive of a gentle soul.
 
-Its more human features were a mockery of themselves. They were innately flawless, as if everything our bodies could achieve were insignificant by comparison. This truth was made clearer by the otherworldly features bursting out of its skin.
+Its humanoid features were a mockery of themselves. They were innately flawless, as if everything our bodies could achieve were insignificant by comparison. This truth was made clearer by the otherworldly features bursting out of its skin.
 
 Its horns were two massive, interwoven sets of dark branches growing out of its head, while smaller growths fashioned a pointed crown around its skull. From its scalp hung sparse strands of long red, orange, and green hair, mirroring the few leaves still clinging to its numerous ligneous appendages.
 

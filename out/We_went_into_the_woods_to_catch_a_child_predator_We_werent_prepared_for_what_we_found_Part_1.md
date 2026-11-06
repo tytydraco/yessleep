@@ -1,8 +1,10 @@
+[\[Part 2\]](https://www.reddit.com/r/AmoebaGold715/comments/1xpcbu8/we_went_into_the_woods_to_catch_a_child_predator/)
+
 I haven't spoken publicly about what happened to Harrison until now. The police have heard my account, although I don't think they believed much of it. There are also things that I've never been able to bring myself to tell his family.
 
 I don't know whether the account is still active. But if someone contacts your child online and invites them somewhere near Ketchum Woods, please don't dismiss it as a joke.
 
-There were three missing children’s posters pinned to a noticeboard outside the Ketchum Woods State Reserve. The oldest depicted a little boy in a yellow raincoat who'd apparently disappeared a year earlier. The other two were girls, aged six and nine; both went missing months apart. The younger girl had a bright red butterfly clip in her hair.
+Three missing-children posters were pinned to a noticeboard outside the Ketchum Woods State Reserve. The oldest depicted a little boy in a yellow raincoat who'd apparently disappeared a year earlier. The other two were girls, aged six and nine; both went missing months apart. The younger girl had a bright red butterfly clip in her hair.
 
 Harrison stood beside me, chewing gum. "Holy shit. Three kids from the same area?" He leaned closer to read the dates, then pointed at the photograph of the youngest girl. "Grace, get your camera out. We should get a shot of these before we head in. Actually, hang on, let me stand beside them. We can work it into the intro."
 
