@@ -54,13 +54,13 @@ I thought it was the wave pool. I'm going to say that once so you know I tried. 
 
 One bend was black. The next one wasn't.
 
-The tube turned clear. All of it, all the way around, the way a straw is clear. I was lying on my back in a glass pipe going slow across the top of a place, and I could see out in every direction, and I'm not going to be able to tell you what it was. I can tell you what it looked like.
+The tube turned clear. All of it, all the way around, the way a straw is clear. I was lying on my back in a glass pipe, moving slow, and the pipe ran just over the heads of a crowd, and I could see out in every direction.
 
-The light came from under the water. Red, with no lamp in it anywhere. The water went out to where a horizon would have been if there was one, and there were people standing in it, chest deep, packed in, out past the edge of what I could see, and every face was turned up. Nobody was moving. The sound was coming from them and none of their mouths were open. There were things moving between them, in the water, and I didn't let myself look at those long enough to describe. That was a decision.
+The light came up from under them. They were standing in water, chest deep, packed in, as far as I could see, and the water was lit red from below with no lamp in it anywhere, and every face was turned up. None of them were moving. The sound was coming from them and none of their mouths were open. There were things moving between them, in the water, and I didn't let myself look at those long enough to describe.
 
 The heat came through the glass. The water in the tube steamed off my chest.
 
-It stayed clear for a long time. The watch said three hours and I don't believe the watch. I was going slow. Slow enough that the ones underneath me turned their faces to follow as I went over, one after another, a long way down. I kept my eyes on the watch for most of it. I'm telling you that so you don't think I was brave.
+It stayed clear for a long time. The watch said three hours and I don't believe the watch. I was going slow enough that the ones under me turned their faces to follow as I went over, one after another, the whole way. I kept my eyes on the watch for most of it.
 
 One of them moved. One, directly under me. It lifted a hand out of the water and laid it flat on the underside of the glass, under my back, and kept pace. I felt the heat of it through the glass and the water. I didn't look. I looked at the watch. It stayed there, keeping up, for as long as the glass lasted.
 

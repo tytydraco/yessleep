@@ -1,0 +1,157 @@
+I have been trying to remember a man's name for almost three years, which is a poor beginning for a fellow who makes his living putting names to people. I can remember the man's hands, his wedding ring, and the narrow crescent of a scar above his right eyebrow. I know the color of his shirt and the number of children he claimed to have. For a while I could even remember how he took his coffee, although that detail has lately become less certain. His name, however… is gone.
+
+Ordinary forgetfulness would not trouble me. I am old enough to have lost the names of good neighbors, former employers, and one gentleman who loaned me two hundred dollars (I repaid him, though I doubt he remembers the transaction with much affection). The difficulty here is that I wrote this particular name down, three times, into three different notebooks (after seeing what happened to the man who bore it I did not trust doing it once) The handwriting before and after each entry remains mine, but where his name should be the paper is… clean.
+
+I have held those pages beneath my desk lamp multiple times and tilted them until the light trying to catch the paper’s grain just right. One page showed the faint pressure of a pen, but not a single recognizable letter. I tried a soft pencil over a sheet laid across it (a trick that once rescued a grocery list from the back of a damp envelope). All I raised was a short, crooked mark. It might have been part of a capital letter. It might have been the mark of a man whose hand shook while he wrote. In either case, nothing is legible… anymore.
+
+I do, however, still remember how frightened the man had been. That much I know without consulting anything.
+
+The trouble began at a parish records annex in southern Louisiana, housed in the sort of municipal building that had survived three attempts at modernization by refusing to cooperate with any of them. The roof admitted rain over the rear cabinets, the air conditioner rattled like a man running with a bag of cutlery, and a wooden ruler kept the front window from sliding shut (none of that interfered with the work). 
+
+The woman who ran the place knew where everything was, and I have seldom encountered a better filing system than one maintained by a person who insists she has no system at all.
+
+Her name was Gwen. She wore her glasses on a chain and called everybody cher unless they had given her a compelling reason not to. I had been there two afternoons looking through old boating records for a story I was considering, and she had tolerated my questions with good humor… provided I put each folder back where I found it. 
+
+On the third afternoon, I arrived with a bag with a couple of slices of pecan pie from a bakery down the road. Gwen inspected the bag, pronounced the contents acceptable, and informed me that I could have access to the rear cabinet once I'd washed the sugar off my fingers.
+
+The man in the blue shirt was already waiting at the desk holding a legal size manila folder against his chest with both hands (the way people hold something that has already been taken from them once). His hair was thin and gray at the crown. He had a deeply tired appearance of someone accustomed to sleeping a bit lightly. His shirt sleeves were rolled very neatly (it made me think he'd dressed carefully for this visit).
+
+"He wants a death certificate corrected," Gwen said to me. "I told him we don't issue the things here."
+
+"I didn't ask you to issue one a new one," he said with a controlled voice, but the effort showed in his tightness of his jaw. "I asked if you could tell me who to speak to or where to go."
+
+"I was fixing to do exactly that before you started explaining my own job to me." Gwen replied sharply 
+
+I should have kept my mouth shut. Instead, I asked if the certificate had the wrong date or maybe it was the wrong name (thinking I might save him a trip to the courthouse). Gwen gave me the look she generally saved for visitors who volunteered to reorganize her cabinets. 
+
+The man hesitated… then pulled out the chair across from my table. "Neither," he said as he sat, "It's the death that's wrong."
+
+He laid the certificate between us. It recorded the accidental drowning of a nine-year-old girl, sixteen years earlier, and it bore the stamps and signatures I would have expected on such a document. Behind it was a school photograph. A girl of perhaps sixteen stood against a blue backdrop, one shoulder raised a little, smiling as if the photographer had asked her to do something she considered foolish.
+
+I checked the dates twice. The photograph appeared to have been taken seven years after her burial.
+
+"That's my daughter," the man said.
+
+"She's alive?"
+
+"Yes, sir. Married now. Got two little boys of her own."
+
+"And the certificate was never corrected?"
+
+"It wasn't a mistake when they issued it."
+
+I looked at him. There was no pleasure in his telling of this; I had the uncomfortable sense that he had practiced the explanation and was ashamed of how little sense it made when spoken aloud. I asked what had happened to the girl, and he told me she had gone into the water after a younger cousin. By the time the men found her, the afternoon's search had become a recovery, and by evening the doctors had finished the business of offering the family what comfort they could.
+
+"She was dead nine hours," he said. "They brought her back after nine hours."
+
+A heartbeat can sometimes be restored after a terrible interval. I know enough to know that (telltales have stretched longer times). I do not know enough to make medical judgments about somebody else's child. I asked which hospital had treated her. He tapped the certificate, then shook his head.
+
+"Not the hospital."
+
+"Who, then?"
+
+He rubbed his wedding ring with his thumb. "People my brother knew. I never saw them before that night… I haven't seen them since. They told me what they could do, and they told me what it would cost."
+
+"What did they ask you for?"
+
+"The house first. My father's land after that. There were accounts, too. I gave them everything they named." He rubbed his wedding ring again. "I asked for something saying it was settled. They told me to go home and be with my girl." He glanced at the photograph. "I would have given everything in that moment."
+
+Gwen brought us coffee in thick white mugs while he spoke. He emptied one packet of sugar into his and stirred it for longer than he needed to (I never saw him drink). I had a dozen questions, none of them suitable for the expression on his face. Whatever I believed about his account, he believed he had buried his daughter and brought her home again, and I saw no reason to treat his grief as a puzzle arranged for my amusement. So I asked whether she was well. He nodded, and for the first time the weariness left his face long enough for me to see what kind of man he had been before all this began.
+
+"She doesn't remember the water," he said. "I think that's a mercy."
+
+I agreed, though I was beginning to wish Gwen would call me away to help with something entirely ordinary, perhaps a problematic drawer or the leaking roof. I can do a little good with a troublesome hinge. The condition of a man's soul after an account like that? Well… that is another matter.
+
+The rain arrived while we were still talking. It had been slowly rolling in since lunch, the sky took on that peculiar yellow-gray hue that makes even the trees look as though they're waiting for instructions. Water struck the aluminum awning over the entrance with enough force to drown out the air conditioner. Gwen rose from her desk to close the window (muttering sometimes about the ruler) and I turned toward the door when I heard its latch lift.
+
+A man stood just inside, with the rain shining on the shoulders of a dark red coat. He looked completely ordinary in terms of height and build. He looked old enough to have lines beside his mouth but not so old that I could have guessed his age with any amount of confidence. His shoes were very clean outside of a small crescent shaped spot of mud on the left heel. I had only noticed the mud because he had crossed a wet parking lot, yet there was no water around his feet at all.
+
+For a second I thought he was a dean from my youth, a stern man whose face had stayed in my memory long after I'd forgotten most of what he taught me (had me nearly greet him). Then the stranger turned his head, and the likeness went away so completely that I felt foolish for having seen it.
+
+Gwen called from the window. "Can I help you, cher?"
+
+The stranger looked at me. It was no more than a glance… perhaps… but he held it long enough that I lowered my eyes to the folder (suddenly aware of the intimacy of having a stranger read my face while I sat helplessly reading his). When I looked up again, his attention had moved to the man in the blue shirt.
+
+The father in the blue shirt had gone very pale. "No," he said: "No, you can't." this time it was louder
+
+Gwen left the window and came halfway toward us. "Sir, if there's a problem, I can call somebody."
+
+"I thought it was finished." The man in the blue shirt struggled to stand, pushed his chair clear of the table, and caught a rear leg with his heel. It went over with a sharp crack against the vinyl flooring. "They told me it was finished."
+
+The stranger crossed the room without answering. Something in his face troubled me, and I kept looking at him despite the unpleasantness of it. The nose and mouth were perfectly ordinary in themselves, but the arrangement would not remain settled in my mind. I saw the Dean again, then a broad-faced man with pale brows, then, so briefly that I may have supplied it afterward, the scorched profile of someone who had survived a dreadful fire (it appeared he had a crown on his head). Each one appeared to be the face I'd been looking at all along. I blinked until my eyes watered. The man's coat was still red dark; the little crescent of mud remained on his shoe.
+
+"I gave them the property," the father said. "Every account. They sent me home. They told me to be with my girl. I thought that meant I was finished."
+
+The stranger stopped beside the overturned chair. His expression gave no sign that he understood the words, much less that he had been moved by them. There was nothing cruel about his stillness, and I found that worse. A cruel man can be offended, flattered, distracted, or brought to regret. I could not see any place in this one's attention where an appeal might reach him.
+
+"She has children," the father whispered. "Please… she's got two little boys. I want to see them grow up.”
+
+He looked toward me (thought for a moment he wanted me to speak on his behalf). I'd been so ready to involve myself in his paperwork; now, with the stranger standing between us and the door I had no idea what help would even look like. I got to my feet anyway. In my hurry to stand the leg of my chair struck the edge of the table, the vibration of the strike caused the cup of coffee Gwen had brought me to tip onto the folder. I caught it before the spill reached the photograph. It is an absurd detail to remember… but I can still feel the hot coffee on the back of my hand.
+
+The stranger with the unplaceable face raised his own hand, palm upward. I saw a narrow red line stretching toward the father's chest, or thought I did; the light overhead flickered at precisely that moment, and there are honest limits to what I can claim to have seen (despite my storyteller's desire to embellish). The father opened his mouth, his lips moved without a sound, and his eyes narrowed in the effort of remembering something. I know the look. We wear it when a familiar name is almost within reach.
+
+The fluorescent tube steadied. The man's chair was on its side, and the space where he had stood was empty.
+
+I turned first toward the rear cabinets, which left the stranger at my back, then toward the hall. Neither offered a place to conceal a grown man. The entrance stood behind the stranger, and I had heard neither the door nor a footstep. A fly beat itself against the plastic cover of the ceiling light. Gwen's copier finished a job and deposited a page into its tray.
+
+"Where is he?" I asked.
+
+Gwen followed my gaze around the room. "Where's who?"
+
+"The fellow sitting here. The man with the certificate."
+
+She looked at the overturned chair, then at the papers beside my elbow. "You've knocked my furniture over, and now you're asking me where somebody went?"
+
+I began to explain. Before I could make much progress, the stranger had turned toward the door. He passed close enough for me to smell wet wool, although I could see no dampness on his coat. My hand was tingling from where the coffee had landed. I might have stopped him if I'd thought of a reason that would cause him to stop. He went out beneath the awning, and the door settled shut behind him with the ordinary little click of a well-fitted latch (same click I had been hearing for days).
+
+Gwen was looking at me rather than the door. When I asked what she'd seen, she said a tall gentleman in a bright blue coat had come in looking for somebody. She remembered his long silver hair and his unpleasant manner. She remembered him passing the copier but did not remember the father, though she had spoken to him less than an hour before and was still holding the list of parish offices she'd written for him.
+
+I took the folder home that evening. It remains one of the more unkindly thing to have done, and I would prefer to tell you that Gwen insisted on my keeping it, but… she did not. I told myself the girl's name would allow me to return the papers and perhaps find somebody qualified to correct the record. In truth, I wanted something solid to carry out of the room (more honestly, the writer in me also could help researching another story), because I had begun to mistrust the contents of my own head.
+
+At home I laid the certificate on the kitchen table and examined it beneath a brighter lamp. The daughter's name was legible. The dates were unchanged. The place where the reporting parent's name should have appeared contained only an empty line, with no discoloration or mark to suggest erasure. On the back of the school photograph, in the looping blue script of a child, somebody had written Me and Dad. I remembered reading a name after those words while the father sat across from me. Now? The photograph bore no trace of it now.
+
+I stayed up late making notes, partly from a writer's habit and partly from the rather desperate hope that a thing described precisely might become less difficult to bear. I recorded the blue shirt, the wedding ring, the smell of the annex after the rain began. I described the stranger's face, read the description back, and found I'd given him two different noses and three different ages. My usual solution when a passage contradicts itself is to make a decision and revise it. That night I left every contradiction in place (for some reason that felt more correct).
+
+Before going to bed I copied the father's name into three notebooks, taking it from the certificate as I remembered seeing it. I did not trust one copy. As I write this, I understand that saying I copied a name from memory may sound like a peculiar precaution, but a man does not become more sensible merely because the circumstances demand it. 
+
+The following morning, each notebook contained a blank space between otherwise intact sentences. The pen I'd used was lying where I'd left it, capped, beside the lamp on my desk
+
+I went back to the annex the next week. Gwen was there, eating a sandwich over the newspaper and complaining about a parish official who had returned an entire box of records without the dividers. She remembered me, the storm, and the chair I'd knocked over. Of the father she had no recollection at all, though she allowed that people came in every day and she was not required to make them part of her life. When I asked about the stranger in the blue coat, she put down the sandwich.
+
+"I don't care for that man," she said.
+
+"Did he tell you his name?"
+
+"No, I don't go gathering names of unpleasant folks, cher. And don't ask me to describe him again. I've already told you. Twice"
+
+She was right. I had been pressing her, and there was no generosity in making her revisit an afternoon that plainly disturbed her. I apologized. Before I left, Gwen took my hand to inspect the coffee burn, which was healing badly, and made me promise to keep it clean. She had more sense than I did, and a clearer notion of what could actually be helped.
+
+The daughter's name led me to a wedding announcement. I found her standing beside a young man in an unfortunate white suit, both of them smiling into the camera, with two small boys in the front row who might have belonged to anybody (given the proximity, they must have been hers). Her mother was named. The space ordinarily given to her father contained no entry. I considered contacting her (drafted a letter), but I could not think of a way to ask about her father's disappearance without asking her to endure it all over again, assuming she remembered him in the first place. I tore the letter in half and put it my fire pit that evening (watched the embers drift toward bridge on Bayou Teche).
+
+That should have been the end of my involvement… it was not.
+
+For months I found myself checking the folder at odd hours. Sometimes I woke with the conviction that I had recovered the father's name, and I would hurry to the desk before it escaped me. By the time I uncapped a pen, all that remained was the feeling of having known it. I began carrying a little notebook in my coat pocket, which would have been a sensible habit if I hadn't already proved how little good notebooks could do. Once, standing in a grocery line, I caught myself staring at the name printed above a stranger's work badge because it looked almost right. The woman moved to another line… I cannot blame her.
+
+I also missed a morning I had promised to spend repairing a neighbor's porch rail. He came by toward supper to see whether I was ill, and I told him I had lost track of the day. It was true, though not the sort of truth that excuses leaving somebody waiting with a box of tools.
+
+My memory of the father has deteriorated since then. His hands are still clear to me, as are the scar and the wedding ring, but I can no longer see his face without first reading my notes. Even after that, I suspect I am imagining a man assembled from details on paper. I have stopped trying to improve the description. There is a point at which a writer's instinct to make a person vivid begins to resemble an act of substitution, and I am frightened of giving the poor fellow a face he never owned.
+
+I have come to call the stranger in the dark coat The Redacted Man. The name belongs to me, so far as I know. It is a poor name for a person, but an accurate one for what remained after he left the annex. I have no explanation for the red line I thought I saw, or for the nine hours between a child's death and her return. The man in the blue shirt believed he had paid what was asked of him. I believed him, too, until the stranger walked in.
+
+There is one detail I have avoided describing. For a long time I suspected that my own attention had put it off to the side.
+
+In the school photograph, the girl stands against the blue cloth with one shoulder slightly raised. That much has not changed. What I did not see at first is a man's hand resting on that shoulder, entering the picture from beyond the right edge. It is a broad hand, with the skin creased at the knuckles and a plain wedding ring on the fourth finger. The arm is cropped away. I cannot say whether the hand was present when the father first showed me the photograph; I can only say that the picture no longer looks complete without it.
+
+Yesterday I took the photograph from its envelope to show myself, once again, that the hand was there. The paper had begun to curl in the humidity, so I placed it beneath a heavy book for an hour. When I took it out, I noticed fresh writing on the back, immediately below the girl's words. The ink was black, and the handwriting looked like mine.
+
+It said: He wasn't looking at the father when he came in.
+
+I set the photograph down and opened my earliest notebook to the page describing the stranger's arrival. The sentence I'd written that evening was still there, though I had passed over it in every reading since: He looked at me before he looked at the man beside me.
+
+I have been sitting at this table most of the day. The folder is open, and the little crescent of a scar is the one feature of the father's face I can still summon without help. I can hear the rain beginning against the window, a modest shower this time, nothing like the storm at the annex. There is a clean line on the certificate where his name ought to be, and beneath it a space for the signature of the person who reported the death.
+
+I had not noticed until this evening that the second space is blank as well.
+
+I keep putting my pen down there, and every time I do, I cannot remember what I meant to write.
+
+\-JJBC Cox

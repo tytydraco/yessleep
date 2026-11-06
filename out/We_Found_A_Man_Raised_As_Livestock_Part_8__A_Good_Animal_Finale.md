@@ -1,0 +1,273 @@
+Part 7: [https://www.reddit.com/r/nosleep/s/t3yDHCt9ka](https://www.reddit.com/r/nosleep/s/t3yDHCt9ka)
+
+Part 6: [https://www.reddit.com/r/nosleep/s/RJhJ4y87ZU](https://www.reddit.com/r/nosleep/s/RJhJ4y87ZU)
+
+Part 5: [https://www.reddit.com/r/nosleep/s/cyMCFRKjW4](https://www.reddit.com/r/nosleep/s/cyMCFRKjW4)
+
+Part 4: [https://www.reddit.com/r/nosleep/s/ZngKKmNy5x](https://www.reddit.com/r/nosleep/s/ZngKKmNy5x)
+
+Part 3: [https://www.reddit.com/r/nosleep/s/MXJiVsiUMJ](https://www.reddit.com/r/nosleep/s/MXJiVsiUMJ)
+
+Part 2: [https://www.reddit.com/r/nosleep/s/CtqviM6Qno](https://www.reddit.com/r/nosleep/s/CtqviM6Qno)
+
+Part 1: [https://www.reddit.com/r/nosleep/s/kMmv9kxJiG](https://www.reddit.com/r/nosleep/s/kMmv9kxJiG)
+
+"Can you bring his things?" Kit asked. "She says I can go when he's tucked in." He was looking into the little camera above Mother's shoulder, waiting for me to answer as though he'd asked whether somebody could fetch his coat. 
+
+The strap around his wrist ran through a metal ring fastened to her waist. He'd pulled it tight himself, and now he was turning the wooden spoon in his free hand, working the handle between his fingers. 
+
+Beside me, Seventeen was on the hospital floor with his blanket spread over the broken wooden horse. He kept trying to balance the horse's head on its neck. Each time it slipped, he picked it up and tried again.
+
+Mother asked for Seventeen's blanket again. He pulled a corner of it onto his lap, then lifted the other corner over the horse. She said, "Good. Put the rest over your head, darling, so you don't hear the noise." He raised the cloth to his face, stopped, and looked past the tablet at Nwosu. The doctor didn't shake her head or tell him what to do. 
+
+She held her hand open on the floor where he could see it. Seventeen let the corner fall and touched her fingers. Mother moved a little closer to the camera. "You're forgetting the last bit," she said. Her voice was still kind, but Kit stopped swinging his feet and waited for her to finish.
+
+"He doesn't have to do the last bit," Nwosu told her. Mother turned her head so quickly that the camera lost most of her face. She returned it slowly. "Of course he does. He always does the last bit." The room on her side was quiet except for a woman clearing her throat somewhere behind the camera. I could see three adults sitting against the tiled wall, their wrists joined with strips of webbing. 
+
+One had bare feet planted flat on the floor and kept rubbing her toes against a seam in the tile. The oldest had gray hair braided close to her scalp and a long scar down one cheek. A man sat between them, holding his left elbow against his ribs.
+
+The negotiator asked for a break in the call. Vale repeated the request, and Mother said she would wait, but she wanted the screen left where Seventeen could see her. Nwosu told Seventeen that he could stay or go back to his bed. 
+
+He put the wooden horse in his mouth for a moment while he considered it, then began crawling toward his mattress. Mother called the name she used for him, a soft, difficult sound that made him stop. He turned back, smiling with the horse between his teeth. She said, "Good animal," with such relief that I wondered whether she'd forgotten any of us could hear her. 
+
+Seventeen pressed his forehead against the floor and waited. Nwosu went to him, knelt, and asked him to sit up with her. He did after a moment, still watching the screen.
+
+Daniel made a small noise behind me. I thought he'd dropped something, but he'd gripped the wheel of his chair hard enough that the rubber was squeaking. I followed him out when the nurse took Seventeen back to bed. In the hallway he asked me whether Mother had said it the way he remembered. 
+
+I asked what he meant. He rubbed his palm against his hospital gown and told me she used to say it when Seventeen helped put the younger children to sleep. "He'd get on the floor with them," Daniel said. "He knew which ones were scared of the dark. 
+
+Sometimes they'd only settle if he hummed beside them." He looked toward the room we'd left. "She was very proud of that. The little ones would go where he went. She called him her good animal because he could get them to come close when they wouldn't come for us."
+
+I asked what happened after the children went to sleep. Daniel kept rubbing his palm. "Different places. I didn't go with the attendants." He wasn't trying to avoid my eyes; he was staring at the row of framed landscape photographs above the handrail, trying to remember something he hadn't allowed himself to consider. 
+
+When I asked whether Seventeen knew where they went, he shook his head. "He used to wait for them to come back. Some did. He'd save things for the ones who didn't." Daniel looked at the wooden horse now resting inside Seventeen's room. 
+
+"That head didn't break from playing. He was carrying the horse when he grabbed an attendant who was taking a boy away. The toy hit the doorframe in the struggle, and its head snapped off. I glued it because he wouldn't let anyone throw the pieces away."
+
+Vale wanted to clarify something before she left. The hospital had two boys listed as Kit, and an officer had assumed the names referred to the same child. The boy Miriam had protected was safe in a pediatric ward; the little boy with June was younger and carried a different identification band. The same nickname appeared more than once among the people raised inside, where the attendants had been happy to reuse a pet name while keeping every number unique. 
+
+Vale asked me to identify the boy on the screen for the record. I described his missing tooth, the spoon, and the way he'd held his left heel off the floor in Mother's lap. It felt terrible to have to prove which child was still trapped.
+
+By the time Vale drove me back to Coldwater, the sun had gone down behind the cooling tower. Somebody had strung work lights across the southern yard, and police vehicles filled the space where Sam and I had parked our trucks on Thursday. I hadn't seen my truck since the first day. 
+
+Vale noticed me looking for it and asked what color it was. I told her it had been green once, before most of the paint came off. She said that wasn't much help, which was fair. A man in a yellow vest waved us past the barrier after checking Vale's identification, then stopped us again because the ambulance lane was full. Vale waited without complaining. 
+
+I watched two medics carrying a covered stretcher from the dock, their movements careful around the potholes. There had been so many people brought out that afternoon that I'd stopped being able to remember who had gone where.
+
+Reese had a feed from a camera the negotiators had managed to position above the linen-room grille. It showed a room about the size of a two-car garage, with low shelves, two laundry carts, and a wide folding table bolted to the floor. 
+
+The door facing the passage had a barred observation grille high enough that Mother had to crouch to look through it. The truck-bay door was on the opposite wall, its inward swing blocked by a steel cabinet lying against it. 
+
+Officers held the passage side, and a second team had the truck bay contained. The other walls were brick against soil. There wasn't a third way in that anyone had found.
+
+Mother was sitting with Kit beneath the camera. The younger captive, a woman with bare feet and short brown hair, had moved close to the folding table. Her wrists were joined to the older woman's by a strip of blue webbing. The man sat with his injured arm across his knees. 
+
+A bundle of linen lay between them. Mother had arranged several folded sheets on a low cart beside her, the way somebody might prepare a child's room before putting them to bed. The layout was so domestic that I had to remind myself a dead woman was being carried out of the building twenty yards away.
+
+The negotiator, a woman named Alvarez, wanted me to listen to a recording she'd made while I was at the hospital. Mother had allowed the adults to speak after she received a dressing for her fingers. The older woman called herself Etta and said she'd worked in the laundry for many years. The younger woman was Mara, and she'd been moved out of a household two months earlier after an injury. 
+
+The man was Jonas, who sometimes helped carry meals and could speak to Mother without waiting to be addressed. Alvarez asked Jonas whether he wanted to leave. He asked whether the hospital had orange juice, and she said she thought it probably did. 
+
+He seemed pleased to have found a question she could answer. Then he said he wanted to be where Mother could see him because his breathing had been bad since the smoke in the sorting gallery. Mother interrupted to tell him that the outside air would upset his chest.
+
+Mara had interrupted then. "I want to go," she said. The microphone caught the scraping of webbing as Etta tried to turn toward her. Mara repeated herself, louder, and asked whether the officers could hear her. Mother told her she would be going soon and needed to settle before she made herself ill. 
+
+Jonas agreed with Mother. He said Mara had always been impatient and somebody ought to let her rest. Then he coughed long enough for Alvarez to offer to send in a medic. Mother said she would see to him herself.
+
+Reese had already approved a controlled handoff. Two officers brought a clean stretcher and a sealed bag of medical supplies to the door; Alvarez instructed Mother to bring Jonas to the passage door while the others stayed back. Mother didn't argue about it. 
+
+She helped him stand, straightened his crooked collar, and walked beside him with a hand at his back. He looked more frightened as the door approached. When the officers opened the passage door just enough for him to pass, one held out a hand to guide him through. 
+
+Jonas gripped Mother's wrist and said he wanted her to come too. "You go and have them look after your chest," she told him. "Then you can tell me whether they're treating you properly." He let go because she sounded as though she'd be waiting for his report. 
+
+Outside the threshold, an officer offered him a silver emergency blanket. Jonas rubbed it between his fingers and asked whether they came in other colors. The officer said he didn't think so, and wrapped it around his shoulders.
+
+From the camera we watched Mother return to the folding table. She sat Kit on its edge and put his spoon in his hand, then drew him into her lap. Etta had taken over folding the clean sheets. Mara watched Jonas disappear, made a sudden move toward the door, and was pulled back by the webbing Etta was holding. She said, "He actually got out," with a mixture of amazement and anger. 
+
+Etta told her not to start again. Mara twisted toward the older woman and demanded to know how many times she'd heard somebody say they were leaving when it wasn't true. Etta kept folding. Then she said, "Jonas left. Didn't he?" 
+
+She raised an eyebrow at the sheet Mara had pushed aside and asked whether Mara planned to help with the corners. Mara gave a short, disbelieving laugh. Then she looked down at the strip binding their wrists and stopped arguing.
+
+I stayed by the monitor while Reese and Park spoke about the truck-bay door. The cabinet had been tipped onto its side, wedged between the door and a concrete support. The frame could be spread, but the falling cabinet might strike the captives while Mother held Kit nearby. 
+
+The passage door could be forced, but the camera showed the folding table directly in front of its line of travel, with Kit sitting there most of the time. I didn't have a clever answer. Park had a packet of cheese crackers in her vest pocket, and she offered me half while the officers studied the doorframe. 
+
+We ate without talking. Park was right that the old brick would take an impact differently from a modern partition, and I told her what I knew about the mortar without pretending I could predict how Mother would react.
+
+The room became quieter as evening passed. Etta finished folding the last sheet and asked whether she could lie down. Mother looked at the bedding in the laundry cart and said there was plenty for everyone. 
+
+Kit asked whether they were going to sleep on the floor, and she told him they had done that many times during moves. He wanted the pillow with the blue stripe because it didn't scratch his ear. Etta said she'd put it aside for him. Mara said she wasn't lying down. Mother didn't answer her directly. 
+
+She asked Etta to remember the old settling game, the one that made the noisy children quiet, and Etta began arranging a blanket on the floor beside the table. Her hands were steady. I could see a small scar across the knuckles of one hand, probably older than Kit.
+
+I couldn't see why that made Mara so frightened until she began pulling against the webbing hard enough to cut the skin at her wrist. Etta followed her without resisting, dragged forward a step at a time. 
+
+Mother asked Mara to stop hurting herself. Mara said she would if Etta let her go. Mother reached across the table and caught the webbing, pulling both women toward her until Mara was forced to stand beside the blanket. "Nobody's being punished," she said. "Kit will help us all settle. 
+
+Then we can decide who needs to go where." Etta put a hand on Mara's shoulder. Mara shook it off so violently that Kit backed against Mother's leg.
+
+"She isn't going to make Etta lie down, is she?" I asked Alvarez. She didn't answer because she was listening to the other line. Mother had asked Etta to tell Kit which of the settling songs she preferred. Etta began a few notes of the familiar three-part humming sound. 
+
+Kit joined in, badly out of tune, and Mother corrected the rhythm by tapping her good fingers against the linen cart. Mara made a choking noise. She told Kit to stop singing. He looked at her with genuine confusion and asked whether she wanted to be sung to instead.
+
+Etta tried to explain that Kit was helping, but Mara was watching Mother's hand. "He's doing what Seventeen used to do," she said. Etta nodded automatically. Then she saw the expression on Mara's face and stopped folding.
+
+ "The little ones were quieter with him there," she told the camera, as though she'd remembered the officers were listening. She kept turning the sheet over in her hands. "Mother never made him take anybody anywhere. 
+
+He just held their hands until they were ready." Mara asked her where they went afterward. Etta looked toward Mother for the answer, and when none came she said she hadn't been responsible for transfers.
+
+I asked Alvarez not to bring Seventeen back just to satisfy Mother. I'd seen him turn away from the screen and put both hands over his horse. That was an answer, as much of one as he could give us, and I didn't want anyone talking him out of it. I had been so close to giving her his blanket that afternoon, thinking I was making a harmless concession. 
+
+Looking at Kit, I understood how easily another concession could become a promise made over someone else's head. Alvarez said that was already the condition Nwosu had set, and the choice would be Seventeen's.
+
+The phone rang while we were waiting. It was Nwosu, who had gone into Seventeen's room to check him before deciding whether to reconnect. She put the call on speaker without showing him a camera. I heard a nurse asking whether he wanted more water, then the rattle of the wooden horse against his bed rail. 
+
+She told him he was making more noise than her supply cart. There were two more knocks and a brief laugh from her before Nwosu explained that Mother wanted to speak with him. She described the tablet, said he could look at it, and offered to leave it turned off. 
+
+Seventeen made a small noise that sounded like yes, but then pulled the blanket over the horse and turned away. Nwosu waited. When she repeated the choice, he put both hands over the toy and shook his head. She told us he didn't want another call tonight.
+
+I heard Alvarez relay that to Mother. The creature's expression changed only a little, but she drew Kit so close that his shoulders rounded beneath her arm. "He's been frightened," she said. "He doesn't mean it." Alvarez told her they would not force him. 
+
+Mother looked at the camera for a long time, then placed Kit's spoon in his lap. "All right," she told him. "You'll help me, then. You know the game." Kit nodded because she was speaking kindly, though he looked at the covered blanket and asked whether Etta was cold. 
+
+Mother told him Etta would feel better once she'd rested. She asked him to take Etta's hand the way Seventeen used to take the little ones' hands before they went to sleep.
+
+Etta was kneeling on the blanket by then, with the webbing still joining her wrist to Mara's. Kit moved toward her and touched her fingers. Etta gave him a strained smile. Mother asked him to hum. He began, looking up to make sure he had the rhythm right, and she corrected him with a gentle tap to the back of his head. Mara told Etta to stand up. The older woman said Kit was only helping. 
+
+Mara crawled forward until the webbing pulled tight, grabbed Etta's sleeve, and said, "Look at me. Don't look at her. She made you do this to people." Mother told Mara to be quiet before she frightened the child.
+
+Mother put her uninjured hand against the back of Etta's neck and guided her head down onto the blanket. Kit was holding the older woman's fingers, concentrating hard on the song. 
+
+Etta glanced toward the camera, and for the first time I saw fear break through the dutiful expression she'd worn all evening. She asked Mother whether she was supposed to close her eyes. "Only if you like," Mother said. "You've done very well, and I know how tired you are." Etta began to say she'd rather sit up. 
+
+Mother pressed her down a little farther. It wasn't enough to injure her, but Mara threw herself toward them, pulling both women sideways and making Kit fall onto his hands.
+
+Reese gave the signal to move. Officers at the truck-bay entrance began forcing the blocked door with a hydraulic tool. The sound came through the camera microphone, and Mother's head turned toward it. She didn't run. She put Etta aside and lifted Kit from the floor, then asked him to stand against the wall so nobody would step on him. Mara was still pulling the webbing. 
+
+Mother caught the line around her forearm and tightened it until the younger woman had to get onto her knees. Alvarez spoke sharply through the microphone, asking her to release them. Mother looked up at the lens and said, "You're making this quite unpleasant for everybody."
+
+Then she did something I hadn't expected even after everything I'd seen. She pulled Etta's hand away from Mara and put it into Kit's. "He'll be frightened," she told the older woman. "You'll make it easier for him. You're good at that." 
+
+Etta was staring at the open truck-bay door, where the work lights shone through the widening gap. She asked Mother whether she was finally going to let them out. Mother pressed a hand behind Etta's head. 
+
+"There's nowhere suitable for us to go," she said. "I wouldn't leave you with people who don't know what to do with you." Kit asked whether June knew where they were. Mother looked at him with a sadness so convincing that he began to cry before she answered.
+
+Mother clamped her hand over Etta's mouth. Etta made a little startled sound and reached for the wrist holding her, but Mother had already pulled her against her chest. Kit's hand was trapped between them. He kept humming because she'd told him to, although the notes were breaking apart. 
+
+Etta struggled harder, her bare heels slipping against the blanket. Mother looked down at her with the worried concentration of somebody helping a patient through a difficult treatment. 
+
+I could see the muscles of Etta's throat working beneath the skin while she tried to draw breath. On the other side of the room Mara was screaming for the officers to come in.
+
+The truck-bay door opened enough for an officer to get a shield through. Mother turned toward the sound, dragging Etta with her, and the grip around Etta's face loosened. She fell onto the floor and rolled onto her side, coughing. Kit dropped beside her and tried to lift her head. Mother reached for him with her injured hand, caught the back of his shirt, and pulled him against her hip. 
+
+The cloth tightened around his throat. He screamed, and his little spoon skittered beneath the folding table. One of the officers shouted for Mother to put him down, but she was already moving toward the opposite corner, where the camera couldn't see her whole body.
+
+The camera was mounted too high to show what happened when the first officer stepped inside. I heard an order to get down, then the scrape of the folding table moving against its bolts. Reese told me to stay behind the passage team. He was already moving toward their position with his radio against his shoulder. 
+
+I followed only as far as the marked position outside the grille, where I could see the truck-bay officers entering along the opposite wall. Etta was still on the floor. Mara was dragging her away by the strip around their wrists, trying to keep the older woman's head from hitting the tiles. Mother had Kit tucked against her side, his shirt twisted in her injured hand.
+
+One of the officers reached Mara and cut the webbing. She wouldn't leave Etta, and he helped her get an arm beneath the older woman's shoulders. Etta coughed and tried to speak. I heard the officer tell her to save her breath, but she kept pointing toward Kit. Mother had retreated between the folding table and the wall. Kit was pushing both feet against her thigh, trying to get away from the arm around him. 
+
+She kept saying his name in a soothing voice, the same way she'd spoken to Seventeen when he began scraping at his ear. An officer moved to the other side of the table to get a clear view, and Mother shifted with him, keeping Kit between them.
+
+"I want June," Kit said. He didn't shout it at first. He said it the way he'd been asking about her all evening, assuming an adult would give him an answer. Mother told him June was being looked after and he needed to stop struggling. The boy began crying harder and reached toward the officer. I saw Mother's expression change when she noticed his hand. She held his wrist against her chest and told him not to do that again. He tried anyway. 
+
+The webbing caught around her fingers, and he screamed when she pulled it tight. Mara had made it to the passage doorway by then. She turned back and called to him, telling him to keep talking so they could hear where he was.
+
+Mother shoved the folding table toward the officers. It tore at its mounting bolts, throwing up chips from the floor, and hit one man's shield hard enough to put him on his back. The officers closest to Kit couldn't fire. Mother moved toward the passage exit, dragging the table between herself and the men coming from the truck bay. Reese ordered everybody back from the narrow opening. 
+
+She was trying to get through a doorway too small for her and the boy together, but she'd already forced her way through places that should have stopped her. I stepped into the passage without meaning to, and Reese caught the back of my sling. He told me to get clear, then pushed me behind the wall before I could argue.
+
+I could still see Kit's face above the edge of the table. He had one hand pressed against Mother's cheek, trying to turn her head away from his wrist. She looked down at him with the terrible, distracted tenderness I'd seen when she examined Seventeen on the screen. 
+
+"You used to like helping," she told him. "You were doing so well." Kit was crying too hard to answer. His free hand found the loose end of the webbing and pushed it away from his body. I heard a sharp command from an officer, followed by two shots from the truck-bay side. 
+
+Mother stumbled against the folding table. Her grip shifted, and Kit slipped down along her leg, held for a moment by the strap still caught in her injured fingers.
+
+An officer came around the table and caught Kit under the arms as Mother tried to pull him back. The boy's shirt tore open at the collar. Mother reached for him with her good hand, and the officer turned his body between them. Another officer fired when she continued moving toward the child. Mother went down against the table, dragging a metal cart after her. The wheels struck the floor and rolled toward the wall. 
+
+For a moment I couldn't see Kit at all. Then a medic was carrying him past me, his legs wrapped around her waist and his face buried against her shoulder. He was clutching a piece of torn shirt and asking whether he'd been bad.
+
+Officers secured one part of the room at a time. Officers kept their rifles trained on Mother while others got the captives out and checked the corners for anything she might reach. Mother was lying partly under the folding table, one arm outstretched toward the door. 
+
+She made a low sound when they approached, and an officer warned everybody to stay clear. Her fingers moved against the tile, searching. One of the medics who'd come in for Etta stopped long enough to tell Reese she was still breathing. 
+
+Mother lifted her head an inch or two, turned toward the place where Kit had disappeared, and called the name she used for Seventeen. She tried to raise herself again and couldn't. The last sound I heard from her was the first few notes of the tune Seventeen had known since childhood.
+
+I didn't see the exact moment she died. Reese moved us back while the officers secured her and medical personnel assessed her condition from a protected position. They confirmed her death once medics could safely examine her. Etta was taken out on a stretcher with oxygen over her mouth, still reaching toward Mara whenever the younger woman stepped away. Mara held the stretcher rail through the whole trip to the ambulance. 
+
+At the yard gate Kit finally stopped crying long enough to ask where his spoon was. The medic told him they hadn't found it yet. He said that was all right, but he kept opening and closing his empty hand while she checked his wrist.
+
+Vale found me sitting beside a stack of unused rescue blankets. My shoulder was aching from where Reese had grabbed the sling, and there was blood on the cuff of my shirt that wasn't mine. She said all four captives had been recovered alive. Etta had suffered serious oxygen deprivation and they didn't yet know how much injury there might be; Mara had cuts on both wrists but was speaking clearly to the doctors. Jonas was receiving treatment for his lungs. Kit was being examined in an ambulance, with a child specialist coming to meet him. 
+
+Vale spoke carefully about Mother's death, checking that I understood what she'd said. I nodded and drank from a bottle of water somebody had left on the blankets. Then I asked her to repeat the number of people who'd come out. She said four, and I made her count them by name.
+
+I called the hospital before I left Coldwater. Nwosu answered from the corridor outside Seventeen's room. I told her Mother was dead and the captives had survived. She was quiet for a moment, then asked whether Seventeen had witnessed the end of the call. I told her he hadn't; he'd been allowed to turn away before Mother began the settling routine. 
+
+Nwosu said she would tell him what had happened in a way he could understand, and that he might need to hear it many times. She didn't ask me to help with that conversation tonight. I was grateful, although I kept thinking about the way his fingers had stayed on the wooden horse when he heard Mother calling him.
+
+Etta lived. She spent the first night in intensive care and woke the next morning unable to speak above a rasp. Mara sat with her for as long as the nurses permitted, even after someone offered to arrange a separate room. When Vale interviewed Etta several days later, I was present for part of it because she asked to see the man whose voice had come through the grille. She wanted to know whether Kit was alive. 
+
+After Vale told her he was, she cried without making a sound. I asked why she'd helped Mother prepare the blanket when she was frightened of what might happen. Etta looked at the cup of water the nurse had put beside her and said, after a long while, "I thought if I did it right, she wouldn't need him."
+
+She didn't mean Kit. She meant Seventeen. Etta told us the younger captives had been brought to his pen when they were frightened because he would sit with them until they were calm. He let them use his blanket and sometimes gave them the wooden horse. 
+
+Some were being moved to households. Others were taken to the clean rooms, and Etta had spent years making herself believe they all went to different kinds of homes. Once, when he was young, Seventeen had followed an attendant carrying a struggling child and refused to go back. Etta remembered Mother keeping him on her lap afterward and telling him how badly he'd hurt himself trying to help. 
+
+He'd been able to stand then, though he walked awkwardly. Later he had a procedure on his legs. Etta couldn't tell me which surgeon performed it. She said only that Mother had called it a kindness because he would no longer exhaust himself following the children through doors he wasn't meant to use.
+
+I wanted her to tell me she hadn't known. Etta looked at her hands and admitted she'd known there were rooms nobody returned from, even when she stopped asking about them. She'd held children while Seventeen hummed and watched attendants carry them away. She'd repeated Mother's explanation that they were being moved somewhere suitable. Her voice failed while she was trying to say how often she'd done it. I left when the nurse told her to rest. 
+
+On the way out Vale asked whether I wanted her to put my name on the formal statement as someone Etta had spoken to, and I said yes. I'd spent enough time listening to people describe things they preferred not to remember. I didn't want to become another person who pretended not to have heard.
+
+The Housekeeper's death was confirmed, and the authorities kept Coldwater closed. The processing rooms were sealed as crime scenes, the surviving attendants were interviewed separately, and the people they'd trained to work there weren't all treated alike. Some were arrested; others needed medical care and protection before anyone could begin asking what they'd been made to do. 
+
+Vale told me investigators were checking the old freight records and trying to identify every person who'd lived in the pens. They had names for some and nothing but numbers for others. I asked her about the equipment we'd found beneath the main floor, and she said it wasn't going to be used again. That was the only part of the investigation I was able to accept without asking another question.
+
+Kit was allowed to see June after a child specialist and her doctors agreed on how to arrange it. I was there when the nurse brought him to the room because June had asked whether the man from the stairs could come too. She had a thick dressing along her shoulder and her injured hand rested in a support across her lap. Kit stopped in the doorway, looked from the dressing to her face, and asked whether Mother had fixed her arm. 
+
+June had to turn away before she answered. "No, sweetheart. The doctors are helping it," she told him. He climbed carefully into the chair beside her, leaving room for the support, and asked whether she was still allowed to make toast when she wanted. She said she hadn't tried yet. He considered that, then asked the nurse whether there was a toaster on the floor.
+
+Lewis was waiting at the far end of the hall. He'd asked permission to visit, and June had said not today. The nurse told him that plainly. He didn't argue, although he kept looking toward the doorway until Kit's voice reached him. I stopped beside him and asked whether he needed anything. He said he'd been given clothes and a place to sleep, but he didn't know what he was supposed to do when June didn't need him. I told him I didn't know. 
+
+He turned a hospital visitor's badge over in his fingers, reading the instructions on the back twice. Then he asked whether he could leave her the little sewing kit someone had found among his belongings. I said he could ask the nurse to pass it along, but June would decide whether to take it. He nodded and went to find the desk.
+
+Sam had surgery on his hand. The doctors thought he'd keep most of its use, though they warned him recovery would take longer than he wanted. When I visited him after they let him go home, he was sitting at his kitchen table with one daughter on each side, trying to open a packet of crackers using his teeth. Marisol took it away from him and opened it without comment. Lily offered him another packet to try. 
+
+He told her one defeat was enough for the afternoon, and she smiled before asking why he had so many bandages. Sam told her he'd been somewhere very dangerous and that people had helped him get home. His older girl asked whether the dangerous people were in jail. 
+
+He looked at Marisol before answering. She told the girls that the police had stopped them from hurting anybody else at Coldwater, and that they could ask more questions later. Sam thanked her with a glance and reached for Lily's hand with the one that wasn't bandaged.
+
+He walked me to the porch after the girls went inside. We stood there while he complained that my replacement shirts came from the same place as hospital gowns. I told him he could buy his own damn shirts when he was back on his feet, and he said he'd be sending me a bill for pain and suffering. Then he asked whether the names of the two women had been put on the list Vale was making. I told him they had. 
+
+He rubbed his thumb against the porch rail and said he'd been thinking about the way Bess asked questions, making people talk so she didn't have to think about what was next. "She did that for Nina," he said. "Then she did it for me." We stood until Marisol called him back inside. He went without asking why, which was the first sensible thing I'd seen him do in years.
+
+Nell asked to see the names when investigators finished one part of the identification work. Vale arranged for her to review what could safely be shown, with a counselor there if she wanted one. I wasn't present when Nell read the record, but she asked me afterward whether Inez's name was spelled the way she'd written it in her little book. I said it was. She told me Inez used to correct her because she'd made the letters too large, and that sometimes the older woman would sit up late showing her how to make the capital I. 
+
+Nell smiled when she remembered it and then began crying, still holding the paper. I stayed until she was ready to fold it and put it away. There wasn't anything I could have said that would have made the moment easier.
+
+Daniel took Mother's death harder than I'd expected, though I shouldn't have expected anything simple from him. When I found him outside Seventeen's room a few days later, he had been sitting with an untouched tray of food for nearly an hour. 
+
+He asked whether Mother had suffered. I told him the officers had tried to stop her from hurting the captives and that she'd been wounded during the rescue. He looked at his own hand, at the place where the scar ran across his knuckles, and said he remembered her sitting up with him after an operation when he was young. 
+
+She'd held a cool cloth against his face all night because he couldn't stop being sick. Then he looked toward the door where Seventeen was sleeping and said, "I knew what she did to people. I still wanted her to come and get us." I didn't tell him he shouldn't feel that way. He already knew enough about what she had done.
+
+Later that week, with my shoulder still sore and the hospital discharge instructions taped to my refrigerator, Nora came over with the photographs she'd promised to show me. She brought them in a cardboard folder that had been bent at one corner, and she was irritated because the print shop had made two pictures too dark. We spread them over the kitchen table. 
+
+She told me why she liked some and hated others, and I listened instead of reaching for my phone. In the photograph of her mother laughing, the grocery bag had caught on the door handle and a loaf of bread was falling out. Nora wanted to know if I still liked it best. I told her I did, and she said she'd print another one if I was going to leave fingerprints all over that copy.
+
+Not long after that, Nwosu asked whether I'd come by for a short visit. Seventeen had been waking in the night, searching for Mother, and sometimes he wouldn't let anybody touch the green blanket. The doctor had told him she'd died, but he still asked for her when he heard a familiar cart passing his room. He hadn't suddenly stopped loving her. He also hadn't asked to go back to Coldwater, although Nwosu wasn't treating that as proof of anything. 
+
+She said his days were still full of choices most people never noticed making, and some of them exhausted him. I brought a little packet of wood glue and offered to repair the horse's neck if Seventeen wanted it fixed. He put the horse in my hand, watched me examine it, then took it back before I opened the glue. I closed the packet and left it on the table.
+
+Kit visited that afternoon with a specialist who'd been helping him get used to the hospital. They were at different stages of recovery and nobody expected them to comfort each other on command. Kit came into the room carrying a plastic spoon he'd chosen from the cafeteria, blue instead of brown, and stood a little way from Seventeen's bed. He asked if the horse had been made by Daniel. 
+
+Seventeen held it up so he could see. Kit came closer, touched the loose head, and then looked at the green blanket. He asked if he could sit beside it without putting anything over his face. Seventeen moved the blanket aside and patted the mattress with an open hand. Kit climbed up slowly, keeping his spoon against his chest.
+
+For a little while they played with the horse, passing the broken head back and forth. Seventeen began humming the tune I had heard so many times at Coldwater, and Kit stopped moving. He put the spoon down and asked him not to do that song. Seventeen looked startled, with his mouth still open on the next note. 
+
+I could see him glancing toward the door as though someone might come in and correct him. But he closed his mouth, pushed the horse toward Kit, and waited. Kit picked it up and made a little knocking noise with its hooves against the blanket. Seventeen copied him. After a while they were both doing it, out of rhythm and laughing whenever the horse's head fell off.
+
+When Kit went back to his room, Seventeen became very quiet. He watched the doorway until the nurse came to help him settle, then held his arms close against his body while she adjusted the pillows. She asked whether he wanted the green blanket or the hospital one. He chose the green blanket, and she laid it across his legs without covering his head. 
+
+After she left, he reached for my hand and pressed his forehead into my palm, just as he'd done the day we brought him out of the pen. He stayed there for a long time. When he lifted his face, he touched the place where Mother's fingers had once tapped him, and asked, "Good?" I told him he could keep the horse even if he never let us fix it. He looked at me, waiting, until I finally said yes. Only then did he settle beneath the blanket, with the broken wooden head resting against his cheek.

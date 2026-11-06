@@ -38,7 +38,7 @@ My eyes, moments ago barely able to stay open, snapped wide in an instant.
 
 I picked him up and looked him over. I turned on the lights and told him to wait in my room until I came back. I locked the door behind me and walked to his room. The lights were off, his door wide open. The windows were locked shut, the closet closed. I walked over and fought all the fear in my body before twisting the doorknob open.
 
-Empty.
+*Empty.*
 
 I walked around the house flipping on all the lights, checking to make sure the doors were all locked. They were. I checked the A/C and saw that I had forgotten to lower it for the evening. I adjusted the thermostat and heard the hum throughout the house, followed by a distant, shallow cough. It was quiet enough that I thought my nerves had gotten to me. I walked back to my room and asked Eli to open the door for me.
 
@@ -62,7 +62,7 @@ Over the next few weeks, things started going missing in the kitchen.
 
 It was never anything dramatic: sleeves of crackers, half a loaf of bread, cans of beans, that kind of thing. It was always just enough to leave me doubting myself. I had been working overtime, and Eli had been home with the babysitter. I figured I’d eaten more than I remembered, or that Stephanie had helped herself to some snacks, which I’d given her full permission to do. I thought that for about a month, until one morning I found the pantry door open and the bottom shelf cleaned completely out. Upon closer inspection, I could see a breadcrumb trail leading right to my son’s room. I chuckled. I actually chuckled.
 
-Eli’s been snacking late. Guess I need to child-proof my snacks…
+*Eli’s been snacking late. Guess I need to child-proof my snacks…*
 
 But when Eli told me he hadn’t eaten anything—and don’t cross me, Eli’s a good kid and finds lying repulsive—I figured it must be mice. I put on my Sherlock Holmes detective glasses and began inspecting his room for mouse holes. The best thing I could come up with was the A/C vent.
 
@@ -188,11 +188,11 @@ I was in this parking lot probably looking a lot like a methhead trying to figur
 
 This is what I thought until I received a return call from an Officer Torres. 
 
-Someone at the 7-Eleven called the cops on me. I know i probably looked pretty crazy, and to be honest I was halfway there. I explained my situations to the officers approaching me. They were all very nice and heard me out. I explained that I had been wainting for a call about a possible home intruder and around that time Officer Torres rang my phone.
+Someone at the 7-Eleven called the cops on me. I know i probably looked pretty crazy, and to be honest I was halfway there. I explained my situation to the officers approaching me. They were all very nice and heard me out. I explained that I had been wainting for a call about a possible home intruder and around that time Officer Torres rang my phone.
 
 "Hello?" I asked.
 
-Hello, Mr. [Redacted] l, this is Officer Torres from the [Redacted] Police department. We had several officers comb through your home. We didn't um... we didn't find anybody, but if you can... we'll, you're probably going to want to come back to your house. I'm not one for clichés and I'm just at a lost of words on what I'm fully looking at, but your going to want to see this with your own eyes."
+Hello, Mr. [Redacted], this is Officer Torres from the [Redacted] Police department. We had several officers comb through your home. We didn't um... we didn't find anybody, but if you can... we'll, you're probably going to want to come back to your house. I'm not one for clichés and I'm just at a lost of words on what I'm fully looking at, but your going to want to see this with your own eyes."
 
 I thanked him and told him where I was and that it would be about a days travel. He said not to worry, just to call him when im in town.
 
