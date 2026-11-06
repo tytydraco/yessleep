@@ -1,0 +1,105 @@
+A few years ago, my husband and I went to Washington to meet up with his dad and stepmom. They’d been traveling around in their 4Runner, pulling a little Casita camper, and we flew out to join them for part of the trip.  
+Of course, almost immediately after they picked us up from the airport, the axle on their camper broke. We ended up dropping it off at a repair shop and making an emergency Walmart trip for a tent. Not exactly how we’d planned to start our vacation.  
+We eventually made it out to Lake Crescent in Olympic National Park. If you’ve never been, it’s gorgeous. We found this little campground right on the water. I’m talking maybe five feet between our tent and the lake. There were huge trees everywhere, mountains in the distance, and the water was this beautiful blue color.  
+We did all the tourist stuff while we were there. We went to the Hoh Rainforest, explored some trails, and accidentally ended up in Forks. I was a huge Twilight fan in high school, so I was probably a little more excited about that than a grown woman should’ve been. Nobody else in the car cared, but I thought it was great.  
+Anyway, something I remember about Washington is how quiet the woods are. I’m from Texas, and I’m used to hearing bugs, birds, traffic in the distance, something. Up there, especially in the thicker parts of the forest, it could get so quiet that it was almost uncomfortable.  
+Our first night camping was fine, other than Chase and I apparently being incapable of finding level ground. We’d set our tent up on a slight slope without realizing it, so we spent the entire night sliding down our cots in our sleeping bags. Every couple of hours, one of us would wake up halfway off the end and have to scoot back up.  
+The next night, I woke up because I’d slid down again.  
+I was trying to get myself situated when I heard something walking behind our tent.  
+I didn’t think much of it at first. We were in the woods. There were animals everywhere, and I’d already heard things moving around earlier in the trip.  
+But then I heard this weird huffing noise.  
+It sounded like a horse blowing air out of its nose, only lower and louder. I immediately thought it was a bear.  
+I reached over and shook Chase.  
+“Chase. Wake up.”  
+He mumbled something, and I told him there was something outside.  
+He was quiet for a second, listening.  
+Then we heard it again.  
+It was close. Really close.  
+There were a few footsteps, and something brushed against the side of the tent.  
+I remember thinking about the food we’d had earlier and trying to remember whether we’d put everything away. We’d been pretty careful, but I was suddenly questioning every single thing we’d done that evening.  
+Then the side of the tent pushed inward.  
+Not a huge amount, but enough that I could see the fabric moving toward my cot.  
+I grabbed Chase’s hand so hard he pulled it away for a second.  
+Neither of us said anything.  
+We heard that huffing again, followed by a few slow steps toward the front of the tent.  
+Then it stopped.  
+I kept staring at the zipper, waiting for something to happen.  
+Chase leaned over and whispered, “Don’t move.”  
+Which was unnecessary advice because I wasn’t planning on it.  
+We stayed like that for what felt like a really long time. Eventually, we heard something moving away through the leaves.  
+Neither of us slept much after that.  
+The next morning, Chase’s dad asked if we’d heard anything outside during the night.  
+Before we could answer, his stepmom told him to tell us what he’d seen.  
+Apparently, he’d woken up to something moving around between the tents. He’d looked out through the mesh window and seen a large dark shape next to ours.  
+I immediately started telling him about the huffing and the tent moving.  
+He said he’d thought it was a bear too, at first.  
+Then he said, “But it got up and walked off.”  
+Chase asked what he meant.  
+He said whatever it was had been down low beside our tent, and when it moved away, it stood up.  
+“Like a bear standing up?” Chase asked.  
+“Yeah, except it kept walking like that.”  
+Chase pointed out that bears can walk on their back legs.  
+His dad said he knew that, but it hadn’t moved like a bear.  
+We went back and forth about it for a while. I asked if he was sure it wasn’t somebody walking around, and he said he couldn’t be sure of anything because it was dark.  
+He just knew it was big.  
+We talked about leaving, but it was our last night there anyway, and honestly, once the sun was up, it didn’t seem quite as terrifying. There were other people camping nearby, and nobody had actually been hurt.  
+So we stayed.  
+That evening, while Chase and his dad were getting dinner ready, his stepmom and I walked down toward the lake. We’d been standing there talking for a few minutes when I heard that noise again.  
+The huffing.  
+I stopped talking.  
+She looked at me, and before I could say anything, we heard it a second time.  
+It was coming from the woods behind us.  
+“Is that what you heard last night?” she asked.  
+I nodded.  
+We started back toward the campsite. I was trying not to act like I was scared, but I kept looking over my shoulder.  
+Then something moved between the trees off to our left.  
+I only saw it for a second, and I couldn’t tell you exactly what it looked like. It was dark, and there were branches in the way.  
+But it was standing up.  
+That’s what I remember.  
+It looked like somebody taking a step behind a tree. I saw what I thought was an arm, and part of its upper body.  
+His stepmom saw it too.  
+She grabbed my wrist and said, “Did you see that?”  
+I said yes, and we both started walking faster.  
+When we got back, we told Chase and his dad what had happened.  
+Chase asked if we’d seen a bear.  
+I told him I didn’t think so, but I really didn’t know.  
+His dad asked where we’d seen it, and we pointed toward the trees.  
+He walked a little way in that direction, looked around, and came back.  
+Then he said he thought we should probably go ahead and leave.  
+Nobody argued.  
+It was starting to get dark, so we started throwing everything together. We weren’t even folding things properly. We just wanted to get the tents down and get out of there.  
+Chase and his dad were working on ours when we heard a loud crack from the woods.  
+We all stopped.  
+A few seconds later, there was another one.  
+Then we heard that huffing sound again.  
+Chase looked at me, and I could tell from his face that he’d heard exactly what I’d heard.  
+His dad told us to get in the car.  
+We left a couple of things behind. Nothing expensive, just some camping stuff we didn’t feel like going back for.  
+I was sitting in the back of the 4Runner while Chase and his dad finished loading everything.  
+I remember watching his dad because he suddenly stopped what he was doing and looked toward the woods.  
+He stood there for a few seconds.  
+Then he got in the car and shut the door.  
+We didn’t really talk until we’d been driving for a while.  
+Chase finally asked him what he’d been looking at.  
+He said he’d seen something standing near the trees.  
+I asked if it was a bear.  
+He said, “I don’t think so.”  
+Chase asked what it looked like.  
+His dad thought about it for a second.  
+“Like a really big person, I guess.”  
+We all kind of laughed at that, mostly because nobody knew what else to say.  
+Then Chase asked how big.  
+His dad said he didn’t know exactly, but it was taller than anybody he’d ever seen.  
+He said it had been standing near one of the trees at the edge of camp, and he’d been trying to figure out what he was looking at.  
+“Could’ve been somebody messing with us,” he said.  
+And maybe it was.  
+We finished our vacation and flew home, and every now and then the subject comes up. Chase still thinks it was probably a bear. His dad doesn’t really like talking about it, although he’ll answer questions if you ask him.  
+I’ve looked up black bears since then, and I know they can stand and even walk on their hind legs. I also know how easy it is to misjudge the size of something in the dark.  
+So I’m not saying we saw Bigfoot.  
+But I’ve gone over that night in my head a lot, and I still can’t figure out what was outside our tent.  
+The huffing was definitely animal-like. I don’t know how else to describe it. But the thing I saw near the lake looked like a person walking.  
+And that’s what bothers me.  
+Because if it was a person, why were they crouched down beside our tent in the middle of the night?  
+And if it was a bear, why did three of us think we’d seen something walking upright?  
+I don’t know. Maybe there’s a perfectly normal explanation for all of it.  
+I just know I wouldn’t camp there again.

@@ -1,0 +1,111 @@
+I have been wandering forward through the dark; through this endless city street for months, I think. The pavement glistens from a rainfall that has always just ended moments before. I can feel in the air that there is much more up beyond in that thick, woolen blackness above me. Waiting, as if watching its own great, gray reflections in the glassy long faces of the puddles gathered in the low cradles of the curb. The puddles run in no direction at all. Elongated mirrors. Stagnated.
+
+
+
+Why aren't they running downstream somewhere? A gutter. Grating. To the edge of the world. Anything.
+
+
+
+Who gives a fuck.
+
+
+
+A traffic light coats the wettened street with Hopeful Green. I can feel its emerald, neon permissions penetrate the fabric of my coat and reflect off my glasses, before blooming into admonishing Saffronic Yellow, and then Final Red - the blanket over the rain-slicked street that cast the verdict that I stay here, in-between endless seven-story apartment buildings that line either side of this endless street and below their lightless, curtained windows sparing their vacant domiciles from my presence with those yellowing blinds of theirs. Empty spaces don't welcome the hopeless. They would rather close their lids and dream of something living and loving; radiating life and hope and dreams into the walls; therefore warming it to life with a soul.
+
+
+
+I don't believe I have one. I believe some people do: a beautiful girl who offers a smile as a gift to a homeless junkie on the street, and makes him feel as though someone sees him beyond the shit in his pants and the decades of decisions and unchecked mental illnesses piled together until they turned him inside out. And gray and colorless. He was a boy once. She can see that, can't she? - that he is still just a lost little boy inside, inside the part that counts? In the soul?
+
+
+
+But truly, he's soulless, and he doesn't yet realize it, and he probably won't realize it until he's dying alone from a heart attack in some alley where no one will remember his passing.
+
+
+
+But I do believe there is a soul in the smiling girl; however, because the last thing the gray man-boy with the wayward life would think was that this beautiful, kind face, with its high-beam smile, was one that could perhaps -in his imagination - see his unceremonious death and shed tears for him. For him, that would be more beautiful than if she had invited him to coffee to tell her his life story and felt every word of his tragic life. Sadness doesn't give you a soul. Neither does weakness.
+
+
+
+But *she* has a soul in that moment. She probably has one forever. Lovers dancing also have souls, in those moments in the night and in the memory, and also when they, years later, think on it and smile and look over to see one another aging beautifully. They have souls then too.
+
+
+
+And does a sick dog, who sleeps beside you until the last moments of her life, before wandering off to the dark little space between the fridge and the pantry -- the only place she could think that she could die in, where perhaps you wouldn't have seen her like that. Because she loved you, you see? No painful memories on her watch if she could help it. She will die in the corner and out of sight to spare you. She loved you, and she was a good girl until the end. She was a very good girl.
+
+
+
+She has a soul.
+
+
+
+I don't.
+
+I've never loved anything in my life. I loved myself until everyone I was supposed to love and could leave, left, and then it was only quiet. Sometimes, I feel as though all those people who are supposed to be living in all those apartments are on the roof watching me. But what would they fucking see...
+
+
+
+Ha! Shit, neither I nor my doings are much of a spectacle. I'm kicking puddles in this damned street so this fucking thing above me might stop looking at itself and start the rain again; I'm watching the street lights change their colors: Hopeful Green. Saffronic Yellow. Final Red. No doors go into the buildings.
+
+
+
+I walk forward, and I do not walk forward. I move past it. Or do I stop on Final Red? After all, it is Final. When did they give the colors those names?
+
+
+
+I never loved my wife. I married a good woman and pretended to feel a single thing until she died of breast cancer last year, and the sadness I now feel is simply the guilt of one who felt relief, more than anything else, when they finally no longer had to hear their wife's agony-filled moaning near her end. It seemed to never end. She knew what I was, what I couldn't give, but she lied to herself and to me, and we playacted a life. Still, in the end, she died knowing that what was between us was never more than a performance that grew more and more sad, until everything ended with her body, a skeletal, frail blue, that would ultimately turn the temperature of the room. Into an inanimate object.
+
+
+
+There are no kids anywhere to be found I can call mine because I didn't want any.
+
+
+
+My mother is still alive in Connecticut somewhere, aging alone and wondering why I haven't checked on her in three years. My father doesn't even exist. No friends.
+
+
+
+I don't even remember what I do for a living. Something important, but not important at the same time; compared to the things that really matter for a human soul.
+
+You see...
+
+No walls have been warmed with the memories that are my life. If I could have faked it, I would have offered performative, faux-love-filled memories to the walls as gifts so they could simply be alive in some way. No. I have no soul.
+
+
+
+The bloated, looming bladder above me knows all this is true. Where are all these fucking people, and why aren't they watching me? I want attention and validation for my career. I'm brilliant. I'm disciplined. I have perfected my body, and I have learned to write. I'm physically beautiful. I have learned to succeed at all costs. I dominate every social situation. Nobody here fucking notices me.
+
+
+
+There is no one here. Stop it.
+
+
+
+Only Final Red. The other two colors don't really mean anything; they become the Red, and that is what they are from the beginning. They just didn't know it yet.
+
+
+
+Only Final Red and that swallowing mass of cloud in the dark in the wayward sky. I don't have a name for him. Neither one of them are my friend. I'm alone.
+
+
+
+I walk. I walk more. Stop at Final Red. Remember, you can't go on red. But you can do pretty much whatever the fuck you want except leave and think about your life. Forever.
+
+
+
+Oh, what did you do to get here, Robert? Where are you? Why is there no one? I'm so terribly lonely! It feels as though there is a hand clenching my liver, just firm enough to cause me pain and to remind me that it owns me in equal measure. Forever.
+
+
+
+Hopeful Green is up. Fucking Christ, thank you. Now I can move forward again. There's got to be an end to the street if I keep moving forward, light after light. But... why doesn't anyone notice me?
+
+
+
+Saffronic Yellow. Don't you fucking do this to me. I need to move forward with my life. I didn't mean to live my life this way... I deserve to warm walls with memories. I don't care about the money or the ... who am I kidding? I don't care about anything. I'm just in pain.
+
+
+
+Final Red wash over me. I think I see a head peeking over the roof of the apartment building over there. Yes! Yes... See me. I think that may be a flu gas stack... I can't tell. I can't fucking tell. Please God, someone see me. I look up at the sky.
+
+
+
+I bathe in the light pouring from Final Red's watchful eye, and I look up at the sky.

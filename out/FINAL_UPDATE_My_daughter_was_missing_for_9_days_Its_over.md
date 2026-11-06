@@ -224,9 +224,9 @@ This is a handout.”
 
 Its opalescent lips parted, revealing two rows of well-shaped teeth. Their nature, however, was betrayed by their dark brown color, matching the creature’s horns.
 
-“Your soul was ceded,  
+“Your soul was ceded  
 The moment you pleaded.  
-You’ll need more,  
+You’ll need more  
 To even the score.”
 
 "I can't, OK!" I screamed. "You have to know I can't pay this!" Please, you have to unders—”
