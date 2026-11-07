@@ -1,0 +1,153 @@
+I’ll be honest, I didn’t notice them that much when I first moved here. Far more concerned with getting in on time, what my boss thought of me, you know, stupid work stuff.
+
+
+
+But they’re everywhere. I see them scampering across the lines and ducking underfoot as they dart for a crack in the station’s wall. The cost of living is bad enough for us let alone those little critters.
+
+
+
+They’re always squabbling over the measliest crumb or rummaging through the often-toppled bins. God I’d hate to be one of the late-night cleaners.
+
+
+
+It was even a little funny seeing one drag away a full pizza slice or watching this particularly large one square up to someone's yapping dog. You'd almost admire their nerve.
+
+
+
+Those squeaks and shrieks in the evening, sometimes they get to me. I know they’re only small but there are so many. I even checked under my bed one time, when I swore I heard scratching.
+
+
+
+They’re like a wave, some unseen sea of rodents scurrying in the depths of our city, picking it clean.
+
+
+
+Their own kind isn't even off the menu. Gaunt little corpses dragged away into alcoves, picked clean before you've even had time to look away.
+
+
+
+I know they’re starving, man some of us are, but they’re taking risks, getting just a little too bold. They don’t even flinch when around people, they just wander through the crowds, eyeing up their next meal.
+
+
+
+He was just a bum, some homeless guy off his rocks on whatever substances were in circulation, a heap on the cold tiles. He’d been sleeping down there for some time, probably passed out after shooting up.
+
+
+
+Getting off the train, the human wave seemed to break around him, some giving disgusted looks, others completely unaware. I was curious, I don’t think I will be next time.
+
+
+
+It was hard to see through the swaths of commuters, and I was already cutting it short for my next train, but I stopped. There was movement beneath his tattered clothes, then a small ball of brown shot up, its face stained with a deep red.
+
+
+
+I looked up and caught his eye. Just one, wide and glassy, the light behind it slowly fading. But he saw me.
+
+
+
+He was maybe half a man by that point, still sputtering, but helpless. They’d gnawed through part of his face, most of the right side and a portion of his shoulder. His tongue and jaw hanging limply as he spat and mouthed some sort of helpless plea.
+
+
+
+Most of his lower left leg was exposed through his ripped jeans. I'd initially mistaken the bulging shapes beneath the skin for muscle, but they were moving.
+
+
+
+Glistening polished white reflected the fluorescent overhead lights as another mouthful of tiny teeth returned to work.
+
+
+
+A train screeched to a halt behind me, snapping me out of it. The doors opened and another wave of commuters flooded the already cramped platform. I didn’t have the luxury of time, turning and fighting through the crowd for a seat.  
+
+
+
+I knew they’d be back once we’d dispersed, who wouldn’t want the free meal.
+
+
+
+The next morning there wasn’t even a skeleton. Ripped fragments of clothing and a dark smear disappeared between the tracks, leading off into the deeper tunnel system.
+
+
+
+I can only hope he went out on his own terms.
+
+
+
+Packs scurried those platforms, hoovering up whatever scarps were on offer or taking advantage of whatever vulnerable soul walked the broken tiles.
+
+
+
+By that point the bins were overflowing and I recall hearing a guy at the ticket office say something about missing staff.
+
+
+
+There were lots of temporary workers, people who didn’t speak that much English, but even they were in and out in days.
+
+
+
+I don’t blame them; the rumours were starting to seem more believable.
+
+
+
+Something big, big enough to cause some service workers to down tools and vehemently refuse to go in there at any cost.
+
+
+
+Finally, our government, the saints they portrayed themselves as, closed off the stations for a day. An investigation maybe, but the signs said maintenance, though maintenance never required forearms.
+
+
+
+One day turned into two, then a week. Men in plastic yellow suits wandered in and out, spraying some kind of gas, supposedly in an attempt to clean them out.
+
+
+
+Then, all of a sudden, they simply opened the stations back up, and not another word was spoken.
+
+
+
+Obviously, most people who valued their mortality found other means of transport, but not everyone is so lucky.
+
+
+
+I try not to go down there, especially when there’s low foot traffic, but that’s not it. I’ve seen more of them recently.
+
+
+
+Putting out my bins, there they were picking through my neighbour’s garbage, not even raising their heads when I approached and in broad daylight.
+
+
+
+Small gangs diving in and out of the storm drains, dragging who knows what. Even behind the restaurant across the street, I could hear the owner shouting and swatting them away.
+
+
+
+I tried that too, waved a stick at one that just stood in the middle of the walkway, on my commute home. It should have run, shouldn’t it? I’m no giant, but it didn’t seem phased.
+
+
+
+They’re not contained and nobody seems to care or even acknowledge the problem. No new stories, government notices, even the people in my block refuse to talk about it.
+
+
+
+I'm not blind. I see them every day now. But I suppose we're all programmed to avoid the things we'd rather not see.
+
+
+
+There was a guy on the corner outside my flat. Used to see him most mornings, begging for whatever spare change people could manage. Haven't seen him in a few days.
+
+
+
+Saw something coming out of the storm drain yesterday, though. If I’d have squinted harder, it could have been him. All skin and bone, picking through the rubbish for even a morsel.
+
+
+
+But I didn't stop.
+
+
+
+Why would I?
+
+
+
+Nothing new.
