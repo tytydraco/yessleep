@@ -1,211 +1,79 @@
-[1](https://www.reddit.com/r/nosleep/comments/11aarni/ghosted/?utm_source=share&utm_medium=web2x&context=3)  [2](https://www.reddit.com/r/nosleep/comments/11b55k8/ghosted/?utm_source=share&utm_medium=web2x&context=3)  [3](https://www.reddit.com/r/nosleep/comments/11bzlg0/ghosted/?utm_source=share&utm_medium=web2x&context=3)  [4](https://www.reddit.com/r/nosleep/comments/11cxd9x/ghosted/?utm_source=share&utm_medium=web2x&context=3)  [5](https://www.reddit.com/r/nosleep/comments/11drj5n/ghosted/?utm_source=share&utm_medium=web2x&context=3)
+I’ve never been the type of person to have many friends. I wouldn’t call myself a recluse, but my tolerance for social situations has never been particularly high. At parties, I’d quickly become overstimulated and could never stay for more than an hour, important phone calls would send me into a panic, in a room full of twenty people, I’d be the twentieth one to get a word in, the whole nine yards. It’s not exactly an ideal personality for leading a life, but it wasn’t always a bad thing. I had plenty of time to myself, for my thoughts and my emotions. I preferred going to the cinema alone rather than with someone who would spend the whole time staring at their phone or chattering away at me. I also liked the fact that I didn’t have to waste money on gifts or expensive things for a girlfriend. I know, it all sounds very cynical (my mother used to tell me that all the time) but I’ve always viewed it as a kind of coping mechanism, a way to put a positive spin on my own loneliness. Looking back, I wish I had appreciated that solitude more.
 
-**6**
+I say this because, two years ago, something happened to me that I wouldn’t even wish on my worst enemy. It was during my time as a university student on the east coast. I came from a small town about fifty miles away, and moving to the big city was one of those little milestones in my life that I was truly proud of. There I was, independent from my family and having reached a new level academically. My parents had set aside a lot of money for my college education, saving up over the years, but it still wasn’t quite enough to cover everything for the four years I’d be there. I didn’t have a scholarship, so I took a job as a French tutor. I’ve always been more of a language person, I was fluent in four of them myself. The pay was decent, but in exchange I could set my own hours, plus, there was a bonus for working weekends. The students were all quite different. Some were very quiet and worked diligently, while others felt perfectly entitled to treat the sessions as a place to blow off the steam they’d built up during the school day. For someone like me, a total social wreck, that wasn’t always easy to endure. But then, there was Roland, my colleague and the science tutor.
 
-I’m behind the wheel of my Honda, Adam riding shotgun. Darkness hangs over the forest as I wind my way up the tree-lined road. As we press deeper into this heavily wooded area of Long Island, there is little left to say. The bizarre happenings of the past few days now make sense to me. I finally understand why all these men perished in fires. In death, Akasha controls the element that took her life.
+Roland was about twenty years older than me. He had already been working as a tutor for two years and was very popular with the students. His sessions were always more relaxed, a quality I attributed to his social skills, or, at the very least, to his teaching style. He had a great sense of humor, used engaging real-life examples, and blended fascinating topics into the actual course material. I observed him a few times and was struck by his self-assured manner. Of course, he also had two decades more life experience than I did, which certainly made things easier for me. Those were his words, by the way.
 
-Suddenly Darryl breaks the silence in the car. “I'm so sorry... I never meant to hurt anyone...”
+We worked side by side for several months. I managed to incorporate some of his techniques into my own teaching style, and even if it occasionally made me seem a little bipolar, I succeeded in winning over some of the students. That is, they began to enjoy attending my sessions, and even the quieter ones felt comfortable enough to come out of their shells, viewing the sessions as a safe space.
 
-Part of me wants to punch him, but I suppress the urge. Adam can’t stand it anymore and asks, “You think this is going to change anything?”
+I owed all of this to Roland. I saw him as a friend, someone with whom I could discuss the things that interested me without ever feeling like I was boring him. He was, or at least always appeared genuinely interested, and he would always contribute something of his own to the conversation. If I talked about my favorite movie, he’d ask exactly what it was that I loved about it. If I told him about a place I’d recently visited, he’d share three facts he knew about that country I’ve been to. Eventually, I confided in him about the burden of my loneliness, and he, in turn, shared his own life story with me. From that moment on, I saw him as more than just a friend. I saw him as my best friend.
 
-Good question.
+Writing these words down caused me inner pain. Not because it was so poignant, quite the opposite. It felt wrong. It felt like a lie. 
 
-“I don’t know,“ I say. “Maybe once the world knows the truth, the killings will stop. Maybe Akasha will find peace.”
+Roland didn’t have an easy life. To be honest, compared to his past I should have been incredibly grateful for how my own life had turned out. He grew up in a troubled family. His parents neglected him, his brother suffered from a mental illness, and the family’s financial situation was always a major obstacle. After finishing school, he cut ties with his former life and his family once and for all. He went to college but dropped out after three years due to depressive episodes. Since then, he had worked odd jobs to pay off his student debt. I could always tell that it was difficult for Roland to talk about any of this. I once told him how amazed I was by his positive outlook on life, despite all the hurdles he had faced. Roland didn’t say anything in response. He just smiled.
 
-“If I tell you where she’s buried, I’ll go to jail for life.”
+That was the last time I saw him as a friend. And the first time my own life began to crumble.
 
-“Can you live with yourself, knowing that she’s out there killing anyone who answers her personal ad and is foolish enough to sleep with her? Every one of her victims will be on your conscience.”
+I had just come out of a seminar when I received a message from Roland on my phone:
 
-Adam shakes his head. He senses that I’m offering him the next best thing to absolution.
+“I found your comment the other day about my ‘positive attitude’ quite unfortunate. I’m sure you meant well, but for me, it was counterproductive and depressing, perhaps even re-traumatizing, though that might be overstating it a bit. I think we are, in many ways, incompatible.” 
 
-“I can see why she went after Darryl, but why the others?” Adam asks. “They didn’t have anything to do with what happened that night.”
+At first, I thought it was a joke, which, given Roland’s witty nature, wouldn’t have been entirely out of character, but then I read the lines again, more carefully this time, and couldn’t believe my eyes. I had never seen this side of him before. What was I supposed to make of it? I sent him a few messages in response. I won’t go into detail, there were quite a lot of them, but, in short, they conveyed my confusion, an apology, and a sense of desperation. He never replied.
 
-It’s a good point, and I’ve already given it some thought. “Akasha always got involved with men who weren’t emotionally available. She was looking for love in all the wrong places. Married men, guys in relationships... They’d use her, discard her, ghost her. But not anymore. No one will ever love her and leave her again. Let the world beware.”
+I waited until our next session that we were scheduled to work side-by-side, and I’ll admit, I was literally counting the days until we’d meet again. I felt incredibly anxious at the thought of facing him for the first time since receiving that message.
 
-“So why did Akasha spare you?”
+Then the day arrived. I gave my group of students some tasks they could work on quietly, then headed over to Roland’s room. His group hadn’t arrived yet, so I figured it was the perfect moment to confront him.
 
-I just shake my head. I refuse to share my theory with Adam. What separates me from all her other victims is that I never slept with Akasha. Men betrayed Akasha after they’d gotten what they wanted. Death is allowing her to take revenge. But maybe there are rules she has to play by... I don’t know, but one thing I’m certain of — had I succumbed to her affections, I’d be dead now. Just another name on her ever-growing list of dead Tinder dates.
+“Shouldn’t we talk about that message?” I asked.
 
-In a fatalistic voice, Adam declares that we’re here. I slow down and kill the engine. We get out of the vehicle and breathe the night air. The snow-laden pines seem alive, sickly moonlight casting a spooky glow on everything.
+“I think my message was clear enough. What else is there to discuss?” The bluntness in his voice left me speechless. He didn’t even look at me. “We’re colleagues. Let’s leave it at that.”
 
-As we creep deeper into the woods, boots crunching over the ice, I let Adam lead the way. The beam of my flashlight flits through the darkness like a lost soul. The shovel dangles from Adam’s hand and rakes the snow.
+I went home alone that day. There was no one sitting next to me on the bus to listen to me talk about my latest Letterboxd entries. Once I got home, I impulsively called my sister, Lisa. She was three years older than me and already had a life of her own, with a husband and a child. We’d never been particularly close, but I knew she would listen to my problems without being critical or making me feel like everything was my fault, the way my parents usually did. 
 
-Terrible secrets seem to lurk in this forest. We’re about to unearth one of them. Tonight history is repeating itself, except in reverse. Last time it was Adam and his brother burying the evidence. This time it’s up to us to uncover the truth.
+When she answered the phone, my first question was: “When your ex-boyfriend left you, how did you feel?” 
 
-Adam stops and raises his arm, pointing at a fat tree. “We buried her over there.”
+Lisa was surprised that I’d brought up such a personal topic, but she must have sensed the desperation in my voice, and likely assumed that a girl had left me, so she answered honestly. 
 
-I stare at the vista before us and realize I’ve seen it before. These are the same trees and icy landscape on Akasha’s Tinder cover page. All along, her profile offered clues to her final resting place, but no one was able to put it all together.
+“Do you remember Mimi, the angelfish I had as a pet? She died around the same time Derek left me. At the time, I felt like I’d been cursed. Like I was losing things in my life that actually meant something to me. Mom told me not to be so dramatic, since I’d only been with Derek for five months. Looking back, I can kind of see her point, but at the time, it felt as though those five months, with all their ups and downs, had simply been erased. As if that period of my life no longer held any meaning. Maybe it really doesn’t.” 
 
-I nod and say, “Start digging.”
+I said goodbye before she could start prying into my own situation, but I was still glad I’d called. Her words made sense, and for a moment, I found myself wondering what to make of the last few months I’d spent with Roland. Now that he’d done a complete 180, a total turnaround in how he treated me, did that time lose all its meaning? Was he ever the person I thought he was, even back then? 
 
-“Please, don't make me do this.”
+The next few weeks were stressful. For the first few days, I tried to talk to him, hoping to change his mind, but it was always hopeless. He remained stubborn and kept ignoring me. I no longer saw him as a friend. But the worst part was the realization that he probably never saw me as one in the first place.
 
-My withering gaze silences Adam. He stabs the shovel into the snow-covered mud and begins the dirty task ahead.
+But what really topped it all off was the way my situation unfolded. And I don’t mean that in a good way.
 
-Half an hour later, Adam is standing in a shallow grave surrounded by a mound of ice-hardened soil. With an expression of mingled disgust and sadness, Adam steps back from the grave. I move closer.
+It began with a study group I formed with a few fellow students during a seminar. We met a few times in the library, and I found it refreshing to be around people my own age. We studied, but we also drifted into other topics. The time I had spent with Roland had made me more socially outgoing than I had ever imagined possible. In a group of five, I was now the second person to speak up. I got along with everyone, and I even met up privately twice with one of the female students. I won’t mention her name or go into detail about our meetings, because nothing ever came of it, neither with her nor with the rest of the study group. 
 
-The moment I spot the skeletal remains at the bottom of the hole, a chill claws its way down my spine. Up until this point it’s all been words alone. Here is the reality of what happened. This is why Akasha’s spirit isn’t at rest.
+Shortly after we finished our seminar project, no one reached out to me again. You might think this is standard for project partners, that they stop being friends once the project is done, much like the characters in *The Breakfast Club* who wouldn’t remain friends after their time at detention. But in this case, it was different. I saw that everyone else in the group stayed in touch, just not with me. I messaged each of them, but no one replied, not even the girl I had been interested in. I even tried to approach her in person on campus, but she gave me the cold shoulder. What else was I supposed to do?
 
-Blackened bones protrude from the frozen earth like jagged teeth. A charred skull stares back at me.
+Just when I thought things couldn’t get any worse, my regular students, that I tutored, stopped showing up for my sessions. My supervisor explained that they had either switched tutors or canceled their contracts. When I suggested that they might have conspired against me, he replied that they each had their own reasons, though he admitted he was also surprised that they all quit at the same time.
 
-“Akasha...”
+With all these things happening, I could no longer think clearly. I could no longer eat normally since every bite I took was accompanied by self-reproach, nor could I sleep normally without dreaming of the people I had lost. 
 
-I would swear the stench of burning meat is thickening around me, but it must be my imagination.
+I couldn’t go on like this for much longer, so I took a break from college for the following semester and moved back home to my parents. They weren’t exactly thrilled that I was putting my studies on hold, but they could see how much I was struggling mentally and were understanding. They even arranged an appointment for me with a psychotherapist, for which I was very grateful. 
 
-Adam regards the remains with deep regret. “I'm so sorry,” he mutters under his breath, seeking forgiveness for his crime.
+My therapist, Dr. Connors, specialized in working with people who had anxiety disorders, depression, and symptoms of ADHD. I had never undergone therapy before, nor had I ever been diagnosed with any of these conditions, so I wasn’t quite sure how to go about it. Dr. Connors felt too much like a stranger to me, so I wasn’t sure whether I wanted to explain the specific nuances of my situation to him. But since he is a professional in the field, surely he would understand, wouldn’t he?
 
-I’m caught off guard as I spot a pink backpack next to the remains. I fish out the mud-encrusted backpack that Akasha was buried with. Following a hunch, I open the backpack and find… a cell phone.
+During our first session, Dr. Connors asked about my daily life and interests, keeping the atmosphere relaxed. Then, he let me talk. I began by discussing my social shortcomings and my sense of loneliness, as well as the positive aspects I found within that, Roland, my study group, my students, everything, really. I was so absorbed in my own monologue that I didn’t even notice I had been sobbing the entire time. It was only after I finished that my adrenaline levels dropped, and a wave of embarrassment washed over me. Dr. Connors offered comfort, allowing me to feel whatever I needed to feel. He then gave me a homework assignment: to keep a journal. When I asked what the point of that was, he explained that I should simply put my emotions down on paper. The actual content didn’t matter.
 
-Akasha’s iPhone.
+From then on, I saw Dr. Connors every week. I managed to write in my journal almost every day. At times, I found it difficult to express my feelings to a blank page, but it was the sessions with Dr. Connors that gave those words meaning. He allowed me to read my entries aloud. And to be honest, every instance of anger, every sorrow, and every injustice that I voiced felt like a liberation. I cursed Roland for how he had treated me, as well as anyone else who had given me the cold shoulder. The days I spent with Dr. Connors had become an outlet in my life, a valve I could open whenever my emotions overwhelmed me. That was, at least, until one day when an appointment fell through. 
 
-The screen and casing are cracked, and the battery should be dead but the screen flickers brightly in the cold night. The phone is running on a force other than electricity.
+I received an email from Dr. Connors’ secretary, informing me that I had been assigned to a different therapist because Dr. Connors could no longer continue our sessions himself. She kept the reasons to herself. 
 
-With horror I realize the phone is logged onto Tinder. Adam and Darryl smashed up Akasha’s cellphone pretty good, destroying the technology that would allow it to be geo-tracked, but they never anticipated the symbolic value of the device. Akasha’s destroyed cell phone was a link to the world of the living. A link to her past. A link that allowed her to interact and make connections and haunt our reality from beyond the grave.
+I was completely floored. I was sunken so deep in my desperation that I acted on a sudden impulse, something I never would have imagined myself capable of. I stole my parents’ car and drove straight to Dr. Connors’ office. I burst into his office and, just as I had expected, he was there. I grabbed him by the collar and shook him violently, much to his shock. That made me feel a strange sense of satisfaction. I wanted him to understand how I felt. Yet, in his expression, I also saw horror and confusion.
 
-Tinder had killed her. But the dating app had also become the instrument of her unearthly vengeance. Her way of luring the living into her deadly curse.
+I don’t recall exactly how long I shook him or what happened immediately afterward. I was so overstimulated, but I do remember that I was escorted away by security and taken to the psychiatric emergency department at our local hospital. 
 
-As I try to wrap my head around it all, Adam whirls and takes off into the night. For a second I just stand there, too stunned to react, but I shake off my paralysis and tear off after him.
+Shortly thereafter, my parents had me admitted to a nearby psychiatric clinic, where I have stayed ever since. The diagnosis: manic depression. I’ve heard that my behavior was difficult to assess because Dr. Connors had no file on me. Whether he had destroyed everything he’d written down about me, or if he had even recorded anything at all, I cannot say. I only know that he was among the people I had lost.
 
-I storm through the foreboding forest landscape, Akasha’s cell phone clutched in my hand. Part of me wonders how it could be working without power, but this doesn’t seem more fantastical than anything else I’ve experienced recently.
+Besides my parents, my sister, Lisa, visited me regularly. She was understanding when she learned the true reason behind our last phone call. I was glad she was there, talking to me as if I weren’t locked away with a bunch of mentally ill people. Yet, despite everything, I was no longer the same. I had become what I once claimed I would never be: a recluse. I avoided all contact with strangers, which wasn’t particularly difficult, given that I spent most of my days alone in my room anyway. I passed the time writing stories and immersing myself in worlds where my fictional characters were the only ones who never left my side. 
 
-I charge through the thick undergrowth, stumbling over icy rocks and jumping over banks of snow. My breath comes in adrenaline-fueled bursts as I chase after Adam.
+When Lisa visited last week, I steered our small talk toward my latest story, which is based on Mimi, her angelfish. In the story, my fish character discovers one day that it is the only sea creature in the entire ocean. It then attempts to get caught by a deep-sea diver, hoping to spend the rest of its life as a pet in an aquarium.
 
-The forest is flooded with the Honda’s headlights. I spot Adam, a grim silhouette etched blackly against their glow. His words reverberate through the night. “I never meant to hurt anyone!”
+Lisa didn’t say a word the entire time, so I assumed she was listening excitedly. But then I looked at her face and could see that she was suddenly looking at me in an entirely different way, as if I were a stranger to her. She also left earlier that day than she usually would. Long story short, I haven’t heard from her since that last meeting.
 
-The tone of his voice worries me, and my concern is validated as I step closer. Adam is holding a jerry can in his hand. Before I can attempt to stop him, he douses himself with gasoline. The acrid-smelling liquid soaks his winter coat and pants, streaming down his face.
+By now, I’ve stopped questioning anything. Even so, I still have to come to terms with the fact that twenty years of my life, years in which Lisa played a part, will be erased. I don’t know how I’ll cope when it’s my parents’ turn. 
 
-“Stay back!”
+I’m beginning to think that perhaps Lisa’s assumption back then wasn’t so unreasonable after all. It’s possible that I really am under a curse.
 
-I do, understanding Adam’s intentions. All I can do is appeal to his crumbling sanity. I can’t allow him to succumb to the guilt that has tormented him for all these months. Adam hurls the emptied gas can in the snow and extricates a lighter from his pocket.
-
-“Adam, please don't.”
-
-“I was just trying to help my brother. I had no idea she was still alive. You gotta believe me!”
-
-I take one more cautious step toward Adam.
-
-“Adam, stop — I do believe you.”
-
-“I've been dreaming of her. Every night I close my eyes and see her burn.”
-
-“Everything’s gonna be alright...” I say the words even though I’m not convinced. I take two more steps, arms up and palms open.
-
-“I'm sorry,” he says with grave finality and I scream, “DON'T!”
-
-Adam isn't listening. He is beyond my reach.
-
-Beyond help.
-
-He fires up the lighter.
-
-“NOOO!”
-
-Night is turned into day as Adam transforms into a human torch. Flames engulf him the same way they devoured Akasha and her victims.
-
-I recoil in shock.
-
-As the fire melts Adam's body, his screams of agony echo through the haunted forest. A forlorn plea for forgiveness that will go unanswered.
-
-I avert my gaze, unable to further bear witness to the horror. Mercifully, Adam’s death cries stop and his burning figure slumps forward. The only sounds now are the fire as it consumes what’s left of his body.
-
-Still reeling from the shock, I remember the phone in my hand. The screen has changed. Facebook Live is on and offers me a view of an apartment I’m all too familiar with. It’s Lynn’s place as viewed through the webcam of her desktop computer.
-
-*Akasha is going after my girl.*
-
-**\*\*\***
-
-I navigate my car down an icy street, driving as fast as I dare. Getting pulled over or causing an accident won’t do Lynn any good. Before leaving Akasha’s gravesite, I used Adam’s phone to call the cops. I told them about Akasha and where they could find her, then promptly hung up.
-
-I made sure to wear my winter gloves to avoid leaving any fingerprints. I’m hoping the cops will think Adam called to confess before he killed himself. There should be nothing linking me to the scene. At least I hope so. Either way, I have more important concerns at the moment. I need to reach Lynn before Akasha attacks her. I fear that I’ll be too late, but I have to try.
-
-The drive into Astoria feels like an eternity. I keep checking Akasha’s cell, but it has gone dark. What does that mean? Is it a good sign, or a bad omen? Does she know I found her grave and am now in possession of her phone? What are the rules of engagement for ghosts?!
-
-These are the insane questions that cycle through my mind as I whip down the road, hands clenched white around the steering wheel.
-
-I arrive at Lynn’s four-story apartment building just as one of the windows explodes. A fireball bursts out, dispersing into the winter night.
-
-*OH MY GOD!*
-
-A handful of workers and customers from the fruit and vegetable market across the street look up with shocked disbelief. The fire is spreading. While they gawk at it, I park the car and jump out, rushing toward the burning building.
-
-I pass through the main entrance but am met by a wall of fire in the staircase. Thick smoke stings my lungs. There is no way to make it up to the second floor and reach Lynn’s unit.
-
-Or is there?
-
-Panic growing, I retreat to the street. There might be another way. I move along the side of the structure with dark urgency. Smoke plumes from the windows. Weakening timbers screech under the fiery assault.
-
-I round the corner and zero in on the fire escape. Moments later, I’m climbing the rusting steps. As I reach the second floor, out of breath but driven by desperation, I pray I’m not too late. I find the window, wrap my jacket around my balled fist and punch through the glass. Shards slice through the fabric, but I ignore the pain. As I brush pieces of glass aside, I’m hit by a cloud of cloying smoke. I bring up my coat’s collar to cover my nose and mouth, slide the broken window open and climb into the building.
-
-Inside, a howling world of fire awaits me. Flames and smoke are everywhere, the heat searing.
-
-“LYNN, WHERE ARE YOU?!”
-
-I surge down the hallway. My body hums with adrenaline. Every fiber of my being is urging me to run the other way, but my girl is trapped in this building and I’m not leaving without her.
-
-“Lynn, can you hear me? LYNN!”
-
-I close in on Lynn’s unit, eyes ticking back and forth, trying to penetrate the columns of smoke. Tongues of red and orange flame roil over the ceiling, crackling as they spread with supernatural speed.
-
-Suddenly, a voice cuts through the roar of the blaze. “*Mark...”*
-
-I whirl and spot my girlfriend further down the corridor. Smoke inhalation has taken its toll, and she’s fighting to stay conscious, but she’s otherwise unharmed.
-
-Two quick strides later, I’m next to her. I give Lynn a quick hug before I grab her hand and pull her along. Her breathing lurches raggedly – who knows how much smoke is in her lungs already. She keeps staring at the burning staircase ahead. Akasha is nowhere to be seen, even though this must be her doing. A crumbling noise draws my attention. The staircase is collapsing. *Oh no.* I hope that everyone else in the building got out.
-
-I back away from the conflagration, mind racing. We’ll have to retrace my steps and use the fire escape.
-
-Good idea, except for one tiny problem. A wall of surging flames now blocks the way I came from. We’re trapped, the relentless ring of heat closing in around us.
-
-I clutch Lynn to my chest. She is trembling with mortal fear. She knows all too well what is about to happen. Death is approaching fast.
-
-A figure grows visible at the center of the inferno. Akasha. Her body is burning, flames swirling around her. Her hellish gaze finds me, and she *surges* toward us, almost as if she is made of fire herself. Her eyes sparkle with a dark yearning as she approaches. One second she is as beautiful as she was in life, another she is a map of bubbling burn scars. Her haunting visage changes back and forth with each step she takes.
-
-I want to run, but escape has ceased to be an option.
-
-I must face Akasha.
-
-“I know what happened to you,” I say.
-
-Akasha draws nearer, my words falling on deaf ears.
-
-“I know about Darryl. How he lied to you... Just like all the others.”
-
-This latest revelation elicits a reaction. Akasha slows her advance.
-
-I forge ahead. “I know how they would promise you love but always leave you afterwards. Akasha, I know what Darryl and Adam did to you.”
-
-Akasha grows still. Encouraged, I continue. “The cops already know what happened. Soon the world will learn the truth. Your story will be told. You can be at peace.”
-
-A frozen moment. The fire rages around us. In a matter of seconds it will envelop our flesh and force us to suffer the same terrible fate Akasha was forced to endure.
-
-“Akasha, please. We’re innocent.”
-
-Akasha’s features grow masklike again. The old yearning and fury returns. Her blazing gaze daggers into me. A carpet of fire marks her continued approach.
-
-Despite my best efforts, I wasn’t able to reach her.
-
-I swap a glance with Lynn, then meet Akasha’s stare again.
-
-“You want me, don't you? If you can have me, will you let her go?”
-
-Tears stream down Lynn's cheeks. I turn toward Akasha and approach the fiery apparition before me. Tendrils of flame dance around us as we meet at the end of the hallway.
-
-Akasha’s attention remains fixed on Lynn's sobbing form. She knows that I’m sacrificing my life to save the woman I love.
-
-Akasha reaches for me but before her burning touch can roast my flesh, she lets out a piercing wail. A horrific sound filled with longing, despair and unrequited emotion.
-
-I suddenly I know what I must do.
-
-I pull out Akasha’s cell-phone from my pocket.
-
-And I toss it out the nearby window.
-
-My eyes follow the falling phone as it shatters on the streets four stories below.
-
-Akasha’s wail intensifies. Her only link to the world of the living destroyed.
-
-The wall of flame is sucked inward, balling into a giant fireball that suddenly extinguishes itself in a brilliant flash of light.
-
-Lynn and I are left behind in the gutted ruins of her apartment building. The sirens of an approaching fire engine grow audible. All that matters is that Lynn is safe. Our bodies remain locked in a tight embrace. As we cling to each other, it feels like we’ll never ever let go.
-
-*Love burns you when it’s hot.* But it can also save you.
+ 
