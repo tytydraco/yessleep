@@ -1,0 +1,262 @@
+I’m posting this as a warning. When I started this, I had no idea where it would go; if I had, I’d never have done it. The things I've seen… I’m praying you don’t have to. 
+
+Last year at this time, I was just your average college graduate. That is to say, broke as hell. Barely covering my share of the rent, living off ramen, watching the bills pile up. I never thought I’d be this desperate with a college degree. 
+
+One day, I was talking with my roommate and she was joking about people doing feet pics on IG. I laughed along with her. How ridiculous, right? But then, that night, I pulled up some info on my computer. You could also sell them on TikTok or on Reddit? Or on this thing called FeetFinder? And people were making up to \*$1000 per week?\* That would definitely put a dent in what I owed, maybe even get me out of debt and into my own place. 
+
+And the big selling point was that I could do it without anyone ever knowing who I was. Before I knew it, I’d created an anonymous account and taken my first couple of pics. 
+
+The results weren’t huge right away; I got a couple of likes and comments. 
+
+Then I made my first sale. I still remember what it felt like to see the notice on the screen. Someone wanted to pay \*money?\* For pics of \*feet?\* \*My feet?\* I wasn’t sure if I was more disgusted or grateful. But there was one thing I absolutely knew I was, without question:
+
+Hooked. 
+
+The next day I went out and got a real camera and light and set up an area of my room as a \*photo corner.\* I took some high-resolution pics and posted them, and before I knew it, I’d sold them, too. 
+
+So I took more. Fancier. I started offering options. Some with stockings, some with nails painted different colors - the most popular things. I told myself I wasn’t getting into any of the real perverted stuff - you wouldn’t imagine the kinds of things people will do. Just normal pics of my feet and lower legs. I wasn’t doing anything wrong. 
+
+Over the next few weeks, the sales started ramping up. I started seeing more and more deposits into my account. Before I knew it, I had enough not only to pay my rent, but to get my own place. Nothing fancy, but no more roommates. My best friend Sarah asked me how I could afford it; I told her I got a new job but avoided sharing any details. She didn’t care - she just wanted to visit my new place. I gave her a key and told her she was welcome over anytime. 
+
+The thing about running a site like this was that you kind of got to know your regulars. And it was like any other business - customer service was key. Building and nurturing relationships could be the difference between success and not making rent. So every week I’d jump online and chat with visitors anonymously. 
+
+*\*Ilovefeet233: Hey, footprincess877! Loving the new pics! Got any more coming?\**
+
+*\*footprincess877: Hey, ilovefeet233! Love your username! ❤️More great 👣 pics on the way! Anything in particular you’d like to see?*\*
+
+*\*ilovefeet233: Would love to see some nature pics: your beautiful feet in fresh grass, surrounded by flowers.\**
+
+*\*footprincess877: I should be able to do that. Keep an eye out for my new offerings - I think you’ll enjoy them! 😉\**
+
+*\*ilovefeet877: 😍Will do! You’re the best!\**
+
+That should be an easy one. 
+
+*\*toesinthesand429: Hi footprincess877!\**
+
+*\*footprincess877: Well, hello sexy! What can I do for you?\**
+
+*\*toesinthesand429: I’m a big fan! Any chance you might do a series on a beach? I love the sight of pretty feet in the sand.\**
+
+*\*footprincess877: So I gather. I’ve been wanting to take a trip to the beach. I may be able to make that happen! Thanks for being a fan!\**
+
+Well, his username certainly checked out. I was ready to log off when another ping came though. 
+
+*\*footfan1832: Hello?\**
+
+*\*footprincess877: Hello there! What can I do for you?\**
+
+*\*footfan1832: I’ve really enjoyed your latest pictures. Are those your feet in the pics?”*
+
+*\*footprincess877: They absolutely are! No AI-generated images here; just 100% all natural feet.\**
+
+*\*footfan1832: How do you keep them looking so beautiful?\**
+
+*\*footprincess877: I have a very extensive care regimen. Daily skin washing with soap and water, moisturizer, exfoliation, and nail care. Sometimes I even splurge for a professional pedicure. Not cheap, but worth it to keep these puppies looking good for you all!\**
+
+*\*footfan1832: I’d love to hear more about your routine. Is there somewhere we could meet?”*
+
+That was a first. 
+
+*\*footprincess877: Why don’t we just keep talking the way we are right now?\**
+
+*\*footfan1832: I’d just love to meet you and have a conversation in person.\**
+
+This was getting a little uncomfortable. 
+
+*\*footprincess877: Actually, I have to run now. But I should have some more pics posted in a few days. Thanks so much for being a fan!\**
+
+With that, I disconnected and logged out of my account for the night. That was intense. I guess anytime you’re online you risk meeting someone crazy, but that was borderline nuts. And by borderline, I mean absolutely, positively, creepy, weird, gave-me-goosebumps nuts. Maybe I’d take a break from the chat for a while. 
+
+The next day I woke up and lazed around. My site was doing well enough that I didn’t really have a job except to take care of my feet. I thought about taking commissions - people had some weird ideas that they’d pay a pretty penny for if I was willing to do them. 
+
+Forgoing the online chat, I went online and checked my sales for the week. $1,400! Not bad! Feeling like I could afford to splurge, I decided to head out to my favorite cafe for a late breakfast. I texted and asked Sarah if she wanted to meet me. 
+
+“Sorry, babe - I can’t get off work. But maybe dinner tonight?”
+
+Having made plans for later, I headed out. 
+
+It was a good cafe - everything tasted great and the service was exemplary. I was finishing up my food when my phone dinged with a text. I pulled it out, assuming it was Sarah. 
+
+“Hello, footprincess877. How are you this morning?”
+
+What?
+
+“Who is this?”
+
+“It’s footfan1832. We chatted last week. I was hoping to finish our conversation.”
+
+I was suddenly very nervous. 
+
+“How did you get my number?”
+
+“I have a friend who got it for me.”
+
+“Which friend?”
+
+“Just a mutual acquaintance. I’d still love to meet with you to talk in person. Where would be a good place to meet?”
+
+“I’m really not sure that’s a good idea.”
+
+“It’s alright - I just want to talk. I have a couple of questions I’m hoping you can answer. Maybe we could meet at the cafe on 3rd street?”
+
+My heart froze. The cafe I was in now was on 3rd street. It was the only one in the vicinity. How did they know where I was? Were they here? Were they following me? And if they followed me here, what was to stop them from following me home?
+
+“I have to go now. I’d really appreciate it if you kept our conversations online.”
+
+“I tried, but you disconnected me earlier before I got to finish. I had more questions.”
+
+Crap. 
+
+“I have to go now. Bye.”
+
+Jesus. My heart was racing; I could practically feel the blood pumping thigh nh veins. I was terrified. I got up from my seat and headed for the door, looking all around me. I couldn’t see anyone staring or following me (except the people wondering if I was crazy for constantly looking around with wide eyes), but that didn’t mean they weren’t there. How would I know? It’s not like I was a spy - I wasn’t exactly trained in countersurveillance and evasive maneuvers. But something told me not to go straight home. I needed a place that was wide open, where no one could sneak up on me without me seeing them. 
+
+I walked a few blocks to the park. Open space, lots of couples and families -  a stalker would have trouble getting near me without being spotted. I sat on a bench and pulled out my phone. There had to be someone who could help. I wanted to call the police, but what would I tell them? “A person has been messaging me saying they want to meet to ask questions about the feet pictures I sell online. No, I’m not crazy, this is real.” Yeah, that would go over great. 
+
+With no other ideas, I called Sarah. 
+
+“Hello?”
+
+“Sarah!”
+
+“Hey, girl. What’s wrong? You sound stressed.”
+
+I exhaled, trying to calm myself. “I’m probably being ridiculous, but…”
+
+“But what?”
+
+“I think someone’s following me.”
+
+There was a pause. “Are you serious?”
+
+“Completely. They started chatting with me online, and that was a bit weird but I blew it off. Then texted me at the cafe. They said a friend gave them my number, but what friend? And that’s not the worst part.”
+
+“Go on.”
+
+My breath was shallow. “They mentioned the cafe I was at. Just in passing, they didn’t say it like a threat, but… *I think they knew where I was.”*
+
+I heard Sarah breath over the phone. “Ok, where are you?”
+
+“I’m at the park on 8th street.”
+
+“Ok, stay there for an hour or so and then leave quietly. Make sure to blend into the crowd and go somewhere you normally wouldn’t. When you get there, text me and I’ll come meet you.”
+
+“Ok. Thanks, bestie.”
+
+I hung up and sat there, looking around the park. A couple eating a picnic lunch. A mother watching her two kids play in the grass. A woman jogging by, headphones in, oblivious to her surroundings. No one here looked like a stalker. No one looked dangerous. But how would I know? It’s not like they’d be dressed like a Bond villain or twirling an evil mustache. 
+
+Ok. Get a hold of yourself. Being paranoid isn’t going to help. I sat there, scrolling on my phone for a few minutes, my eyes darting around every few seconds. Eventually, I got tired of it and left. I decided to go to the public library; it was large, there were people around so I wouldn’t be alone, and no one would think to look for me there. I wasn’t exactly a bookworm. I headed over that way. As I was walking, I thought I heard a soft squishing behind me. I looked back - there was no one there. 
+
+I stepped into the library and immediately moved to a back row and sat at an isolated table with a view of the entrance. Then I pulled out my phone and texted Sarah. 
+
+“I’m at the library on 10th street. See you when you get here.”
+
+Then I waited. 
+
+And waited. 
+
+The silence was eerie; I’d lived my whole life in a big city, so I wasn’t used to the quiet. It made the time pass slower. 
+
+Then I heard a noise behind me. Like one of the books slid down flat onto a shelf. I looked back quickly, but there was no one there. I got up and walked around behind the shelf; still no one. Then I looked down - there were wet spots on the floor, as if someone had been walking while dripping water. And not just a couple of drops - the floor was *damp*, as if someone had come in from the rain and wrung out their wet clothes. 
+
+What the fuck?
+
+I didn’t know what was going on, but I knew I couldn’t stay here any longer. I gathered my things and left, bolting through the library door as if I could outrun my fear. I caught a cab back to my neighborhood, then had the driver go around back and drop me off. I rushed to the elevator and up to my room. 
+
+I darted in and closed and locked the door behind me. I’d made it. I was safe. 
+
+Then I noticed that something felt… off. I went around the corner into the living room. 
+
+Sarah lay on the floor behind the sofa, arms sprawled out. She wasn’t moving.   
+*Oh, God.* 
+
+I ran to her, reaching out to take her pulse. She wasn’t breathing. And that’s when I realized that her body was missing from the waist down. 
+
+I felt the tears begin to fall. What was she even doing here? Then I remembered giving her a key. She must have come by to check on me. Dammit!
+
+Then I heard a ping. I pulled my phone out of my pocket and checked it. There was a new message. 
+
+“I’m glad you made it home safe. Is now a good time to talk?”
+
+I checked the time - the message had just come through now. 
+
+From Sarah’s phone. 
+
+I moved to jump up and slipped. It was then I noticed it for the first time. 
+
+The ground was *soaked*. Like someone had dumped water on the floor. Sarah’s shirt was also wet, as were her cheeks. With a feeling of dread, I opened her mouth.
+
+It was full of water. 
+
+She’d drowned. But how did she drown on the floor of my apartment? There was no water in sight. I went and checked my bathtub, but it was bone dry - she clearly hadn’t drowned there. And if she’d been brought here after drowning, the building manager or security cameras would have seen it. 
+
+It made no sense. 
+
+I knew I had to get the hell out of there. I turned and ran back out, fleeing down the hall, not stopping until I was outside the building. What now? I had nowhere to go. Sarah was the person I would call in a situation like this, and now she was dead. I could call the police, but what would I say? “Hello, police? I need help. My best friend is dead in my apartment, apparently drowned on the dry floor, with no water nearby, probably by the same person who’s been stalking me all day since they found me on my site selling feet pics.”
+
+If they didn’t blow me off as crazy and hang up, I’d be the number one suspect and be in jail by the morning. 
+
+Fuck. 
+
+I needed a plan, but I didn’t have time to think of one now. Whoever this was, they knew where I lived and what I did for a living, and they weren’t afraid to kill. 
+
+This was bad. 
+
+I didn't know where to go - I just knew that I had to get away before they found me. I tried to stick to public places, but I was getting late and most things were closed. After being asked to leave a convenience store so they could lock up, I ended up on this dingy 24-hour laundry, the kind I hadn’t been to since I’d gotten my nicer place with washer and dryer included. I sat in one of the plastic seats, constantly looking surreptitiously around me. With my paranoid demeanor and my lack of laundry, I probably looked homeless; the other people there subtly avoided me. 
+
+Eventually, it was just me in the laundromat. I let out a breath and tried to relax. I needed to think. I needed to get out of town. I needed a plan. I was so wrapped up in my thoughts that I didn’t realize how humid the room was getting. I could almost feel the water in the air. Then the lights went out. This can’t be good. I turned to leave, but the doors wouldn’t open. Then it got weird. 
+
+All at once, every washing machine opened and started filling with water until it overflowed onto the floor. They kept going, and going, until the floor was covered two feet deep. How was this possible?
+
+I stood, up to my thighs in water, looking for a way out, when I saw the water move, like something was in it. It moved too fast to see, but it was there, moving all around me. And then the water parted, forming an aperture through which a figure walked. 
+
+She looked tall and unnaturally beautiful, like a queen walking amongst commoners. Hey golden hair flowed down in waves over her shoulders, accentuated by her striking green eyes. From her waist emerged a long, beautiful tail, like I’d seen in fairy tales as a child. Except that hers split in the middle. And there, emerging from beneath it, were two legs - strong, shapely, and not hers. You could tell because they didn’t match the color of the rest of her skin and they were surgically attached below her tail. 
+
+“Finally, we get a chance to talk,” she said to me in a melodious voice that called to me like the siren’s song of myth. 
+
+“Who are you?” I asked. 
+
+“Isn’t it obvious? You know me as \*footfan1832.\* We spoke online.”
+
+“Why are you following me? Why did you kill my roommate?”
+
+“That was regrettable, but she attempted to interfere with our plans and we couldn’t allow that. And we wanted to meet with you because of the pictures you shared online. Your feet and legs are lovely. I’ve been looking for a pair just like them.”
+
+“What for?”
+
+“To appropriate for our use. My people have inhabited the sea for our entire existence. Recently we’ve developed a desire to see the world on land, but as you can imagine, that’s difficult to do when you cannot stand upright. Fortunately, we’ve developed a procedure to transfer legs from your people to ours.”
+
+I was stunned. “So you want me to… *give* you my legs?”
+
+“That would be nice of you, but your cooperation isn’t necessary, strictly speaking.”
+
+That’s when I saw it. The nails on her feet. They were painted in the same color nail polish Sarah always wore. 
+
+Oh, God. 
+
+“And what happens to me after this procedure?”
+
+“If you’re lucky, you can live a full life, even without the ability to walk.”
+
+I pointed at her legs. “Do you mean like Sarah was ‘lucky’?”
+
+Her look said everything. 
+
+I looked down; other women were slithering along the surface of the water, propelling themselves with their tales. In that moment, I don’t know what’s more unbelievable - that mermaids are real or that I find out because they’re trying to steal my legs. It was so ridiculous that I almost burst out in laughter. Then I remembered I was in danger. 
+
+I looked around for an escape, but there was nowhere to go. The only exit was sealed and I was seriously outnumbered. Then I felt something touch my leg - I looked down just in time to see claws grasp them at the calf. Panicking, I kicked out, making contact with something solid, followed by a loud shriek. The claws briefly released me and, with nowhere else to go, I jumped up onto the wooden table against the wall. I looked around, but there was nothing to work with. There were at least eight of them, and all I had was me, a small pocket knife, and a can of pepper spray I carried for self defense. They were going to kill me. 
+
+I felt my heart beating relentlessly in my chest. I couldn’t believe I was going to die, here, in a 24-hour laundry, mutilated by killer mermaids. 
+
+You know how, when you’re completely desperate, your mind starts coming up with crazy ideas? Well, I had one of those. I was no Ms. Fixit, but my dad had taught me a few basics. I reached over and pulled the power cord from the washing machine next to me. Then I took out my pocket knife, stripped off the outer insulation until the exposed wires showed, and dropped them in the water. 
+
+There was a cracking *pop* as electricity coursed through the water, followed by the sounds of inhuman screams as the mermaids flailed and thrashed as they were electrocuted. I watched as they fell one by one until there was no noise left. Then I held my pocket knife by its rubber handle (thank God for my lessons on insulation) and jammed the metal blade into the power outlet. The power shorter and the lights in the room flickered and cut out. Once it was safe, I jumped down from the table and rammed it to the door, hitting it with a chair until the glass broke. I ran into the night, never once looking back. 
+
+My life has completely changed since then. I’ve moved to another part of the country (no, I won’t tell you where) and changed my name. Don’t bother to look; you won’t find me. The only reminders I have of what I went through are some old photos of Sarah and me together and the scars on my legs that have never gone away. There’s nothing to connect me to my former life, and I’m never going back. I’m only revisiting these events to warn you:
+
+Never post feet pics online. 
+
+Never engage with strangers in a chat. 
+
+And, if the air suddenly gets inexplicably humid around you, or water starts to appear from nowhere, [run](http://wee.reddit.com/u/cbenson1273). 

@@ -1,0 +1,109 @@
+*Hey guys. I’ve found out something really unsettling and I need some advice. Instead of retype my whole situation into a narrative I am just going to copy + paste some entries from my therapy journal because I think this explains it pretty well, and I don’t want to relive this experience any more than I have to. Thanks.*
+
+ 
+
+**10/3/2026 11:34 AM**
+
+My therapist said it would be a good idea to start journaling to record my feelings, and help me map out what might be an anxiety trigger. The past few years of my marriage have been really hard. Not with each other so much as just circumstances. Normal stuff, like everyone else experiences. Money struggles, trying to find a house we can afford. Looking for better jobs. It’s just been a struggle to get ahead. But luckily for us, this year my husband Jordan has been doing great in his career. He’s actually been promoted. I’m so proud of him. It’s made life so much easier. 
+
+Even though I should be worrying less now, it’s like the opposite has happened. For the last few months my anxiety has been sky high. It builds up all day long until I can’t stand it anymore, and then I go for a run so I can sleep. Sometimes that’s not enough and I still wake up in the middle of the night with my heart pounding, my mind all over the place. Hopefully this journaling will help.
+
+ 
+
+**10/7/2026- 7:30 PM**
+
+I’m feeling a little off right now so I thought I would take some time to write out my feelings again. Earlier today I was working on the credit card statements and creating a big spreadsheet of all our yearly expenditures, going back several months. In the process I came across a charge from March for an Airbnb for $227.50. I thought this was weird because we haven’t gone anywhere this year and I hate to admit it, but I immediately thought maybe my husband was cheating. My stomach dropped and I started breathing like I might pass out. But what was weird was that when I confronted him, he looked at me like I was crazy and said, “That was for the weekend cabin rental. Don’t you remember?” That’s just the thing, I don’t remember anything. I have no memory of going anywhere. He pulled out his phone and showed me a picture of us in front of a trailhead. I was shocked. I didn’t want to sound crazy so I just said, “Oh yeah, that. I forgot,” And left the room. But I DON’T remember going there and staying in a cabin and hiking. At all. 
+
+Later that night I pulled up the Airbnb account and browsed our past stays. There it was- this rundown cabin up in the hills. I screenshotted the address and pulled it up on google maps. It’s about 2 hours away, right at the edge of a national park. 
+
+I just feel so crazy, like I’m losing my mind. I really don’t remember this. And I don’t know why.
+
+ 
+
+**10/17/2026- 6:47 PM**
+
+I know I shouldn’t have, but I couldn’t stop myself. I kept thinking about the vacation. I kept looking at that screenshot on my phone. I pulled up the listing on Airbnb and looked at it several times. It didn’t have good reviews, and really didn’t look that nice. So why had Jordan picked this place for a romantic getaway weekend last spring? None of it made any sense to me. So, when I saw that the cabin had a free weekend coming up the same weekend Jordan would be out of town for work, I booked a night there, on my card where he wouldn’t see. 
+
+I waited for him to leave before I tossed a few things in a bag and jumped in the car. The drive was uneventful, even boring. The roads got smaller and smaller with fewer and fewer houses around, just miles and miles of forest. This time of year, the forest is blanketed in fog. You can barely see twenty feet ahead of you, it really gets that bad. By the end of it I was creeping along at 20 miles an hour, headlights barely doing anything. But I made it.
+
+I’m here now.
+
+This place is… very isolated. On my drive in I saw the trail head parking lot, just a mile or so down the road from the cabin. So at least there are hikers in the area, but otherwise, this cabin is all off by itself. Just that alone is kinda creepy. 
+
+Then I went inside. 
+
+It smells musty, the floors are dingy, and there are spiders in the shower. It’s gross. I don’t even want to look at the sheets. I went all over the place, just checking it out. You never can be too sure. 
+
+That’s how I found the camera.
+
+My first thought was “Eww,” because what kind of creep puts a camera inside an Airbnb, and worse, what kind of stuff had it recorded? But then I wondered if it had captured *our* stay here a few months ago. 
+
+Maybe it recorded *me.*
+
+ 
+
+**10/17/26- 10:34 PM**
+
+I don’t even know where to start. First, I’ll just say I did NOT stay in the cabin, not after I saw what was on the camera. I just got right back in my car and drove off. I’m not sure I even locked the door. I bounced out of there that fast. I went to the nearest Holiday Inn Express and I took a hot shower just to wash the ick off and calm down some. 
+
+I took the SD card out of the camera and plugged it into my laptop (luckily the card was the same size as the one I used for my old camera, so I had a USB reader). I’m not an idiot. I have heard about weird Airbnb owners who record their guests, and I was prepared to see the worst.
+
+When I pulled the files up on the SD card, I could see that the camera was motion activated. There were multiple clip files from a single day, and then nothing for long stretches of time. I did my best to scroll up to the dates when we were in the cabin and not look at anything, or anyone else, that had been staying there. That was just too weird. 
+
+Then I found the clips from our stay. All 27 of them.
+
+I started at the beginning. Normal stuff there, 2 second clips of my husband entering the front door and walking to the bedroom with a suitcase, followed by a second clip of me following him. (I should mention the camera view covers the front door, living room area, and kitchen. I found it on top of a kitchen cabinet).
+
+Several clips of us just walking around the cabin, looking at things.
+
+A clip of us leaving. About three hours later, another clip of us coming back in. I assume this is when we went hiking.
+
+There’s a clip of us cooking a simple dinner of spaghetti; a clip of us sitting at the table; and then a clip of me washing dishes.
+
+The next clip I’m still standing at the kitchen sink, looking out the window. My husband is right behind me. He’s holding something in his hand- looks like a rock. 
+
+And then he hits me on the head. The clip shows me falling to the floor.
+
+The next one shows him dragging me into the living room and arranging my limbs.
+
+In the next one, he’s drawn a chalk circle and lit some candles. He’s reading something- but the audio is so low I can’t tell what he’s saying. It doesn’t sound like English.
+
+And then- there’s a clip of him LEAVING. He just LEAVES me, laying there on the floor with the candles burning and everything. I’m lucky the house didn’t burn down.
+
+The next video is 27 minutes later. I am standing up.
+
+The next clip is 4 seconds long. I am standing, wavering. And talking to someone. No one is there, no one has come in. The audio is muffled.
+
+The next few clips are basically the same. I am still standing and whispering. 
+
+In the next one there is a PERSON standing in the living room near me. They are very dark on the video but there is someone THERE. 
+
+The next clip is just a partial, it shows me again for half a second and then it cuts to black. There is still muffled audio that I can’t make out. That clip is 42 seconds long.
+
+Three more clips of blackness, varying lengths, with unintelligible audio. 
+
+And then- nothing. Not until the next morning.
+
+I’m still in the circle. It looks like I’ve slept there. The front door opens, Jordan comes in. He goes over to me and helps me stand up. He walks me out the front door. I look dazed.
+
+I don’t appear on the camera again. He comes in one more time and grabs the unopened suitcase.
+
+ 
+
+**10/18/26- 9:27 AM**
+
+I took some Benadryl last night and I was able to calm down enough to go to sleep at the Holiday Inn. I am really confused and hurt. I feel so betrayed by Jordan. I don’t understand what he did to me. But he did something. He sold me to something, FOR something. I think this is why I’ve been having so much anxiety. My body knows something is wrong.
+
+I know this is sick of me to even say. But I think he offered me up in exchange for improving his career. 
+
+I looked back through our texts this morning while I was drinking coffee at the continental breakfast and shortly after our weekend trip, I had the first text from him about being promoted at work. I’m not saying he couldn’t have done it on his own without help, but the guy who’s place he took… well, that guy *died.* Of a heart attack. So, it was really sudden, and they needed someone to take his place immediately. And Jordan was the best option. I hadn’t thought much about it back then, because stuff like that does happen, and the guy wasn’t getting any younger. But now when I think about it, I wonder if his death was totally natural?
+
+ 
+
+*I need help knowing what to do next. My first step is to report the Airbnb owner for being a creep, obviously.* 
+
+*I am sure Jordan didn’t know he was being recorded. Now I have proof he did something to me. I copied all the files of us onto my computer before I put the SD card back in the camera, and put it back where I found it.* 
+
+*Our relationship is obviously over. I just wonder… is there any way to undo what he did to me?* 
+
+*Or better yet- transfer it to* [him?](https://www.reddit.com/r/SunshineScarystories/comments/x88quz/story_index/)
