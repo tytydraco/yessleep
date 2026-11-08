@@ -1,0 +1,125 @@
+As I explain to you what happened to me, I am warning you and asking for help, somehow. Yet, I must clarify that my body isn't mine anymore, nor is my brain or mind. So please, bear with me, because I write almost as I ramble these days.
+
+My girlfriend always had a flair for dramatics, goth, horror, and terror. She isn't much for gore or torture, but she likes the occult, the mystery, the mystic. We met after college ended, some months ago.
+
+We were at a bar. She was sitting with her friends drinking a beer, and I was outside smoking with mine. I remember how her eyes looked black under the moonlight, calling to me, that undead, vampiric appeal of hers.
+
+We locked eyes, and what I saw black turned blue; such a shade of blue had never graced my life like that before. Cold as ice, warm as the sky, vast as the ocean, and deadly as the cold skin of a corpse.
+
+If she's what you would call weird and abnormal, her friends were normal and cute. Post-college girls wearing cute and sexy clothes, fun makeup, and comfy shoes. Her friends noticed my eyes and called for us, just some boys and girls mingling into the night, but she was the only one I had eyes for.
+
+Her red-tinted lips parted like a snake ready to pounce as she said her name, a melody I didn't know my ears yearned for. And soon enough we were dating.
+
+The best months of my life followed. She told me everything she believed in and shared with me movies I'd never seen, songs I'd never listened to, stories I'd never read, and gods I've never believed in.
+
+On odd nights, she would light candles and invite me over to her home; we would have romantic nights by candlelight. She would draw me baths with oils and aromas, clean my skin, and adore my body.
+
+When the moon was full, she would come over to my home, dressed in nothing but a black robe, and make love to me atop red petals with the moonlight shining over us.
+
+That woman made me into her disciple, her devotee, and I would have followed her right into the deepest pits of hell.
+
+Two nights ago, we were at her place; she had worn a red cloak and painted my body and hers with swirls of black ink as dark as her eyes were that first day we met. She made me feel like no one had ever made before, she made love to me as no one had done before.
+
+As we lay in the dark, I could see the soft curves of her cheeks, her lips parted in a smile, her eyes, and her godly beauty.
+
+She said to me, with a siren's voice, "Never leave me"
+
+"I never will"
+
+"I know, but I wish I could crawl under your skin and sleep between your blood and your bones..."
+
+I laughed with soft love in my throat, thinking that nothing would ever fill my heart with such warmth as her love did.
+
+That creepy, cute, and sexy creature was the air I breathed, the water I drank, the blood that pumped my heart.
+
+She had to leave early in the morning for a work trip; I would stay at her home that day to care for her plants. But I thought she would at least kiss me goodbye before leaving, yet the morning woke me up with a cold and an empty bed.
+
+Loneliness filled my body, yearning for her to return. "In a couple of days I will be back," she said.
+
+The worst two days of my life.
+
+I didn't feel it at first; I thought it was just my loneliness acting up when I heard her voice inside my head, when I saw her lying in bed to just disappear with a glance. I was going insane with love.
+
+After watering her plants in the morning, I left for my own home. I made myself our favorite pasta for lunch, spent a lazy Saturday playing games, and kept myself as busy as I could without her. Yet in the back of my mind, I could hear her, and with glances, I could see her figure following me around.
+
+At night, I looked at myself in the mirror, and her figure was behind me, caressing my face with tender love. I missed her so much.
+
+As Morpheus engulfed me, she appeared in a dream, standing like a dark figure in the corner of my room. Slowly she approached me, wearing nothing but a red-blooded smile.
+
+Her nails dug into my skin, slicing it open, yet I didn't feel pain or fear; I felt love. She dragged her fingers between the flaccid skin and muscle and bone, bathing in my blood. And I begged for more.
+
+In the morning, I yearned for her touch, but I would have to wait until Monday. The real red marks on my skin didn't bother me; they were a reminder of her love. Life without her was like a sorrowful nightmare.
+
+Sitting on the couch, enjoying the buttery light of the sun, I gulped down a few spoonfuls of grub; it made its smiley way to my stomach.
+
+Even the food felt empty without her by my side, tasteless, almost painful to consume. Like I was shoving a snail's broken shell down my throat, cutting it from the inside out.
+
+I coughed, and blood appeared on my hands.
+
+Something was forming in my throat, something coming out of me, moving, going up and down, almost at my gut, almost at my mouth.
+
+I could feel a sense of impending doom, the doom of my organs coming together to try and fail to expel that thing inside of me.
+
+I rushed to the bathroom, opening wide in front of the mirror, trying to see what was stuck there.
+
+Like a cockroach revealing its antennae from its soiled and obscure home, I saw the black strands touching the flesh of my tongue, slowly coming up without force like a slug rearranging my guts, bringing the contents of my stomach back to me.
+
+le rose as a ball, forcefully and finally formed in my throat, hurting and cutting my skin; blood with saliva filled my mouth, and I began to drool on my bathroom sink, formless, slimy blobs of blackish hue.
+
+An amalgamation of blood, saliva, flesh, skin, and hair touched my teeth, and my lunch came back, filling up my mouth.
+
+I spat that monstrosity of a varmint against the cold, dirty sink.
+
+In between the remnants of what was my throat, I saw the strands. Black as night and soft as clouds, like her hair was.
+
+My hands touched that grotesque and delightful mess, the pieces of flesh and food clogging the drain like souls clog the gorges of hell, giving me more time to slowly pick up the hairs, one by one, the soft representation of her love.
+
+I consumed it all back like a feast given to me by the gods.
+
+Pieces of her living between the walls of what was left of my lacerated stomach.
+
+Happily, she stood behind me in the mirror. My face was shaded by my own blood, under my fingernails, pure flesh of my interiors.
+
+I slept on the cold bathroom floor, covered in my own blood and her love. I felt her tender embrace inside of me.
+
+Her voice came to wake me up from the innards of my body, thanking me for keeping her inside.
+
+It was love, until now. But I can't do this anymore. I battle with myself and her grasp as I write.
+
+As I woke up on the bathroom floor, my bloody reflection looked back at me, and the absurdity of my antics drowned my mind. What was that lifeless creature that crawled out of my body just to be consumed back?
+
+Kneeling with force over the toilet, I shoved two fingers up my throat, but nothing came out of me; that lump of hair was gone from my body or so deep inside of me that I could not feel it anymore. Like a ghost living inside the walls of my stomach, going up and down and hunting me.
+
+What had I done?
+
+I texted my girlfriend because I had not received one single notification from her, but she didn't reply. I wasn't even sure if I wanted her to reply; what would I tell her?
+
+Had I been sick and rotten inside? Was the monstrosity that came from me flesh-eating maggots making their home tangled within my guts?
+
+It wasn't a nightmare, although I wish it was.
+
+Making my way back to bed was hard, but it was the only thing I wished for: to rest and to act as if I did not exist.
+
+The lumps under my skin started to appear slowly, as if something inside of me was battling against the barriers of my flesh.
+
+Or as if they wanted to turn my skin into something else. Turn me into someone else.
+
+Her voice sounded again in the back of my mind, calming me. Telling me beautiful words, my girlfriend was there with me to help me, to guide me through this change.
+
+The feeling of dread and doom creeping from before started to vanish as her voice pushed the monsters away. She would always protect me; she would come home and save me.
+
+She crawled inside of me.
+
+It has been two days already; she never left. I carry her with me now. I need help, someone, please, take this woman out of me; she won't allow me to end it.
+
+Every time I open my mouth, I feel her; in the mirror I see her body moving inside of mine, her eyes open in the back of my throat watching as I live. Like a tapeworm, she devours my food; like a moth, she nibbles at my skin; like a vampire, she drinks my blood, and like the devil, she bathes in the remnants of my soul.
+
+Pieces of me are falling on the floor and turning into puddles of blood so she can take over. I have only five teeth left.
+
+Everything aches, and my skin thins like paper.
+
+She is using me as a cocoon to birth herself again.
+
+She is not human; she is not a creature that can die; she is me, and I am her.
+
+Edit: hi guys his girlfriend here, everything's fine. 
