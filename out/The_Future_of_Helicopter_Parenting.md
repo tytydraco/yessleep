@@ -1,0 +1,67 @@
+“We made this decision as a family. And, frankly, it was an easy one.”
+
+Could this be the defining story of my career? I'd been a journalist for thirty years, and an aspiring one long before that.
+
+But this scoop was truly jaw-dropping. Beyond anything I’d worked on before.
+
+The couple before me looked unremarkable. A short, bald husband who worked as a social media manager for a suite of healthcare brands. An even shorter, not particularly striking woman who’d given up her career in retail to raise their son.
+
+“It honestly came down to what’s best for Billy.” The male subject rubbed his wife’s shoulder in what seemed like an attempt to remind her of the conviction that had led them here. “Social media’s just a toxic environment for a youngster and we’re confident we won’t be the last parents to do this. I recognize the irony in what I'm saying, considering my job.”
+
+He wasn’t a natural speaker but had started to find his voice over the past twenty minutes of Q&A. His wife was clearly the more eloquent one, but talking about her son was causing her a degree of emotional vulnerability that made for a great interview but poor transcript.
+
+“You’re right. Reports suggest you aren’t even the first parents to make this choice. But I suspect after this interview airs you’ll give this parenting approach a degree of exposure that will invite more families to consider it.”
+
+“And that’s the main reason we’ve agreed to this interview.” The husband was doing most of the talking now. These two didn’t give the impression that he made all household decisions. His worried expression and deferential nature suggested his wife was the true leader, especially around matters regarding their son. “Enough is enough. Cyberbullying is the greatest threat to children and it’s obvious those in power have no interest in putting an end to it. So we’ve had to step in.”
+
+I was hoping one of the parents would say something like this. Because this story was about far more than powerful tech companies and the governments that are lobbied to protect them.
+
+“Do you feel that a child who interacts more with AI than other humans has a greater chance of living a happy life?”
+
+The couple looked at each other. He encouraged his wife with a reassuring nod. You could see him mouth ‘go on.’
+
+The mother looked at me and exhaled deeply before answering.
+
+“Look, I never really thought I’d be a mother. Not because I didn’t want kids. It just seemed unlikely. Life’s more expensive than ever. Finding someone who’s willing to sacrifice everything for their children is really, really hard. You talk to people who have kids… and they’re not happy. They love their children, but the kids clearly aren’t happy.”
+
+This was going very well. I could see a Pulitzer in my future should the next portion of this interview go as planned.
+
+I remained silent. Knowing when to speak was a skill I’d only picked up in the past ten years of my career. It’s what separates good journalists from great ones.
+
+“Billy isn’t a happy child. He's extremely sensitive. Middle school's tough for most kids, but it's worse for late developers like him." She looked at her husband again and was met with another nod of reassurance. "It’s our responsibility to ensure he makes it through.”
+
+“Do you mind elaborating on that?” I sensed a tad of encouragement was needed.
+
+“Billy isn’t the only kid that isn’t happy. He can’t escape the bullies when he’s home. It almost feels like it's worse online than in the classroom. Maybe that's just because it's only visible to us at home... but his mental health is terrible. And it started with chatrooms and video games. It’s clear that any interaction with other children is negative. So our decision protects him.”
+
+This was the moment. I needed a soundbite here. One that required no context.
+
+“And what is your decision exactly?” I was met with a sigh. “If you could spell it out for someone in the plainest English possible.”
+
+“We’re not allowing our son to use social media or talk to any other humans online. When using his phone or computer, he’ll only be allowed to talk with his assistant.”
+
+“You mentioned the assistant’s name earlier?”
+
+The female subject looked at her husband with a confused expression. He whispered into her ear and she mouthed, ‘oh, right.’
+
+“Jarvis. Billy likes Iron Man and he’s been using the assistant regularly since he was five.”
+
+"So your decision is to control your son's online experience?"
+
+A nod from both parents was followed by what looked like relief on the mother's face. As though she'd been liberated from the vast majority of worries for her son.
+
+"Yes." She wiped a tear from her eye. "We've been given an amazing gift.
+
+"We can customize everything that happens to him. Jarvis will talk to him how we want and show only the parts of life we want him to see."
+
+*‘Ok, go in for the kill.’*
+
+It was the first time my segment producer, Greg, had said anything for a while into my earpiece.
+
+“What would you say to those who are confused or shocked by your decision?”
+
+Another look between the parents. Nothing was said, only raised eyebrows. To a seasoned reporter, this was evidence that they’d considered this question shortly after agreeing to the interview. The mother turned back to me.
+
+“Humans are far more dangerous than AI. Billy’s assistant will never try to harm him by attacking his character, making him feel small or going so far as to encourage him to take his own life. It’s people that are the problem.
+
+"And,” she was starting to get emotional, “if people are the problem, then we have to remove people from Billy’s life."
