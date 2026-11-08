@@ -1,0 +1,39 @@
+   I am a person of science and facts. I do not believe in any supernatural otherworldly things. Most stories I find with ghouls and ghosts and curses seem to have some logical explanation. However, I cannot deny what my own eyes have seen. 
+
+   I have seen many horror movies-few that scared me-but in this case, the setting did not fit. It was a fairly sunny yet bleak day in my eyes. I believe it was a Monday, the third day of school- as you cannot forget something like this.
+
+   I had been new to that school, and made friends quite quickly unlike my future self today. One friend I had made was Jenessa- a friend I would later quickly abandon out of fear and denial. She was the one who told me about Marie. 
+
+   The day would’ve been great. The year would have been great, had I been kept in denial. I lived that year in great fear and had been drawn to religion as my only hope, wearing a crucifix every day. You fight fire with fire as they say, so I fought supernatural with supernatural. 
+
+   It was only that day that I heard it. Never again would I have such an encounter. 
+
+   Fifth grade feels so long ago- yet I remember this quite well. I remember our teacher lining us up and leading us down to lunch. I remember the past two days they assigned our seats in the cafeteria, but this time they let us choose- which is why I was able to sit next to Jenessa that day.   
+     
+   I vividly remember the noise of the cafeteria and the cacophony of childrens’ chatter. Jenessa and I talked for a little while- I can’t quite remember what but perhaps she was explaining stuff about school or I told her about my move from Massachusetts. However, that is not important. 
+
+   The conversation that followed went something like this:
+
+   “Now that we’re here, I ought to tell you about Marie,” Jenessa promptly stated.
+
+   “Who is Marie?” 
+
+   “The school ghost.”
+
+   I thought she was perhaps going to tell me a ghost story or some sort of rumor- I assumed it would be made up but was still intrigued. I personally loved horror and ghost stories at the time, but that was not exactly what followed.
+
+   “They say this school used to be a prison, and one of the prisoners was executed right in this very cafeteria. That prisoner was named Marie and she still haunts this cafeteria to this day.” 
+
+   It seemed like a rather cheesy story and I am not entirely sure of the credibility of it. I have done some research on the history of that school and have not found anything of the sort on it once being a prison. However what followed was certainly real.
+
+   Jenessa continued, “They say if you listen close enough you can hear her singing *ring around the rosy. Ring around the rosy.*”
+
+   She continued singing it as if to imitate how the ghost would sound. “*Ring around the rosy.*” She then stopped singing, but I could still hear it. I could still hear someone singing. “*Ring around the rosy. Ring around the rosy.*” Chills came down my spine. It was a different voice.
+
+   Jenessa must’ve been able to tell by the look on my face that I heard it. I vividly remember her saying, “You hear it too?”
+
+   After that day I rarely talked to Jenessa again, it just reminded me of the ghost. I would talk loudly in the cafeteria hoping to drown out any possibility of me hearing the ghost again, and I didn’t. Though, sometimes at recess, the swings would move on their own.
+
+   I searched for every possible logical explanation, but found none. Ghosts must be real.
+
+   I am not mad, Jenessa heard it too.
