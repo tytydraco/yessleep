@@ -76,7 +76,7 @@ I nodded and took several deep breaths. My head hurt, but otherwise, I seemed to
 
 Of course I haven’t told them or anyone about what happened, and if you think of putting on your deerstalker and trying to find me, trust me, you won’t. I still go to *Gavan* with Sergey, but I make sure it’s *chas pik*, so I always have company. But I’ve become sullen and silent when I’m there, and even if Natalia’s twin sister should one day be sitting next to me and trying to hit on me, I wouldn’t respond.
 
-I simply don’t want to be alone with them anymore.
+I just don’t want to be alone with them anymore.
 
 And Sergey … you know, sometimes I watch him and wonder. He doesn’t appear to be different from the Sergey I knew before that day, and yet … Toddlers sometimes shout, cry, and even shriek, but when he does it, for a moment I feel as if someone had parked a T-90M in my stomach. Toddlers also sometimes kick, slap, or bite you, but when he does it, for a moment I feel as if there was something beneath the usual contest of wills between parents and offspring … something sinister, from beyond, cold and unfeeling. And when he says “Papochka!”, I still get a jolt.
 

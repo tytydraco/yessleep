@@ -1,0 +1,160 @@
+I’ve lived alone since last August. Maybe September, the months stopped having edges somewhere in there. He moved out and I stayed, and that was the whole breakup. No fight, nothing to point at.
+
+  
+
+
+The apartment felt bigger afterward. Not in a good way. I alphabetized the spices. I bought plants I already knew I’d kill. The fridge hums all night and I can tell you what note it’s on.
+
+
+
+
+
+What I couldn’t do was sleep. Music made it worse, and then podcasts did, because I’d end up listening to the pauses. I went on one date and, well. Yeah.
+
+  
+
+
+One night I was lying there with the lamp on and I thought about the deli across the street, the flat roof of it, and how anyone standing up there could see straight into my bedroom. I thought about that for a while. Then I was asleep. I slept until nine, which hadn’t happened since he left.
+
+  
+
+
+That worked for about two nights. After that I was awake at one, then two, then checking the clock to work out how many hours I’d get if I fell asleep right now. I counted the ceiling tiles, and I get a different number each time. I turned the pillow over. The fridge hummed. I thought about the roof across the street because that was the trick, and nothing happened.
+
+  
+
+
+Sometime later I gave up and opened my eyes, facing the window. The curtain had a gap. I noticed something different on the deli roof. I watched for a bit and saw a silhouette.
+
+  
+
+
+I fell asleep watching it. I slept the whole way through, and felt better than I had in months.
+
+
+
+
+
+I couldn’t sleep again the next night. I tried my phone, which made it worse. I tried reading and got through the same page four times. I got up, drank water, and got back in.
+
+  
+
+
+I remembered the last night. The deli roof. I looked there.
+
+  
+
+
+The gap was still in the curtain. I looked through it, and this time it was a bit more recognizable. An average-height shadow. It was very familiar, like a man.
+
+  
+
+
+Then I woke up in the morning.
+
+
+
+
+
+I thought about it all day. I kept losing my place at work because I was thinking about what I saw on that roof. It looked like a man, and it looked familiar, and that was the part that scared me.
+
+
+
+
+
+But it had also helped. Every time it was there, I slept. That part felt nice, and I hated that it did.
+
+  
+
+
+That night I couldn’t sleep again. This time it was hot. I took off my pajamas and lay on top of the sheet in my bra and panties. It didn’t help. The hotter I got, the worse I felt, and I couldn’t tell why.
+
+
+
+
+
+I lay there for what felt like hours. The sheet was damp under me and I could hear my own breathing.
+
+  
+
+
+I kept my eyes on the ceiling because I didn’t want to look at the window, and that was how I knew I wanted to.
+
+  
+
+
+I looked. The roof was empty.
+
+  
+
+
+I stayed looking at it for a while. It should have felt like relief. The gap in the curtain was exactly the same and there was nothing in it, and all I could think was that it had gone somewhere.
+
+  
+
+
+The room smelled different, warm and stale. I hadn’t noticed when it started.
+
+  
+
+
+Then I turned my head and it was standing by the closet, close enough to touch if I’d sat up. Same height as before. Facing the bed. The lamp was on and I could see the closet door behind it, the handle, the sleeve of a jacket I’d left hanging, and I still couldn’t make out a face. I’m not sure it had one.
+
+  
+
+
+I didn’t scream. I told myself to move and my arms stayed where they were.
+
+
+
+
+
+I don’t know how long we stayed like that. At some point I stopped being afraid, and that scared me more than anything else had.
+
+  
+
+
+I don’t remember falling asleep. In the morning the room was empty.
+
+  
+
+
+After that night I couldn’t sleep again. I tried everything I’d tried before: the phone, the books, the ceiling tiles, the water. I lay there with the lamp on and the roof empty and the room empty. I checked the closet. I checked it again. I left the door open, then shut it, then opened it.
+
+  
+
+
+It was the same the next night and the night after that. By the end of the week the days had lost their edges the way the months had.
+
+  
+
+
+Then I started missing emails, making mistakes, forgetting things. I felt like I was going insane. Now I can’t even remember how many days have passed, and it’s night again. I’m writing all of this because maybe it will make me sleepy, or maybe I can find help.
+
+  
+
+
+Whatever that thing was, it’s still in my head and it still scares me. But I haven’t slept in days. This is the point where my life might be in danger, and that thing is the only thing that can put me to sleep.
+
+  
+
+
+I don’t know how to invite it or call it back. Even if I find out, I don’t know if I want that.
+
+  
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
