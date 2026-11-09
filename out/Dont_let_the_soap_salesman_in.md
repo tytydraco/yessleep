@@ -1,0 +1,182 @@
+The problem with "NO SOLICITING" signs, in my experience, is that they don't work for shit. On the contrary, the "solicitors" seem to take it as a dare, a bluff to call as to whether or not you will actually *enforce* the rule. And I most certainly am bluffing. I'm incapable of getting rid of anyone that comes to my door: salespeople, landscapers, roofers, window installers, exterminators. I have an intense compulsion to be polite, and to avoid conflict, rudeness, offense, at all costs. In part, this compulsion can be explained by the yes-ma'am-no-sir environment I was raised in. But beyond that, the compulsion is driven by fear. For me, "solicitors" are a near constant source of anxiety and dread. I jump at every knock, startle at every ring of the doorbell. I'm haunted by visions of these "solicitors" getting offended by me somehow, by me not taking their pitch seriously, by me not buying what they are selling, and then the "solicitors" exacting some sort of vocationally-specific revenge on me: the spurned exterminator releasing jars of spiders or cages of rats under my porch, the landscaper spreading the seeds of invasive weeds, the window guy throwing rocks through my windows, or using his window expertise to enter my home uninvited. After all, every single one of them, by their very nature, knows exactly where I live. But yes, I still have the sign.
+
+My wife on the other hand, at eight and a half months pregnant, is 176 prenatal pounds of no-nonsense. If I don't get to the door first, my wife will simply open the door, say, "No," and close the door in the "solicitors'" face before they can get out word one. She cares little about their feelings, and even less still about what they're selling. Her approach to dealing with the door-knockers and bell-ringers has caused my own fear to increase exponentially as I imagine my poor, pregnant wife falling victim to the sadistic plots of scorned "solicitors".
+
+Now that I've found the "NO SOLICITING" sign to be completely ineffective, I have taken to hiding. I avoid the front half of the house during the day, ducking beneath windows that face the street, or just keep the blinds down 24/7. But the cunning of the "solicitor" is not to be underestimated. They seem keenly aware of my habits and movements, as if they have me under constant surveillance, and they always seem to arrive at our door just as we are leaving the house for a walk, or the moment we pull into the garage.
+
+The garage invaders are the worst of all. We somehow never notice them until we are fully parked in the garage, like they've been waiting in the bushes for us to return, and then suddenly there they are in our garage or just beyond the garage door. The more polite among them announce themselves clearly so as not to alarm you, but others don't announce themselves and just scare the absolute shit out of you as you step out of your car to find a stranger *in* your garage with you.
+
+The SafeSoap salesman was of this latter, scare-the-absolute-shit-out-of-you camp.
+
+I pulled into my garage on Sunday morning after a quick trip to the library, grocery store, and coffee shop. At the library, I had picked up a massive tome my wife had requested on "preparing for your first child". (One look at the size of the book and another at the size of my wife's belly, and you'd know that the kid would already be on to solid foods by the time she finished the book, but I kept this to myself.) After the library, I had picked up some essential groceries, and then had stopped at our favorite coffee shop to get a coffee for myself and a low-caffeine London fog for her.
+
+Impressing no one at all, I decided to get everything into the house in one trip by holding the groceries under one arm, and the big baby book under the other, and balancing the two hot cups on the spine of the book wedged under my arm. I made it out of the car maintaining this balancing act well enough. But when I turned to kick the car door closed, and saw the short man standing there in the shadows of the garage, I lost control of the book and the cups on top of it, and the stack of book and cups fell first against the door of the car and then onto the ground, splashing tea and coffee onto the car, and the garage floor, and all over the big baby book.
+
+The man stood just inside the garage door, disrupting the beam of the garage door's safety sensor so I couldn't have closed the garage on him even if I wanted to. My wife would have wanted to, I knew.
+
+"Is now a good time?" the man asked. He was short, with muscles that stretched the openings of his t-shirt sleeves. He had a bleached blond crew cut, and a tattoo under his right eye—some very small but complicated symbol I couldn't interpret or even see clearly from a distance. When the man smiled, I could see he was missing one of his left canines, and that one of the right canines was capped in gold. He wore a large blue backpack that bulged.
+
+"Sorry, not exactly," I replied, as I grabbed a large handful of tissues from the car and started to wipe off the baby book.
+
+"Well, I won't take up too much of your time then. We're here in your neighborhood, *today only*, with a truly great deal on SafeSoap-10-in-1, and since your family is expecting a little one, I just couldn't live with myself if I didn't give you the opportunity to make your house a cleaner, safer place for the little angel."
+
+And like that, I felt the sinking feeling I always feel when the pitch has started and I know I am powerless to stop it.
+
+I picked up the book, and then the groceries, and started to walk towards the door to the house, trying to express through my movements just how busy the day ahead of me was, hoping the man would notice. The man ran past me saying, "Oh, let me get that!" and opened the door for me. I thanked him and walked through the door, meaning to hold the rest of the conversation there in the doorway with me *in* and the other man *out* of the house. But before I could react, the man had already followed me inside the house and closed the door behind us, talking the whole time, not seeming to breathe at all, just speaking in a continuous stream.
+
+"I'm sure you've heard of SafeSoap-10-in-1. Maybe your neighbor Helen told you about it? She bought 10 bottles from us last time we came through and just bought 10 more from me today—I'm like, 'Leave some for the neighbors, lady,' ha, but no seriously there's plenty to go around and I wouldn't want you to miss out on this opportunity."
+
+By now we'd moved to the kitchen and the pitch went on and on as I unpacked the groceries, nodding along so that the man didn't feel slighted and then come back in the night to cut our throats. Once I had the groceries put away, the man handed me a laminated info sheet with the words "SafeSaop-10-in-1" in big letters on the top, the typo made all the more obvious by the size of the font. The sheet laid out the titular 10 uses of the soap, and had a long list of ingredients. Along the bottom was a dubious row of official looking seals including a USDA Organic seal, a gluten-free seal, and several other seals that I had never seen before, including one with a picture of a rat that seemed to suggest that the product was not only *not* cruelty-free, but had been *thoroughly* and *rigorously* tested on animals. The man asked a question that I didn't hear, and I looked up at the man, blinking for a moment, until the man repeated the question.
+
+"If you had to estimate, how many gallons of soap do you think you use in a year? 100 gallons? 500 gallons? I can tell the way you're looking at me that you have no idea, but let me tell you: the average US household uses over 550 gallons of liquid soap a year. With a little one on the way, I'd guess you are about to triple your consumption. How much do you think a gallon of soap costs? In this economy? I'm not even going to bother telling you because you wouldn't believe me. Most people are just buying a few ounces of soap at a time and not thinking twice about it, but those costs add up, and quick. Let me ask you this. How often do you wash your hair? Before you answer, let me guess that the wife's got longer hair than you I'd bet. Am I on target there? Which means she's got two, three, maybe four times the amount of hair that needs washing, and I'd bet she also washes it more often than you do. Am I on target there again? Us guys, we can't always be bothered to wash our hair. Hell, I may skip a shower altogether some weeks. But our women, they like to keep things clean for us, am I right about that?"
+
+By now I was completely lost, and hadn't answered any of the man's questions with anything more than polite grunts and nods. Still talking, the man took three large glass bottles out of his backpack, and placed them on the kitchen island in the middle of the room. The glass was clear, and the viscous liquid inside was an unnatural blue raspberry shade of blue. There were white clumps or chunks of something suspended in the liquid and a dark layer of sediment at the bottom. As I leaned against the stove with the info sheet in my hand, gazing at the blue liquid, I racked my brains for an excuse to somehow make this stop without offending the man and without buying the hideous blue liquid.
+
+"...and that's number 4 on that info sheet you've got there. This stuff isn't just for washing your hands. It will work great as a body wash, and shampoo too—some people buy our product just to use as a shampoo, though it's so much more, as you can see from that sheet. Can I see your hands?"
+
+I put the info sheet down on the counter and reluctantly put out my hands, unable to think of an excuse not to. The man took my hands in his, studied them, and said, "Yep, pretty dry for this time of year. Red, irritated, rough." He stroked the backs of my hands. Then the man noticed me noticing *his* hands, which were also very dry—much worse than mine, if we're keeping score—and cracked and bleeding in places. The man pulled his hands away.
+
+"Ha, yes, you got me. Mine are pretty bad too. But I haven't been using our product. Never get high on your own supply, right? No, I'm joking. But the Big Guy has us wash our hands with harsh, generic, antibacterial soap and hot water for a week or so before we go out on sales runs, so that we can show the customer the contrast, and highlight for them the downsides—no, the *dangers*—of everyday soaps. Watch this."
+
+The man took one of the bottles of blue liquid from the counter and unscrewed the metal cap, then he poured a quarter sized puddle of the stuff into his hand and began to rub it around and all over both hands until they glistened blue.
+
+"Look at that. Full moisturization. Instantly. Soap, shampoo, and lotion all in one, ha. And it'll heal these cuts right up too," he said, indicating the moist, red cracks along the sides of his fingers and backs of his hands. "It's a natural antiseptic."
+
+It was then that I noticed the smell. It was a sick sweet smell, with a hint of some unidentifiable artificial fruit, and something rancid too, like the fake fruit had started to turn. I felt that I could *feel* the smell somehow, as a faint burning sensation in the back of my throat, and I stepped back a little to put some distance between myself and the smell.
+
+"I know, the smell takes some getting used to. But trust me, in no time you are going to be associating that smell with cleanliness, godliness, and good health, and you'll welcome the smell. You'll be asking me, 'Do you guys make cologne too?' heh. The soap doesn't contain any perfumes at all though by the way. The scent comes from the ingredients themselves, and the natural reactions between them as they grow and harmonize."
+
+With this last bit, he interlaced his fingers—which still appeared slick from the soap—indicating "harmony", I supposed.
+
+"And the ingredients are all organic, natural, and hormone free. We don't include any kind of hormones at all anymore—the Big Guy always wants me to emphasize that, because we know it's important for a lot of families. This stuff is as pure as mountain spring water, as far as ingredients go. You could even use it on that baby of yours, 100% free of fear of any kind of rash or reaction, and no need to worry about any kind of growths developing from any kind of hormones, because, as I said, it's 100% hormone free typically."
+
+"Typically?" I asked, still struggling to follow, the man spoke so fast.
+
+"Look I get it, I can see you're skeptical. I would be too." And with that, the man picked up the open bottle, and I watched in open-mouthed horror as he took two big gulps of the chunky blue liquid. I turned from the man and threw up in my mouth a little bit, tasting acid.
+
+"No, look, look, I'm fine! Better than fine! Hell, I'd drink this stuff even if the Big Guy didn't require it." The blond man belched then, and I caught a strong wave of the nasty, fruity smell, and he stopped talking for a second, put the bottle back on the island counter, and bent forward slightly, putting his hands on his knees looking like he might throw up himself. It was the first pause in the pitch, and I darted into the gap.
+
+"You know, it seems like great stuff, but we already have our trusted brands, and we are pretty happy with the soap we use today. So, I'm sorry to have wasted your time, but I've got some things I've got to do before my wife gets back," I said, hoping the man would take the hint, while also not feeling homicidally put out.
+
+"Absolutely, I get it. But just let me ask: what kind of soap do you use, if you don't mind my asking that? What brand?"
+
+I walked over to the sink and handed him a bottle of the stuff we use for hand soap. The man studied the label, smiling and nodding to himself, then unscrewed the cap and took a big drink from the bottle.
+
+"What are you—" I started to say, and then he threw up on the floor. I jumped back to avoid the splatter, and he vomited a second time, leaving a growing puddle of blue bile with brown and red chunks on the tile floor.
+
+"Jesus, what...why did you do that? Are you OK?" I asked, but the man just put up a hand.
+
+"I wanted to show you," he said, pausing and clearing his throat loudly a few times, and wiping some of the leftover material off of his chin before continuing, "...Wanted to *show you* what kind of crazy toxins are in this stuff. You saw what it did to me; just imagine what it's doing to your hands, day in and day out, year after year. Here, let me clean that up, I've got the perfect thing," he said, and winked at me.
+
+The man poured the rest of the open bottle onto the floor, causing the spreading puddle to grow and spread even more.
+
+"Look, I'll take care of this," I said to the man, who had gotten onto his knees and was just kind of swirling the puddle around with his hands. The smell of the different soaps mixed with the vomit was overwhelming, and I just wanted him to leave before I vomited myself.
+
+"No, no, no. The Big Guy would *not* be happy if I left things in this state. Let me just get this cleaned up and I'll be out of your hair. And, you know what I'm gonna do? I'm gonna throw in an extra bottle today—don't tell the Big Guy about this one; I'll eat the cost myself—I'll throw in an extra bottle, no cost whatsoever to you, on top of however many bottles you purchase today."
+
+I handed him some paper towels, then opened a drawer under the sink and pulled out a small trash can, and then stood at a distance covering my nose and mouth with my arm, trying not to gag audibly. I watched as the man scooped up the goopy, blue mess, handful by handful, and tossed the soiled towels into the can.
+
+"So, how many can I put you down for?" the man asked, rising to his feet. "I've only got five bottles in the bag, and I would like to give your neighbors a shot at a bottle or two, but I like you, and I can part with all five right now if you twist my arm."
+
+I started to explain to him again that we had more than enough soap and weren't interested in more, and the man listened patiently, nodding his head. The man made counteroffers then: a buy-one-get-one deal if I bought 10 or more bottles (the math and logistics of which confused me), a referral discount that involved sharing private info about my neighbors, and a pay-as-you-go plan that was Kafkaesque in its complexity and incoherence.
+
+And then my wife walked in the door, sweaty and out of breath from her morning walk. She walked into the kitchen, headphones in ears, looking down at her phone, and dropped the phone on the floor when she finally looked up and saw the short, blond stranger in our kitchen.
+
+"Jesus, fuck, what's going on?" she asked. She was struggling to bend down and reach the phone, so I ran over and picked it up, explaining that the Soap Guy was just on his way out. My wife was wearing tight leggings and a cropped top that showed off her belly, and the Soap Guy stared at her, at her belly specifically, in the way one might stare at a beautifully prepared meal. My wife glared at the blond man with open contempt, and I felt ashamed at my own desire to hide my contempt.
+
+"Weeeell, look at you!" the man said. "You look like you're just about ready to pop! Mom, can I just take up a minute of your time—five minutes tops—to tell you about SafeSoap? I wouldn't be able to sleep tonight thinking about that belly and the little angel inside and thinking about all the harsh chemicals and toxins and microplastics the little angel would be absorbing through you, or through your breast milk later, with this soap your husband's got you using. Because they do absorb so much, studies have shown, the babies do. I can text you some links if you are interested. If you don't mind sharing your number. These are scientific papers I'm talking about. But our SafeSoap-10-in-1 on the other hand is all natural, safe for Mom and baby, and we use all glass bottles, so no microplastics either. Google 'microplastics' if you don't know what I'm talking about. You won't sleep for a week, I guarantee it."
+
+The man went to pick up one of the bottles from the counter to show her, but his hands were still slippery from cleaning up the mess, and the bottle slipped from his grasp and shattered on the floor at his feet.
+
+"Oh God, that smell!" my wife said, and now she looked like she was going to throw up too, which was not all that uncommon for her in recent months, and I was sure that the man could not possibly take offense if she threw up under the circumstances. But she did not throw up, and just stuck her hands out, as if to push everything away from her, as if to say, "I can't."
+
+And then she actually said, "I can't," and turned her back on the blond, and hissed at me through gritted teeth, "I want him gone in two minutes or I am calling the police."
+
+"Whoa, no need for that, Momma," he said.
+
+"I'm not your Momma," she said, leaving the room, and then loudly closing the bedroom door behind her.
+
+"I get it, I get it," the man said. "She's grumpy and it's totally understandable. Hormones and everything. Let me just clean up this mess, and then we can decide on an order size, and then I'll be out of your hair."
+
+"No, I'll clean that, I think you need to leave. I'm not buying any soap. Sorry to have wasted your time." I spoke firmly this time, surprising myself and the blond man. The man's expression changed then, and the smile disappeared for the first time since our surprise meeting in the garage.
+
+"Roger that," the man said.
+
+The man carefully returned the bottles to the backpack. As he finished packing up, and putting his backpack on, he avoided making eye contact with me, and muttered to himself about "the Big Guy."
+
+"OK then," the man said finally, and stuck out his hand for me to shake, looking at his own hand and not at me. The hand was still covered in a layer of blue slime and little clumps of red and white and brown material stuck to the blond hairs around the man's wrist. I stared at the hand, and must have been staring for too long because the man pulled his hand back and walked out the front door, leaving the door open behind him. Through the open door I saw a large truck idling in the road. The truck was so large, and the cab so high off the ground, that when the man opened the passenger side door, I could only see the seated legs and lap of the driver, and the rest of the figure was cut off at the top of the doorframe of my own door. I waited until the truck door closed and the truck drove off before I finally walked over, closed the front door, and locked it.
+
+---
+
+Once the man was gone, I put on a disposable mask, and got a pair of rubber dishwashing gloves from under the sink, and went to work cleaning up the stinking, glassy, soapy mess. The man had left the laminated info sheet behind. I wanted to erase every sign of the man from the house, so I picked up the sheet, and pulled the trash can out from under the sink. But before chucking it in, I stopped to look at it again. The ten official uses were listed in a column on the left half of the sheet:
+
+1. Hand soap.
+2. Dish soap.
+3. Body wash.
+4. Shampoo.
+5. Cleanse.
+6. Floor polish.
+7. Purification.
+8. Insect repellent.
+9. Cleaning.
+10. Washing.
+
+The ingredients took up the entire right half of the sheet, and beyond a few relatively normal-sounding items like potassium hydroxide, coconut oil, and water, everything else was unpronounceable, implausible, or clearly made up. Near the bottom of the list, the word "dragon" stood out, which may have meant "dragonfruit" or some other word that was meant to be prefixed or suffixed with "dragon", but it was impossible to say. I took out my phone, and Googled the name "SafeSoap" and found about a hundred similarly named products, but nothing resembling the blue liquid in the glass bottles. I looked up the names of some of the more suspicious certifications, and confirmed that they indeed did not exist. Then I put my phone away, tossed the info sheet in the bin, and took the trash bag out to the big trash can at the curb, far away from the house.
+
+---
+
+That night, I had trouble falling asleep. I lay awake in bed next to my sleeping wife, trying not to think about the short blond man with the gold tooth. At 1:15 a.m. I glanced at the clock, and then fell asleep moments later. I had terrible, blue-tinted nightmares where I was drowning. Then I awoke with a start, and glanced at the clock, which read 1:20 a.m.
+
+I lay in bed, tossing and turning for a few more minutes, and then sat bolt upright. The garage. I had forgotten to close the garage. It had been open all day, I realized. And all night.
+
+I slipped out of bed, careful not to wake my wife, but as soon as I had closed the bedroom door I was running. I crossed the living room to the kitchen, and as soon as my foot hit the tile floor, something went wrong. I was suddenly horizontal, airborne, then lying on my back on the cold, hard, wet tile floor. Why was the floor wet, I wondered.
+
+"Lee?" my wife called from the bedroom, but I didn't respond. I was trying to get to my feet again, but was finding it almost impossible on the slippery tile. I gripped the side of the kitchen island and used it to pull myself up, steadying myself against it. I reached for the pull cord on the light hanging over the center of the island, and pulled it on. The first thing I noticed as my eyes adjusted to the light was the wet, blue film on my hand. Looking from my hands to the floor, I could see that the entire white tile floor had a shiny blue cast to it. Looking up from the floor, I saw the short blond man standing at the sink, quietly scrubbing a plate in the sink with his blue hands.
+
+I started to back away from the island too quickly, and slipped again, landing hard on my ass.
+
+"What the hell are you doing!" I yelled at the man, pulling myself up again.
+
+The blond man appeared to be soaking wet, and I realized that he was covered with the blue soap, like a bucket of it had been dumped over his head. The man didn't look at me, and didn't reply.
+
+"Lee?" my wife said again, the voice closer, no longer filtered by the bedroom door.
+
+"Honey, get back in the bedroom, and lock the door. Call the police, honey. Now!"
+
+I heard the bedroom door slam closed, and heard my wife's muffled, frightened voice from beyond the door. Then another, much closer voice saying, "Wait til you see..."
+
+I slipped to the floor a third time, startled, and the voice repeated itself.
+
+"Wait til you see."
+
+The voice was coming from the other side of the kitchen island, and was deep and rough, and gave me the impression that someone was talking through a radio with a poor signal. I could hear a faint squeaking sound from the other side of the island. I pushed myself along the floor this time, afraid to stand again, and slid myself away from the kitchen island and out of the kitchen. Once I had cleared the tile, I got to my feet, and looked around the other side of the island. There on the floor was a large heap of a man, kneeling, his face downcast, scrubbing at the floor with one of our dishcloths.
+
+"Wait til you see how it shines. How it sparkles," the heap said, and then started to rise. The man got off his knees and moved into a low squat, then he stood up, and it took so long for him to stand up because there was so much of him to stand. The motion was like the unfolding of a ladder, or the extending of a monstrous tripod, the body moving upward and upward, until the man was finally standing straight up and facing me. The man was a giant. His head stretched past the hanging light so that he was illuminated from the chest down by the light, but from the neck up he was in shadow. The man had to cock his head slightly to one side just to fit all of him in between floor and ceiling.
+
+"I'm sorry my colleague made such a mess of things earlier," the giant said, and I could feel the bass of his voice. "I just wanted to make sure you saw what wonders our product could work on your tile. He mentioned you had such nice tile, with so much potential. Come look at the tile," he said, gesturing to the spot he had been scrubbing with the towel.
+
+I was terrified beyond what I had previously believed to be my max capacity for terror. I was terrified of the man—the giant—that was certain. But the familiar, irrational terror was there as well. The terror of offending the man, who had taken time out of his night to come here, and polish my tiles. I shuddered—actually shook physically—as I thought of what the man might do to me, or worse, to my wife, to our unborn child, if he was offended.
+
+I slowly walked towards the man. The man grasped the hanging light, and angled it so it shone directly onto the polished patch.
+
+"Look how it glitters," the giant said through radio static. "It's so clean you could lick it."
+
+I looked at the patch of polished tile, and God damn if it didn't sparkle.
+
+"Lick it," the giant said.
+
+"Yeah, no, it looks amazing," I stuttered, "never seen it so clean."
+
+"Then lick it."
+
+"Yeah, no, I...I get your point. You're saying it's clean enough to eat off of, and I would agree with you."
+
+"No," the giant growled, "I'm saying LICK IT!"
+
+Suddenly, the giant let go of the lamp and it swung wildly, casting alternating waves of light and shadow back and forth across the room. The giant stepped towards me, and I stepped backwards and slipped again, onto my back, hitting my head on the tile. The giant stood over me, blocking all light, and reached for a glass bottle on the island. He unscrewed the bottle, and then kneeled over me as I tried to get up. The giant pushed me back down again with a hand that was like two or three hands together it was so large, and pinned my shoulder to the floor. Then the giant turned the bottle upside down above my face. I didn't have time to close my mouth or turn to the side, and the liquid slid into my open mouth and down my throat. I tasted cough syrup and rotten, overripe fruit, and vinegar. I felt one of the white chunks slide down my tongue and it was salty, gritty. I gagged, choked, tried to breathe and breathed in only the sour, blue liquid. I felt the liquid flowing through my nose, burning my nose and throat, and the dim room turned dark blue as the liquid flowed over my eyes. The blue started flashing, and then there was red too. I thought somehow I must be bleeding, but from where? And then the pressure was gone from my shoulder and I rolled over onto my side and vomited onto the floor, and wiped at my face and nose wildly with my hands and then my shirt. I could still taste it though. I thought of expired strawberry milk, and NyQuil chicken. And still everything was blue and red, and flashing, and I looked towards the door to the garage in time to see an impossible dark shadow ducking through the door, and a smaller shadow following after it.
+
+There was a loud banging on the front door, and someone shouted "please!" or "police!".
+
+I lowered my head back to the floor, because I knew I wouldn't be able to get up on my own. I heard my wife running out of the bedroom and screaming, "Lee, oh fuck, Lee!" and I was suddenly panicked as I realized that she would slip too, and I thought of the baby, and I tried to push myself up but just slid around stupidly, and fell back to the floor. But she saw the wet, blue mess on the floor—smelled it before she saw it—and she stopped just at the tile's edge.
+
+"Just hold on, babe," she said to me, and I heard her running off to open the front door. And I heard the doorbell ring, and the banging on the door once more, and the shouting of "police" that sounded to me like "please", and I wanted to tell my wife to hide, not to open the door, because I didn't want whatever they were selling.

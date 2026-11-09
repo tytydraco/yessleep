@@ -1,0 +1,249 @@
+It was November of 2018. I was working Fire and EMS in my county, at a station practically in the middle of nowhere. I had recently gotten out of the military, and was trying to transition back to civilian life. I was in district 2, which didn’t have a heavy call volume, let alone much population to even have a call volume at all. It was 2 A.M. in the morning when tones began to drop.
+
+*“District Two, Station 12, District Two, Station 12, be advised-”*
+
+There was a short pause. I was already putting my boots on, still groggy from the sudden wake up.
+
+*“Be advised. Need you in route to Highway 45 South, that’s Highway 45 South. Got a MVC, both vehicles in the ditch. Injuries unknown. Caller has not stated anything further at this time.”*
+
+Another short pause.
+
+*“Caller was not involved in the accident. They hung up abruptly.”*
+
+I let out a tired sigh. Judging by the information I was just given, this could be a job primarily handled by S.O. and its wonderful deputies, OR it could end with me by myself on the side of the road cleaning debris while EMS transports our patients. 
+
+Either way, I knew I wouldn’t be going back to sleep the rest of my shift.
+
+I hoped in our Engine, attempting to turn the heat on while fumbling for my radio.  
+“Radio, Engine 121 in route.” I declared over the radio as I gave the truck some pressure.  
+“10-4.” Dispatch said back, the same, routine tone of voice we’d have with any other call.
+
+I began to pull out of the station, lights and sirens already blaring. My GPS showed the wreck to be 5 minutes away, over near where town was. I figured it to be drunk young kids, maybe trying to go get some Taco Bell, hitting someone on the way there. That’s more common than people realize. It’s always Taco Bell.
+
+As I navigated towards the wreck, I could sense that something was off. This wasn’t a first for me. It sure as hell wasn’t something I often experienced, but I’ve felt it before. Like a fight or flight situation. I felt it before, serving in the Army. Being deployed overseas, getting mauled down by snipers hidden in tall buildings.
+
+I hadn’t felt it in a minute. Yet, now, here I was, heart racing, cold sweat trickling down my neck. Alert and scanning my surroundings.
+
+I tried to shake it off, and instead focus on finding the wreck. I turned onto the highway, no signs of anyone on the road. It made sense, it was 2 a.m. in the morning. Yet, you’d see maybe some semi trucks, or just life in general. There was no one. It was dark, quiet.
+
+I began to see what appeared to be headlights up ahead on the opposite side of the highway. As I got closer, I could see it. Two vehicles, one with its hood buried in the ditch, the other on its side, smoke coming from the engine bay.
+
+*Shit.*
+
+I got over the radio, letting the dispatcher know I needed another set of hands out here. I turned into the emergency lane directly across from the wreck, allowing me to see a better angle.
+
+I could make out something draped over the side of the truck. In the darkness, it was hard to tell exactly what it was. One thought crossed my mind, a thought that made my skin crawl a little. 
+
+*Is it a person?*   
+   
+Pulling out of the emergency lane, I positioned myself behind the wreck, parking at an angle to block the roadway from oncoming traffic. In my headlights, I still couldn’t exactly make out what was hanging over the wrecked truck. I grabbed my radio, trying to page dispatch once more. I hadn’t heard from her when I requested additional hands on scene just a few moments ago. I thought that maybe my signal was bad, which had interfered with radio traffic before.
+
+“Radio, Engine 121 on scene. There is smoke visible at this time. Is my traffic 10-4?”
+
+I released the talk button, waiting for a response. A light static replied, yet no words from the other end. The closest station other than mine was 5 miles out, and I knew the guy that was there that night. I pulled out my phone, attempting to just call him to let my situation be known. My phone screen lit up, the empty signal bars with an “X” appearing at the top. I sighed in frustration. With no other ideas other than to wait for others to arrive, I began to gather my thoughts, forming a game plan on how to handle what I had in front of me.  
+I took a deep breath. I got out, surveying the scene in front of me.
+
+There was, in fact, someone hanging over the side of the truck. His arms were dropped over the side, as if he was attempting to get out but failed halfway through. The other vehicle seemed to be in better condition, yet I saw no signs of life. No noise, no calls for help. Complete silence. Even the woods around me didn’t make a sound.
+
+I was thrown off to say the least. It was like the world was drowned out in this one particular spot. Even the sound of my engine seemed to mute. The feeling of dread intensified.
+
+I shook it off once more, trying to focus on the task at hand. I threw my bunker gear on, as well as grabbing a halogen from the tool department on the side of the truck. I wanted to get the victims away from the wreck, and start a triage for EMS. Then I’d worry about the smoke. I’d never been first on scene for a wreck, since I was relatively new to the department post training. I needed to take things one step at a time.
+
+I made note of the vehicles. No visible flames, and no concerning noises. Yet, it was like these vehicles didn’t actually hit each other. No, there was not any noticeable damage on either vehicle to even justify that. It was like the sedan in the ditch was intentionally placed there, careful to not actually damage anything. The truck, while on its side, had no serious damages to it, either. No debris in the roadway, no tire marks anywhere to indicate rapid maneuvers to avoid collision. It was like it was flipped there, right on the spot.
+
+It was nothing I’d seen before. I began making my way to the truck, glancing over at the sedan in the ditch, a 2008 Corolla I think. Its headlights illuminated the forest in front of it, allowing me to make out some lights past the trees. I presumed them to be porchlights, maybe there was a house back there. I didn’t usually come down this direction, as I primarily stayed with other full-timers at busier stations. It was an unfamiliar environment for me, but the idea of there being other life out here near me calmed my nerves.
+
+As I made my way to the truck, I could make out more features of the person hanging over the side of it. He was facing me, eyes open. The lights surrounding the area made his skin glimmer, making him appear as if he was drenched in blood. Upon further notice, he appeared to have 2nd-3rd degree burns all over his exposed skin. I stopped.
+
+Something about his appearance made my brain freeze up. It was like I was looking at something that I shouldn’t be looking at. Something utterly impossible, something uncanny. That’s when I finally put two and two together. I knew why it felt unnatural.
+
+Those weren’t burn injuries.  
+He was… *Skinned.*
+
+From the top of his head, all the way to his visible waist, exposed muscle and tissue trickled with blood and other bodily fluids. What I thought to be his arms dangling over the side were his intestines, slightly swaying with the wind. His scalp was completely removed. It wasn’t clean, there were still bits of hair and parts of his skin still scattered across his head.
+
+My heart was racing. I couldn’t look away. Shock began to take over my body, a cold sweat forming down my back. I felt light-headed, tunnel-vision setting in.
+
+Whatever happened here, it wasn’t the result of a wreck.  
+This was something completely unnatural, something done on purpose.
+
+I took a deep breath, keeping my back towards my vehicle. I began to slowly walk backwards, never breaking sight of the area in front of me. While walking backwards, I reached for my radio. It wasn’t in its usual spot on my pants.
+
+I then had the painful realization that I left it in the cab of the engine. 
+
+I needed other people out here. Being alone with whatever situation I was a part of now without the presence of law enforcement made my stomach churn. I decided to pick up my pace, trying to cover the 30 Foot distance I had from the truck as quickly as I could. I was about to turn around when I heard something off to my left, past the tree line.
+
+*Snapping.*
+
+It sounded like twigs snapping at first. Then it became louder, closer.  
+Faster? No. It sounded as if a crowd of people were walking through the forest, towards the tree line.
+
+*Towards me.*
+
+I booked it towards the truck. I didn’t dare turn back, I could care less what was happening behind me. The truck door was open, just how I left it. I nearly slid in the cold mud underneath the runner boards as I grabbed onto the sides of the door and threw myself into the warm cab. I slammed the driver side door, locking it immediately and turning the lights on in the cab. I scanned behind me. Nothing was waiting for me, thankfully.
+
+I turned to look out the front windshield. Illuminated by my headlights, I could begin to make out shapes moving through the darkness. At first there I made out two. Then five. Then five more. Multiple shapes were appearing from the tree line, making their way towards the truck on its side. As they moved, I became more aware of what I was looking at. People, lots of people, dressed in what appeared to be Red cloaks. The attire dragged on the ground behind them, as if each person's cloak was too big for their actual size. There had to be 12 or 15 of these people. Maybe more. They paid no attention to me, not even glancing at me. They all started to circle around the truck, the skinned man still hanging there.
+
+I panicked, reaching for the air brake control, attempting to throw the truck in reverse. When I went to pull on the control, it wouldn’t budge. I yanked and yanked, trying to pull it out. It wouldn’t even wiggle. It was like it was welded to the console itself.
+
+*The fuck?*  
+I glanced up, observing the robed figures.
+
+They had now formed a complete circle, not one of them moving another inch. I must’ve stared at this for only a few seconds, but it genuinely felt like minutes. It was unnatural how still they were.  
+One of them, the one whose back was toward me, finally broke the formation. He raised his arms, stretching them towards the skinned man. The others followed suit.
+
+I watched, as they all lifted their arms, stretching them out wide. The one who first initiated the motion began to bow his head, the others bowed as well.
+
+I remembered my radio, sitting on the dash in front of me. I quickly grabbed it, fumbling to hit the talk button. As I hit the talk button, I began my attempts to call to dispatch.
+
+*“Engine 121, Radio. I need S.O. at my current location. There seems to be… uh…”*
+
+I paused, trying to find the correct words to say.
+
+*“Radio, there seems to be some sort of cult activity going on. One deceased. Others unknown. I’m in the engine, I need-”*
+
+The power to the truck cut out abruptly, shrouding me in complete darkness. The radio buzzed, toned, and died right in my hands. It was almost fully charged. The sedan in the ditch, along with the truck’s headlights both went out as well. The only thing left to illuminate the surrounding area was the moonlight, yet there wasn’t much of that, either.
+
+I could still make out the cult members in front of me. Their red coats barely visible in the darkness created a menacing image. It was completely silent now, not even the truck clicked. I didn’t breathe. I didn’t want to. I couldn’t. The lead member began to chant. A tone, not of song, but of an ancient statement. A statement that sounded as if it could burn churches to the ground, turn good people into demons and monsters. A statement that shouldn’t have existed.
+
+The others joined, now a chorus of vocalizations that didn’t make sense. Raspy voices, some sharp, some flat. Others beautiful, others out of sync. It sounded so incredibly wrong. It *felt* wrong.
+
+And through the chanting, another sound became audible. Screaming. Howling.
+
+Human screams, babies crying. Pigs squealing, elks calling. Coyotes laughing. Dogs whining.
+
+I could feel the blood in my ears start to pool as I attempted to cover them. The noises were morphing into one, an ungodly announcement that didn’t belong anywhere here in this world. I looked up, the cult members now backing up away from the truck. The truck on its side began to rock back and forth.
+
+The skinned man began to shake violently.  
+I watched as protrusions began to break through his scalped head, breaking through his skull in wet, gruesome *snaps.* The sound rang through the air, into my cab. I winced, knowing damn well I shouldn’t be hearing those noises as clear as I could.
+
+As the protrusions began to push further away from his skull, I could finally make out what I believed they were.
+
+Antlers.
+
+Then, pale phalange-type formations began to push their way out of empty arm sockets. Long, sharp claws wiggled their way through, followed by deformed, mutilated limbs. They formed, the elbows turned in wrong directions, new shoulders breaking through the old. Dead eyes rolled out of their sockets, a new skull taking shape.
+
+I couldn’t look away. I couldn’t move. I didn’t even dare blink. I was frozen in place, forced to watch the birth of something no eyes should ever see. The skinned man, now something indescribable, opened its new jaw. Millions of screams of every creature on earth sounded off at once. The noises before the transformation were now one, a mixture of pain, fear and rage.
+
+And then, there was silence.
+
+The cult members all fell to their knees at once, bowing before the beast. The air in the cab of the firetruck began to drop rapidly, my breath visible now. Only then did I realize I was hyperventilating, my heart beating at a dangerous rate. I needed to calm down. I needed to figure out how I was going to get out of this.
+
+The creature leaned up, those lanky, mangled clawed arms grabbing onto the window seals of the truck. It began to sit itself up-right, slow, as if it were unfamiliar with how to move its new form. It finished climbing out of the truck, its legs at different angles, hoofed at the end. It stood, impossibly tall, looming over the cult members who bowed before it. It seemed to snarl at them, somehow morphing its skull into a grimace.
+
+It then looked in my direction.
+
+I flinched. It knew I was there.  
+It lowered itself on all four limbs, its back legs bending backwards as it crawled towards my driver side window at a terrifying rate of speed. I closed my eyes, not knowing what else to do. My body was shutting down. The air in the truck seemed to have been sucked out, now impossible frigid, as if I were floating through space itself. 
+
+I could sense it looking at me through the window. It made no noise, but I knew it was there. Those dark, hollow eyes staring at me, deciding a fate for me that wasn’t of this world. There was a light *tap* on the glass. It wanted me to look at it. To acknowledge it.
+
+I sat there for hours, while it tapped on my window rhythmically, never stopping, never changing its force behind it. My neck was hurting from looking down at the floorboard, but I couldn’t bring myself to even move. By now, it should’ve been daylight. There should’ve been a response to my absence. The more time that passed, however, the more I lost hope that I’d never see daylight again.
+
+I was so deep in thought that I didn’t even notice my radio had crackled to life. There was still no power in the truck.
+
+A voice came over it, one I recognized. *Dozens* I recognized. I closed my eyes once more, attempting to cover my ears. The voices weren’t just coming from the radio. They were coming from outside. In the cab of the truck. They were in my head.
+
+*“Charlie One, Charlie One. Michael? Charlie- Mama, are you there? Charlie One, 1-4 is taking heavy direct fire - Mama, we have to go - Lakeside - We need air support, dammit! - Lakeside is where I want to spend our anniversary - Someone get a 9 Line started, Sergeant! - I love you, baby. I always will.”*
+
+
+
+My wife.  
+Those were her last words, battling to stay alive in a hospital she already hated. She had hoped to stay alive just long enough to celebrate 4 years of marriage between us. We met there, Lakeside view. She always loved that place.
+
+I felt something shift inside of me.
+
+Pain. Sadness.
+
+Rage.
+
+I opened my eyes, grabbing my radio and smashing it over the metal bar that separated the driver and passenger seat. I kept going, even when it was broken in half. Even when my hands began to bleed. I smashed the damn thing until it was no more than some crumpled plastic and wiring.
+
+Tears filled my eyes. I missed my wife, I missed her so much. I became a first responder to get away from all of the pain, and the grief. To help those in need, those who felt the same way I did. But I knew deep down, somewhere in my screwed up mind, that no matter what I did to distract myself, no matter what I did to cope with my loss… It would never bring her back. It would never bring back the only reason I continued to live. The only thing that truly gave me guidance in this fucked up world. The only thing that gave me hope that life was actually worth living.
+
+I dropped what remained of my only lifeline, and turned to face what waited for me outside my driver side window.
+
+It stared at me, its hollow eyes burning into my soul. Its head was cocked, as if it were a dog curiously watching its owner do something out of the ordinary.
+
+I screamed at it, roaring into its face from where I sat, the only thing separating us being a piece of tempered glass. It took a step back from the window, seemingly unsure of how to react. It wanted me to step out of the truck. It wanted me to put myself out there. It wanted me to walk into its trap.  
+It was certain death, but I knew I was out of options. If I died tonight, I wouldn’t be going out without a fight.
+
+I felt the halogen I had earlier next to my leg. That thing was fast, faster than anything I could react to. I knew I wouldn’t be able to land a single hit on it.
+
+I threw open my drive side door, grabbing my halogen with its pointed side facing towards the aggressor. It took another step back, snorting like a buck that felt threatened. I placed both of my hands around the handle, gripping it tightly.
+
+It stared at me, now an amused expression stretching across its boney face. 
+
+Images began to race across my mind. Before this shift, I had drank heavily the day before. Drunk, with my emotions all out of order, I had taken the rest of my antidepressants all at once. It couldn’t have been more than 8 or 10 pills, but I still downed all of them. I had been scrolling through my phone, finding pictures of me and Sarah from over the years. I was in and out of thought, debating on whether I should fall back. *She wouldn’t want to see me this way. No. Throw it up. Stop.*
+
+I always felt like a coward, too afraid to even go through with ending his own life. Since her death, I was nothing but a shallow shell of a man I used to be. Couldn’t get out of bed in the morning, didn’t bother to brush his teeth. Unkept. Spending money on things I didn’t need at all for short satisfaction. Maybe Sarah thought so, too.
+
+No. I cannot blame myself for something that was out of my control. She’d be proud of the man I become. We’d be at Lakeside right now, blowing our vacation time while watching our future children play in the crystal blue waters. That’s how I imagine it could’ve been, before the cancer took hold of her, destroying who she was from the inside out.
+
+I wanted to see her again, before the cancer. She was always beautiful, even the day she died. But the dark circles under her eyes, the weight she’d lost, turning her into nothing but skin and bone… I wanted to see her happy again. I wanted to continue living the life we had dreamed of. I wanted to look into her eyes just one more time, those beautiful, green eyes while the waters of the lake washed onto the shore peacefully. I just wanted to see my Sarah again, just one more time.
+
+The images stopped flashing through my head, now back to the monster in front of me. I became aware that I was now outside, in this thing’s kill zone. Nowhere to run. Nowhere to hide. An odd feeling crept over me. I felt calmer, my heart rate beginning to slow down. A peaceful presence draped over me, a feeling of warmth I hadn’t felt in so long.
+
+I was actually going to die tonight.
+
+And I accepted that.
+
+I felt tears in my eyes, the thoughts of my wife still lingering in my mind.
+
+*I’ll see you again, Sarah. Lakeside. I love you.*
+
+It stood once more, its towering form looking down at me. It was out of patience.  
+It reared, stancing up as if it were going to charge at me. I gripped my halogen tighter, a sudden surge of energy coursing through my veins.
+
+*Come get me, motherfucker.*
+
+In the distance, a sound I hadn’t heard in ages began to ring through the silence.
+
+Sirens. Lots of them.
+
+The creature glanced up, stepping back. Red and blue lights began lighting up the trees. I turned to see multiple squad cars and other emergency vehicles begin to pull onto my side of the road. I turned back. The creature was gone.
+
+I looked to my right.
+
+The cult members were gone. My engine's headlights were back on, the truck still running like it was never turned off in the first place. Both the sedan and truck were gone, too. There wasn’t any blood, no scraps or material left over. There weren’t even indentations in the grass to suggest a vehicle had been there at all. It was as if the events that just took place had never happened.
+
+I felt a hand on my shoulder. I flinched, hard. It was one of the deputies, with two firefighters behind him. One of them being my chief.
+
+“Hey, hey. Michael, it’s just us. What happened? Are… you ok?”
+
+My chief took a step forward, presenting something in his hand. It was my radio, completely intact with barely a scratch on it.
+
+“We… we got a mayday from you, man. You called a mayday?” My chief had an expression on his face, one of concern yet cautious.
+
+“I… I can’t… I was responding to that MVC out here… My radio-”
+
+“Michael, there’s no… There weren't any reports of a wreck, bud.”
+
+All I could do was just stare at him, disbelief heavy in the air. I’m not sure what happened after that, but apparently I collapsed right there in front of them. They loaded me up, taking me to the nearest hospital in our district.
+
+I woke up a few hours ago. I was briefed on what happened to me, about how I passed out. About how I was hyperthermic, even though it was in the high 50’s. The cuts and bruises on my hand.
+
+I was told that at 2 a.m. this morning, I radioed to dispatch out of nowhere that I was en route. Never said where I was going, or why. The dispatcher tried to get more information, to which I told her, “She’s waiting for me.”  
+My radio was turned off shortly after. They found it at the station, sitting on its charging port. They tracked me down. Evidently, I called in a “Mayday”, which was impossible given the time frame. My radio was left at the station, my truck's radio was never touched. They found me, holding a halogen, screaming into the woods incoherently.
+
+When they restrained me, they transported me to the hospital. While en route, I told everyone that the “Red Hooded People” were going to get us. When I chuckled at the deputy who was briefing me along with my chief, they both strained their brows, neither smiling at my attempts to push it off. They seemed like they had something they wanted to say, yet couldn’t find the right words to tell me.
+
+“...What? What’s going on? Guys, I just… I had an episode or something, ok? There’s really no need-”
+
+“Michael, we uh… We did see something on the way here.” My chief glanced at the deputy, who glanced back at him and then towards me.
+
+“We’re not… and I promise you, we aren’t trying to make this any worse. But we did find an old car on the side of the road, a Corolla, I think. It was a few miles down the road, all the windows were shattered. We found your wallet in the driver seat.”
+
+He looked down, shaking his head. “S.O.’s out there right now. All I can say is, it’s been a weird fucking night. We aren’t trying to push your account of events off or anything, but… we’re going to need to run some drug tests. No big deal. You just get some rest, we can deal with the reports and shit in a bit. Just… Call me if you need anything, ok?”
+
+I nodded my head, glancing over at the deputy as he patted me on the shoulder and walked out with my chief.
+
+I write this now, for memory's sake while it's fresh on my mind. I’m not sure if whatever I saw early this morning was real. I just don’t know. I can’t really process this. I’m not sure if me being in this hospital as of now is even real. All I do know is that when I’m cleared here, I think I’m going to quit. Throw away the empty pill bottles I have on my dresser, erase all evidence that they were even there. Pack my belongings and move to Tennessee. I think I’m going to find a nice little house near Lakeside, spend the remainder of my days sipping whiskey while watching the water wash onto the shore.
+
+I think that’d be nice.
+
+  
+  
+  
+  
+  
