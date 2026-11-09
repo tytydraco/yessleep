@@ -1,0 +1,191 @@
+Hey everyone, writing this super fast, I'm in a rush. I'll explain everything below, starting with the last clear memory I got.
+
+Sharp wind noise, I hear whispering and the sound of my beat-up windbreaker tearing. I don't feel a thing, my whole body's numb. There's a metallic taste in my mouth, hot sweat dripping down my cold body.
+
+Barely opening my eyes, I realize I have no clue where I am. A damp, grimy alleyway, the stench of a dumpster mixing with the taste of blood in my mouth. I see a rat gnawing through my jacket. "You finally got me, you little bastard," I kinda whispered.
+
+This ain't the first time. I'm on meds and started drinking way more after my mom died. She passed 4 years after my grandma. That hit me hard.
+
+Half-lying there, I pulled out my phone. Screen's cracked but not too bad. I checked the date and time: 2:34 AM, November 4th. Last week something strange's been happening to me. Really creepy strange.
+
+It all started 4 days ago when I moved into our old apartment above our family pawnshop near Chinatown. I won't give the real address, people living in Portland will know which pawnshop I mean. I'll change the name too. My late grandma owned this building and the land for a long time. My mom wanted to sell it, but kept changing her mind at the last second.
+
+Lying on the ground, I started getting up little by little. With a loud squeak, the rat started falling out of my jacket and chewing through my T-shirt. In a panic I started shaking it out, there was a crazy hum from my screaming. The rat fell out. Downside-it scratched up my chest. Looks kinda like the number 5 or 6.
+
+Blood was barely coming out. It's night. Cold. I was starving. My place was 20 minutes away by taxi.
+
+Cold fingers tapping on the screen. "Found it!" I yelled and tapped the taxi icon. Then I remembered there's probably no food at home.
+
+Five minutes later my taxi pulled up. It was raining. Roads were empty. I went inside. No food. I decided to run a hot bath and while it was cooling, I went to the nearest dive in Chinatown.
+
+Walking in, I ordered, sat at the bar to wait. It was pretty much empty, 6 people including me. A homeless guy was sleeping with a beer bottle. The cook was working in the kitchen. A tired waiter and cashier barely standing. Me, of course. And some guy. He came in like 6 minutes after me. He kept staring at me the whole time. Looked neat. Had a faint tattoo on his arm shaped like some zodiac sign. Nothing scary about him, but he gave me a bad vibe. As he grabbed his order and started to leave, the guy called out to me:
+
+"Hey, kid, did you forget your door keys? Watch out, the goat-frost is here. Stay outside, you'll freeze your ass off."
+
+And yeah, I did forget my apartment keys.
+
+"Thanks!" I shot back dryly and got out of there.
+
+Later at home his phrase hit me: goat-frost? What the hell does that even mean, what kind of stupid expression is that. He looks like a young guy but talks like an old man. Maybe he meant "cold as a dog"?
+
+Getting into the bath, I slipped and hit my head right on the wet tile. Blood ran into the water. Not a bad wound. But I split my head open. Didn't think much of it. I fall a lot, break stuff, or cut myself. I smoke a lot, so I get memory gaps. I can hit my head and forget. Plus with the meds sometimes you don't even notice.
+
+\[Update 1\] Yeah, guys, I know my lifestyle looks pretty bad. Might be disgusting to some, but I did this to myself and I'm trying to fix it. The meds were prescribed by a psychiatrist. I'm not crazy. I'm completely sane. After my grandma died, and then my mom, I started getting really aggressive, snapping at people. Sleepless nights. Panic attacks and breakdowns. They put me on meds.
+
+After the bath I lay down on the bed and instantly passed out. Woke up at 6:32 AM from my alarm labeled: "Make coffee. Don't forget your meds." I don't remember setting a timer for today.
+
+I take my meds strictly on schedule morning and evening. Walking to the kitchen, a floorboard creaked quietly behind me. And right that second a chandelier fell 3 centimeters from me.
+
+"WHAT THE HELL IS HAPPENING?!" I yelled, my body shaking. Sweat ran down my back, my palms clenched. The glass chandelier shattered all over the hallway. 
+
+Out loud I started saying:
+
+"Okay, chill, George. Chill. It's fine, you're alive."
+
+Old house. Floor's creepy and creaky. But the ceiling's gonna need fixing. With those thoughts I started wiring up and came straight here to Reddit.
+
+Grandma used to post all kinds of stuff on Facebook too. Mom always said: "George, you're just like grandma. Always looking for adventure, some kind of fights. Grow up, son. I love you, but seriously, grow up, be like mom." She said it with a smirk and love.
+
+My mom was always a white angel. But grandma-she was like a demon. Looked like someone who'd been through a lot: gray hair. Wrinkles. But it all went with her style. Old gangster. Constant fights. Brawls. Even at 66 she could smash someone's face in. Smoked constantly. Ran an underground casino. Hard to believe.
+
+I didn't believe it myself. Until one day I was cleaning up. Looking into the old basement, I saw a stylish but dusty poker room. A couple of slot machines and a bar. I think everything there was fake, designed to suck money out of people.
+
+Grandma always said when we were alone: "George, when I get old, you'll take this beautiful place. Not your mom. You. Lucky little shit."
+
+The electrician showed up. I'll write later after he sorts out the chandelier.
+
+\[Update 2\]
+
+The electrician left. He was a grumpy, scary but short electrician with a thick gray beard. With a heavy accent he asked:
+
+"what's the problem? What's broken here? Show me, kid."
+
+"Well, the chandelier fell. Wiring came loose. Looks like some idiot with butterfingers did the wiring."
+
+He shot me an angry look, raised his hands, and yelled:
+
+"Oy, ang tanga mo!! Okay, show me your chandelier."
+
+We went up to the 2nd floor, I pointed at the problem. He snapped back:
+
+"Got it! I can see the problem right away! Madali lang."
+
+After about 30 minutes of huffing and yelling in a language I don't understand, I heard:
+
+"Done, dear! Lahat ay nasa pinakamagandang anyo, gago."
+
+I tossed a joint on the first table I saw and ran to the hallway:
+
+"Thanks a huge huge bunch!!! How much do I owe you?"
+
+He answered with a hint of happiness:
+
+"For a family home, nothing's too much. It's a gift."
+
+"How's that?"
+
+"I personally did all the wiring in this house! I talked to the lady of the house. Linda Murphy!"
+
+"What? I'm her grandson. George Murphy! Linda's grandson."
+
+"Oooh, my dear!"
+
+We talked for about an hour. After the conversation he started packing up his tools.
+
+"Alright, my dear! Time for my other jobs. Call me if anything! I'll do it all for free for Linda's grandson!"
+
+From his accent I figured his name is Paola. A little weird name. Probably explains the height too. What's strange is he's Filipino. And imagine my surprise when I found out he did all the wiring in this house. And that he talked to my grandma.
+
+"Alright, my dear, take care. Call me when you got time. Tell me about the house. Got problems-reach out, don't be shy. And if you're in New York, got questions, problems-ask anywhere where 'Soccer Fever' is, they'll help you there, buddy. Just say you're from Linda Murphy and Paola Aquino."
+
+"Okay, thanks!" I yelled with childlike joy.
+
+At the very end, as he closed the door, he said almost without an accent, in perfect English:
+
+"Something's off with the wiring here. Be careful. I'm serious."
+
+His words seemed really scary to me. I don't think one lamp can cause a fire.
+
+Glancing at my phone screen, I saw the time: November 5th, 12:43 PM. Already lunch, need to order food. Don't really remember this number. But it's gotta be hanging somewhere.
+
+I sat for about 10 minutes after Paola left. But hunger got stronger. I ran to the phone book. Couldn't brake in time, missed the turn and went flying straight into the open basement door. While flying, I realized I don't remember opening the door.
+
+My whole body just relaxed on autopilot. I fall like a rag doll and fly right into a nearby cabinet. With a loud noise I hit the cabinet, it falls with a loud thud along with my body. The only thing on that cabinet was grandpa's guitar. With a piercing sound I hear: "Brzang". A string snapped and curled into some scribble or number shape.
+
+I fell, and the cabinet landed 13 centimeters from my head.
+
+I'm very, very, very lucky.
+
+Head hurts, vision's triple. Hands shaking. I touch my head-not a single scratch on me.
+
+Sitting on the floor in fear, I remembered why I was running. Getting up, I wanted to close the basement door and order delivery. But the door was already closed. 
+
+I'm wary of this. Maybe homeless people live here while grandma was gone? Or the door slammed shut when I hit the cabinet?.. Whatever, don't wanna think about it, just the thought makes me sweat hard and my whole body gets hot.
+
+Dialing the delivery number, I noticed two extra digits 3. So I didn't right away get why I couldn't get through. Guess I really should smoke less.
+
+\[Update 3\]
+
+25 minutes later I heard the doorbell. Walking over, I smelled Chinese fast food.
+
+Opening the door, I saw a regular delivery guy. Not too old, not young. Looked about 35. Asian appearance. Had a small tattoo on his arm, a faint horn and something else. Don't really remember.
+
+In perfect English but with a slight accent he said:
+
+"Delivery!"
+
+I took the order.
+
+"Thanks! Bye."
+
+Before I could turn away, this guy started saying weird, unrelated stuff:
+
+Delivery guy: "you delivery... you delivery... food... who are you? Who are you?! Cold cold goat-frost"
+
+I blinked hard, the delivery guy had a scared face.
+
+He said in a frightened voice:
+
+"Sorry, why are you yelling at me?"
+
+Without saying anything, I slammed the door in his face. Something strange is going on. All these weird words from people, all their expressions-like it's a dream. But if it were, I wouldn't feel physical pain or such strong fear.
+
+Walking through the pawnshop to the 2nd floor, I turned to look at the paintings and our family tree hanging right in the pawnshop. There were lots of small photos. And 5 faded photos. It always pissed me off that grandma's old photo was fading. Same with my photo. I keep changing my picture.
+
+Either the corner fades. Or the middle. Or it gets blurry. I can't find decent film or a decent photographer. Something always goes wrong.
+
+About 40 minutes after I sat on the bed, I closed my eyes and dozed off a bit. I only remember fragments, I'll try to explain in detail how it was.
+
+A sharp cold blew in from the window, and instantly I'm in the basement. Door's closed. I go up the stairs and fall down really fast, like something won't let me leave.
+
+I'm lying in the living room, my arm's swollen, it's covered in huge pale blue bruises. I felt so much pain in one moment, like a couple hours had passed since I broke it. Opening my eyes, I'm outside. Chinatown. There's a note in my hands.
+
+Quote:
+
+Order
+
+2 portions full moon noodles
+
+3 portions red flesh dumplings
+
+1 liter of water for the product
+
+The order was written in a yellow old notepad. 
+
+In its very corner there were 3 Chinese characters, I still didn't get what they mean, some nonsense "驢角貨".
+
+I was wearing an old beat-up delivery jacket. In my right hand a green flier from the diner, torn almost completely, just a piece of the name "Repu.." and below again the character "角貨".
+
+Time was 7:30 PM.
+
+Thank God this place is near my house. I threw off that jacket and tossed those papers.
+
+It was quiet. Not loud. No wind, nothing suspicious. I live 2 minutes from this place. I ran as fast as I could, in 3 minutes I was practically home. Crossing the road like a wild deer or a rabid donkey, I didn't see the car. I closed my eyes. I heard a whistle. A small push. I couldn't stand. Felt like I died for a second. Falling, I opened my eyes. I'm fine. Hands shaking from the fall, minor scrapes. The car stopped right in front of me.
+
+I backed away, didn't even get to yell a word at the driver, and he already sped off. Cowardly goat.
+
+I'm walking down the street a minute from my place. I'm scared. I feel bad, and I'm nauseous.
+
+Too many weird situations, too many disconnected things. Help me, I don't know what to do. I don't understand what's happening. I can't live in this neighborhood anymore. I want to move. I'm scared. Someone please give me advice in this situation. 
+
+I can call Uncle Paola or rent a hostel for a couple nights. Don't know what to do.
