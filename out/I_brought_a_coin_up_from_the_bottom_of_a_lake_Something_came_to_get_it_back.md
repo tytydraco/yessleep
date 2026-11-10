@@ -1,0 +1,123 @@
+This happened when I was maybe 10 or so. I’m in my late 20s now, and I still haven’t fully wrapped my head around it all.
+
+My grandparents lived on a lake in southwest Virginia my entire childhood. We would usually visit about twice every summer.
+
+On this visit, I had decided to bring some goggles and do a little exploring under the surface, which I had never done before. 
+
+I remember diving off the dock and swimming about 10-20 yards out. I don’t know what I was expecting to see, but a green, murky darkness below me was not it, and I almost cut my adventure short right then and there.
+
+And then I saw it.
+
+A pinprick of light, far below. 
+
+Where I was, I doubt it was more than 10-12 feet deep, but I was at the age where I still had some semblance of imagination. I had also found out the year before that a town had supposedly been flooded over when they created the lake, so my mind naturally concluded that I was seeing a streetlight. Somehow still lit, even after all these years.
+
+And so I took a deep breath, put my head under, and dove.
+
+Unfortunately, there was no streetlamp. The light had been the sun, desperately reaching to light the bottom. I didn’t see much of anything resembling a town in the limited light surrounding me, but it would be years before it would occur to me that the “drowned town”, as they called it, would be more towards the middle.
+
+What I did see, though, was a round object, glinting in the sand and muck at my feet. 
+
+I reached down, and picked it up. A silver quarter, from the looks of it. It was covered in muck, but a wipe with my thumb cleared that away immediately.
+
+My brain was now less than politely requesting air, and quickly, so I closed my fist around it as tightly as I could, and pushed off from the bottom.
+
+Just in time for something to plunge in next to me, wrap two muscular arms around me, and carry me upwards. 
+
+I turned around as we broke the surface, both gasping.
+
+It was my dad, who even with goggles on I could tell was very annoyed.
+
+“What the hell were you doing there, bud? You scared us!”
+
+“I saw a light down below. I wanted to see what it was. And look!”
+
+I held up the coin.
+
+“I found this.”
+
+“That’s very cool, pal. But please don’t do that again. Or at least call for someone if you decide to.”
+
+“Okay. I’m sorry, dad.”
+
+“It’s okay, buddy. You just made us all a little nervous, is all.”
+
+And that was it. We swam back, where everyone oohed and ahhed over my discovery.
+
+We went up for lunch shortly thereafter. I put it on the bookcase across from me, where I proceeded to completely forget about it until that night.
+
+We always stayed up late playing board games, so I didn’t go to bed until probably 1am.
+
+I was lying in bed, playing on my DS in the dark, when I heard the back door open ever so slightly. I was a little confused as to who would be going outside at this hour, but I figured someone had left something down at the dock and wanted to grab it rather than leave it to the elements.
+
+The footsteps that ensued told me that was not the case. They were heavy. Wet. And slow. As though someone was walking around wearing boots filled with water.
+
+*Thump. Thump.*
+
+I slowly, silently closed the DS and looked at the door. It was closed completely.
+
+*Thank god.*
+
+Whatever relief I felt was interrupted by a murmur outside as the footsteps walked around the basement, sounding like they were near the room where my parents were sleeping. But nobody stirred.
+
+It sounded cold and wet, like water was spilling out of its mouth with every word. And dead. Very, very dead.
+
+*“The coin. Where’s…. the coin?”*
+
+My eyes shifted from the door, to the bookshelf across from me where I had put the coin. 
+
+As if whatever was outside could read my thoughts, the footsteps began to slowly come in my direction. Louder, and wetter, and heavier, as though they were walking through a puddle and not on a dry wooden floor.
+
+I scooted down and thrust the sheets and comforter over my head. They could have been glued to the mattress and I wouldn’t have felt any safer.
+
+I heard the bedroom door slowly creak open, and realized my cheeks were wet.
+
+The footsteps entered the room. 
+
+And came my way.
+
+Around to the side of my bed.
+
+And I felt wet hands pull the covers back.
+
+I felt dead eyes look down at me as I shook with fear, now crying silently.
+
+I shut my eyes as hard as I could. I did not want to look. Not one little bit. 
+
+*“Where’s… the coin?”*
+
+“On… on the bookshelf over there. I’m sorry…”
+
+The hands dropped the covers back down, now wet. I brushed them away, not wanting any part of them on me.
+
+I heard the footsteps turn away from me without a word.
+
+One step, then a *clink*, like the coin was being picked up, and then the thing left the room silently. Out of the room, and back out the door. I heard the door shut, and then those wet, heavy footsteps slowly trail off.
+
+I didn’t open my eyes. I didn’t need to, to know the coin was gone.
+
+I don’t know when, or if I fell asleep. Just that it was morning the next time I opened them. 
+
+I wasn’t convinced it hadn’t been a nightmare, and I wanted nothing more than for that to be the case.
+
+I sat up, and instantly knew it hadn’t been the case. 
+
+Big, wet footprints were next to my bed. They went to the door, and then across the room, where they stopped at the back door.
+
+No one else was awake yet, so I grabbed my towel and quickly wiped off the footprints that should have dried away hours ago but for some reason hadn’t.
+
+No one asked me about the coin. I assumed they had forgotten. That was fine with me.
+
+But every time we came back, the footprints would be there. No matter what I did to clean them off or wipe them off, they would just come back each and every time.
+
+We wound up just redoing the floors in that part of the house when we were getting ready to sell the house years later. Thought that might solve whatever the issue was.
+
+But then my aunt ran into the couple who bought the house at the store one afternoon. Asked how they were enjoying the house.
+
+She said they were absolutely in love with it, and couldn’t wait to spend many summers there.
+
+But the weirdest thing had happened. They had put two big rugs down, so it covered up most of it, but every time they visited, a trail of wet shoe prints would appear on the floor.
+
+Going from the back door to the bed in the guest room. 
+
+The same one I had slept in.

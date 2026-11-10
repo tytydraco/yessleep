@@ -1,0 +1,85 @@
+I should say up front that I'm not a night person. I took the 10 p.m. to 6 a.m. at Hartwell's because it pays an extra two dollars an hour, and because there are never more than five customers in the building after midnight.
+
+My job is mostly the self-checkouts. There are six, and I'm the attendant. I stand at a little podium with a key card on a lanyard, and when a machine locks up, I tap the card and clear it. You've heard the voice. It's flat and pleasant, a woman who has never been in a hurry in her life.
+
+*"Unexpected item in the bagging area."*
+
+It usually means someone put their purse down or bagged something before scanning it. Nothing is ever in the bagging area. You tap the card, it says "Please continue," and it's over.
+
+Kiosk 4 started doing it at 3:14 a.m., every night, for no one.
+
+No customer. No bag. Just the screen turning red and the voice: *"Unexpected item in the bagging area. Please remove the item and try again."* The scale readout in the corner of the screen would show a number, sitting there on an empty platform.
+
+The first night it said **131.2 lbs.**
+
+I wrote it down. I write down everything. It's a habit from my last job, where nobody believed me about anything unless there was a log.
+
+I tapped the card. The screen went green. *"Please continue."*
+
+The next day, Denise didn't come in.
+
+I didn't think anything of it at the time. People call out. But the night after, I asked Marcus, the stock guy, if he'd heard from her, and he said, "Who?"
+
+I said Denise. Cashier, glasses, always had those little orange candies in her pocket. He laughed and said I was thinking of somebody at the old Hartwell's, because there was no Denise here. I checked the schedule board. Her name wasn't on it. I checked the break room. Her locker had a different name on it that I didn't recognize, and it had been that way, as far as anyone could tell, forever.
+
+I could still see her. That's the part I have trouble with. I could picture the orange candies.
+
+The second night, 3:14 a.m., Kiosk 4 said **164.0 lbs.**
+
+I'm not stupid. I didn't tap the card right away. I stood there and listened to it say *"Please remove the item"* five times, ten times, in that same flat, pleasant voice, and while I stood there, the lights over aisles 9 through 12 clicked off one at a time. Then 7 and 8. Then the freezers hummed down, and something in the building's walls started to feel like it was leaning.
+
+I tapped the card.
+
+The lights came back. *"Please continue."*
+
+The next morning, the assistant manager, Tyler, wasn't on the schedule. Nobody had ever heard of Tyler.
+
+I keep a notebook now, a real paper one, under the podium. I've written down **131.2** and **164.0**. Beside them I've written *Denise* and *Tyler*, in pen, because the memory is going and I need something in my handwriting that says they existed.
+
+I weighed Denise's friend, a woman who works the deli, on the produce scale one night, as a joke. I told her it was a bet. She was 131 on the nose.
+
+That's when I understood what the machine is asking.
+
+It's not a glitch. It's an *unexpected item.* Something the building has decided shouldn't be there, and it's asking me, the only attendant on duty, to authorize the removal. It needs a person to press the button. It's polite about it, but it can't do it alone.
+
+And I've been pressing the button.
+
+I tried not to, the third night. I want that on the record. At **148.6 lbs.** I stood at the podium with my hands behind my back and let the machine ask for six minutes. I counted it out. The lights went off in sections. The doors at the front, the automatic ones, started opening and closing by themselves, slowly, like breathing. Somewhere in the store, a shopping cart rolled by itself down aisle 3 and hit the end cap.
+
+Then the voice stopped saying "item" and started saying something different.
+
+*"Unexpected attendant in the bagging area."*
+
+I tapped the card.
+
+I haven't tried it again.
+
+It's been nineteen nights. I have nineteen numbers in the notebook. I don't remember most of the names that go with them. I only know they were people because I wrote *person* next to each one, in a column, like a ledger.
+
+Tonight, at 3:14, Kiosk 4 turned red.
+
+It said **172.0 lbs.**
+
+I put the pen down.
+
+I don't weigh 172. I've weighed myself every morning for six years, on a bathroom scale my dad bought me when I turned eighteen. I weighed 172.0 this morning. I know because I wrote that down too.
+
+*"Unexpected item in the bagging area."*
+
+I could press the card and it would go away. I think it would take me, and I think I'd be the only one who didn't remember it happened.
+
+But here's what I figured out about ten minutes ago, standing at this podium.
+
+The machine can't remove an item unless an attendant authorizes it. That's me. There's never been anyone else on this shift, and I never thought about why. Tyler wasn't an attendant. Denise wasn't either. They were just numbers.
+
+There's one more person who has the power to tap that card. That's whoever works the overnight shift *after* me.
+
+I'm writing this on my phone, standing on Kiosk 4's scale. I stepped onto the platform two minutes ago so the machine would stop asking about an empty space. The screen says **172.0** and the voice has gone quiet, and the red is fading, and I think it's waiting.
+
+The front doors just opened.
+
+I can hear keys.
+
+I don't know who works the overnight shift after me. I've never once seen them. I've worked here nineteen nights and not once have I been relieved at six.
+
+The lights over aisles 9 through 12 just went out.

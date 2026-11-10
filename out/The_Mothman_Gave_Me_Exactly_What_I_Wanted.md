@@ -116,7 +116,7 @@ I moved toward the open garage door, away from Earl.
 
 "What do you mean?"
 
-"I keep hearing something near the dumpster. I saw it move behind the building."
+"I keep hearing something near the dumpster. I saw them move behind the building."
 
 "Probably a raccoon."
 
@@ -143,10 +143,6 @@ Then came a dull thump.
 "Did you hear that?" she whispered.
 
 I had, but it could've been anything.
-
-"Probably an animal," I said.
-
-"It sounds too heavy to be an animal."
 
 Katie didn't like working alone out there. The station was isolated, and a couple of guys had bothered her before. I'd once had to go down and tell some drunk asshole to leave her alone. I figured this was more of the same.
 
@@ -192,11 +188,11 @@ She screamed so loud I nearly swerved onto the shoulder.
 
 "What's happening?"
 
-"IT'S OUTSIDE!"
+"IT'S INSIDE!"
 
-"What's outside?"
+"What's inside?"
 
-"THAT THING! IT'S TRYING TO GET IN!"
+"THAT THING! IT GOT IN!"
 
 There was a thud behind her, hard enough to distort the sound through the speakers.
 
@@ -224,7 +220,7 @@ Then three slow knocks.
 
 "What?"
 
-"It's at the window."
+"It's down the aisle."
 
 I pressed harder on the gas.
 
@@ -236,11 +232,7 @@ She didn't answer.
 
 I heard her breathing. Shallow, fast breaths, like she was trying not to make any noise.
 
-"It's looking at me," Katie said.
-
-"What is?"
-
-"It's too big, Travis."
+"It's looking at me," Katie said. "It's too big, Travis."
 
 "What?"
 
@@ -249,8 +241,6 @@ I heard her breathing. Shallow, fast breaths, like she was trying not to make an
 A low, rattling sound rolled through my speakers. I couldn't tell whether it was coming from the thing or the building itself.
 
 Katie screamed.
-
-"IT'S COMING IN!"
 
 Footsteps. A crash. Then her voice, farther from the phone.
 
@@ -772,6 +762,6 @@ Some things haven't changed.
 
 I wish I could tell you I regret what I did every day.
 
-[I](https://www.reddit.com/r/PageTurner627Horror/comments/1x9lyxi/the_last_tour_of_the_evening/) [don't](https://www.reddit.com/r/PageTurner627Horror/comments/1tsovdx/resist_the_devil_part_1/).
+[I](https://www.reddit.com/r/PageTurner627Horror/comments/1xhi5v9/joint_custody/) [don't](https://www.reddit.com/r/PageTurner627Horror/comments/1tsovdx/resist_the_devil_part_1/).
 
 

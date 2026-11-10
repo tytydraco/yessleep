@@ -27,3 +27,5 @@ Three days have passed now and she’s still gone. People have called me and ask
 My nightly visits are unpredictable—the latest of them were locusts, ice, and the endless war. I’ve seen them all before, but I can never be sure which one I’m going to get. *How do you find someone when there’s only a random chance?* I know where she is but I don’t know how to get there.
 
 Lord help me, please tell me what to do.
+
+[**\[Part 2\]** ](https://www.reddit.com/r/nosleep/comments/1xskjvv/i_go_to_hell_for_ten_minutes_every_night_part_2/)
