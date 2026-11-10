@@ -1,4 +1,18 @@
-https://www.reddit.com/r/nosleep/s/oRK6tBImyG
+Part 8: https://www.reddit.com/r/nosleep/s/4qku5pkzUy
+
+Part 7: https://www.reddit.com/r/nosleep/s/t3yDHCt9ka
+
+Part 6: https://www.reddit.com/r/nosleep/s/RJhJ4y87ZU
+
+Part 5: https://www.reddit.com/r/nosleep/s/cyMCFRKjW4
+
+Part 4: https://www.reddit.com/r/nosleep/s/ZngKKmNy5x
+
+Part 3: https://www.reddit.com/r/nosleep/s/MXJiVsiUMJ
+
+Part 2: https://www.reddit.com/r/nosleep/s/CtqviM6Qno
+
+Part 1: https://www.reddit.com/r/nosleep/s/kMmv9kxJiG
 
 I had already ended the call when Marisol's question came back to me. What did he say? I'd given her the part I could stand to repeat, that Sam had asked about her and the girls. There was a second part, and I'd left it underneath the building with him. I was still holding the phone against my ear when a paramedic put a paper cup of water in my free hand. He waited while I drank, probably because my fingers were shaking enough to spill it, then asked how long it had been since I'd eaten. I said I wasn't hungry. He pointed at a chair without arguing, and for a few minutes I sat in the open back of an ambulance while people in helmets carried equipment past me toward the plant.
 

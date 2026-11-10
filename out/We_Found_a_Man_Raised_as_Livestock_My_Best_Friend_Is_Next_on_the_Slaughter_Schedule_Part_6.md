@@ -1,4 +1,18 @@
-What happened before: https://www.reddit.com/r/nosleep/s/AUE4Y16jRR
+Part 8: https://www.reddit.com/r/nosleep/s/4qku5pkzUy
+
+Part 7: https://www.reddit.com/r/nosleep/s/t3yDHCt9ka
+
+Part 6: https://www.reddit.com/r/nosleep/s/RJhJ4y87ZU
+
+Part 5: https://www.reddit.com/r/nosleep/s/cyMCFRKjW4
+
+Part 4: https://www.reddit.com/r/nosleep/s/ZngKKmNy5x
+
+Part 3: https://www.reddit.com/r/nosleep/s/MXJiVsiUMJ
+
+Part 2: https://www.reddit.com/r/nosleep/s/CtqviM6Qno
+
+Part 1: https://www.reddit.com/r/nosleep/s/kMmv9kxJiG
 
 The list had Sam's number on it. Vale had enlarged the photograph until the figures were almost an inch high, but I kept leaning toward the screen as if another look might change them. Under TABLE, the number on his new wristband sat beside APPROVED, and a handwritten note at the bottom said the blue-marked animals were to be kept together for afternoon collection. I asked Vale whether there was a chance TABLE meant something else in this part of the building. She didn't answer immediately. She moved her chair aside and let me see the photograph of the same form they had taken from a refrigerated room two hours earlier. Inez's number appeared on that one, with a date and an entry confirming that the order had been completed.
 

@@ -1,0 +1,349 @@
+It was not a word. It was the shape of one, the breath before it, dry and low and very close. I didn’t turn my head. The room was empty, I knew that, and the door was shut, and I had heard the plane go. I sat quite still, with the tea going cold, and listened, and the stove ticked, and the sound came again.
+
+It didn’t come from the door, or from the window, or from the table. It came from nowhere in particular, from the whole of the cabin at once, from the boards and the walls and the air, soft and unhurried and patient. It spoke in a language I didn’t know, and I understood, with a small cold drop in my stomach, that it was not speaking to me.
+
+It was repeating something. Over and over. Slowly.
+
+Learning it.
+
+On my right wrist, beneath the mug, the characters shifted very gently, and then were still.
+
+I stood up, and I put the mug down on the arm of the chair, because I didn’t trust my hands with it.
+
+The whispering stopped the moment the china touched the wood. It wasn’t a fade or a trailing off. It was a clean cut, as if a door had been closed in another room. I stayed bent over with my fingers still on the handle and listened. The stove ticked. The wind moved along the eaves. Nothing else.
+
+On my wrist the band of characters had gone cooler. It wasn’t cold, only a degree or two below the rest of me, like a stone that has been turned over. I looked at it for a moment and then made myself stop.
+
+Draught, I thought. Pipes. A radio left on somewhere. I’d have said it aloud, but I didn’t want to hear how it sounded.
+
+The sensible thing was to look. A man in my position would have looked, and I wanted very much to be that man for a little longer. I started at the front door. The bolt was across, and so was the chain, and I put my weight against it and felt it hold. I went to the window beside it, which looked down the path to the jetty. The latch was down and the frame was tight, rimed with frost on the inside at one corner, and when I put my palm flat on the glass the cold came straight through.
+
+The kitchen was a narrow lean-to at the back. There was a pantry door, and I opened it. I stood in front of rows of tins and sacks and jars with their labels turned neatly outwards, enough for three months, and the shelves went back further than I had expected, and I counted them with my eyes, and nothing was out of place. I shut the door. The kitchen window had a catch, and the catch was fastened. The back door had a bolt, and I drew it and looked out at the wood hut, a dark box against the snow, and the dim line of the path up the hill. No footprints. Nothing but my own, and the greeter’s, going away.
+
+I bolted it again and went back through the room.
+
+I looked in the wardrobe, and moved my jackets along the rail, and they were what they were. I got down on my knees on the boards and looked under the bed, and there was dust and a single curl of rope. The bathroom had a basin and a shower stall and a small high window that would not have admitted a child. I checked that one too. The latch was down.
+
+There was nowhere else to look. The cabin was a single room and its outbuildings, and I had been into every corner of it. I stood in the middle of the floor with my arms hanging and my heart still going, and I felt as I did when I used to check a spreadsheet I’d already checked three times. There was nothing to find, and the not finding it was not a comfort.
+
+I was alone.
+
+The box lay on the table where it had fallen, between the binoculars and the notebook, pale and bare. The torn tissue lay beside it. I stood and looked at it for a while, and it did nothing at all. It was only a box.
+
+I picked the mug up from the arm of the chair. It had gone lukewarm. I held it in both hands, as I had before, and I stood very still and waited.
+
+Nothing came. The room was quiet.
+
+I put the mug down again, carefully, and I did not pick it up. I went and sat on the edge of the bed with my right wrist in my left hand, and I rubbed the cool band with my thumb, and the dark characters did not move.
+
+The shower was hot, which surprised me. The water came from a tank behind the stove, and it ran clear and scalding for a good ten minutes before it thought about cooling. I stood under it with my forehead against the tiles and let it hit the back of my neck. I’d been looking forward to this for a week, and I wanted to feel something about it.
+
+I didn’t, much. It was only water, going over a man.
+
+The writing on my wrist didn’t wash and didn’t fade. Under the spray it looked darker, if anything, like a tattoo does when it is wet. I didn’t look at it for long. I dried off, put on the pyjamas I’d laid out on the bed, and checked the bolt on the front door a second time, which I’d promised myself I wouldn’t do.
+
+The box was on the table where I’d left it. I turned the lamp off, so that I wouldn’t have to see it.
+
+I lay in the dark and listened to the stove settling, and the cabin creaking round me like a ship, and the wind finding its way along the eaves and giving up. Somewhere in the second hour I noticed that my eyes were closed. I don’t remember the rest.
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+The radio woke me, or rather the memory of the radio did. It was ten to eight by the clock on the shelf, and the window was a pale, even grey, and I lay for a moment trying to work out why I was afraid. Then I remembered I was supposed to check in.
+
+I sat up in the cold with the quilt round my shoulders and took the handset off its hook.
+
+“Good morning,” I said. “This is... Duncan. At the cabin.”
+
+There was a long crackle, and then a voice, young and flat and faintly bored, speaking close to a microphone in a room that was a very long way away.
+
+“Morning, Mr. Duncan. Go ahead with weather.”
+
+I went to the window and looked out. The sky was low and white, and the sound lay below it like a sheet of pewter, with no wind on it at all.
+
+“Overcast,” I said. “Calm. Cold. Visibility good.”
+
+“Copy that. Anything else?”
+
+Yes, I thought. There’s a box on my table that wasn’t what it said. I looked at my wrist. The band lay under the skin, tidy and dark.
+
+“No,” I said. “Nothing.”
+
+“Copy. Enjoy your day. Check in tomorrow, eight.”
+
+The line clicked and went to a low steady hiss. I hung the handset on its hook, and stood a while with my hand on it, because it was the last voice I’d hear till morning, and I wanted to be sure of it.
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+Breakfast was porridge from a sack in the pantry, made on the stove, and I ate it standing up and watched the light thicken. The mug from the night before was still on the arm of the chair, with a skin of cold tea in the bottom. I washed it and put it on the rack, and I did that very carefully, like someone defusing a thing.
+
+On the back of the door there was a laminated sheet, held up with a drawing pin. I hadn’t noticed it before. It had a hand-drawn map in blue and black, rather charming, with the cabin at the bottom marked by a small square, and four dotted lines leading away from it.
+
+GLACIER. 3 hrs return. Moderate. Spectacular views. Wear crampons on the ice. (Crampons were listed under a heading, “Equipment: shed.”)
+
+WATERFALL. 1 hr return. Easy. Frozen in winter, but worth seeing.
+
+SOUND VIEW. 45 mins. Gentle. Good for photographs.
+
+EAGLES’ WATCH. 2 hrs return. Steep in places. Bring binoculars.
+
+I read it twice, then once more. I’m not sure why I hesitated. The waterfall was an hour and the sound view was forty-five minutes, and they were the sort of walks a man ought to do on his first morning, to be sociable with the landscape. But I’d stopped at the glacier on the first reading, and I stayed there, with my eyes on the dotted line, and the line seemed to go on drawing itself.
+
+Glacier, I thought. Why not. It would at least be a long way up.
+
+I put on two jumpers, the good jacket and the stiff brown boots, and I filled the thermos with tea. I put the binoculars round my neck. I took the holdall off the chair, looked at it, and then put it back, empty, with the lid flap folded over. I did not look at the table. I went to the door and drew the bolt and opened it onto the cold.
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+The shed was at the side of the cabin, unlocked, and the crampons hung on a nail in a canvas bag, with an ice axe beside them, short and old and well kept. I put them over my shoulder. The path began behind the woodhut and went up, a clear dark line through the snow, climbing steadily towards a notch in the hills I couldn’t see over.
+
+I had not walked anywhere for pleasure in years.
+
+The first hour was easy, and I’d have enjoyed it, if I’d been the kind of man who enjoyed things. The path was packed and firm. The snow lay thick and unmarked on either side, scalloped by the wind into long smooth ridges, and every step made a sound like cloth being torn very slowly. There was no other noise. Above me a few birds turned, high and silent, and they didn’t come any closer.
+
+The ground changed, towards the end of the second hour. The snow thinned. The path ran out onto bare grey rock, scoured and polished, with long pale scratches across it all in the same direction, and then there was a lip, and a wall of old blue-white light.
+
+The glacier lay across the head of the valley like a held breath. It was not what I’d pictured. It wasn’t smooth. It was ribbed and cracked and heaped up in great frozen swells, and it gave off a faint grey-green glow, as if a lamp had been switched on far down inside it. A stream ran out from beneath it and vanished into the stones. It was very quiet.
+
+I sat on a rock and strapped on the crampons. My fingers were clumsy, and I had to try twice. The ice axe felt absurd in my hand. Then I stood up and walked the last few paces to the edge, where the rock ended and the glacier began, and I looked at it for a moment.
+
+On my right wrist, beneath two layers of sleeve, the band had grown warm.
+
+It wasn’t an alarm. It was more of a recognition, steady and low, like the way a dog’s tail moves when a door opens.
+
+I stepped up onto the ice.
+
+I walked for a long time. The ice was ridged like a washboard, and the crampons bit and held, and after the first few hundred yards I stopped thinking about my feet. The glacier rose in long frozen swells, grey-white on the crests and a deep, glassy blue in the troughs. The cracks were narrow, and I stepped over them without looking down. There was no wind, and the only sound was the small crunch of my own boots.
+
+It was a good place to be alone in. I would have said so, if there had been anyone to tell.
+
+At the top of one of the swells I stopped to get my breath. The cabin was gone behind me, and so was the sound, and the notch in the hills I’d been aiming for was now a dark line far across the ice. Everything around me was blue and white and enormous. I stood there with my breath smoking and felt, for a moment, not happy, but quiet, which I had not been in a very long time.
+
+I should take something back, I thought.
+
+It was an odd, ordinary thought, the kind a man has on holiday. A shell from a beach, a pebble from a mountain. I looked down at the ice at my feet, where a ridge had split and left a clean pale step, and I knelt, and unhooked the axe from my belt.
+
+The first swing glanced off and sent a spray of white across my knees. The second bit. The third took a chunk away from the edge and left it lying on the surface, clear and heavy and as big as a brick. I picked it up in my gloved hands. It was pure, the clearest ice I’d ever seen, with a faint blue light in it and a trail of tiny silver bubbles like a held breath.
+
+I wanted to taste it.
+
+It was an urge as childish as the first, and I indulged it for the same reason. Ice this old had fallen as snow before there was a word for the place. I held it up in front of my face and waited for it to drip, the way an icicle does when the sun finds it, and I stood there for the better part of a minute with my arm raised.
+
+Nothing came. The glacier was too cold, and the air was too cold. The brick sat in my gloved fist like a stone.
+
+I stripped off the right glove with my teeth.
+
+I did it without thinking about which hand it was, and then I did think about it, and I did it anyway. The cold struck the bare skin at once. Along my wrist the dark band lay in plain daylight, and the characters looked sharper than they had indoors, small and even and a little wet. I took the ice in my bare palm and closed my fingers round it.
+
+It bit. Of course it did. The cold went into the hand like a nail, and I made a noise, and I held on, because I had told myself I would. I raised it to my mouth. A bead of water gathered at the corner, slow and heavy, and I put out my tongue.
+
+It tasted of nothing. It tasted of clean, cold, metallic stone, with an edge of something very old.
+
+Behind me, something screamed.
+
+It was a sound I knew. I knew it with my whole body before I knew it with my head. It was the long, tearing, rubbery shriek of tyres on wet tarmac, a car taking a corner too fast, locking and sliding and not stopping. It came out of the empty air at my back, full-throated and enormous, ringing off the ice, and it was close. It was twelve feet away.
+
+On my wrist, the band closed.
+
+It felt like a wire drawn tight, a snare pulled by a hand I couldn’t see. Every character on it bit into the skin at once, fine and bright, and the pain ran up my forearm like a struck string. The brick of ice slipped from my fingers and fell, and I did not hear it land.
+
+I stayed where I was, on one knee, with my bare hand held out in front of me and my mouth still open.
+
+The sound went on. It didn’t fade. It simply held, on one long, rising note, as if the van were still sliding somewhere just behind me, and had been sliding for nine weeks, and would not stop.
+
+I had not turned my head. I knew that if I did, I should see whatever I had seen then.
+
+I was kneeling.
+
+That was the first thing I knew, before I knew where I was or what had happened. My knees were on ice, and they ached, the way they do after a long time in one position, and the cold had come through my trousers and settled in the bone. My breath was smoking in front of me. The sky was the same low white as before, though the light had moved. It lay flatter now, and a little yellower, along the ridges.
+
+I had both gloves on.
+
+I looked at them for a long time. The right one was pulled snug over the wrist, with the cuff tucked under the sleeve of my jacket, exactly as I’d have done it at the cabin door. I had no memory of putting it back on.
+
+The pain had gone. I tried the hand, curling and uncurling the fingers inside the leather, and they did as they were told. There was no throb, no tightness, no bright wire of heat under the sleeve. My arm felt like an arm. I pressed my thumb against my wrist through the glove, and felt only wrist.
+
+I fainted, I thought. The cold. The altitude. I haven’t eaten properly in two months. It was a perfectly good explanation, and I held it in front of me like a lamp.
+
+Then I saw the ice.
+
+It lay on the glacier in front of me, clear and heavy, the size of a brick, with the faint blue in it and the trail of silver bubbles. I had dropped it. I was nearly certain I’d dropped it, straight down, beside my knee.
+
+It was twelve feet away.
+
+I got up slowly. My legs were stiff and not entirely mine, and the crampons rang on the surface. I stood and looked at the gap between us, a clean stretch of grey-white ice, with no scratches on it and no scatter of chips. It sat there in the middle of the open space the way a thing sits when it has been placed.
+
+Or thrown. It was in front of me, I noticed, and the sound had come from behind.
+
+I counted the steps to it. I couldn’t help it. I walked up the ice with my arms held a little out from my sides, and I counted aloud, in a voice I didn’t recognise, and I reached it on the twelfth. I looked down at it. It had not cracked, or chipped, or split. It had not even melted. A man’s hand had been closed round it, and it showed no mark.
+
+I turned round.
+
+The glacier lay behind me, empty, in long frozen swells. There was nothing on it except my own tracks, the careful scoring of the crampons, running back along the ridge to the place where I’d knelt. It was a single line, and I looked at it for a while. No one else had come up here. Nothing had come down.
+
+My watch said ten past one. I had stopped at noon.
+
+I didn’t pick up the ice. I stood with my hands at my sides and looked at it, and then, with the same slow care I’d used on the mug, I stepped round it and began to walk back the way I’d come.
+
+I didn’t look behind me again. I could feel, though I tried not to, that the band had warmed.
+
+I went back for the ice in the end. I couldn’t have said why, other than that I’d told myself I would.
+
+I took the paracord from the side pocket of the pack and made a sling of it, the way I’d once been shown on a corporate away day, a net of loops and a hitch at the top. Then I crouched beside the brick with both gloves on and worked the cord under it, a little at a time, until it hung in the loops like a lantern. It was heavy and clear and perfectly cold, and I did not touch it with anything but leather. I knotted the end to the strap of the pack and let it swing against my hip.
+
+The walk down was nothing. The sky stayed white and the snow stayed silent, and the path unrolled in front of me like a thing I’d done a hundred times. I didn’t stop to look at the view. I kept my eyes on my boots and my hands in my pockets, and I counted my steps, which I’d begun to do without noticing.
+
+About halfway down, where the path ran close to the hillside, I heard water.
+
+It was a stream, narrow and quick, running down a stony channel from somewhere above the snow line. It was the one the greeter had pointed out from the cabin door, the feed for the tank behind the stove. I stopped on the bank and looked at it. It ran clear over the stones, black at the edges where the snow had melted back, and it should have been frozen solid, I thought. It wasn’t. It ran along cheerfully at the bottom of the white, as if it didn’t know what month it was.
+
+I knelt and unhooked the bottle from my belt. The cold was brutal, and the water came up in the neck with a gulping sound, and when I’d capped it, I scooped a handful in my gloved palm and rubbed it over my face.
+
+It was a shock, bright and clean. It ran down my cheeks and into my collar, and for a moment I felt entirely awake. I stayed there on one knee with my eyes shut and my face dripping, listening to the stream, until my skin started to burn.
+
+When I opened my eyes, the ice was hanging against the pack just where I’d left it. It had not dripped. The stones round my knee were dark with spilled water, and the sling under the brick was dry.
+
+I got up and went on down.
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+The cabin was exactly as I’d left it, with a little smoke going up from the chimney and the shutters closed on the windows. I stamped the snow off my boots on the step and went in. The warmth hit me like a hand. The air smelt of woodsmoke and, faintly, of onions and something dark.
+
+The slow cooker was on the counter, where I’d put it that morning before I left. I’d taken a jar from the pantry, one of the labelled ones, and tipped it in, set the dial to low and gone out without a second thought. I lifted the lid and the steam rolled up, and the stew underneath was rich and brown and bubbling very gently at the edges. I found a bowl and a spoon.
+
+I hung the pack on the hook by the door, with the ice still tied to it. I stood for a second watching the brick turn slowly on its cord in the warm air. It gave off no water at all.
+
+Then I took off my boots and my jacket, and sat at the table, and ate. The stew was good, better than anything I’d cooked in a year. I ate the whole bowl, and then a second, and I did not look at the other end of the table, where the pale box lay between the binoculars and the notebook, exactly where I had left it.
+
+I washed the bowl and the spoon, and I dried them, and put them away.
+
+The light went early. By four the window had turned from white to grey to a dull, thickening blue, and I lit the lamp and fed the stove two more logs from the basket. They caught with a soft roar. I pulled the armchair round to face the heat and sat down in it with the bottle from my belt.
+
+I hadn’t touched it since the stream. I unscrewed the cap, tipped my head back, and drank.
+
+It was cold, as it ought to have been. It was clear and thin and clean, and I’d swallowed half of it before I understood what I was tasting. It had a flavour. It wasn’t the stone and snow of the glacier, or the faint iron of the stream. It was the top note, that almost-sharp brightness, and behind it, slowly arriving, the dark sweetness underneath.
+
+It was her. I was drinking her.
+
+I lowered the bottle. I held it away from my face and looked at it, as if the plastic might explain itself, and the water inside it was perfectly clear and perfectly still. I put it to my nose and smelt nothing. I put it to my lips, a tiny sip, and there it was again, the taste of that smell, as intimate as a breath against my mouth.
+
+I screwed the cap back on, very carefully, and set the bottle on the floor beside the chair.
+
+The stream, I thought. Minerals. Something in the rock. I tried to hold on to it. It was a good explanation, and a stupid one, and it fell apart in my hands as I made it.
+
+The fire was very warm.
+
+I had meant to sit back, but I found myself leaning forward instead, elbows on my knees, my face turned to the open grate. The heat lay against my skin like a palm. It drew me, quietly, an inch at a time, until I could feel my cheeks tightening and my eyes beginning to sting, and I did not move away. On my right wrist, under the sleeve, the band had grown warm too, a steady glow that matched the stove, as if the two of them were speaking.
+
+Behind me, very faintly, someone began to whisper.
+
+It was so quiet I thought at first it was the fire, the small, wet sound of the wood giving up its sap. Then it came again, drawn out and patient, with that dry breath before it, and I knew it. It was the same voice, the one from the night before, speaking in the same language I couldn’t follow. It was softer now, and closer, and much surer of itself. It wasn’t rehearsing any more. It was going somewhere.
+
+I didn’t turn round.
+
+I couldn’t have said how long I sat there. The stove ticked and the logs shifted, and the whisper threaded under them, rising and falling in the shape of a sentence it didn’t need me to understand. The room had gone dim at the edges. The lamp made a small yellow island in the middle of it, and beyond that there was only the wall of the dark, and the table, and the pale shape on the table.
+
+I knew without looking where it was. It was in the very middle of it, exactly in the centre, with the binoculars and the notebook pushed out to either side as if they’d been moved to make room. I could feel it behind my left shoulder, like a person standing there.
+
+I didn’t move it, I thought.
+
+The whispering went on.
+
+I leaned in another inch towards the fire, and the heat on my face grew until it hurt, and still I did not look round.
+
+I stood up.
+
+It cost me something to do it. The chair held on to me, and the heat held on to me, and when I finally got my weight onto my feet the whole room tilted and settled, like a boat that has taken someone’s weight. The whisper didn’t stop. It dropped, if anything, as though it were leaning in to watch.
+
+I turned round.
+
+The box sat in the middle of the table in the circle of lamplight. It was bare and pale, with no mark on it anywhere, and for a moment it looked so ordinary that I felt a kind of weary contempt for myself. A small box, the size of a hardback book. A gift. She had left me a gift.
+
+I knew what it would cost, and I’d known since the hallway. I’d carried it for nine weeks precisely because as long as it was shut, it was still hers, a last thing she’d chosen and wrapped and meant for me, and some part of her was still in the room with it. Once it was open, that would be over. I’d have the thing itself, and no more of her. That had been the whole of my reasoning, and I had thought it was a good reason.
+
+She didn’t buy this, I thought. It came quite calmly. Not like this. Not in that writing.
+
+I didn’t know who had.
+
+I crossed the floor. I stood over the table with my hands at my sides, and then, because there was nothing else to do, I put them on the box. I used both, the left over the right, with the leather of my gloves long since discarded by the stove. It was cool under my palms and faintly smooth, and nothing happened. It lay there like any box. The band on my wrist stirred, once, warm and slow, and settled.
+
+The lid came away without a sound.
+
+There was no hinge, and no catch. It lifted in my hands like the top of a dish, and underneath was a nest of soft grey stuff, finer than wool and paler than ash, with a faint lustre to it. It smelt of the perfume. It smelt of her, so completely and so close that my eyes stung, and my knees went, and I had to put a hand on the table.
+
+The bottle lay in the middle of the nest, as if it had been waiting.
+
+It was crystal. I knew that at once, though I’d never seen any like it. It was thick-walled and clear, with the faint greenish tinge of very old glass, and it was cut in the shape of a teardrop, tapering from a heavy rounded base to a narrow neck. Somebody had worked every inch of the surface. Fine facets ran down it like rain on a window, and there were tiny flaws in the body of it, bubbles and threads, as if the glass had been blown in a world before anyone had learnt to hide them. It was old. I could feel that. It was older than the cabin, or the island, or the writing on my wrist. It was old in a way that made the bones of my hands feel young.
+
+The stopper was bone.
+
+I’m sure of it, though I’d have taken my oath it wasn’t, before I looked. It was pale and slightly yellowed, and curved, with a small round knuckle at one end and a long taper at the other, and a fine seam across the middle where it had been jointed. It sat in the neck of the bottle like a finger laid against a mouth. It was a finger. It was a finger bone, or the likeness of one, so exact that I could see the tiny ridges where the tendon had run, and the faint pitted shadow of the nail.
+
+Inside the bottle there was a liquid, clear as water, with a thread of gold at the bottom. It was perfectly still. When I tilted my head, it did not tilt.
+
+The whisper had stopped.
+
+I hadn’t noticed it go. There was only the stove, and the lamp, and my own breath, and the small, close silence that had fallen over the cabin like a held hand over a mouth. The air had turned very sweet.
+
+I reached into the nest, and my fingers closed round the bottle, and I lifted it out.
+
+It was only when I lifted the bottle into the light that I saw the writing.
+
+It had not been there a moment before. I would have sworn to that. The facets had held the lamp in small cold sparks, and the glass had been clear. Now the characters lay along the inside of the crystal, from the shoulder to the base, fine and dark and close, set in the thickness of it like threads in ice. They were the same writing, identical, stroke for stroke. I knew them as I’d know my own signature.
+
+On my wrist, under the cuff, the band lifted.
+
+I felt it before I saw it. It rose against the skin like a held breath, and the sleeve tightened round my forearm. Then the characters came out from under the cuff, creeping, and moved up the back of my hand to meet the glass. They reached my fingers. They went out along the tips and across the bottle in a slow dark bridge, and the writing inside the crystal leaned towards them, and they touched.
+
+They joined.
+
+The pain came in a single bright stroke. It was a white line from knuckle to shoulder, as if someone had drawn a blade down the whole length of the arm, and I opened my mouth to scream and found there was no time for it. It was already going. It lasted perhaps the length of a heartbeat, and what came after it flooded in so warmly and so completely that I forgot what I’d been afraid of.
+
+It was warmth. It was her. It came up my arm like a tide, over the elbow and the shoulder, and it spread. It crossed my collarbones and ran down over my chest in fine bright branches, and I felt it settle behind the breastbone, where the cold had lived for nine weeks, and fold itself round the place like an arm. The whole of my body swelled with it. It crept over my ribs and round to my back and up between my shoulder blades, and under each of its passings the skin grew hot and glad and wide awake. I felt my knees going. I felt my head tip back.
+
+Oh, I thought. There you are.
+
+I could feel the writing cross the other shoulder and run down the left arm to meet the right, and close, and hold. It stopped at the base of my throat, light as a hand, and rested there.
+
+The scent filled the room.
+
+It poured from the bottle, though the stopper was still in. It came in a great soft wave from the table and the chair and the walls, and it was every evening in the hallway of the flat, every morning at the bathroom door, every coat she had ever hung on a hook beside mine. It was not thin or sharp any more. It was whole. It lay over the cabin like a hand laid on a sleeping face, and I breathed it in, and in, until my eyes streamed.
+
+Somewhere, very far off, the stove roared.
+
+I looked at it, slowly, because it was hard to turn my head. The iron door was red along its seams. The fire behind the glass had gone from yellow to white, and the stovepipe ticked and sang in the wall. The heat came across the floor in a long steady wave, and the air above the stove shivered like water.
+
+By the door the pack hung on its hook, and the brick of ice turned slowly on its cord in the roaring warmth. It gave off a faint pearl-blue glimmer. It did not drip, and it did not shrink. It did not sweat. It hung in the heat of the room, clear and heavy and perfectly whole, and it seemed to me that the light inside it was drawing breath.
+
+I stood with the bottle in both hands, wrapped in her, and I wept without making a sound.
+
+I don’t know how long I stood there. When I came back to myself the bottle was still in my hands, warm as a living thing, and I set it down very gently in the centre of the table, with the stopper in and the bone finger pointing at the ceiling. I took my hands away from it one at a time, as if it might wake.
+
+I needed to be warm inside. It was a very small, very practical thought, and I clung to it.
+
+I filled the kettle at the tap and set it on the stove, which was now so hot that I had to hold my sleeve over my hand to move the iron lid. I took the tin from the shelf and the mug from the rack, the same mug as before, and I put a spoonful of leaves in the pot and waited. I stood with my hands flat on the counter and watched the kettle. It began to tick and then to mutter and then, with a long rising note, to boil. The steam came out of the spout in a thick white plume and rolled up the wall.
+
+I poured, and the steam rose into my face, and I breathed it in.
+
+I made the tea slowly. I stirred it and let it stand, and then I stirred it again, clockwise, three times, and I didn’t know why. I held the mug in both hands against my chest, my chin over the rim, the way you hold a thing that’s alive. The first mouthful went down like a lit coal. It tasted dark and sweet, and it tasted of her, faintly, from the water, and I let it. I drank all of it, to the dregs, standing at the counter, and I felt it spread through my stomach, and then my chest, and settle into the warmth already there.
+
+It was not enough. I could feel that, as I set the mug down. The heat was inside me, and it was only just beginning.
+
+I wanted it in my skin.
+
+The bathroom was small and white, with a basin, a mirror above it and the shower stall in the corner. I turned the tap as far as it would go and stood outside the stall while the water ran, and the steam began to come, first a faint breath and then a rolling fog, climbing the tiles and the ceiling and the glass. I undressed in the heat. The writing lay across me like a map. It ran down both arms in fine black lines and spread over my chest in a dense, even branching, round the ribs and over the shoulders and in a single close band across the collarbones, and I looked at it for a while in the dim light and did not feel afraid.
+
+I stepped into the stall and let the water take me.
+
+It was scalding. I put my face into it and my hands against the tiles, and the heat poured over my back and neck and went into the skin like something being written there. I stood with my eyes shut and I thought of nothing at all. Behind me the scent rose with the steam, and the whole room smelt of her.
+
+When the water had gone from hot to merely endless, I turned it off, and stepped out, and wiped the mirror with the flat of my hand.
+
+I looked.
+
+The man in the glass was pale and wet and a little thinner than I remembered, with the hair flat on his forehead and the bones of his face showing, and his shoulders and arms and chest were traced all over in dark script. His hands were at his sides. His face was perfectly still.
+
+Then he smiled.
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+To be finished next time... ... ...

@@ -1,0 +1,142 @@
+Everybody in town likes Ramone, which sort of makes it hard to write this. I’ve watched Ramone work for years, watched him twist the knobs of his microscope and poke his tweezers into uncountable plates of squirming ribbons. I’d seen him roll his pants up above his knees and dive into the creek behind his house for frogs. I’d sat with him on his porch while he helped me with my science homework maybe hundreds of times.
+
+He was a good guy.
+
+Ramone owned the little house beside us. He moved in during the summer of 2021, and the first thing he did was paint the siding yellow and the door cherry red. This pissed off the HOA, but whenever they met him in person, they seemed to forget to ask him to repaint his house. Next, he hired all the neighborhood kids to catch frogs for him in the creek behind his property. I was one of those kids, splashing on the slippery rocks. I never caught any. They always kicked me with their wet, flippered feet and escaped to swim another day. The neighborhood parents were naturally wary of a man paying their kids twenty bucks for a pail of frogs, so Ramone wooed them. He threw parties. Lots of barbecues with moon bounces and coolers filled with beer. He even threw holiday galas with expensive catering and champagne fountains (at least, that’s what I’m told, us kids were never allowed to go to those).
+
+When we found out Ramone’s last name, the news rippled through the neighborhood in whispers. My friend showed me the photos of Ramone holding a giant atom-shaped trophy in his hands. There were videos of Ramone teaching at universities. A Wikipedia article about him had a photo of him with his arms heaped with patent plaques. The article used words like *revolutionary* and *remarkable discoveries* and *leader in his field.*
+
+I guess I’m trying to say that I liked my neighbor. I wouldn’t want anything bad to happen to him.
+
+Yesterday, I wasn’t surprised to find him waist-deep in a hole in his front yard. He was surrounded by his own seasonal flowers, orange mums in barrels, purple pansies still in their black plastic cups behind him. Every time I saw him, I was shocked by how much older he looked. I think I expected him to be the exact same man from five years ago, with kind eyes and hair so black it was almost blue. The wrinkle between his eyes as he smiled up at me made me step back.
+
+“Hey, man! How’s school?”
+
+“You know.” I shrugged. “Just gotta get through this year. You need help with your flowers?”
+
+Ramone looked at his flowers as if he had just remembered they were there. He wiped his palms on his jeans and leaned against his shovel. One hand was wrapped in thick layers of gauzy bandage. “Oh, no. I’m not planting anything.”
+
+I smiled, remembering the frogs. I liked living by Ramone. It meant I was always close to an adventure. “Can I help you dig?”
+
+His eyes lit up. "Would you?”
+
+“Sure, man.”
+
+“It could take all afternoon.”
+
+“I’m not doing anything else.”
+
+He raised himself out of the hole. He wore a plaid shirt with rolled-up sleeves, and his face was smeared with dirt. “I need samples. The deeper in, the better. I’ll keep digging in the front yard, and you can dig in the back.”
+
+Despite coming from an award-winning scientist, it didn’t seem very scientific. Ramone gave me a box of baggies, a can of Coke, a pink marker (he ran out of black ones), and a shovel. He told me to dig as deep as I could, fill those little bags with dirt, and number them. That was it.
+
+Digging looks fun. I think there’s some kind of human urge to dig. We like simple tasks with easy-to-see results. But digging, I learned as it got cold and the sky went dark, is *not* fun. The dirt was hard-packed, and my foldable camping shovel struggled against it. Every few minutes, I bent down into the hole and scooped a fistful of dirt into the little bags. I texted my parents to say I was at Ramone’s. I’d almost forgotten they were out of town, and I was a little bummed out. Would’ve been a good excuse to get out of this, something like, ‘Sorry, Mom needs me home for dinner.’
+
+I’d maybe dug the hole a foot deep before I had to give up. I walked to the front yard and saw a pile of dirt nearly as tall as Ramone himself. The rhythmic sound of his shovel hitting the ground, along with his grunting, filled the air. “Um, Ramone?”
+
+The only response was a spray of dirt from the ever-growing hole.
+
+I cleared my throat again. “Mr. Ramone?”
+
+His head popped up from over the side of the hole. My shoulders and back ached. Ramone didn’t look like he had a scrap of muscle; I couldn’t imagine how he could keep digging. His face was soaked in sweat, his dark eyes shining in the moonlight. He frowned, and the sad shape of his mouth made him look older, but then he shook his head and gave me a warm smile.
+
+“Sorry, I get a little…wrapped up in my work. Thanks for the help, Justin. Why don’t you come in and I’ll grab you a fifty?”
+
+The promise of a fifty made me a little less tired, and I was excited to be invited into his house. He had a great house. Dark blue walls, all leather furniture, shelves of books and records. And his basement was his lab, shiny white except for the aquariums filled with frogs. I spent a lot of my childhood down there, finishing my homework or sitting in front of his frog tank, watching those flippered feet kick behind the glass.
+
+As soon as we stepped inside, Ramone grabbed a bottle of whiskey and slumped into a leather chair. I’d never seen him drink before. He hadn’t even grabbed a glass; he just leaned back, unscrewed the cap, and swigged.
+
+Ramone blinked at me. He suddenly looked very, very old. “I wish I was young like you. Lots of opportunities when you’re young, so many doors you haven’t opened yet.” His eyes flickered away. Something in his face changed, a darkness that wasn’t there before. “You’re not burdened with everything you’ve learned.“
+
+I shuffled from foot to foot. A part of me didn’t want to sit down. “I dunno. I think what you’re doing is cool.”
+
+He looked away. Took another swig. “I think I’ve found something.”
+
+Something about his voice made my heart pound. Whatever he found, I wouldn’t understand it, and I probably didn’t want to. “That’s cool. Can I see the frogs?”
+
+Ramone rubbed his forehead. "Are you sure?”
+
+“Yeah.” It was too cold in here, and it felt too strange to see Ramone with the bottle. “Yeah, can I?”
+
+He nodded and led me down to his lab. It was even colder down there, the lights humming, the metal cabinets gleaming so brightly they almost blinded me. He had a 500-gallon tank with shallow pond water at the bottom. Half of it was taken up by mud, leaf cover, and climbing branches. He only had about a dozen frogs, and they were all digging. Rhythmic, three-toed feet slapping at the mud. Some of them had pushed all the mud away from the bottom of the tank and were digging uselessly at the plastic base.
+
+Ramone put a gentle hand on my shoulder. “Why do you think we bury our dead?”
+
+“I’m sorry?”
+
+“I’m curious to hear your perspective.”
+
+My heart hammered. Ramone’s bandaged hand gripped the bottle tightly, and I swallowed. The hand, usually so steady with his scientific equipment, was shaking, the bottle thumping against his thigh. “Um, a respect thing, I think?”
+
+Ramone shook his head. “I’m not so sure.” And then he brightened. “Come on, let’s get you that fifty.” His bandaged hand trembled at his side. I realized he was in pain.
+
+“What happened to your hand?”
+
+“Can you keep a secret?”
+
+“Sure.”
+
+He took a long, long swig of the whiskey. The kind that should’ve made him cough and sputter. He cradled the bandaged hand to his chest. “Something in one of the soil samples bit me. Something I haven’t identified yet.”
+
+“In your front yard?” I asked. “Like, where you were going to plant your flowers?”
+
+He grimaced. “There was a reason I moved here. I just wasn’t ready to find it. I’ve come to like this place.”
+
+It had gotten so cold that I hugged my arms against my chest. “I…I think you should get some rest.”
+
+He shook his head, his eyes strange. “No. I have to get back to digging.”
+
+\*\*
+
+I woke up to a scraping sound outside my window. The tree’s branches broke the moonlight into little wedges over my quilt. I waited, pressing myself against the pillows. Maybe it would go away.
+
+Scraping. Grunting.
+
+I checked my phone. 2:17 in the morning.
+
+My room’s on the bottom floor, down the hall from the living room and facing the backyard. It meant that the scraping was coming from the backyard. I waited in bed a little longer, praying that the sounds would stop. They didn’t. I wiped my sweaty palms on my pajama pants and pushed the drapes away from the window.
+
+There was a man digging holes in our backyard.
+
+There were already at least ten holes behind him. The man’s face had become shiny with sweat. He was entirely covered in dirt, his eyes big, almost all whites. I shuffled back a step. The face was Ramone’s. But the expression wasn’t right. His whole face was scrunched, his mouth snarled, and foam dribbled from the corners of his lips.
+
+Our yard was small, freshly mowed, and surrounded by a high white fence. Ramone must’ve climbed over it, but why?
+
+The longer I stared at him digging, the faster my heart beat. Finally, I left my bedroom and slid the back door open. “Um, Mr. Ramone?”
+
+His head snapped up. His eyes shone like an animal’s in the darkness. He was standing in a hole, his shovel sticking up from the dirt beside him. “Justin?” he whispered. His voice was hoarse.
+
+“Are you okay?”
+
+“Come outside. I need help.”
+
+“Um, it’s after two in the morning. Do you want a glass of water?”
+
+Ramone blinked. And then he laughed. A big-belly laugh that almost doubled him over. I didn’t see what was so funny.
+
+“Come outside, Justin. I need your help.”
+
+I don’t know why I did. Maybe it’s just because I liked him. Maybe it was because I thought if I got closer, I could see if he was sick and he needed help. The moment I clicked the backdoor shut, Ramone flung himself at me. His hands grasped my collar, and he threw me down into one of the holes. It was so deep, several feet into the ground. I choked as I landed on hands and knees, dirt filling my mouth. I rolled over and was met with a spray of dirt from his shovel.
+
+“So many unburied dead,” he mumbled. “I have to bury them all. Every one of them.”
+
+I tried to get up, but something hard hit me in the side. I heard a ‘crack!’ and the pain, so sudden, sent colors bursting in front of my eyes. I grabbed at my ribs and felt sticky blood. Another clump of dirt hit my face. I tried to get up and tumbled back. More dirt, more pressure. My hand flew up and something pinched my fingers—a bite?
+
+“Justin, Angie, Bill…at least a hundred holes for everyone in the neighborhood."
+
+I shot my hand up and caught the leg of Ramone’s jeans. And then all of his weight was on top of me. The drool from his mouth leaked down my cheeks and puddled in the hollow of my neck. Some of it got in my eyes and burned. “I have to dig,” he wheezed. Heavy, dirt-streaked fingers wrapped around my throat. His eyes flashed, two glowing spots in the dark.
+
+My fingers found his throat, and I squeezed. I thought I was going to pass out from the pain. It was cold and the air was thick with the smell of blood and dirt. I could feel all of it, all at once. The thoughts came in slow: something’s wrong with Ramone. He’s broken my ribs. He’s going to kill me. He’s going to bury me alive.
+
+I squeezed. I squeezed and squeezed. Ramone’s eyes bulged; he kicked. His nails caught my arm, slashed welts into the skin. And then, nothing. Long, painful nothing.
+
+So here I am now. Breathing is painful. Ramone is underneath me, dead. I don’t have much time. My hand hurts, maybe even more than my ribs, but the feeling is strange, something white-hot in my blood.
+
+I guess I’m posting this because I’m scared. I liked Ramone. I want to know what happened to him. I feel funny. My hands ache to grab a shovel, my shoulders burn. My head feels so fuzzy. It’s hard to think. But a single thought pierces through.
+
+*I have to bury the dead.*
+
+I have so many holes to dig. So many bodies that have to be buried. One hole for Ramone, two holes for my parents, and at least five for the family next door. I guess that’s a good start.
+
+There’s a human urge to dig, after all.
+

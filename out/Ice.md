@@ -1,0 +1,239 @@
+I haven’t thought about the Man in a very long time. For years, I thought I had moved on from what happened when I was ten. But something has happened to me recently that makes me feel as though I need to tell my story.
+
+I suppose the best place to start is with the first night I saw him…
+
+“I am strong enough to smash ships, but I fear the sun. What am I?”
+
+That was the first thing the Man in my closet ever said to me. Once I heard those words, I jolted upright in bed. There was something genuine about the curiosity in his question. His voice carried a conversational warmth. That’s what was most unnerving.
+
+I turned toward the sound, thinking I had imagined it until my gaze landed on a pair of yellow eyes peering through the crack of my closet door. They were like a cat’s, positioned roughly at the same height as my own. Was he crouching to look at me? Had he been watching me this whole time?
+
+I stared at the eyes, my mind racing with possibilities. Should I scream? Turn on the lights? Run to my parents’ room? I did none of those things.
+
+The Man's pupils dilated until they resembled black holes. I wanted to ask what he was doing in my room, but something in my gut warned me against it. So, I waited in the silence, and so did he.
+
+I didn’t have to wait long for the Man to ask again, “I am strong enough to smash ships, but I fear the sun. What am I?”
+
+I reached for my bedsheets and pulled them over my face, leaving only my eyes exposed. Whatever waited inside the closet couldn’t get to me if it couldn’t see me, right? It was stupid of me to believe that. I knew it was, even back then. But I couldn't help believing my bedsheets were impenetrable armor.
+
+I shook my head adamantly. “Go away. Go aw—”
+
+My throat constricted as I lurched forward. My esophagus burned like wildfire as something pushed its way up from inside my chest. Bringing my hands to my neck, I could feel my skin ripple and bulge. Tears welled in my eyes as the pressure in the back of my throat intensified. Gasping for air like a fish out of water, I collapsed onto the mattress with an emphatic thump.
+
+Paralyzed with fear, I could only stare downward. To my horror, hands started emerging from my mouth. The fingers slithered past my lips in a serpentine motion, their nails digging into my cheeks. Gripping the corners of my mouth, they began wrenching it open. From the closet, the Man watched with childlike fascination. I wanted whatever was happening to me to stop, but my body was no longer mine. 
+
+The hands continued to pry my jaws open, my tongue writhing helplessly against the invading fingers. Somewhere inside me, I could feel words pressing against my vocal cords. I didn't know what the Man wanted me to say, but the realization that I was about to speak filled me with an immense dread.
+
+Within seconds, an answer was forced from me. “Ice.” The voice was nearly identical to my own.
+
+The Man’s eyes twinkled with delight as the hands released their grip on me. In the blink of an eye, they retreated into my mouth, disappearing as quickly as they had pushed their way out. Struggling to draw air into my lungs, I slowly brought myself to an upright position.
+
+With quivering hands, I ran my fingers along my mouth and cheeks, searching for some indication of what had happened. There was nothing. My gaze returned to the closet. The door remained slightly ajar, its darkness spilling into the room like wine on a carpet. But the Man's eyes. That pallid yellow glow. They were gone. I waited for them to appear again, but they never did. Maybe I had imagined it all.
+
+I should have felt relieved that it was all over, but instead, I felt nauseous. Realizing what was about to happen, I leaped out of bed and stumbled into the hallway. Ignoring the churning of my stomach, I raced toward the bathroom. Had I fumbled blindly for the light switch a second longer, I would have puked all over the floor. Thankfully, I was able to throw open the toilet lid and drop to my knees in time. 
+
+I puked once. Then twice. Then a third time. Just when I thought I couldn't empty my stomach any further, my body seized with another round of violent retching. In the distance, I heard the soft thud of footsteps. The disgusting racket must have woken my parents. 
+
+My suspicions were confirmed when my mom peeked into the bathroom. “Honey, are you alright?” She knelt beside me while my head hovered over the toilet.
+
+“No,” I replied, turning to look at her. My eyelids were fighting a losing battle to stay open. “I had…I had a nightmare.”
+
+“A nightmare?” My dad entered the room and grabbed a towel from the nearby linen closet. “What kind of nightmare?”
+
+“There was a man in my closet,” I replied drowsily. Dad crouched in front of me and wiped the remaining vomit from around my mouth.
+
+Mom failed to hide the alarmed look on her face. “A man in your closet?”
+
+“Yeah.” I hung my head in embarrassment. “He asked me something.”
+
+“What did the Man ask you?” Dad asked.
+
+“Something about a ship. I’m not really sure.” 
+
+“Oh, Kayla.” My mom let out a relieved chuckle. “Dreams like that are perfectly normal.”
+
+“They are?” 
+
+“Yes,” Dad added. “I had nightmares when I was your age too. I remember a giant pink bunny chasing me through the woods and thinking he was going to eat me. But he never did. They may feel real, but they eventually stop. Yours will too.”
+
+“They will?” I asked.
+
+He nodded enthusiastically. “They will, I promise.” He put the towel in the linen closet hamper and held out his hand for me to hold. “C’mon. I think this is enough excitement for one night. Let’s get you back to bed and get you some shut eye.”
+
+I took his hand, and with Mom trailing behind us, we made our way back toward my bedroom. I tightened my grip on my dad’s hand, hoping he wouldn’t notice.
+
+“Now, let’s see what’s inside that closet of yours.” He flicked on the lights, illuminating the room that had terrified me only moments earlier. 
+
+My closet was still open, but not by much. Exactly as it had been before I went to the bathroom.
+
+Dad approached my closet and pulled the door open. I winced and closed my eyes, bracing myself for the Man to be standing there.
+
+“Ta-da!”
+
+I opened my eyes…it was just Dad, standing among my clothes and some cardboard boxes inside.
+
+“B-b-but…” I stammered. “He was there! I saw his eyes! They were yellow and…and…”
+
+“There’s nobody in there, honey.” He stepped out and closed the door behind him. “It was all just a bad dream. Everything’s going to be all right.” 
+
+His words did little to help calm me down. Both he and Mom helped tuck me into bed a moment later. As my parents headed for the door, I held my blankets to my chest and watched them with an aching heart.
+
+Mom reached for the light switch. “Goodnight, Kayla.”
+
+“No!” I cried out, startling her. “Keep the lights on. I want them on.”
+
+“You have to sleep with the lights off,” she insisted gently. “How are you going to sleep if we keep them on for you?” 
+
+“Leave them on for the night,” Dad said. “We can get her a night-light at the store tomorrow.”
+
+I could tell she didn’t want to, but she humored him and pulled her hand away from the switch. “Goodnight, Kayla. I love you. We’ll see you in the morning.”
+
+“Love you too,” I said, resting my head against the pillow.
+
+The door clicked shut behind them. I remained still, listening to their footsteps fade into the distance. Once the house had fallen silent, I focused on my closet door again. The overhead lights burned brightly. Was the Man patiently waiting for the moment when my eyes finally closed? I could only wonder.
+
+The closet was closed, but how long would it stay that way? When would I see those yellow eyes again? I didn’t want to know. As the minutes ticked by, my mind kept circling back to what had happened. The eyes. The hands. The answer. Ice. What did it all mean?
+
+After what felt like hours of tossing and turning, exhaustion finally overtook me. Yet, even as I closed my eyes, I couldn’t shake the unsettling certainty that I was being watched.
+
+The next morning, I felt cold. Really cold. So cold, in fact, that I probably would have believed someone if they had told me I was turning into a snowman.
+
+I tried to dismiss the strange sensation with a hot shower. At first, the scalding water helped combat the ice-cold sensation spreading throughout my body. But once I stepped out of the shower, though, it returned with full force.
+
+I decided that dressing as warmly as I possibly could was the next best thing. Searching through my closet, I pulled out a thick winter coat, a long-sleeved shirt, and a pair of sweatpants. Thinking I had found the solution to all my problems, I quickly dressed and went downstairs.
+
+When I entered the kitchen, my parents stared at me like I had spaghetti noodles falling out of my nostrils.
+
+“The high is supposed to be eighty-five today!” Dad exclaimed. “You’re going to melt like a popsicle out there!”
+
+“But…I’m cold.” I hugged myself, trying to stop the shivering. “I want it to stop.”
+
+“It’s just the AC that’s got you feeling that way.” Mom set a plate of eggs and bacon on the table for me. “Once you step outside and get some sunshine you will feel better. Now, eat your breakfast and then go upstairs and change.”
+
+“Don’t dillydally! We have to get you to school!” Dad got up from his place at the table to pour himself another cup of coffee. “Eat up buttercup. I want to get you there in the next fifteen minutes, okay?”
+
+I nodded and took my place at the table. The entire time I ate my breakfast, I kept thinking about last night. Did the Man visiting me have anything to do with how I was feeling? 
+
+I finished the last bits of scrambled egg on my plate and pushed my chair away from the table. Another wave of shivering ran through my body, and I wrapped my arms around myself.
+
+"Finished?" Mom asked, glancing over at me from her place at the stove.
+
+“Yes.” I said.
+
+"Good. Now go upstairs and put on something appropriate for the weather."
+
+"F-f-fine," I stuttered, making my way toward the stairs.
+
+"Something light!" Dad called after me. "Unless you're planning on competing in the Iditarod!"
+
+I made my way up the stairs and walked down the hall. Once I was inside my room, I stood in front of the closet and stared at the clothes inside. I wasn't particularly thrilled about shedding my layers, but with a reluctant sigh, I changed into a short-sleeved shirt and a pair of shorts.
+
+Minutes later, I returned to the kitchen. After Mom and Dad gave their approval, we piled into Dad’s car, and pulled out of the driveway. The second we left, the cool gusts of air from the AC blew against me, exacerbating the intense cold I felt in my bones. I pulled my arms close to my body and fidgeted in my seat. But nothing helped.
+
+The idea of going to school like this terrified me. Why couldn't I keep warm? Why was my body reacting this way? And, perhaps most importantly, what would my classmates think? The last thing I wanted was to become the laughingstock of the whole school, but between the fear of being judged and the uncertainty of not knowing what was happening to me, I felt trapped.
+
+My fears were quickly realized when I arrived at school and couldn't stop shivering at my desk. I tried to concentrate on what the teacher was saying, but that proved to be difficult. Tremors rippled through my body, causing my shoulders to shake. I gripped the sides of my desk to steady myself, earning judgmental glares from my classmates. 
+
+Ten minutes into my first class of the day, social studies, my nose had started running. I hurriedly wiped it away, but the snot leaking toward my upper lip became impossible to ignore. Sitting still during an ordinary school day had now turned into an exhausting task.
+
+My increasingly erratic behavior earned me a concerned look from my teacher, Mrs. Garland. She paused her lesson to address me. “Kayla, what’s the matter? Are you okay?”
+
+“I-I-I-I-I.” The words refused to come out. Speaking coherently proved to be an uphill battle. Despite the classroom being at a perfectly normal temperature, my breath was visibly clouding in front of my face.
+
+The room had gone noticeably quiet. One by one, my classmates turned to look at me. I could feel their eyes upon me. The embarrassment I had been dreading began to creep in. Except, based on their expressions, they weren't laughing. They looked confused. Just like me.
+
+“Let’s go see the nurse.” Mrs. Garland said, her voice taking on a more urgent tone. “Mrs. Sunderland will be able to help.”
+
+Hurrying over to my desk, she helped me to my feet, my legs wobbling beneath me like those of a newborn fawn. She ushered me out of the classroom and toward the nurse's office.
+
+When we arrived a few minutes later, Mrs. Garland pushed the door open and guided me past the doorway, before returning back to the classroom.
+
+"What seems to be the problem?" The nurse, who I presumed was Mrs. Sunderland, looked up from her desk.
+
+“I’m…c-c-c-cold.” I managed to get out.
+
+Mrs. Sunderland approached me and placed the back of her hand against my forehead, presumably checking for a fever.
+
+"Oh, you poor thing," she cooed, leading me toward a nearby chair. "Let's get you taken care of."
+
+She walked to a closet close by and began rummaging around. A moment later, she pulled out a massive gray blanket. She carefully draped it around my shoulders before tucking it around my sides. 
+
+“How’s that?” she asked.
+
+I nodded gratefully, the movement sending another uncomfortable shiver through my body. I pulled the blanket closer around myself as Mrs. Sunderland grabbed a thermometer and instructed me to open my mouth. 
+
+"Let's see what your temperature is. This should give me a better idea of what's going on."
+
+I opened my mouth as instructed, trying my best to hold still while she placed the thermometer underneath my tongue. She removed the thermometer a minute later and glanced at its display. With a furrowed brow, she stared at the reading, seemingly unable to comprehend what she was seeing.
+
+“No…” she gasped, grabbing another thermometer. “That can’t be right.” 
+
+She took my temperature again. And again. And once more for good measure. After the third time, she rushed toward the phone and dialed three numbers.
+
+I sat there in confusion waiting for an explanation. As Mrs. Sunderland was talking on the phone, I glanced down at my arms. My skin was turning blue. Upon first glance, I thought the unpleasant hue of the lighting was playing tricks on my eyes. But the discoloration continued spreading. I watched in disbelief as various shades of blue and purple crawled beneath my skin, traveling from my fingertips toward my elbows. 
+
+Mrs. Sunderland did her best to reassure me, but I could tell she was frightened. Her eyes bounced back and forth between my arms and the thermometer, occasionally whispering information into the phone that I don't remember much of. Except for one thing: “Twenty-eight degrees Celsius.”
+
+Shortly thereafter, an ambulance arrived, and I was taken to the hospital. The doctors told my parents that I was suffering from severe hypothermia.
+
+"How could this have happened?"
+
+My mom asked every doctor that same question, hoping someone would eventually offer a reasonable explanation. But nothing could explain why my body temperature had dropped so dramatically, or how it had happened in the first place.
+
+Even stranger than what had occurred was how quickly it stopped. Inexplicably, I stopped shivering a couple of hours after being taken to the hospital. It was like someone had flipped a switch. 
+
+The doctors were baffled by how quickly I had recovered. Given the severity of my hypothermia, they had expected my condition to be far more complicated. Yet, despite the overwhelming odds, I showed no further signs of distress. Several examinations later, and I was given medical clearance to go home. Even medical professionals couldn't explain what had happened. It was a miracle I was even alive.
+
+With no clear explanation for what had happened, there was little reason to keep me hospitalized. By that night, I had been discharged, much to the relief of my parents. When we finally arrived home, they tucked me into bed and even left my bedroom door open.
+
+“Let us know if you need anything,” Dad said, gesturing down the hall. “We’ll be in our room.”
+
+I thanked them and rolled over to get comfortable. I was grateful to have them nearby. I don’t recall exactly when I fell asleep. I just remember waking to the sound of my closet door opening.
+
+Creeeeeeak.
+
+Pulling the sheets closer toward my face, I pretended not to hear anything. I lay completely still. My eyes returned to my closet. The darkness inside was too thick. The clothes hanging from their wooden hangers bled together into one enormous shadow. 
+
+Then…something moved. 
+
+A subtle shift in the darkness revealed the form of something standing behind my clothes. A head slowly emerged from the depths of my closet, and I stifled a scream. 
+
+It was the Man. 
+
+He leaned forward, his immense form stretching far beyond the confines of my closet. Yellow eyes, bright as spotlights, swept languidly across the room atop a neck seemingly made of cartilage. It swayed like a periscope breaching the ocean’s depths, searching for something.
+
+Me.
+
+I covered my mouth. It wasn't going to find me. It wasn't going to find me. It wasn't going to find me. This was all just a dream.
+
+A sudden pressure against the edge of my mattress interrupted my thoughts. I opened my eyes and warily peered over the sheets. The Man was leaning against the foot of my bed. His head was tilted so far forward that his face was mere inches away from mine. His skin appeared red and swollen, riddled with dark splotches of decaying flesh. Some patches glistened, while others appeared dry and cracked, like a moldy strawberry left too long in the refrigerator.
+
+When our eyes met, the tissue around the Man’s mouth peeled away from his inflamed gums, stretching far enough to expose the stained teeth nestled inside. He held the smile, seemingly oblivious to the damage it was doing to his face. “I am equally comfortable in your mouth and in your shoe.”
+
+I whispered every prayer I could remember, hoping that God was listening. I didn't know what else to do. 
+
+The Man’s face continued to hover in front of mine. “What am I?”
+
+His breath wafted against my face. It lingered like fog, carrying a nauseating mixture of peppermint and rancid meat. 
+
+"What am I?" The Man repeated, the question sounding more accusatory. 
+
+I told myself over and over not to answer, but my body betrayed me, succumbing to a force I could no longer fight. Just like the night before, I felt something begin to crawl up my throat. Swallowing did nothing to quell the sensation. If anything, the feeling intensified, accompanied by the scraping of fingernails against the roof of my mouth. 
+
+Out of nowhere, two human hands emerged, forcing my jaw open. Don’t answer. The words drifted through my mind like a distress signal lost somewhere in the vastness of the ocean. Don't answer. Don't answer. Don't answer. I tried to stop whatever was about to come out, but the frightening strength of those hands held my mouth open.
+
+The Man looked positively delighted as my mouth moved against my will. The words spilled from my lips, giving him the answer he had been so eagerly waiting to hear.
+
+“A tongue.” The second I answered, he was gone. I went from staring at his repulsive face to an empty space in front of me. 
+
+I scrambled backward, and pulled the blankets over my head. The closet door was open, but there was no one inside, just the clothes dangling from their hangers.
+
+I couldn't understand how what had happened to me was even possible. All I knew was that he had been there and that somehow, he had gotten inside my room. 
+
+I didn't know what else to do, so I spent the rest of the night crying as quietly as I could beneath my blankets. 
+
+Looking back, I think that’s what frightens me most about that night. I was only ten years old, and I already knew something was terribly wrong. 
+
+I knew the Man wasn’t finished with me. 
+
+I just didn’t know what he would ask me next.

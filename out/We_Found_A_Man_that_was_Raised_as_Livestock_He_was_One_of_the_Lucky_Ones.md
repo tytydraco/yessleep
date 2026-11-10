@@ -1,4 +1,18 @@
-If you missed the last post: https://www.reddit.com/r/nosleep/s/lfI8eetBYm
+Part 8: https://www.reddit.com/r/nosleep/s/4qku5pkzUy
+
+Part 7: https://www.reddit.com/r/nosleep/s/t3yDHCt9ka
+
+Part 6: https://www.reddit.com/r/nosleep/s/RJhJ4y87ZU
+
+Part 5: https://www.reddit.com/r/nosleep/s/cyMCFRKjW4
+
+Part 4: https://www.reddit.com/r/nosleep/s/ZngKKmNy5x
+
+Part 3: https://www.reddit.com/r/nosleep/s/MXJiVsiUMJ
+
+Part 2: https://www.reddit.com/r/nosleep/s/CtqviM6Qno
+
+Part 1: https://www.reddit.com/r/nosleep/s/kMmv9kxJiG
 
 By twelve-seventeen Sunday morning, Captain Reese had crossed out two of the three ways his men might reach Sam. The first ran beneath a section of floor that had already shifted under their weight. The second ended at the door where an officer had gone down screaming with his arm broken. Reese was drawing a line through that one when a medic came in to ask whether anyone had seen the missing stretcher straps. He answered her without looking up. Every few minutes somebody needed a key, a radio, a clean blanket, an answer. The room kept functioning, and Sam was still in the ground underneath it. I'd been standing over the table so long that the coffee I'd spilled on the plans had soaked through the cuff of my jacket.
 

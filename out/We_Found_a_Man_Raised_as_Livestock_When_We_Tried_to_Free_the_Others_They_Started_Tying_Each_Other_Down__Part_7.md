@@ -1,14 +1,18 @@
-Part 1: https://www.reddit.com/r/nosleep/s/kMmv9kxJiG
+Part 8: https://www.reddit.com/r/nosleep/s/4qku5pkzUy
 
-Part 2: https://www.reddit.com/r/nosleep/s/CtqviM6Qno
+Part 7: https://www.reddit.com/r/nosleep/s/t3yDHCt9ka
 
-Part 3: https://www.reddit.com/r/nosleep/s/MXJiVsiUMJ
-
-Part 4: https://www.reddit.com/r/nosleep/s/ZngKKmNy5x
+Part 6: https://www.reddit.com/r/nosleep/s/RJhJ4y87ZU
 
 Part 5: https://www.reddit.com/r/nosleep/s/cyMCFRKjW4
 
-Part 6: https://www.reddit.com/r/nosleep/s/VHARocR2vp
+Part 4: https://www.reddit.com/r/nosleep/s/ZngKKmNy5x
+
+Part 3: https://www.reddit.com/r/nosleep/s/MXJiVsiUMJ
+
+Part 2: https://www.reddit.com/r/nosleep/s/CtqviM6Qno
+
+Part 1: https://www.reddit.com/r/nosleep/s/kMmv9kxJiG
 
 The wheels had stopped, but a woman was still calling somewhere beyond the inspection panel. I put my ear against the door and heard her ask somebody to wait. Then another voice answered, too low for me to make out, and she went quiet. Behind me an investigator was moving a cart away from the place where Bess had died. One wheel stuck on the floor joint, and he pulled harder until I asked him to stop doing that. He looked at me, confused. I apologized and went to find Reese.
 

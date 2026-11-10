@@ -78,13 +78,13 @@ I can't go on like this.
 
 *I have been sleeping, I think, the sun hot on my back. I hear something, a truck. I think it is the soldiers and I am shaking with fear over what they will do to me. They came months ago and took all our animals and burned the fields around the village. They did bad things to my mother and my two sisters. They killed my father and my uncles.*
 
-*Boots land in the dirt and walk quickly towards me on the road and I am so frightened and I am breathing fast. But the person who crouches down to look at me is a strange, strange creature. Her skin is white like milk, her hair the color of sand. She has blue in her eyes and she has a kind smile. With no color in her skin, I think that maybe she is a spirit here to help me find my way. I reach out to her.*
+*Boots land in the dirt and walk quickly towards me on the road and I am so frightened and I am breathing fast. But the person who crouches down to look at me is a strange, strange creature. Her skin is white like milk, her hair the color of sand. She has blue in her eyes and she has a kind smile. She looks so strange, so different from anyone I have ever seen, that I think that she is a spirit here to help me find my way. I reach out to her.*
 
 *But she moves away, and there is a strange clicking noise from a black box she holds to her face. I reach out, though it is difficult for me and takes more strength than I have. Please, I try to tell her. Please help me.*
 
 *Soon, she climbs back onto her truck and leaves. I am alone again.*
 
-*I am alone and night is coming. I am alone and I cannot get up and I hear the animals and spirits in the grass moving around me and I am afraid.*
+*I am alone and night is coming. I am alone and I want to cry out for my mother, why did she leave me, but my throat is dry and I cannot get up and I hear the animals and spirits in the grass moving around me and I am afraid.*
 
 I wake with a start and automatically reach for the water on my nightstand, but I find I can't turn over.
 

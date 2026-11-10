@@ -1,4 +1,18 @@
-This is what happened before: https://www.reddit.com/r/nosleep/s/mXEdpBjXm0
+Part 8: https://www.reddit.com/r/nosleep/s/4qku5pkzUy
+
+Part 7: https://www.reddit.com/r/nosleep/s/t3yDHCt9ka
+
+Part 6: https://www.reddit.com/r/nosleep/s/RJhJ4y87ZU
+
+Part 5: https://www.reddit.com/r/nosleep/s/cyMCFRKjW4
+
+Part 4: https://www.reddit.com/r/nosleep/s/ZngKKmNy5x
+
+Part 3: https://www.reddit.com/r/nosleep/s/MXJiVsiUMJ
+
+Part 2: https://www.reddit.com/r/nosleep/s/CtqviM6Qno
+
+Part 1: https://www.reddit.com/r/nosleep/s/kMmv9kxJiG
 
 Sam's wife asked whether she should wake the girls, and I realized I'd spent ten minutes answering her questions without saying anything useful.
 
