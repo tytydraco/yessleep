@@ -250,7 +250,7 @@ HE IS GETTING CLOSER.
 
 The first notebook was dated three months after Daniel's death.
 
-October 18, 2019.
+October 18, 2021.
 
 He called again tonight. He was crying. I could hear water behind him. He says it's cold.
 

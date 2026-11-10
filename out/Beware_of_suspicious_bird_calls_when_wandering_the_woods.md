@@ -1,4 +1,4 @@
-*My grandma died recently, and I was left to take care of all her junk. Which was fine by me since I could snoop around her old diaries and reminisce over old family photos. But I found something I'm compelled to share with you all. Its a page from what I think is my great grandfathers journal. For privacy reasons, I changed and left out certain names he wrote. The writing was in cursive so I did my best to decipher it, so sorry for any errors.*
+\[Story was found in the local university's archive, dated sometime between 1890-1910\]
 
 I suppose to begin, I must state: I am not a writer, nor do I plan to be one. To put it simply, I find the activity to be rather burdensome. I’d rather leave my thoughts to collect dust in the empty attic of my mind. But something happened to me today, something that compels me to…dissect an older memory.
 
@@ -61,8 +61,6 @@ The sound tripped my heart's steady beat. But like a conductor tapping his baton
 *Sp-rings he-re.*
 
 I didn't respond. I justified it by saying I was simply bored, not wanting to admit to myself I was scared of a bird. Men weren’t so easily scared.
-
-
 
 By the time I'd made it to ol’ Henry, I had long forgotten my unease. Erik was already there, hanging upside down in the tree. He swung precariously over the pine roots, which spread across the forest floor like lightning. It was these roots that made the tree the perfect meeting spot, as they prevented anything from growing within the radius, giving us plenty of space to play. The wide branches gave us shade in the summer and shelter in the winter.
 
