@@ -185,3 +185,6 @@ Lisa was sitting right in front of me, looking perfectly normal. There were no c
 She turned toward me with an innocent, confused expression and asked in her usual gentle voice:
 
 "Hey, are you okay?"
+
+  
+[Part 2](https://www.reddit.com/r/nosleep/s/TBJJk6LCR7)

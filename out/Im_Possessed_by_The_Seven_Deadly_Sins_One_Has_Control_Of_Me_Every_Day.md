@@ -1,0 +1,68 @@
+Why the fuck is this shit happening to me?! Why?!   
+Sorry. Sorry for my language. I should remember who I’m writing this to.   
+But in my defense, how am I supposed to react to something like this? Do you know what it’s like to have your entire life upended, and be plunged into literal Hell? You know what, maybe you have, considering you’re men of God. I’m sure you’ve seen people just like me, or worse.   
+I gotta stop going on and on. I only have one hour left before Lust takes over. They always take over starting at 3:00 AM. There’s some significance to that, right? Something about the devil’s hour. Anyways, I gotta get back to it.   
+I don’t even know when this all started. It was like I was just randomly chosen. I thought it was all just some bad dream, a culmination of the stresses of my daily life.   
+I was surrounded by seven figures, all different in appearance. They told me exactly who they were. The Seven Deadly Sins. Just looking at them filled me with a terror that shook me to my spirit, and tore my mind apart.   
+ They told me that I would be the perfect host, a person who has felt the extremes of all seven of them, and could easily be swayed to their temptations.  
+ The demons then proceeded to lay their hands on me and pushed their way into my soul. It felt like I was having a heart attack, and I woke up screaming both out of fear and pain. My whole body felt like it was on fire, even the sweat that drenched my skin, hair and clothes.   
+I didn’t feel anything for a whole day afterwards, but I remember feeling afraid and unable to focus on anything. It was like in the back of my mind I knew what was coming, and that I was in for absolute Hell on Earth.   
+Sure enough, I was awoken at 3:00AM the next morning to unimaginable pain, and my body changed in ways that no human should. That was the first time I experienced one of the Seven Sins.  
+ The first time this ever happened was Gluttony. With what little time I have left I will describe them to all of you, so you know exactly what you are dealing with. Shit, I’m running out of time, I need to get this all down. 
+
+
+
+Monday, Gluttony: The hungriest one. I turn into a large,  bloated mass, like some kind of giant slug. A giant slug with a pig-like face that is always hungry, and cannot get enough to eat. My stomach grows infinitely, and no matter what, or who, I eat, it is never enough. My mouth grows enormous, like a giant vacuum that inhales everything it touches. I’ve eaten dogs, cats, birds, rocks, garbage, plants, even people. There’s a lot of homeless where they live, and I know that I’ve gotten to them in the sewers and alleys. Slime oozes off of my body, and I can only use my long bloated arms and legs to drag myself on the ground like a large slime. But no matter how much I eat when he is in charge, it is never enough until 12AM. I then vomit and shit my guts out for about an hour before I sit and wait for the next one. 
+
+  
+Tuesday, Sloth: The lazy one. Funny how it's right after the one that eats a lot. I become paralyzed, all my limbs and senses falling limp and nonexistent. My tongue hangs out of my mouth like a dog, and I create puddles of drool on the ground as I writhe around on the floor. My limbs soon disappear, and I turn into a human-sized worm, dragging my sexless, limbless body on the ground. All of my hair falls out, and my teeth retract into my gums. My eyes become lazy, unable to focus and gaze at anything. Imagine a seemingly infinite vertigo, one that makes you sick but leaves you unable to do anything about it. This one is the most agonizing one of all. There is nothing that I can do for the whole day. I can’t eat, sleep, fuck, or even fucking move. I can’t even process the thought of moving or doing anything. 
+
+
+
+Wednesday, Envy: This one isn’t honestly that bad. I just turn into a snake man, my skin turning a dark, moldy green with hardened scales that cut everything that I brush up against. My tongue turns forked, hissing at every thought of every man, woman, or child that has done anything that I haven’t. I harbor a bitter hatred towards everyone around me, and thoughts of making them suffer under the weight of their failures and misery brings a massive toothy smile to my face. Every person that I stare at from the shadows fills them with a depression and hatred of themselves that sometimes brings them to tears. I hiss in their ears that they are nothing in the eyes of God and anyone that they even think is proud of them. I spit lies in their heads and watch with glee as it brings them down. I watched a young man who had just proposed to his girlfriend kill himself after I filled his thoughts with whispers of his wife secretly cheating on him and hating everything about him. I watched with glee as he screamed at her, demanding the truth. When she denied it, he put a knife to his throat and gutted it right in front of her, splattering blood all over her face. I just laughed at her anguish and horror. She was such a pretty girl. He didn't deserve her, only I did. 
+
+
+
+  
+Thursday, Greed: I turn into an amalgamation of eyes and arms, staring at everything with a desire to take for myself. It doesn’t matter what it is. If they have it, I want it. Every day that this happens, I end up with a bunch of shit that I don’t even want, but my eyes and hands just couldn’t resist. Like gluttony, it is never enough for me. I want everything, and I won’t stop until I get it. 
+
+
+
+Friday, Lust: This is one of torture. Torture at the hands of pleasure himself. Interestingly enough, this is one that does not physically change my body. At least not externally. But on the inside, I am driven mad with lust, sexual hunger, and a desire to just feel so damn good. I spend all day and night, hitting the clubs and picking up any chick that I can find. The women there are filled with the same lust as me, influenced by the Sin and driven by nothing but the desire to find the next thing to pleasure them. And that is exactly what I give them. Hours of orgies and sex, pushing it to the limits and beyond. The screams and moans of pleasure of these women explode into my brain, and I burst. My orgasms and pleasure are incomprehensible, and I just want more and more of them. I savor every inch of their bodies, touching and raking my hands and feet down their sweaty, hot flesh, every sound these women make taking me to new highs. To just any person, they might ask: Well, what’s the issue? I’ll tell you. The problem is that it doesn’t stop. The pleasure is never fucking enough. No matter how many orgasms, no matter how much pleasure I give and receive, my mind and body always finds something new to reach. And so do they. We fuck so much that it begins to hurt. Then it becomes painful, then we become miserable. So miserable that the women begin to cry and beg for it to stop. But then they beg for more, beg for so much that the pleading is part of the pleasure.  We go for so long that we pass out from the pain. I tried locking myself up, but I just masturbated until I thought I was going to tear my body apart. 
+
+
+
+Saturday, Wrath: Have you ever watched the Hulk? Any of them. Well, that’s exactly what it is. Imagine all the steroids and rage in the world being injected into your body all at once. I turn into a towering muscle man, eyes bloodshot, and my instincts and reflexes cranked up to inhuman levels. My veins and muscles bulge against my dry flesh. I can hear, see, and feel the blood and chemicals flowing through my body. The thoughts in my head are even worse. It is nothing but anger. And I don’t mean just pissed off. I mean, sheer primal rage and the desire to fight and kill everyone around me. Underground fight clubs stave it off, but barely, and soon I’m going after everyone. No matter how much blood and bile I puke, and no matter how much my body twitches like I have tetanus, it doesn’t matter. I have to fight, I have to hurt. 
+
+
+
+Sunday, Pride: I think he chose this as his day on purpose. The one who carries himself like he is God and lets God know as such. A crown of bones sprouts from my skull, and my body shines with a burning glow as I scream the praises of myself and the one below. I shout to God to bring his wrath on me, that He will never compare to me nor any like me. My ultimate transformation as Pride is a combination of the other six, and I know that Pride is the strongest one, the one that saves itself for the day. I held a preacher hostage for hours, resisting his prayers and rebukes, eventually killing him from exhaustion and by my hands. The blood splattered the cross, which I as Pride defiled. 
+
+
+
+And that is it. And the cycle starts back up again. It is a nonstop flurry of torment. I can’t even really feel my body anymore. All of my emotions and sensations are pushed to such extremes that everything when I’m normal just feels so hollow.   
+That is why I’m writing to you, Father Wright.   
+I don’t know if you remember this, but you and I have met before. It was one time, at my father’s funeral. My family kept me away from you, but for the few minutes we spoke you said you were his brother. The only religious man in a family of not just unbelievers, but God-haters. I know you will understand my problem. Others may not trust me, and others may be afraid to take this on, but I know you won’t be. 
+
+The last thing you said to me before my mother pulled me away from you and kicked you out, was that if I ever needed your guidance or my help, to seek you out.   
+So that is exactly what I’m doing. So many times I stood on the doorstep of your Church on Sundays, wanting to let myself in, but being unable to go inside. There was always something to pull me away. But not this time. This is it. 
+
+If there is anything that you can do, I live in that single story, rundown house three blocks down from your church. You will know which one it is. The grass hasn’t been cut, the wood is moldy and rotted, and there looks to be no sign of life at all. 
+
+That’s where you need to go. I’ll be in the basement, chained up.   
+I have one minute left before Sloth takes over. Another Tuesday of lying like a slimy vegetable on the dirty, foul cement. So that’s my story, Father. Can you help me?
+
+Sincerely,   
+Nathaniel
+
+
+
+
+
+
+
+  
+
+
+
+

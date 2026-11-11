@@ -134,6 +134,6 @@ I sat very still. Dan had said those exact words one night, just as tenderly, fr
 
 He was. He just hadn't met her yet.
 
-On a humid August night, just before dawn, I woke up to a ridiculously early text from my grandmother. She wished me a happy birthday. I'd nearly forgotten. Knowing I wouldn't be able to sleep again, I got up and unceremoniously began folding laundry. The baby monitor then crackled beside me. On the screen, Ellie was asleep in her crib, alone in the room, the night light casting long shadows off the bars of her crib. And then through the little speaker came a sharp whisper:
+On a humid August night, just before dawn, I woke up to a ridiculously early text from my grandmother. She wished me a happy birthday. I'd nearly forgotten. Knowing I wouldn't be able to sleep again, I got up and unceremoniously began folding laundry. The baby monitor then crackled beside me. On the screen, Ellie was asleep in her crib, alone in the room, the night light casting long shadows off the bars of her crib. And then through the little speaker came a whisper:
 
 "Sorry he missed your birthday."
