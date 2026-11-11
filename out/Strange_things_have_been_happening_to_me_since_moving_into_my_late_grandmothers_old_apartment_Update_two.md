@@ -1,0 +1,270 @@
+If you haven't read the first part, here is the link
+https://www.reddit.com/r/nosleep/s/6tK4fS6T82
+
+Hey everyone, writing this on a breather after running practically from a safe place. A lot has happened in the 24 hours I was gone. Right now I'm next to the one person I can trust.
+
+I was told to get out of the house and I decided to call Paola. He wasn't picking up, but every minute in the house was driving me insane. My paranoia got so bad I started hearing footsteps everywhere. Weird sounds.
+
+Every creaking floorboard in the 2nd-floor hallway. The sound of the fan in the pawnshop. The dripping water from the kitchen faucet. Like I wasn't alone in the house. Like a whole crowd hiding from a storm, huddled in a corner.
+
+I couldn't take it anymore. I grabbed the essentials and started packing. Something was off and my gut was screaming at me.
+
+I decided to climb out the back window on the 2nd floor. I dropped onto the sign and slowly climbed down. Right next to the pawnshop's front door, I heard footsteps. Some weird sounds.
+
+Blood was boiling in my veins, I swear I could smell adrenaline. I remember it all like a blur. It was pretty dark, around 7:30 or 8:30 PM. My vision was blurry, I remember my heavy breathing. I ran as fast as I could and about 15 minutes later I was at the corner near the MAX station at 5th Ave and Mill St. I needed to keep moving, I turned the corner and felt like I was being followed. Hiding in an alleyway, I checked my phone. The crack on the screen got bigger, but I could still see fine, so I quickly called a cab.
+
+Before I could do anything or breathe, I saw a glint in the corner of my eye. Like a shadow behind me. Someone creeping or sitting there. I spun around in a panic. Sweat hit me, chest burning. Legs turned to jelly. It was a homeless guy. A lot like the one I saw in the diner a few days ago. He was lying on cardboard next to a dumpster, slowly drinking beer. Like a mountain goat, he popped the beer cap off with his nails. Ironic, the 'pssht' of the beer sounded like a goat's bleat... pssshhbeeeez....
+
+I looked at my phone. Time was 3:33, my eyes watered. Fear kept growing. I looked at the cracked screen again. Time was 8:57. The cab was close. A couple of minutes left, it'll be here in 3 minutes.
+
+The homeless guy stared at me without looking away. It felt like someone was behind me. I slowly backed up to the wall. As soon as I hit the rough, dirty wall, he whispered quietly.
+
+\-It's getting cold out here... No fur for warmth... And here we are... Sitting and bleating like sheep. Plowing like donkeys at work. Why are you here? What are you doing here? Get the hell out, spawn of the Murphy family.
+
+I went pale. How does he know who I am? What kind of person is this? Fear, anger, terror washed over me and I felt every emotion individually. He started screaming louder.
+
+\-GET OUT GET OUT GET THE FUCK OUT BEGONE SPAWN.
+
+I didn't even get to say anything. The cab pulled up. Like a sack of hay, I collapsed into the back seat. I yelled at the driver.
+
+\-Get me out of here fast. Faster. FASTER.
+
+The driver's face went blank, his eyes looked terrified. We drove really fast. Empty roads. Empty streets. Weird, it's Monday evening. And the roads... streets... totally empty. 25 minutes later I was at the nearest cheap hotel.
+
+I arrived and ran inside. The rooms were fully booked. But it felt like the whole hotel was empty.
+
+I said hi at the front desk. There was a manager, Asian-American looking.
+
+\-Hi. Give me the keys please. I booked room 9 on the 7th floor.
+
+\-Hello, sorry. There was an error on the site. That room has been booked for 6 days. There is one free room on the 13th floor. Room 6. Does that work for you? the Manager asked with some weird intonation.
+
+I was soaking wet, dirty, and scared. Without a word, I took the keys. I would've agreed to anything just to not be at home. In a flash, I was in the room. The atmosphere there was weird. Even worse than home. Completely dirty and terrified, like an animal, I rushed into the bathroom. I turned on the shower and started washing up.
+
+A couple of minutes later I was sitting on the bed in the room. An hour later, around 11:20, I heard a knock. Another one, and another.
+
+Behind the door, I heard:
+
+\-Delivery!
+
+\-Delivery!
+
+Such a weird, familiar voice... I didn't order anything. Or maybe I just forgot. I didn't understand what was happening. The feeling of panic and fear filled my body again. Very slowly and cautiously I walked to the door. Through the crack, I could see a shadow.
+
+I didn't dare open the door. After about 6 or 10 minutes I heard a voice. A painfully familiar voice. Like I'd heard it more than once. Too, too similar, but at the same time it had some different intonation and accent...
+
+\-The goods have been delivered. Mr. Murphy. Time is running out. The order is getting cold. I'll get fined. Mr. Murphy. The goods. Time is running out. Mr. Murphy. MR. MURPHY THE GOODS. TIME. FINE. THE GOODS MR. MURPHY.
+
+Out of terror, I started bleating like a sheep. I backed away. I barricaded the door with a nightstand. Armed with the first chair I could find, I huddled in the corner.
+
+My heart was pounding so hard it felt like it was gonna jump out of my chest. Blood was racing through my veins at a speed I can't even describe. Sweat poured right into my eyes. My eyes were stinging. I wanted to go home more and more. I didn't care that it was just as bad there, I wanted to be exactly there. After 10 minutes the voice went quiet and I heard a knock on the window...
+
+I screamed with all my might, it felt like my veins were bursting from fear. I couldn't think about anything in that moment. I blinked. I was already sitting on the bed looking out the window... there was just a normal bird. A black raven. Young. It cried.
+
+\-CAAWWRRR.
+
+\-CAW.
+
+And it started banging on the window. I was being pulled more and more to go back to the pawnshop. I firmly realized I needed to go home. Something weird is happening outside the pawnshop walls too. But there I at least felt safe. Opening my phone camera I started filming the raven. Deciding to look at myself, the camera suddenly turned off. Looking back at the video I noticed how the video was slowly fading with my appearance in the frame. I hadn't taken my meds for aggression and panic attacks in a long time. I thought it was because of them. But maybe it's something else.
+
+As soon as I thought about home, I got a call. NIGHT, Monday. Who the hell would think to call me this late.
+
+\-Hello, hello, is this George Murphy? You're being contacted by a local Sheriff of Portland, Oregon.
+
+He introduced himself and said my pawnshop was broken into. I immediately packed all my stuff. I was terrified to go out. But without extra thoughts, suppressing my fear and paranoia, I ran out, kicking the door open. I ran and there was only the echo of my running behind me. As soon as I ran out, I called a cab on the run. 19 minutes later I was exactly at the spot.
+
+I was in horror. Shards everywhere. The window display broken, the door kicked in. They didn't touch anything inside. They only stole our family picture with the tree. Who even needs it? I had no idea.
+
+At the crime scene, they found a bloody knife. DNA and gray hair. And around the corner, the corpse of a homeless guy and the delivery guy's jacket who went missing a couple of days ago. I was really scared. My mouth went dry. Someone could have killed me that night. And most importantly, for some reason I'm being pulled here. But the creepiest thing I heard came after.
+
+\-Here's what happened, I explained it to you. They say they saw a couple of strangely dressed people here. Regular thieves. The break-in happened somewhere around 7-8 PM.
+
+MY PARANOIA LITERALLY SAVED ME. I left maybe a minute ago. Maybe 5 minutes ago, or maybe an hour before the break-in. Or those steps I heard weren't just my imagination..? Then I was on the verge of death... this isn't the first time... but I've never been this close...
+
+Right now I'm standing next to the officer. I don't think I'm in any danger next to 4 cops with guns. I'll write later what the outcome of the conversation was. Wish me luck.
+
+\[Update 1\]
+
+It's about 5 AM now. I spent the whole of yesterday in fear and horror. I don't know how to put it into words.
+
+After the officers collected all the evidence they left. Except the sheriff. He came up to me, an old-school guy, 60-70 years old. Sound mind. Great build. He started a dialogue when we were alone.
+
+\-George. Who do you think it could be? Do you have enemies or competitors? Maybe someone you pissed off?
+
+I answered the sheriff:
+
+\-No, Sheriff. I spent almost my whole childhood in this city and now I've been living here for no more than a week. This house was left to me by my grandmother. And I have no one here.
+
+Before I could finish, the officer interrupted me. On his face was joy and a clouding, he asked with a light tone but in surprise:
+
+\-You're George Murphy..? Linda's grandson?
+
+I answered him without showing it:
+
+\-Yes, Sheriff. By the way, you're the only one who didn't introduce yourself.
+
+\-Right. My name is Michael Brown. I knew Max Murphy and Linda Murphy...
+
+On the sheriff's face was the most sincere sadness and slight glints of tears in his eyes.
+
+\-My condolences for your loss. Over time we lost contact with him... And couldn't manage to get together later. First your grandfather disappeared. Then Paola disappeared, and then Linda died.
+
+Chills ran down my body. My head went cloudy. I threw up a little and in hysterics I started screaming in tears:
+
+\-NO HOW CAN THIS BE WHAT IS HAPPENING HERE HELP ME SOMEONE!
+
+Michael got wildly scared. In his eyes I saw the most wild fear.
+
+\-Calm down George what's happening kid everything is fine I'm right here! Calm down explain to me what's going on I'm begging you boy.
+
+He held me by the shoulder and repeated this. When I calmed down, barely opening my mouth, I whispered to him:
+
+\-But.. but I recently saw Paola.. he fixed my chandelier.. the hair in the hallway is probably from him.. everything is fixed there. I don't understand how. JUST HOW CAN THIS BE REAL?
+
+\-Calm down George you're scaring me, really you're acting very similar. Like your grandfather. After that behavior, 3 weeks passed and he vanished.
+
+Disappeared like he was never there. No traces. I'm not hinting at anything. But you're acting exactly like him. I understand you're scared. You're exhausted and tired. I don't know who you let into your house, son. But that definitely wasn't Paola, he was killed a year before your grandmother died. Maybe from your grandmother's stories you confused him with someone else?
+
+Michael looked at me barely holding back panic. His hands were shaking. His legs were wobbling. We were standing in the pawnshop hallway.
+
+Looking at him all in tears I said only one thing:
+
+\-Michael. Grandma didn't tell me about Paola and you. I couldn't have known you. No way.
+
+Michael's face went pale. Like a dead man's. His eyes widened in fear. His lips trembled, he wanted to say something but didn't have time. From stress and fear he threw up. Tears started flowing.
+
+We both went silent. Silent and looking at each other. We don't understand what's happening. He suggested going to his place but I decided to stay alone. Something in the pawnshop was pulling me.
+
+\-George I won't leave you here alone. I'm worried about you. Something wrong is happening here, son. I don't trust this place. For many reasons. Right now we'll go together to the places where 2 more pieces of evidence were found. We'll check them out and go to my place.
+
+Hearing that I was leaving the pawnshop, I got the strongest panic. I didn't want to be here but I couldn't leave. Anxiety and fear overwhelmed me. Tears and blood were rushing out. I felt the taste of blood in my mouth. Never would have thought that at 29 years old this happens, behavior like grandpa's or near death. I blinked.
+
+As soon as I opened my eyes I was already sitting in the police car in the front seat.
+
+The most disgusting feeling. Dry mouth. Like I hadn't slept for two days. Barely opening my eyes fully, I asked Michael:
+
+\-Where are we going Michael..? What happened? I feel a little sick..
+
+I sat with a pale face. A feeling like something is choking me.
+
+Michael looked at me with fear. The kind of fear a hunted man has facing a wolf. Or a cat facing a dog. Without looking away he started talking:
+
+\-George I took you away from there. I'm worried about you. Your grandfather George. He acted the same way after one incident. Literally 3 weeks passed. And he was gone as soon as he turned 30. He was constantly scared. Acted weird, constantly like he was in the shadows.. and after a while he just evaporated. No traces. No evidence. No body. No-thing. He just vanished. Linda also acted very weird before she died, back when I saw her after a few years. Those were the last meetings with them.
+
+The rest of the trip to the next evidence. I just stayed silent. I didn't understand what, why and how it was happening. I just wanted to believe it was just a dream. A normal dream. I thought I was delirious, going insane. But the fact that Michael understands all this. How he reacted to it. I understand. That things are really bad. And it's not about me.
+
+Almost arriving at the place Michael was constantly nervous. Fidgeting in place, grinding his teeth. Like he's hiding something. Scared of someone. Or something.
+
+\-We're here. Michael said with relief. -Let's go George, let's see what's there regarding your case.
+
+I slowly, cautiously got out of the car.
+
+A familiar smell. A familiar place. I didn't quite understand where I was. But fully coming to my senses I realized. Chinatown. We drove about 10 minutes to the other end of Chinatown, but it felt like an hour or even a month.
+
+Seeing Michael, I walked up to him. He stood straight but in bewilderment near the corner. A little later he backed away. His whole body looked weak. Like his body was crushed by fear. I didn't understand why he was so scared until I walked around the corner.
+
+Closer and closer approaching the corner. I felt an increasingly nasty, corpse-smelling stench. Slowly covering my nose with my hand I got closer. I abruptly walked around the corner.
+
+A piercing stench hit my nose. My eyes immediately filled with tears.
+
+In front of me was a corpse. The delivery guy. That very Delivery guy. My legs became like cotton swabs. Like threads they tangled. I fell with the wild fear of a man who saw a wolf in the forest, I started crawling back. I screamed in tears:
+
+\-NO NO THIS IS JUST FUCKED UP I DON'T WANT IT TO BE TRUE HOW HOW CAN THIS BE THIS IS JUST FUCKED UP.
+
+I backed away harder and harder. I hit the corner of a dumpster.
+
+I flinched when I heard a scream:
+
+\-GOOD JOB GEORGE.
+
+It was Michael.
+
+Barely standing on his feet, holding back the urge to puke but with a note of pride, Michael started talking:
+
+\-George LOOK at the corner blood and hair! You found another piece of evidence. Good job kid I'm proud!
+
+Opening the dumpster we saw inside a weird quality leather for a seat. It was pretty high-quality, it had drawings of zodiac signs, basically Capricorn. We didn't understand what it meant. And we started calling the forensic experts. They are already on their way.
+
+We'll go to the lab and another place where the evidence is. I'll write later. I need to come to my senses. Understand what's happening and how to act. I'm glad I'm not crazy. Michael. The officers. All this confirms that there is some fucked up shit going on here. Maybe it's a maniac or just thieves...
+
+\[Update 3\]
+
+Every time. I get more and more surprised. It gets more disgusting and worse. Fear and only nasty sticky fear all over my body. I'm very scared. I'm tired of this. I can't take this anymore help me someone please. Right now Michael and I are in complete horror. Our faces are paler than chalk. I think if it were possible to measure the temperature of our bodies it would be under 40 Celsius. We are alone in the pawnshop room. But honestly it doesn't seem so to us.
+
+Right now I'll tell you everything that happened in the last couple of hours. I think I'm starting to believe in the paranormal.
+
+As soon as we dropped the evidence off at the lab, we drove to another place, by count it was 6.
+
+It was an old abandoned house. According to witnesses, a group of people were hanging around here. Strangely dressed. Strangely behaving people. They went inside and then didn't come out for hours.
+
+We drove to the place as fast as we could. There were small traffic jams around the city even though there usually aren't any, which is weird. As soon as we arrived we flew out of the car like bullets and were enveloped by a strong cold and wind. Before we could even get close to this house, a heavy downpour started.
+
+Michael got alert and took out his weapon. We got closer and more confident to the door. He said into the radio:
+
+\-If I'm silent for more than 10 minutes, send the rapid response team. and he dictated the address of this house.
+
+With strong speed and agility he kicks the lower part with one kick. He couldn't knock it down but broke through it.
+
+I was scared. I was getting thrown side to side really hard. The closer we got to this place, the worse I felt. But as soon as Michael started making the 2nd hit. I passed out. I'll tell what happened next from Michael's words.
+
+\-You went pale and looked really scared. Your eyes were like they were popping out of their sockets. You staggered a bit and fell. I started picking you up and questioning you but you just silently kicked the door open with your foot. With one kick. Right next to the handle. The door practically flew off its hinges. We went inside and started slowly looking around. We went into the hallway and living room, there was no one. You were silently lighting up the area with a flashlight. Like you knew. There's something here. But the house itself is empty. Like something or someone.. was telling you this. You lit up the whole living room and said.
+
+\-Apparently the house is empty. Worth checking the basement.
+
+We slowly, very quickly approached the basement door. It was open. Went down the stairs lower and lower. From below there was deathly silence. Like everyone who was here abruptly went silent in unison and there was such a piercing hum.
+
+In the middle of the basement, a painting was carelessly lying around. Or rather what was left of it. There was only your gray photo and a drawing of horns.
+
+We took a photo of the evidence. Nearby we found gray hair like in your pawnshop. Upon arrival my guys cordoned off the house and we got in the car to go to the pawnshop, you were silent the whole way. Like you turned your consciousness off. I was a little confused and scared. But what worried me more was that you were repeating your grandfather's behavior too much. And the creepiest thing I noticed. I know this house.
+
+I was here before. Exactly 7 years ago. It was an old gloomy house. Which belonged to the late Paola.
+
+When Michael retold this to me. My veins seemed to freeze. The painting in Paola's house. He wasn't picking up. Probably his hair is in all places. How is this all possible? How can this be happening? Who did I let into the house then? Who fixed the chandelier then and who then told me about grandma Linda...
+
+My face became like the whitest chalk. Body cold, by feeling I'm like a corpse that lay dead for a week. All tattered and dirty, I wanted to rinse off in the pawnshop when we were already approaching it, Michael got a call.
+
+\-Hello yeah yeah? Ah okay tell me in more detail about the tests. Yeah yeah...
+
+Abrupt silence. His face seemed to be seized by a convulsion.
+
+\-WHAT THE FUCK?.... FROM WHAT KIND OF SKIN? HOW.. THERE'S LITERALLY 1-2 METERS OF IT.. phew... okay okay. We'll come a bit later. Talk to you soon.
+
+Michael hung up. By his voice it was audible. Dry throat. Fear. He was swallowing saliva like he had a lump in his throat. He's been working in the authorities clearly for more than 20 years and I think he's never been so surprised.
+
+He was gathering his words very hard. Like he was scared to tell me, it seemed like someone was about to choke him. But still he managed to squeeze out barely understandable words..
+
+\-George.. that skin. The lab quickly determined what kind of skin it is.. it's not normal skin. Well-processed, made by a master. Volumetric work. I don't know what to think anymore and I don't understand what's happening, for 15 years of working as an officer and army experience even for me this is just fucked up son. It's human skin.
+
+I fell. Sitting I held my head. Tears were pouring. I felt too bad. I'm tired of all this. Like someone is trying to drive me crazy. Me and Michael. Like we did something bad to someone.
+
+Michael continued talking:
+
+\-The skin is not just human. It's similar to Paola's DNA.
+
+I couldn't take it anymore. I just stayed silent and walked into the pawnshop. I took a sedative and gave it to Michael. He decisively washed it down with whiskey. And handed it to me.
+
+Both a little drunk. We gave ourselves just a tiny bit to breathe after the last 24 hours. We were supposed to grab my few things. Cordon off the building and go to Michael's. But already at the exit of the pawnshop we noticed.
+
+Someone was inside the pawnshop. Now. Or someone or something already left. We never understood. And we don't want to know. Right now we're sitting in my room locked up. We're too out of it after the alcohol.
+
+You're interested in how we realized someone was in the pawnshop? Very simple. In the very center of the pawnshop where the painting was hanging. All the wallpaper was torn off. There were scratches on the walls. The most noticeable ones were 2 stripes. They diverged to the sides like a bridge or horns. But it seemed like the third one was missing in the middle. Looking at the wall before instantly locking ourselves on the second floor we saw. That the wall was slightly broken through. The stone and concrete at the bottom of the wall were broken through. Like there was something there. Someone or something. Broke the wall. Took what it came for and left.
+
+But how..? Everything is intact. There were no signs of breaking in. Everything is closed and untouched. Only the wall and 2 lines. Sitting in the room in fear I looked at the window. It was open this whole time. But I remember closing it. And this meant only one thing And most likely someone got in here. Through it. Through the second floor. Just like me.
+
+SOMEONE WAS FOLLOWING ME. KNEW HOW I GET OUT.
+
+I got very nauseous. I went pale and Michael noticed it.
+
+\-Michael.. the window. I whispered.
+
+It was closed when we left.. The bathroom door. I never locked this door and it couldn't have closed on its own. We heard footsteps from the roof. Something made a noise in the bathroom.
+
+Our hearts were bleeding. Veins seemed to clench. We ran out of there like bullets. Michael and I fell down the stairs like something invisible touched us with its body or aura.. we fell, rolled down the stairs and fell on top of each other. Michael lying on the stairs yelled:
+
+\-SEND THE RAPID RESPONSE TEAM TO THE ADDRESS WE NEED BACKUP URGENTLY.
+
+We lay with an outstretched pistol for 10 minutes until the police arrived.
+
+I'm writing this sitting in a police car. I feel very bad and scared. And the creepiest thing. On the open window of the house. I see a small black box. And a note.
+
+Delivery.
