@@ -1,0 +1,316 @@
+My dad built the antenna out of two lengths of aluminum tube and some
+PVC he bought at Lowe’s for next to nothing. He bolted it to the chimney
+the summer I turned fourteen and told me that if I aimed it right and
+stayed patient, it would let us hear satellites.
+
+Dad said stuff like that about everything, so I didn’t believe him until
+the night we sat at the kitchen table with a cheap radio plugged into
+his laptop and the volume turned all the way up.
+
+If you’ve never heard a NOAA weather satellite, look up “NOAA-APT
+signal” and play the first result. It sounds like somebody is winding a
+clock in the next room. Tick tock, twice a second, with a wet metallic
+hiss underneath. The tick tock is what’s called a sync pulse, and the
+hiss is the picture. You record the audio while the satellite passes
+overhead, run it through a decoder, and it turns into a long strip of
+the Earth. The clouds over your house fifteen minutes ago, beamed down
+from hundreds of miles up by a machine launched before you were even
+born.
+
+Dad said the tick tock was the satellite saying, “I’m here, I’m here,
+I’m here!” He thought it was the most comforting sound in the world, and
+for a long time I did too.
+
+We did it for years: hurricanes, lake effect snow, the time a wildfire
+in Canada turned the whole strip gray. We printed our favorites and put
+them on the fridge. When Dad got sick, I set the laptop up in his room
+so he could hear the passes from bed.
+
+Dad died in March of last year, and that summer, NOAA shut down the last
+three satellites that still sent those signals. NOAA 18 in June. NOAA 19
+and NOAA 15 in August.
+
+I didn’t take the antenna down. I didn’t even turn the schedule off.
+Every night the laptop still wakes up at the old pass times, tunes to
+137.620 (NOAA 15’s frequency), and records for fifteen minutes. Fifteen
+minutes of nothing. My sister said it was like setting a place at the
+table for someone who isn’t coming. She wasn’t wrong, but I kept doing
+it anyway.
+
+________________________________________
+
+November 1st
+
+I checked the folder while I ate breakfast, like I always do. All of the
+files are the same size because static compresses the same way every
+night. For some reason, the 3:12 AM file was bigger. I put my headphones
+on and played it.
+
+Tick tock. Tick tock.
+
+I stood up from the table so fast I got lightheaded, and then I just
+stood there, because I didn’t know where I was going. I ran the file
+through the decoder. Clean signal, almost no noise. A front stretched
+across Indiana and Ohio, Lake Erie dark and smooth, a hook of cloud
+curling over Michigan. I pulled up the radar archive for 3 AM and it
+matched. The calibration wedges down the side of the image, eight gray
+steps from black to white, were perfect. Exactly how they’re supposed to
+look.
+
+Dead satellites waking up isn’t unheard of. There’s a ham radio
+satellite called AO 7 that died in 1981 and started transmitting again
+in 2002 when its batteries shorted the right way. I figured that’s what
+this was. NOAA 15 had found a way to say “I’m here” one more time.
+
+I posted the image on a satellite forum. Within an hour, a user named
+dopplrdan replied.
+
+“Cool image, but that’s not 15. Check your Doppler.”
+
+When a satellite passes over you, its signal shifts in frequency. Higher
+as it approaches, lower as it leaves. The curve tells you exactly when
+it was closest to you. Dan pulled my recording apart and showed me the
+curve peaked four minutes before NOAA 15’s closest approach. Wrong
+timing, wrong object.
+
+Then he posted a link to Space-Track, the government’s catalog of
+everything in orbit.
+
+There was a new entry. An analyst object, which is what they call
+something they’re tracking but can’t identify. Name: TBA - TO BE
+ASSIGNED. First observed October 31st.
+
+Same altitude as NOAA 15, but four minutes ahead of it. Dan checked
+every launch log he could find. Nothing went up on the 31st. In fact,
+nothing went up that whole week that could reach that orbit.
+
+“It’s like it found the old bird and parked in front of it,” Dan wrote.
+“Like it’s wearing its frequency as a mask.”
+
+________________________________________
+
+November 2nd
+
+The 3:12 file was big again, so I decoded it before I made coffee.
+
+It was wrong in a way I couldn’t explain at first. A normal APT image
+covers a strip about 2,900 kilometers wide, so you can usually see half
+the country in one frame. This one was narrower. Ohio filled the whole
+width, like it had zoomed in. Only problem is that APT can’t zoom. The
+resolution is fixed at four kilometers per pixel and has been since the
+seventies.
+
+The calibration wedges were wrong too. Instead of eight steps from black
+to white, they went black to white and back to black. Dan said that’s
+what they would look like if someone copied the format from a picture of
+a NOAA image without understanding what the wedges were for. Just
+reproducing the shape of them.
+
+Dan had his own receiver down in Knoxville, and he’d caught the same
+pass. His image was zoomed in too, his on Tennessee. I didn’t sleep much
+that night.
+
+________________________________________
+
+November 3rd
+
+This one was Columbus. It showed I-270, the outerbelt, as a thin gray
+ring around the city, and the Scioto River as a dark thread.
+
+Something else was wrong too. An APT image is built line by line as the
+satellite moves, so the picture scrolls north to south over the course
+of the pass. That’s how you get the strip.
+
+This one didn’t scroll, every line was the same patch of ground. Twelve
+minutes of the same square of central Ohio, with the clouds sliding
+slowly across it from west to east.
+
+It had stopped over Columbus and stared.
+
+I checked Space-Track. The object was still listed in a normal low
+orbit, moving at seven and a half kilometers a second like everything
+else up there. According to the numbers, it couldn’t have stayed over
+one city for twelve seconds, let alone twelve minutes.
+
+Dan’s image was Knoxville. Same thing. Twelve minutes of one city.
+Another user posted that he’d caught it in Wisconsin and gotten Madison.
+Then someone in Oregon got Eugene.
+
+Everybody listening got their own town.
+
+________________________________________
+
+November 5th
+
+I skipped a night. I told myself I wouldn’t decode the 4th…That lasted
+about a day and a half.
+
+The 4th was my neighborhood. I could make out the shape of my street,
+the cul-de-sac at the end, the retention pond behind the elementary
+school. The resolution wasn’t four kilometers per pixel anymore, it
+wasn’t anything close.
+
+The 5th was my roof. It took me a minute to recognize it, because I had
+never seen my roof from directly above. The shingles were a gray
+texture, the chimney was a small dark square. Sitting on the chimney was
+a thin bright V, two legs angled apart, pointing north.
+
+Dad’s antenna.
+
+At night, APT switches to the infrared channel, so warm things show up
+bright. The antenna shouldn’t have been warm, but it was the brightest
+thing in the frame, like it was glowing.
+
+I played the audio back to see if I’d missed anything, and that’s when I
+noticed the tick tock. It was slower. Not by a lot. You wouldn’t hear
+the difference unless you’d listened to a thousand passes like I have.
+But the rhythm was off, so I put a metronome app next to the speaker and
+counted.
+
+A real APT signal ticks at 120 beats per minute. Two lines a second,
+every satellite, every pass. The November 1st recording was 120. The 3rd
+was 96. The 5th was 71.
+
+I posted it to the forum, and Dan replied within four minutes.
+
+“Do you wear a watch to bed?”
+
+I do, it tracks heart rate. I’d never looked at the overnight data in my
+life, so I opened the app and scrolled to 3:12 AM on the 5th.
+
+71 beats per minute. On the 3rd, the night of the Columbus image, it was
+96.
+
+Dan said his matched too. He’d figured it out the night before and
+hadn’t wanted to say anything until he was sure.
+
+“The first pass was perfect because it was still copying NOAA,” he
+wrote. “After that it stopped copying the satellite and started copying
+us. It’s listening and playing back what it hears.”
+
+I’m here. I’m here. I’m here.
+
+________________________________________
+
+November 8th
+
+Dan posted his last image at 4:40 in the morning.
+
+It was his backyard in Knoxville, shot from straight above in infrared.
+A fence line, a trampoline frame, a patio, and in the middle of the
+grass, a small white shape. A person, foreshortened from directly
+overhead, so all you could see was the top of a head, two shoulders, and
+the little bright smudge of a face tilted up, looking at the camera.
+
+Dan’s caption was: “That’s me. I’m in bed. I haven’t been outside
+tonight.”
+
+That was the whole post. The next morning his account was gone. Not
+deleted with a “[deleted]” tag. Gone. His old posts, his replies in my
+thread, all of it, like he’d never been there. I messaged the
+moderators. One of them said he didn’t recognize the username and asked
+if I was sure I’d spelled it right.
+
+I had screenshots. I still have them. They’re the only proof I can find
+that Dan existed.
+
+________________________________________
+
+November 10th
+
+The object has a TIP message now.
+
+TIP stands for Tracking and Impact Prediction. Space-Track posts them
+for objects that are about to fall out of orbit. They list a predicted
+reentry time and location, with an uncertainty window that shrinks as
+the date gets closer. Usually the object is a spent rocket stage, and
+the window is “somewhere in the southern Pacific, plus or minus six
+hours.”
+
+The first TIP for TBA - TO BE ASSIGNED came out on the 9th. Plus or
+minus three days, along a ground track that crossed half the planet.
+
+The second was plus or minus one day. North America.
+
+The third was plus or minus four hours. The track went over
+Indianapolis, Dayton, and finally Columbus.
+
+This morning’s update was plus or minus one minute. The coordinates were
+four decimal places long, I didn’t need to put them into a map.
+
+The time was 3:12 AM. Things in orbit don’t reenter like that, debris
+doesn’t come down plus or minus one minute on a specific house.
+Something falling doesn’t know where it’s going to land.
+
+Something landing does.
+
+________________________________________
+
+Tonight
+
+I decoded last night’s pass. I know, I know, but I couldn’t help myself.
+
+It showed my backyard. The shed, the birdbath my mom put in, the back
+door, a dark rectangle. And in the middle of the lawn, a white shape,
+warm, looking straight up.
+
+I could tell it was me because of the jacket. It’s Dad’s old Carhartt, I
+wear it to take out the trash. In infrared it shows up a shade darker
+than skin, so you could see the shape of it, the hood down, the collar.
+I was holding something against my chest that glowed faintly.
+
+The laptop.
+
+I wasn’t outside when that pass happened, I was asleep, my watch says
+so.
+
+I don’t think Dan’s picture showed what was happening, I think it showed
+what was going to happen. It shows you where you’ll be standing.
+
+I went up on the roof at sunset and took the antenna down. I unbolted it
+from the chimney and tossed both aluminum legs in the garbage can…Then I
+pulled them back out, because they were Dad’s, and put them in the
+basement instead. I felt stupid about that, and I’m still not sure if it
+was a mistake. I unplugged the radio, put it and the laptop in the trunk
+of my car, locked it, and stuck the keys in the freezer so I’d have to
+work to get them back.
+
+I took off the watch and hung Dad’s jacket in the hall closet. Now I’m
+sitting at the kitchen table, the same kitchen table, typing this on my
+phone. All the blinds are down, and the back door is locked. It’s 2:58
+AM.
+
+I want to be clear. I am not going outside. Whatever the picture says,
+whatever it thinks it’s going to see, I’m not moving. I’ve had a lot of
+time to think about it, and I think I finally understand what it’s been
+doing. Every pass, it got closer. Every pass, it learned a little more.
+The format, the wedges, the tick tock. It looked at Earth from far away,
+then a city, then a street, then a roof. It knows what we look like from
+above now.
+
+What it doesn’t have yet is the other angle. Us, from the ground,
+looking up at it, recognizing it. That’s the last picture it needs.
+That’s why it showed Dan himself in his yard. I don’t think that was a
+warning, I think it was an invitation.
+
+3:06.
+
+The radio is in a locked trunk with no antenna and no power. It can’t
+receive anything, but I can hear it anyway.
+
+It isn’t coming from the car, it’s coming from the backyard. Soft and
+patient, like someone is winding a clock in the next room.
+
+It’s going exactly as fast as my heart, and my heart is going very fast.
+
+If I don’t update this, please don’t record on 137.620. Don’t decode
+anything you already have, and if one night you hear a tick tock out in
+the yard, don’t go see what it is.
+
+Don’t look up.
+
+3:11.
+
+Tick tock.
+
+I’m here. I’m here. I’m here.

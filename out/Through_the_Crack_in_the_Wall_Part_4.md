@@ -1,0 +1,221 @@
+reposting because I failed to meet the 24 hour period and it got taken down...
+
+I recommend you start this series from the beginning. I'm too tired with everything going on to post all the links, so here is part 3 and you can just backtrack through them: [https://www.reddit.com/r/nosleep/comments/1xlligr/through\_the\_crack\_in\_the\_wall\_part\_3/](https://www.reddit.com/r/nosleep/comments/1xlligr/through_the_crack_in_the_wall_part_3/)
+
+Friday was weird to say the least, at least up until its end. 
+
+I sat at the bottom of the stairs for an hour accompanied by a lone cricket before Randy and his brother showed up. It was my fault for being early, not that it mattered. Anything to get away from home for a while, the factory air kept the headaches away so I didn't mind. Randy’s brother was a bit younger than him, probably in his late teens still. It shocked me how alike they looked, more so than the fact this was my first time meeting him. Tall and white, with a scraggly ginger beard trying its best to grow. They even dressed the same, with matching blue hoodies and grey sweatpants. The only difference was that Manny(his brother), wasn’t wearing a beanie and had a full head of ginger hair on his head.
+
+“So, you wanna make the exchange now or after we head in?” Randy asked, pulling a ziploc bag out of his pocket.
+
+“Now’s good, you have no idea the week I’ve had.” I responded, pulling out a wad of cash. Nausea slowly began creeping in from withdrawal. We made the exchange and promptly shoved the new items in our pockets. He introduced me to his brother. We shook hands and traded greetings before I turned to Randy and asked, “So, what did you bring?”
+
+He pulled out a second bag from his pocket and dangled it in front of him on display. 
+
+“Acid? What’s wrong with weed or liquor?”, I asked, staring at the tabs resting limp in the bag.
+
+“Dude, trust me. I haven’t tried it yet but everytime we go in with something different it changes.” Randy quickly snorted the air. “Remember how it was different with the pot and the vodka? Well, I came here earlier this week and tried it with some of that good snow, and *woo!* Dude, I swear I felt superhuman. The art didn’t even matter to me, the rush was so heavenly!”
+
+Manny cut in. “So this place is actually real? You sure this dumbass can’t just handle his own shit?” He cocked an eyebrow in anticipation of a response.
+
+I cracked a smile before replying, “Yeah, it’s real alright. I don’t blame you for being the skeptic, especially when you have this idiot explaining it to you.” Randy sent me a face that just said “really” before reaching into the bag to reach for some tabs for each of us.
+
+*Buzz, buzz.* 
+
+Before he could hand them out, his phone whirred away in his pocket. “Hold up…shit, I gotta take this. Can’t believe I forgot…”
+
+He put his phone to his ear and started talking. “Hey…yeah, sorry I forgot. C’mon, can’t we do this tomorr…fine. Yeah,yeah, I get it…You’re gonna have to meet me here dude…you know that abandoned factory in the woods off that dirt trail? What, no I’m not *planning* on doing anything…then come armed dude, I don’t care. Yeah, alright, see you in ten. I’ll be up on the second floor.” 
+
+After he hung up I immediately interrogated him. “Don’t tell me you got a deal set up. I’m not sure I feel comfortable with someone else coming here.”
+
+“Don’t worry dude, I have the pot in my car. I’ll just run out to grab it and we’ll meet ‘em upstairs before we head in.”
+
+“You said they were coming loaded though. I don’t have a gun, and honestly I wouldn’t put it past you to have lost yours somehow.”
+
+“Don’t worry, she’s harmless. She’s only bringing it out of concern for her own safety.”
+
+She? I don’t know why I was surprised about her being a woman. Randy sold to all types of people, so it shouldn’t come as a shock. “Wait a minute, do you call EVERYONE dude?” 
+
+“Oh shut it. Here, both of you take one. I’ll be right back.” He said, popping a tab on his tongue before handing the ziploc bag to me. I popped one on my mouth and handed the bag to Manny. He put a tab on his tongue and handed it back to me.
+
+“Your brother is a moron.” I said, shoving the bag in my jacket pocket. “You’re not wrong there, but he’s my brother so I’m forced to love him.” I chuckled, and motioned him to follow me. I led him up the stairs, to the right, then another at the corner, before stopping us where the intersection would spawn. 
+
+Randy met up with us quickly with a third ziploc bag and maybe 8 minutes passed by before I heard footsteps trodding up the stairs. Once I saw who was approaching us, I was justifiably shocked.
+
+“Hey Jane, over here!” Randy shouted down the hall towards her.
+
+ “Just so you know, I did come bearing arms.” Jane shouted back towards us, brandishing a compact 9mm handgun. She seemed a little on edge, which was rational since we were just three guys standing alone in a dark abandoned factory. 
+
+“Jane? What are you doing here?” I asked as she got close to us.  Shock seemed to hit her too, but her shoulders relaxed a little upon noticing me. “John? You hang out with Randy?” She replied in almost a jeer. “Is this what you do, hang out with drug dealers in decrepit buildings?”
+
+The question embarrassed me a little. Jane was a small and skinny woman. Her dark brown hair never looked like it had seen a brush, which gave her a slight unkempt look. Despite this, I always thought she was cute. Which is why I always made it a habit to talk to her at work when I could.
+
+“Nah, I’m actually here for something else. I would try to explain it but, you’d probably think I’m crazy.”
+
+“Mhmm, is whatever it is the reason you’ve been ignoring me at work then?” She retorted. I didn’t realize she liked talking to me so much, and the thought filled my face up with a warmth that embarrassed me further.
+
+“Kind of, it’s just been a bad week for me.” I was quickly reminded of the experience I had the night before, and a chill ran up my spine.
+
+“Well you better stop it from now on, the days go by so slowly when you’re giving me the silent treatment.” She went to punch me in the chest before getting close to me. A sour expression went across her face before she backed up. “Oh, uh…”
+
+I was immediately aware of how unhygienic I came off as, a consequence of not taking a shower.  “Sorry, the water in my apartment building got shut off. Like I said, it’s been a bad week.” 
+
+“Hey not to interrupt here dude, but can we get this deal over with already?” Randy interrupted. Jane sighed and handed him 2 folded twenties. He handed her the small bag of weed and went over to talk with Manny. “So, what *are* you doing here? Are you a client of his?” She said staying a comfortable distance away from me. 
+
+“Yeah, but I’m not here to buy. Like I said, you wouldn’t believe me if I explained it to you.” A partial lie. “Well then, what’s your poison?” She asked. I shoved my hands in my pockets, and gripped the bag of black tar tightly. “I don’t really wanna talk about it.” She shot me a concerned look but ultimately decided not to pry. We stood in an awkward silence before I tried to break it. 
+
+“I didn’t know you smoke.” She smiled sheepishly before taking her time to respond. “Helps take the edge off a little. I guess it’s been a bad week for me too…” she stopped, caught up how she should form her next words. “My mom has been dealing with cancer, she’s had it for a while now. Unfortunately, chemo doesn’t seem to be helping her all that much lately, and it’s already hard enough on us financially. The only reason I work at that shitty burger joint with you is because I need the second job to support her, no offense.” Those words seemed to sucker punch me.
+
+“Wow, I’m sorry. You uh, never told me about that. Hopefully she pulls through.” I scratched an itch crawling up my arm as I tried to ignore the awkwardness of the conversation.
+
+She sighed and her eyes cast downward, “Don’t be, I honestly try not think about it. It wouldn't be so bad if my jackass of a brother would help out too, but he acts like he isn’t even part of the family. I guess he hasn’t been the same since...” I winced at the mention of her brother. She must’ve realized cause she immediately followed up. “Sorry, I forgot about that…” 
+
+Pins softly pricked me in the chest. She’s probably one of the only people I’ve ever told about Ricky. I don’t even remember why. Maybe it was because she was so easy to talk to or maybe it was because I had a crush on her. It’s crazy the things you’re willing to spill to someone you find attractive. Either way, it’s not like I told her much just that he passed when I was a kid.
+
+“What kind of cancer is it, if you don’t mind me asking?”
+
+Her voice softened. I could tell she did mind the question, but decided to answer anyway. "Breast. Stage two, bordering three. With a little time I’m hoping the chemother-“
+
+“Hey, yo what the fuck?!” Manny cut her sentence short. “What is that, has that always been there?!” 
+
+Randy laughed, way too proud of himself. “Chill little dude, this is what I’ve been telling you about.” 
+
+“No, no I’m not sure about this man.” Manny stated with a twinge of fear in his voice. “Calm down dude, trust me. It’s truly heavenly.” Randy shot me a look. “The gate has opened for us, you coming?” The corner remained as it always was for me.
+
+“Nah, the acid still hasn’t kicked in for me yet I guess.” Jane furrowed her brow upon hearing me. Randy simply shrugged and put his hand on Manny’s back to help lead him through the gate. The pair walked towards the corner, and without warning, phased through the wall. 
+
+“So that’s what it looks like from this perspective” I mumbled.
+
+Jane, expectedly, wasn’t nearly as nonchalant about it. She looked absolutely dumbfounded, and nearly tripped over her feet stumbling backwards in shock. “What just happened to them?!” She screamed. 
+
+“It’s okay just calm dow-“ 
+
+“Don’t tell me to calm down. They just walked through the fucking wall!” Her voice was colored in a mix of confusion, fear, and slight anger at my response. I didn’t blame her, it was strange for Randy and I when we found the gate and seeing someone pass through it on the outside certainly would’ve disturbed anyone. Trying to decide what words I should use, all I could think of was, “*This* is what we’re doing here. Honestly, I don’t even know how I’d describe the place other than it’s name: Paradise.” This didn’t help put her at ease. She was still in complete shock and was stumbling over her words.
+
+“What? P-Paradise? Wait, no I don’t know what’s going on here but I don’t want any part of it.” She turned away and was about to storm off before I stopped her. “Hold on, I’ll try to explain. Shit, so Randy and I were setting up a deal here last Friday when we got high off some doobie he brought and we found this extra hallway that led us to…I don’t know, some place.”
+
+Yeah, that didn’t really explain much, and honestly it would’ve been better to just let her leave. I was about to give it another attempt when I noticed the walls breathing. The acid was beginning to take effect for me. Looking at Jane, I noticed her face starting to swirl just a tad. “Listen, I’m going to go through. I’m not asking you to follow, but if you decide to, take one of these.” I pulled out the bag of acid tabs and tossed them to her. Her face was painted in what I can only imagine was a mix of worry and fear. “Have you taken acid before?”
+
+“Uh, yeah a few times in high school but I didn’t really like it. How are you acting like this is all normal?” There was even more confusion in her tone now. I didn’t really have a response to that, even now I wouldn’t be able to think of one. Maybe it was just one of its weird side effects, like once you’re in its web you simply accept it.
+
+I turned over to see the newly formed intersection. Big bubble letters in multicolored graffiti tempted me with the words: “Gate to Paradise”. I paced over to the crack, and with no hesitation, slipped through. 
+
+This time it was the craziest it’s ever been. The moonlight flashed multicolored light in beat to a muffled bass driven techno song. My mind was opened to exhilarating thoughts of happiness and I couldn’t help my foot from tapping to the beat of the song. Manny stood in front of me with his eyes bulging out his head and his mouth agape. 
+
+“Pretty cool, right?” I quickly spotted the words coming out of my mouth, forming a speech bubble in front of me. Randy was racing towards me from down the hall, accompanied with a new and most fantastical sight. Next to him was the green alien from our first night. He wasn’t on the wall or floor though, instead he stood in front of me, flat like a cardboard cut out. Now MY mouth was agape and my eyes were bulging. 
+
+“He's off the wall...” I simply said as Randy got and the painting got close. Randy laughed, “Dude, when I’m telling you I couldn’t believe it, well you get what I mean.” His words lingered in the air as a speech bubble before disappearing. “Also, I checked the timer, we have 58 minutes. I went ahead and set one for 55.” I honestly wasn’t even paying attention to him. I still couldn’t believe that a painting of a green alien had a somewhat defined form now and was standing right in front of me.
+
+“Well freak, are you going to keep staring or are you going to introduce yourself?” The alien said. His words came out as a speech bubble in front of him, and even though he didn’t make a sound I swear I could actually hear him. It was more like I imagined his nasally voice so vividly in my head that it was practically manifesting itself to reality. “That’s John, my idiotic friend. Don’t mind him, he’s what we call rude.” Randy said.
+
+I was so caught up in the shock that I completely disregarded his jab at me. Even for Paradise, this was a bit much. “Wait, I’m a freak?” Is all I managed.
+
+“Have you seen yourselves? You’re all weird looking, actually you’re hard to look at. Actually, you’re really hard to look at.” The alien said in the form of a fat speech bubble. Damn. I couldn’t believe a talking painting was gonna make me self conscious. “What is it we’re supposed to do here?” Manny said. His head had already started involuntarily bobbing to the rhythm of the song playing.
+
+“The only thing we can do. Party! The party is downstairs though, on account of the beast’s cage being located up here.” The bubble in front of the alien read. 
+
+“There’s a party downstairs?” I asked, rationality betraying me as I disregarded the second half of his sentence. 
+
+“Yeah! Let's go. Glip, yours truly, is going to bust it down on the dance floor!” I imagined his voice hitting a tone of excitement and I watched as his form awkwardly proceeded down the stairs. Exchanging looks with Randy and his brother, we followed his descent, but not before I took a quick glance outside. It was nothing but a void of neon lights bouncing off what looked like a mass of silhouettes bouncing to an unknown rhythm. In my stare, every thought melted away into pure bliss.
+
+I forgot about the ghost in my bathroom, I forgot about the strangeness of this version of Paradise, and I forgot about the outside world in its entirety. The only thought circling in my head was to have fun and party.
+
+The source of the music was obviously downstairs, as it grew much louder the closer we got to the open area. At the bottom, dozens of flat, cardboard cut-out of different characters gathered in a disco lit up by unknown light sources. Some of them twisted their flat bodies to look at us, mostly with disgust, confusion, or fear. After a few seconds though, they would shrug or look away before continuing to dance. The music was simply intoxicating, and at that point we were almost helpless to stop ourselves from getting into it. 
+
+Manny took to the floor first, busting out moves I didn’t think any relative of Randy was capable of. Randy whipped out all sorts of lame moves like the running man and shopping cart. I wasn’t even paying attention to what I was doing, but I’m sure my moves were just as lame. 
+
+The atmosphere was electrifying, the lights painted the room in a brilliance that couldn’t be described, and each dance I performed seemed to expunge no energy. The characters that were a part of the party took many shapes and sizes, reflecting tons of distinct art styles. It was a rave that could only find itself in a dream, but we were taking part in it in a reality that simply shouldn’t exist. We danced and danced, waving our hands amongst the odd shapes of the crowd. Amongst the crowd, I noticed the odd ways these 2-dimensional beings moved to simulate dance. Some of them were uncanny, some made sense, and a small few twitched violently with pained expressions on their faces.
+
+It never dawned on me just how bizarre of an experience it was while in the moment, I simply didn’t have full autonomy of my brain.
+
+Eventually, Manny started a dance competition against Glip in the center of the room. A crowd formed around them as they began. A photorealistic dog and a shark in a baseball cap cheered Glip on as he awkwardly shifted and bent  to do what moves his limited form would allow. The crowd would spontaneously break into a chant of his name, voices of a large crowd materializing with the huge white bubble that would pulse above them. Whenever Manny would start, his brother would be the only to cheer his name, even if he was objectively the better dancer. Tired of the spectacle, I went over to rest at the top of the stairs. 
+
+After a few more attempts, Glip was almost unanimously declared the victor and Manny went to shake his hand. Glip reached out but the second they made contact, he whipped his hand back like he’d been shocked by electricity. Randy made a poor attempt to moonwalk over to me, plopping next to me on the stairs once he got close.
+
+“This is wild, dude.” He said, staring off to the crowd. “Probably the best one yet.” 
+
+“Yeah, it certainly is something.” I mustered back. 
+
+“Hey, thanks for letting me bring him along.” His voice had suddenly become serious, “from what I hear, it’s been getting rough at home and I think he really needed this.”
+
+“He needed a dance battle against whacky cartoons?” My poor attempt at a joke.   
+   
+He cracked a partial smile, but his face quickly became stern before he continued. “Listen, I just think he needed to get out for a while. Have some fun, y’know? Our piece of shit dad didn’t even care that he left the house without a coat.” He let out a long exhale looking off as if he was afraid to make eye contact with me. I had never seen this side of him. Even in high school, I had always known him to be the class clown, the kind of guy who’d make jokes to lighten the mood when necessary.
+
+“I just wish I gave him that sweatshirt because it was cold outside and not because I couldn’t stand looking at the bruises on his arm. I’d try to take custody of him but it’s just not possible. Hell, you know better than anyone that my van is not suited for two people living in it. That’s not even mentioning the drug possession charge on my file.” 
+
+His words nearly sobered me up. When I was 19, I had my first overdose. My mom came bursting into my room when she heard me choking on my own vomit in my sleep. She rushed me to the hospital when she found I was unresponsive and my lips and nails had almost turned blue. When my dad found out what happened, he kicked me out of the house. I still have pains in my neck from having to sleep in the front seat of Randy’s van for a year. 
+
+For the first time, the illusion of heaven we were in was beginning to break and thoughts of Ricky began to creep up on me. 
+
+“I don’t know how he keeps weasling his way out of the tips to CPS I’ve been sending.’..”
+
+I desperately tried to change the subject, maintaining the facade of bliss that was trying to course through me. A shitty thing to do, but far from the worst thing I’d do that night.
+
+“So, what was cocaine like here?” Randy’s face remained stern as I asked. The question seemed to rest on him for an uncomfortable amount of time before his face lit up and a dopey smile creeped along his face. “It was absolute euphoria dude. When I say superhuman, I mean I felt like I was in some time dilation or something. Even the timer itself seemed to tick down slowly. “ 
+
+“So, kinda like you had super powers?”
+
+“Yeah, I guess. If that's how you wanna describe it.”
+
+This statement made me wonder what version of Paradise my poison could bring. “Hey, how much longer do we got by the way?” I quickly followed up. He slid his phone out of his pocket and took a quick glance at it. “Shit, only 10 minutes. Were we really dancing that long?” I shrugged and looked down to see Manny still have the time of his life. To my surprise, most of the characters had already dispersed and disappeared without me realizing. Glip was hopping on over to us with two new characters at his side. A nun that looked like she had been ripped out of a Popeye cartoon, and a hooded figure that had the 8-bit appearance of a retro video game character. 
+
+“Hello, freaks. Just wanted to say that your friend there is pretty good, just not Glip good.” I rolled my eyes upon reading this. “Also my buddies here are trying to settle a debate so I thought we’d just come and ask you straight up.” 
+
+The nun spoke first, I imagined her voice as a young woman with, for some reason, a Boston accent. “Are you angels? You three must be because you look otherworldly.” 
+
+I traded confused looks with Randy before answering, “No we’re not angels.” 
+
+“See, I told you. They’re demons here to cause little mischief.” The hooded figure responded. His voice came to me as a Transylvanian accent speaking through a walker talkie. 
+
+“No, we’re not demons either dude.” Randy said, almost laughing. 
+
+“There, you both got your answers. They’re just freaks, so let’s bounce already. You three should probably get going now the party is ending. You don’t wanna be around when the beast’s cage unlocks. Or stay, might do your looks some justice.” With that, the three characters hopped past us and disappeared. 
+
+I was reminded of the Gatekeeper, and turned to Randy to ask, “Did you check the Gatekeeper? He isn’t off the canvas like them is he?”
+
+“No, he isn’t. I didn’t go into that creepy ass hallway like you did, but when I looked down it seemed like he was etched on the wall like always.” This bit of news comforted me a little. Maybe the drawing was more of a bluff than anything, not that I’d ever stick around to find out. By then, all of the characters had disappeared and Manny laid sprawled out on the floor with a big smile on his face. The music that was playing had already faded into the low rhythmic hum that was present the first night.
+
+Suddenly, I was alerted to the faint sound of footsteps coming from the gate down the hall. To my surprise, it was Jane. I shot up when I saw her, rushing toward her to usher her in.
+
+“Hey, you actually decided to come.” I said with a little too much excitement.
+
+She grasped her forehead with her hands and a pleasured smile began to twist on her face. “Whoa, okay. Yeah, I see why you guys would come here.” She stopped dead in her tracks, overwhelmed by the sensations this place brought, before collecting herself and letting out a relieved sigh. “*Phew,* that is…something. I-I can’t even describe this feeling.” 
+
+“Pretty amazing right, and you just missed the best part!” I sounded pretty proud of myself.
+
+“I’m not going to pretend to know what that means, but I’ll definitely say I like *whatever* this is." Her face was an expression of dopey joy that I can’t say I’ve ever seen her share. Her time was cut short though because-
+
+*Buzz, buzzz*
+
+Randy’s phone had begun whirring in his pocket. He pulled out his phone and faced it towards me to show that the timer was going off. 
+
+I was immediately faced with disappointment. “Well I hate to break it to you, but we gotta leave.”
+
+Jane frowned in a way that reminded me of a child who was told they couldn’t get candy at the grocery store by their mom. “What? But I just got here.” She seemed even more disappointed than me.
+
+“We’re on a timer here, and if we don’t leave the gate might close so we need to head out.” To this day, I’ll never understand why I lied to her. It would’ve been so much better if I hadn’t. Even if I didn’t fully understand them myself, I should’ve at least tried to warn her of the repercussions of staying too long.
+
+I went to usher her out when she backed off and said, “Hold it there smelly, I can leave on my own.” With that, she made her exit and I walked down the stairs to help Randy with his brother. He was struggling to lift him up as Manny fought back against him with a pathetic struggle. 
+
+“Dude, help me with his legs. He won’t listen to me.” Concern was strewn all across his face and  he kept glancing over to the stairs with an increasing worry that was spiraling into a frenzy. I wasted no time in getting over to Manny, who was mumbling about something about staying forever while being dragged slowly towards the stairs. 
+
+I hoisted him up by the ankles and we struggled to carry him up the steps. I was carefully trying to gauge our time, the stairway felt more and more like a mountain with each slow labored movement we made to climb towards its peak. Slowly, and carefully we lugged him up. He finally quit his struggle after a while, and he passed into a sleep. We were beginning to make steady progress.  
+
+But we were only halfway up when the hum faded away, signaling the 1 minute mark of the timer. A wave of drowsiness hit me all at once, making my limbs go numb and giving me an uncontrollable vertigo. I couldn’t help it when I lost my grip, and his feet plummeted down against the concrete, forcing him out of Randy’s grip as well. He slid down a quarter of the way of the stairs, his head knocking with a hollow thud on each step. 
+
+“What the fuck dude?!” Randy shouted. He shoved me in a rage, nearly pushing me down the stairs but I miraculously found my balance just in time. 
+
+“I’m sorry, I’m sorry, the comedown just hit me all at once.”
+
+“Hurry up and help me get him! We don’t have any time left.” He practically was spraying spit out his mouth when he screamed at me. Blood was trickling down the back of Manny’s head onto the concrete beneath him. Time was desperately running out and we needed to get him out right then if we were going to make it.
+
+It didn’t matter though, before I could reposition myself the world was already drained of its color.
+
+I’m so sorry, Randy. I’m so sorry, Manny. I’m a piece of shit, I know, and no amount of good I could ever achieve in my lifetime will ever make up for it. You don’t have to forgive me. I know I’ll burn in the deepest pits of hell for what I did. 
+
+The fear overtook me and I ran. 
+
+Even when you screamed at me through sobs to help you. Even when I heard the crackling of fire and the swarm of locust, I never looked back. I just slipped through the crack alone.
+
+My only solace in sharing that trip with you is that no ghost lay waiting for me in the bathroom that night. I think I sat in the shower for hours thinking about what I’ve done. It had to be, because I only got out when the water turned cold. My shame is only amplified by the fact I visited paradise the following day, as if nothing happened. And the only crime I’ve committed that wracks me with more guilt than the injustice I’ve committed against you two, is the one I foolishly let happen the following week.

@@ -1,0 +1,145 @@
+[Part 1](https://www.reddit.com/r/nosleep/s/ZFnGQvoo5m)
+
+Before I begin, I want to thank everyone who reached out after my last post. I honestly wasn’t expecting so many people to take an interest in what happened to me, let alone offer their support and share their own experiences.
+
+I’ve spent a long time discussing these events in therapy only. Even now, it’s difficult to put some of these memories into words. But reading your messages has made me feel a little less alone. It’s also given me the courage to open up more about these experiences.
+
+Some of you reached out and asked me what happened after that first night, and I want to answer that question. This is what happened after the Man forced me to answer another one of his riddles.
+
+I was so paranoid about leaving my bed that I didn’t dare move. Not even when the sunlight began peeking through my curtains. My eyes remained fixed on the closet door, waiting for something to happen. But nothing ever did. 
+
+I’m not sure how long I stayed there. Eventually, the familiar smell of freshly baked cinnamon rolls began drifting into my room. I could never resist those. Before long, I emerged from my room, drawn out by the promise of something sweet.
+
+I headed downstairs toward the kitchen where Mom and Dad were already waiting for me.
+
+"There's my girl," Mom said. "I made your favorite."
+
+I smiled and took my seat at the table. Mom brought over a plate piled high with cinnamon rolls, each one coated in a generous layer of icing that had begun melting into the freshly baked dough.
+
+"Now, before you eat, your father and I wanted to talk to you about something."
+
+Suddenly worried that I had landed myself in trouble, I turned to her.
+
+"Why don’t you take the day off from school? You've had a pretty rough couple of days. I think you deserve a little time to rest."
+
+I wasn't about to argue with that. “Thanks, Mom.”
+
+"We can call your teacher and let them know you'll be staying home," she continued. "You just need to relax today, okay? No worrying about school or anything else."
+
+Dad, seated opposite me, chimed in. "Besides, I think your mom and I could use a little more time with you. We don't want you pushing yourself too hard."
+
+"Okay!” I eagerly reached for one of the cinnamon rolls.I could practically taste the icing as I brought it to my mouth. I was already drooling. Wait…I was.
+
+I looked down. Hanging over the edge of my chair in a glistening heap, was a massive, pink tongue. It was colossal, far too large to have come from my mouth. Saliva dripped from its surface, pooling on my clothes before trickling down the fronts of my legs. 
+
+I let out a distraught yell and dropped my cinnamon roll. My flailing was enough to catch Mom and Dad’s attention.
+
+“Kayla, what’s the matter with you?” Dad asked.
+
+“My tongue! My tongue!” I knew exactly what I was trying to say, but the words came out in a jumbled, unintelligible mess. My mouth felt foreign to me, like a beehive had taken up residence inside it.
+
+“You have to be careful when you eat like that,” Dad advised, picking up a cinnamon roll for himself.
+
+Mom walked back toward the table. “Were they too hot?”
+
+What? Why weren’t they freaking out like I was?
+
+“No!” I cried, pointing hysterically at the gigantic, salivating appendage on my lap. “My tongue!”
+
+Mom looked down, then back at me with a perplexed expression. “What are you talking about?”
+
+Dad appeared just as baffled. “Kayla, your tongue is fine.”
+
+Had they gone completely psycho, or had I?
+
+I looked down at my lap once more, but the giant tongue was nowhere to be seen. Gingerly, I opened my mouth and stuck a finger inside. My teeth, my gums, my tongue… not a single thing seemed out of place.
+
+I pulled my hand away and stared at it, shaking. Mom and Dad looked on with worry, but there was something about their expressions that made me uneasy. 
+
+Confused by their reactions, I abandoned my breakfast and ran toward the bathroom. I could hear my parents calling after me, but I didn't stop until I was inside. I closed the door behind me and locked it. For the next several seconds, I leaned against the door, breathing heavily.
+
+I was afraid of what the mirror would show me, but I needed to see for myself.  After mustering the courage to do so, I turned toward it. The moment my eyes landed on my reflection, I saw my tongue hanging out of my mouth.
+
+It dragged across my chin, pulsing and wriggling as it continued to grow. Underneath the bathroom lights, thick strands of gossamer slobber stretched between it and my lower lip. 
+
+I stumbled backward toward the bathtub, grabbing the writhing mass with both hands and attempting to shove it back inside my mouth. But it wouldn’t stay. It was like pushing an entire garden hose through a keyhole. Every time I managed to push one section back, another would force its way out. My hands quickly became drenched in spit.
+
+It slipped through my fingers and spilled onto the bathroom floor, unfurling like a hideous flower blooming in reverse. Slushy, muffled noises gurgled through my teeth as the sheer weight of it brought me to the floor.
+
+Through the chaos, I heard a knock coming from the other side of the bathroom door.
+
+“Is everything alright?”
+
+Dad. I tried answering him, but all that came out was a horrible, waterlogged squeak.
+
+"Kayla?" I could hear the concern in Mom’s voice. "Honey, what's going on? Talk to us."
+
+I couldn't. All I could do was lie there, anchored to the floor by its crushing weight.
+
+"Kayla, sweetie, can you unlock the door?"
+
+The lock was only a couple feet away. With all the strength I could muster, I dragged myself across the floor. My tongue trailed behind me, leaving a glossy trail of saliva across the floor. I reached up, grabbed the lock, and twisted it.
+
+The door opened right away. Both Mom and Dad hurried inside and knelt down beside me.
+
+"Oh, Kayla..." Mom wrapped her arms around me, pulling me against her chest while Dad looked on.
+
+In the minutes that followed, my parents didn't press me for answers. My tongue had disappeared again, and aside from the saliva covering my clothes, there was nothing to prove my side of the story. Rather than ask me questions, they helped clean me up and brought me into the living room. 
+
+Mom walked into the kitchen while Dad sat me down on the couch and turned on the television. After putting on one of my favorite cartoons, he joined her.
+
+I couldn't bring myself to pay attention to the show. I was still trying to make sense of what had happened when I heard my parents speaking in hushed tones. Although they were careful to keep their voices down, I could still make out nearly everything they said over the television.
+
+“She’s scaring herself. She’s scaring me. I…I don’t know what to do anymore.”
+
+"I know, but we can't keep watching her go through this. Something is wrong."
+
+I heard Mom sniffle. “What do we do?”
+
+My dad sighed. “I don’t know.”
+
+I didn't know either. It was bad enough that I couldn't feel safe at home, but now I couldn't trust anything inside it. And when night came, that fear only grew.
+
+I refused to sleep. Every light in my room stayed on: the ceiling light, my bedside lamp, the little lamp on my dresser, and even the night-light my dad had finally picked up from the store. I wanted to make sure there was absolutely nowhere for him to go.
+
+My closet was closed. I made sure of that. In fact, I'd taken things a step further and pushed my toy chest, full of stuffed animals, against the closet doors. I even wedged a couple of pillows underneath the handles.
+
+If he couldn't get out of the closet, he couldn't get me.
+
+“Just stay awake.” I repeated those words over and over.
+
+I colored in my books and played with my toys. Whenever I caught myself yawning, I'd slap my cheeks or pinch my arms to stay alert. I even started talking to myself to make sure I didn't drift off.
+
+As the hours passed, my eyelids grew heavier and heavier. My toys began looking blurry, and the shapes in my coloring books started overlapping. The last thing I remember doing was glancing at the clock on my bedside table. I looked at it again, and then…nothing.
+
+At some point, I must have fallen asleep, because when I awoke, all the lights were turned off. Every single one. I sat up. The room was completely dark. 
+
+Squinting into the shadows, I noticed the closet doors stood wide open. The toy chest had been pushed aside, leaving an unobstructed path between the closet and my bed.
+
+I was stunned. There was no sign of the Man. I couldn't see him anywhere. Was he here? I waited for my eyes to adjust so I could make out my surroundings. My dresser. My bedside table. My toys. A light. A light? 
+
+At first, it was hardly noticeable, like a tiny pinprick of light in an otherwise endless gloom. But it grew. And grew. And grew. It grew until the shape of a head looming above my bed came into view. Against my better judgment, I looked up. And there he was. 
+
+The Man. 
+
+His deformed, melted face loomed over me, his glowing eyes casting an eerie light in my direction. He hadn't simply enveloped my room. He had become it. The walls, the ceiling, the corners…they were all him.
+
+“I crack when I’m weary and tingle when I’m scared. What am I?”
+
+"I won't answer." In my mind, I had sounded a lot braver. In reality, my voice was little more than a shaky mumble. My childish cowardice only seemed to fuel his amusement.
+
+“I crack when I’m weary and tingle when I’m scared. What am I?” his voice reverberated from deep within my bedroom walls.
+
+I shuddered, raising my hands to shield my face. "Please...no."
+
+The fingers slowly extended from my mouth, reaching toward my face. They hooked into the corners of my mouth and pulled it open. I thrashed about, but the more I resisted, the firmer their grip became.
+
+“I crack when I’m weary and tingle when I’m scared.” he said again, "What am I?"
+
+I barely managed to push the word out. “The spine.”
+
+That was enough to stop the hands. As the shadows began to recede, the Man's face dissolved into the ceiling like smoke dispersing into the air.
+
+The room brightened, and everything returned to how it had been before. All my lights were on. My closet was shut. The toy chest hadn't been moved. Nothing appeared disturbed.
+
+The spine? That was the answer? What was going to happen to my spine?

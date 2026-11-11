@@ -1,0 +1,104 @@
+When I was little, I didn't have the best parental figure.
+
+My parents died when I was five. Car crash. They passed away almost instantly, so it kind of brings me comfort knowing that they didn't go through much pain.
+
+The state decided that the best place for me to go was my aunt's residence, as she was my only surviving blood tie. So one winter morning, I was accompanied by an officer, and escorted to my aunt's home. It was pretty standard, with nothing too pleasant about it, but nothing overly negative about it either.
+
+I walked up to the door, with my bag carried by the same officer. I rang the bell, and that was the first time I met my aunt.
+
+Now looking back at it, my aunt was probably your average drug-addict. She had eyes that were so sunken back, It seemed her head would just swallow them.. Her teeth was a nasty shade of yellow. Her skin was so wrinkled, it seemed almost like melted plastic. That's how I saw her as a kid. Now thinking back on it, my aunt didn't look *that* bad. But she looked bad.
+
+"What do you eat? Chocolate or something?"  
+I didn't know how to respond. I'd never been talked to like that. All I could do was shake my head or nod. So I nodded. She gave me a chocolate bar, and I ate it quietly.
+
+She wasn't really friendly when I came to her at first. Naturally, you might assume that she warmed up to me. Nothing of the sort happened. She remained distant and uncaring towards me, and I think I learnt the useful skill of making my own food at the age of 7. I want to emphasize that a child should never have to do everything by themselves simply because those that are supposed to take care of them simply cannot care less.
+
+I think it was when I was nine that she started to hit me.
+
+I accidentally broke her CD player. I wasn't looking where I was going, and I bumped into it. It fell and make a crunch kind of a sound when it hit the wooden floor. When she came down, she went into a rage that I still can't really make sense of today. She shouted at me, saying words I don't really want to repeat. I wasn't reacting the way she wanted me to, so she slapped me.
+
+I know what some of you might be thinking.  
+*Slapping a child is justified sometimes when they do something wrong.*  
+I don't disagree. I know some parents that slap their children because all they're trying to do is teach them a lesson. They don't mean to hurt them.
+
+I know my aunt wanted to hurt me because I was on the floor within a few seconds. My ear stung, and my aunt was still shouting.
+
+I officially didn't feel safe at home anymore that following month.
+
+My aunt would hit me more and more for things that weren't eve that bad, like *not cleaning the dishes the right way,* or *not getting the right kind of oregano.*  
+If it wasn't clear, I was now responsible for the shopping and other chores.
+
+As the years went on and on, I was doing worse and worse in school, and when I was 14, I genuinely stayed up one night considering suicide.
+
+That was the night I met Timothy.
+
+It was around 3:00 in the morning. I couldn't sleep, and was contemplating cutting my wrists, when I saw a shadow. This shadow caught my eye because it wasn't a normal shadow. It was stretched too thin, and didn't really look like an object.
+
+Then, almost as if hearing my own thoughts, it began to form into a tall, bulky humanoid shape with pure-white eyes.
+
+Honestly, I should've screamed. But I had been trained so much by my aunt's unfriendliness that I didn't really care what that thing was there to do.
+
+I expected to swallow me whole, or dismember me, but in a deep, booming voice, it rung out:  
+*"How come you're not scared of me?"*  
+This thing sounded friendly (to an extent), so I said:  
+"I know worse things than you. What exactly are you?"  
+*"I'm the monster that lives under your bed. But you can call me Timothy."*
+
+So it had a name. *Timothy.* Interesting. But before I could say anything, my aunt's footsteps were audible from outside the door. Timothy slipped into the darkness, and I pretended to be asleep. Eventually, she went away, but I didn't hear from Timothy again.
+
+It was maybe a few days when I saw him again.
+
+Like last time, it was early morning, and he came from an oddly shaped silhouette.  
+I asked him almost immediately:  
+"Why are you here? At my house, I mean."  
+*"Isn't it obvious? To help and protect you."*  
+"From what?"  
+*"Your aunt, genius."*
+
+I had so many questions. Why would a monster want to help me? And if so, how exactly would they help me. But I wasn't really complaining. I had someone to finally talk to.
+
+Over the next few nights, I asked him everything I could, and he told me everything about himself. How his role was to protect children who couldn't protect themselves.  
+How he didn't remember anything before his duty.  
+How he couldn't save one kid.
+
+"How come you couldn't save her?"  
+*"I wasn't focused. Eventually, her dad came in the room, and I couldn't react in time to save her. He hit her hard. Way too hard".*  
+"That's messed up. Did he go to jail"  
+"*I don't know. I moved on to the next kid and made sure that they were protected. Properly. You're the first kid I've talked to in a long while".*  
+\*"\*And you're the first person I've been able to talk to since forever".
+
+It was true. I was able to open up to him more than anyone else in my life. It was like having a big cushion behind you at all times. It made you feel safe and warm, and all those other feelings. I didn't ever want to lose Timothy,
+
+August 16th, 2006. That was the last day I saw my aunt. I think I had been excited to see Timothy again, and like usual, I wasn't looking where I was going. I broke my aunt's favorite vase.
+
+That apparently settled the fact that my aunt was going to kill me.
+
+She came running down. She was still as ugly as usual, with her teeth having now fallen out and clumps of hair having gone missing. She looked at the shards of her vase, and then looked at me with eyes with an evil not even a demon would've had.
+
+She lunged at my throat, and began to strangle me.
+
+I began to choke, and spots of white began to appear in my eyes. I tried to scream, but nothing came out. I really thought I was going to die when black covered my vision.
+
+The next sound that entered my ears was a scream. Not just any scream. A bloodcurdling scream that radiated with fear and terror. My vision returned, and I could see my aunt being held in the air by Timothy. She was screaming and flailing, but nothing was happening. Timothy looked me in the eyes, and I saw a raw mixture of feelings.
+
+The hatred of my aunt.  
+The relief that I would finally be safe.  
+The sadness because he wouldn't be able to see me anymore.
+
+He looked ahead, and dragged my aunt out of the door. I called 911, saying my aunts had gone missing, and that I had no clue where she was.
+
+A few days later, they found her body. It was an absolute mess, so I heard. There were limbs all over the place, and her head had been brutally crushed.
+
+Eventually, the police had found out about my ordeal under my aunt. I got some professional help, and pretty soon, I had completed my education and gotten a well-paying job.
+
+I have a family now. A beautiful wife and a daughter, whose about to turn six. My life cannot be better right now.
+
+I wish I could meet Timothy one last time. My thankfulness would be overflowing. I owe all I have to him. Else I would probably be dead.
+
+My daughter is scared of the dark. She's scared of the monsters that might be there. I know most of you parent would probably say "There's no such thing as monsters". I don't say that.
+
+Instead, what I like to say is this.
+
+"If there is a monster, it's not there to hurt you. It's there to watch over you and protect you. So really, this monster is your friend."
+
+And in the dark, I can imagine Timothy smiling and going off to protect his next child.

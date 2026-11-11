@@ -1,0 +1,551 @@
+I lied about how long I sat in my truck. That was the first thing I
+changed when the investigator asked me what happened at Hartwell
+Packing, and it’s the one thing I still think about whenever somebody
+calls me brave. They say I went back into a burning factory and helped
+two women get out. I did. My coat was ruined, my lungs were full of
+smoke, and I spent a night in the hospital. None of that changes the
+fact that I’d sat in the parking lot with the heater running, trying to
+decide whether to go home. I’d known the emergency exit was chained shut
+since the night before. I knew people were working on the other side. I
+didn’t know a man named Ben was going to die, but I’d been warned enough
+times to do something. I chose not to, until I saw Nora at a window and
+finally got out of my truck. The smoke came after.
+
+It was November 1996. I was forty-one and taking whatever maintenance
+work I could get around western Pennsylvania. I’d repaired washing
+machines for years, then moved on to bigger equipment when the money got
+better. We weren’t starving, but we had a mortgage, an old truck that
+needed brakes, and a daughter who was sixteen. My wife worked part-time
+at a grocery store. When a man called and offered me two hundred dollars
+a night to inspect machinery at a meatpacking plant that was closing, I
+said yes. His name was Martin. He said the job would take four nights. I
+asked if the building was still operating. He said a small crew was
+finishing the last orders and the rest of the equipment would be taken
+away before the property was sold.
+
+Hartwell Packing stood beyond a freight yard and a row of empty
+warehouses. It was a big old building with loading docks at the back,
+dirty upper windows, and a brick chimney nobody seemed to use anymore.
+Martin met me Monday evening in an office near the loading bay. He was
+in his late fifties, neatly dressed, with a watch he looked at every few
+minutes. He gave me keys to the maintenance rooms and showed me which
+motors and electrical panels needed checking. Before he left, he pointed
+to a corridor with two heavy doors at the far end. A chain ran through
+the handles. He said the east wing had been closed since 1982, after a
+refrigeration accident killed three workers. He told me not to go in. I
+asked whether the power was disconnected. He said it had been shut off
+years ago.
+
+I spent Monday checking a conveyor drive, replacing a switch and trying
+to loosen bolts that hadn’t moved in years. A few men were loading
+frozen boxes onto a truck. There was also a security man called Alan, a
+large fellow with a gray mustache who asked whether Martin had told me
+to stay away from the east wing. I said yes. He asked again, just to
+make sure. I remember that because he didn’t seem concerned about any of
+the other rooms I was working in. I went home around two in the morning
+and didn’t think much more about it.
+
+Tuesday night I heard voices behind the chained doors. First there was
+the sound of equipment running, then somebody laughed and a man told her
+to get back to work. I stood there listening for a minute. The padlock
+was new, and there were fresh marks on the handles where the chain had
+rubbed away the paint. Somebody was opening those doors regularly. I
+called Martin from the office. He said a temporary crew was clearing old
+stock from the storage rooms. I reminded him he’d said the whole wing
+was shut down. He told me the processing lines were shut down, not every
+room, and asked whether I’d finished my motor inspections. I hadn’t. He
+said to get on with them.
+
+An hour later I found a new power cable running into the east wing.
+Whoever installed it had done a decent job, but the old fire alarm
+circuit had been taken out of service. There was a bypass switch where
+the connection should have been. If a fire started in the east wing, the
+main alarm might not sound. I wrote down the panel number. Alan came in
+while I was checking it. I showed him what I’d found and told him it
+needed fixing if people were working in there. He said Martin already
+knew. I asked how long it had been that way. Alan told me everybody
+would be out by the weekend, so I should stop worrying. I said a fire
+wouldn’t wait until the weekend. He didn’t like that. He stood in the
+doorway until I packed up my tools.
+
+I drew the circuit in my notebook because I wanted to be certain. A new
+supply could be fitted for temporary work, but that didn’t explain the
+alarm. Someone had deliberately taken the two alarm wires out and capped
+them. I could have put them back if I’d known what detectors were still
+attached at the other end. I didn’t, and joining wires blindly in an old
+building is a good way to make trouble. I wrote NEEDS TEST BEFORE
+OCCUPANCY in block letters, with the date beside it. It was the sort of
+note that should have forced me to stop the job. Instead I told myself
+it belonged on Martin’s desk. I left a copy of the panel number on the
+maintenance office clipboard. When I checked the clipboard Thursday,
+that page was gone.
+
+The next night a woman came into the maintenance room wearing a white
+plastic apron over a dark sweater. She had a red mark on her nose from a
+face mask. She asked if I could open the emergency door beside the east
+loading bay. I asked what was wrong with it. She glanced behind her
+before saying it wouldn’t open from inside. Alan appeared a moment later
+and told her to get back to her station. She said she’d been looking for
+the bathroom. He watched her walk away, then told me she complained
+about everything. Her name was Nora. I didn’t say anything else to him.
+Before going home I went around the outside of the building and found
+the exit. A chain held the door handle to a steel post. The door would
+only open a couple of inches, even if someone pushed the bar from
+inside. I knocked and a man answered. I said I was maintenance and
+wanted to check the door. He asked if Alan had sent me. When I said no,
+he went quiet. Then he told me to ask Alan why it was locked.
+
+Alan said the chain stopped people stealing company property. I told him
+that wasn’t a reason to block an exit. He said the crew had another way
+out and reminded me I wasn’t a fire inspector. I could discuss it with
+Martin on Thursday. I was tired, and I wanted to get paid, so I wrote
+another note in my book and left. That is the part people don’t like
+hearing when I tell them the truth. Nobody needed to convince me the
+chain was dangerous. I’d pulled on the door myself. I went home anyway.
+
+Martin called Thursday afternoon. He was friendly this time. He said the
+crew would finish its last shipment that night, the doors would be
+unlocked, and I could inspect the old electrical equipment after
+midnight. He offered an extra hundred dollars if I completed the final
+forms. I said I wouldn’t sign anything I hadn’t seen. He said that was
+fair. When I arrived he handed me coffee and a folder of inspection
+sheets. I brought up the exit again. He said the chain would come off
+once the shipment was done. I told him it should come off now. He said
+people were removing valuable stock and he wasn’t having any more
+arguments about theft. I should’ve walked out then and called the fire
+department. Instead I took the coffee and went to work.
+
+Alan unlocked the double doors just after midnight. The east wing wasn’t
+a storage room. It was a working meat line. About a dozen people were
+packing meat in plastic bags and cardboard boxes. One man was scraping
+old date labels off frozen packages while a woman stuck new labels on.
+The room smelled of cleaning fluid and meat that had been stored too
+long. The overhead lights were yellow, and stacks of packing material
+stood close to the conveyor motors. Alan saw me looking at the labels
+and said the crew was sorting stock for disposal. I asked why they were
+printing new dates if it was going to be thrown away. He said to do the
+electrical inspection and stay out of it.
+
+The wiring was newer than I’d expected. The old equipment was running
+through a temporary supply, but the fire alarm still wasn’t connected. I
+checked the wires twice in case I’d missed something. I hadn’t. Nora
+approached while Alan was checking the loading dock. She said Martin was
+selling old meat under new dates and that some of the workers hadn’t
+been paid in two weeks. She’d thought they were sorting stock for
+disposal when she started. Once they were told to put new labels on the
+boxes, some people quit. Others stayed because they needed the pay.
+Martin said nobody would receive the rest of their wages until the last
+truck was loaded. When I asked why they didn’t report him, she said one
+of the men had tried, and things had got worse for everybody.
+
+Nora didn’t start by telling me everything. First she asked whether the
+new power feed was safe. I said it had been connected properly, as far
+as I could tell, but that the alarm wasn’t working. She asked if a fire
+in that room would set off a warning anywhere else. I told her not
+unless somebody pulled a manual alarm in the main section. She looked at
+the boxes beside the conveyor, then asked where the nearest working
+alarm was. I showed her the corridor on my drawing. She studied the
+lines for a moment. I could see she was deciding how much she could
+trust me. I asked how long she’d been there. Six weeks, she said. She’d
+taken a bus from a nearby town for the first few shifts, until Alan
+began insisting that the crew arrive together in a company van. When I
+asked why, she said he wanted to know exactly who was on site and who
+wasn’t. That answer stayed with me.
+
+That man was Ben. He was twenty-five or twenty-six, thin, with dark hair
+and small cuts across his fingers. He’d found papers from the accident
+in 1982 while clearing an old office. The papers said workers had
+complained about the same locked emergency door before the refrigeration
+pipe failed. The official report said the door had jammed from damaged
+hinges. Ben had copied some records to give to a newspaper. Martin found
+out and ordered Alan to search the office and keep the crew inside until
+he got the copies back. Ben told me he’d seen my name on a report in the
+old office. He’d been made to carry a box of papers for Alan and noticed
+it. He wouldn’t touch the folder again while Alan was nearby, but he
+told me where it was. Then he went back to packing boxes. Nora said he
+had a little boy at home and bills from a recent hospital visit. He’d
+asked to leave early and been told he wouldn’t get paid if he walked
+out.
+
+Ben came back while I was packing up my meter. He asked if the safety
+notes I’d written could be copied. I said they could, but I wanted to
+know why. He told me his father had worked in the plant years before and
+was still angry about the way the 1982 accident had been handled. He’d
+grown up hearing that the company blamed workers for mistakes the
+managers had made. When he found the old papers, he recognized one of
+the names and started asking questions. That’s when Alan began searching
+lockers. Ben had hidden his copies somewhere outside the east wing, but
+he wouldn’t tell me where. He said if Martin found them before the final
+shipment left, it wouldn’t be only his job he’d lose. He was shaking
+slightly, though he tried to hide it by keeping his hands busy with the
+plastic bags. He asked whether I’d ever been punished for refusing to
+sign something at work. I told him once, a long time ago. He said he
+hoped I still knew how to say no.
+
+The office at the end of the hall was unlocked. I found the folder
+marked FINAL INSPECTION in the top drawer of a filing cabinet. Most
+pages were ordinary forms. Then I found a typed report about a fire in
+the east wing. The date was Friday, November 15, 1996. It was still
+Thursday night. The report blamed a faulty conveyor motor, said the wing
+had been cleared of employees, and claimed two workers had entered a
+restricted area without permission. It also said the disconnected alarm
+was part of an approved shutdown. My name was at the bottom, with a
+signature that looked close enough to fool someone who didn’t know me. I
+hadn’t signed it. I read the date again and checked my watch, as if that
+would help. Under the report were lists of machines the company claimed
+had been removed years earlier. I’d just seen several of them running.
+There were insurance papers too, with amounts written beside the
+equipment. Whoever prepared the file expected the old wing and its
+records to be destroyed, with a maintenance man to blame if anybody
+asked questions.
+
+There were mistakes in the report that made it worse to read. Whoever
+typed it had left blanks for the time the first alarm sounded and the
+number of firefighters who arrived. The names of the two dead workers
+were blank too. But my name was filled in. It said I’d confirmed the
+electrical system was safe, and a typed line underneath claimed I’d
+ordered the temporary alarm turned off. I’d done neither. There was even
+a sentence saying the loading door had been checked from inside that
+evening. I thought of Nora asking about the exit and Ben speaking
+through the steel door the night before. I tried to imagine a reasonable
+reason for someone to have written all this in advance. I couldn’t. I
+took the top sheet but left the folder as I’d found it. I wanted to be
+able to prove where it came from. The trouble was, I’d gone into an
+office I wasn’t supposed to be in. I was already thinking about how
+Martin might use that against me.
+
+I folded the report and put it in my pocket. Then I heard Martin and
+Alan outside. Alan said the last truck was almost loaded but Ben still
+wouldn’t hand over the copied papers. Martin said to search the
+remaining boxes. Alan asked about the workers. Martin said they could
+leave when the records were found. He also told Alan to finish the
+shutdown before the morning crew arrived. Neither man sounded especially
+worried. That bothered me almost as much as the report. I waited until
+they moved away, then went back to the processing room. One of the old
+conveyor motors sounded rough, and there were cardboard boxes pushed up
+close to it. I could smell something sharp beneath the cleaning fluid,
+but I couldn’t tell where it came from. I told Nora I was going to find
+Martin. She asked me not to leave without opening the doors. I said I
+wouldn’t.
+
+Martin was in his office with his coat on. I laid the report on his desk
+and asked why my signature was on a statement about a fire that hadn’t
+happened. He didn’t look surprised. He said it was only a draft for the
+shutdown. I asked why a draft named two people who were supposed to die.
+He told me I was misunderstanding it. Then he opened a drawer and took
+out an envelope with money inside. He said he knew I had a family and
+bills. The shipment was nearly finished. If I went home, I’d be paid for
+the full week and nobody would make trouble for me. I told him I wanted
+the workers out, the exits unlocked, and the fire alarm fixed. He said
+the crew would be released when the work was done. I told him I wasn’t
+signing any forms. He said that was my choice. Then he told me to leave
+his property. I didn’t take the money, but I did leave. Alan watched me
+collect my toolbox and stood by the outside door until I walked through
+it.
+
+I started my truck. The heater blew warm air over my hands. There was a
+police station about fifteen minutes away. I had the report, my notes
+about the alarm, and enough to explain why the county should send
+somebody to the plant. I could have gone there. Instead I sat thinking
+about Martin’s threat, about whether he’d accuse me of stealing the
+report, and about how badly I wanted to finish the job and forget the
+whole place. I thought maybe the fire report was a plan they’d never
+carry out. The crew could be out in an hour. I remember looking toward
+the east wing and seeing Nora at a dirty upstairs window. She pressed
+her palm to the glass. A shadow moved behind her, and she stepped away.
+I turned off the engine, but I still didn’t get out immediately. That
+was the time I changed in my statement. I don’t know the exact number of
+minutes, and I’ve stopped trying to make it sound shorter.
+
+While I sat in the truck, a driver stopped beside me to ask how to reach
+the highway. I gave him directions. That’s the part that still makes my
+stomach turn. I could speak perfectly well. I could have asked him to
+call the police from the next gas station, or told him what was
+happening in the east wing. Instead I talked about the roadworks by the
+freight yard. The driver thanked me and left. I watched his tail lights
+go. I pulled the folded report out of my pocket and read the date again.
+The next morning. In a few hours it would be the date on the page. I
+remember looking at the upper windows of the factory and trying to make
+sense of why I was still sitting there. I told myself I needed to be
+certain before making an accusation. But I was certain enough. I just
+didn’t want to pay the price of being right.
+
+When I finally got out, I went through the maintenance entrance. I took
+the heavy bolt cutters from the workshop and started toward the east
+loading bay. Halfway down the corridor I smelled burning plastic. Then
+somebody shouted from behind the wall. I ran outside to the emergency
+door. Smoke was coming out beneath it. The chain had been wrapped around
+the handle twice and pulled tight against the post. I worked the jaws of
+the cutters around a link, but they slipped. Somebody hit the door from
+the inside. I shouted for them to move back. Ben answered. He said four
+people were still in there. Most of the crew had been let out after the
+last truck left, but Alan had kept four behind while he searched for the
+papers. When the smoke started, they’d tried to move a storage rack away
+from the exit. It tipped and blocked the door. I told Ben I was going to
+cut the chain. It took three tries. Finally a link snapped and I pulled
+the chain free. The door moved a few inches, then struck something
+solid. Ben said his leg was caught under the rack. I pushed my shoulder
+into the door, but I couldn’t force it farther. He was coughing hard. I
+told him to stay low. He said two women were trying to reach the main
+corridor and another man had gone toward the storage rooms. I told him I
+would come through the other entrance. He asked me to hurry.
+
+I ran inside to the newer part of the building and pulled the manual
+fire alarm. It worked there, at least. From the maintenance office I
+called the fire department. I gave the dispatcher the address, told her
+a fire had started in the east wing and said there were four people
+still inside. She asked whether the doors were open. I said the
+emergency exit was blocked from within and the main doors were chained.
+I heard myself saying it and wondered how many days I’d known about both
+of those problems. She told me help was coming. I went back to the east
+corridor with the cutters. Alan had locked the double doors after
+showing me out. I cut that chain as well. The doors opened only partway.
+Stacks of empty boxes had been shoved against them from inside, probably
+by people trying to find somewhere to put them when the smoke began. I
+pushed until I could squeeze through.
+
+The room was filling with smoke. Flames had reached the packing material
+above the old conveyor, and some of the overhead lights were flickering.
+I couldn’t see more than a few steps ahead. I shouted and heard Nora
+answer somewhere to my left. She was crouched beside a table, trying to
+drag another woman toward the doors. The woman was barely conscious and
+had lost one of her boots. When we lifted her, her free foot kept
+catching on the floor. I took her beneath the shoulders while Nora held
+her legs. We stumbled through the smoke, banging against boxes I
+couldn’t see until I’d hit them. At the narrow gap in the doors the
+woman woke enough to struggle. She kept reaching back for her missing
+boot. I told her to forget it. Nora was coughing too hard to say much,
+so I pulled the woman through sideways while Nora pushed from behind. We
+got her into the clearer air of the corridor and lowered her against the
+wall. Nora grabbed my sleeve and said Ben was still near the emergency
+door. I told her to get the woman outside and show the firefighters
+where we’d been. She shook her head, wanting to go back herself, but she
+could hardly stand. I promised I’d look for him.
+
+I went back into the processing room. The smoke was lower now and I had
+to feel my way along the tables. I followed the outside wall toward the
+loading bay until I heard Ben coughing. He was on the floor beside the
+emergency door, trapped under the storage rack. One leg was pinned at an
+angle that made me look away for a second. He had a piece of cloth over
+his mouth. I tried lifting the rack from one end. It barely moved. I
+found a steel pipe beside the wall and used it as a lever. For a moment
+the frame rose an inch or two, but the pipe bent and slipped. Ben cried
+out. I put the pipe down. There was an old fire extinguisher on the
+wall. I pulled the pin and aimed it toward the flames nearest us. It
+gave one weak burst and died. Ben saw what I was doing and shook his
+head. He asked whether Nora and the other woman had got out. I said yes.
+He closed his eyes, then asked about the fourth worker. I told him I’d
+sent the firefighters the location of the storage rooms and they were on
+their way. I hadn’t seen that man, and I wasn’t going to pretend
+otherwise.
+
+I tried the rack again with both hands, burning my fingers through the
+gloves, and it still wouldn’t lift. Ben stopped me. He said there was no
+point breaking my back and asked me to find something stronger. I told
+him I would. He grabbed my sleeve as I stood. ‘Don’t leave me,’ he said.
+I promised I’d come back. He reached into his pocket and held out a
+folded photograph. I didn’t understand why he was giving it to me then.
+He pushed it into my hand, so I tucked it inside my coat. I said I was
+going to get help and started toward the corridor. I hadn’t gone twenty
+feet when part of the ceiling came down between us. Hot material struck
+the floor, and smoke rushed into the space. I shouted his name. I heard
+a cough, maybe a word, but couldn’t make it out. I tried going around
+the fallen section and found flames climbing the wall. I got down on my
+knees and looked for a gap. Somebody caught the back of my coat. It was
+a firefighter, coming in through the corridor. Two more went past with a
+hose. I told them exactly where Ben was trapped. They kept going toward
+the loading bay. The first man pulled me out. I fought him for a few
+seconds, not because I thought I could save Ben by myself but because
+I’d just promised I would return.
+
+Outside, somebody gave me oxygen. Nora was sitting on the ground beside
+the other woman, who’d been placed on a stretcher. I asked whether
+anyone had reached Ben. A firefighter said they were still working their
+way to him. I watched men going in and out until someone finally cut the
+power and the building went dark. Ben was brought out later. He was
+dead. The fourth worker was found near a storage room and survived,
+though he spent weeks in the hospital. Four people had been trapped
+after Alan locked the doors: Nora, the woman she helped, Ben and the man
+near the storage room. Three survived. Ben didn’t. The newspapers later
+said I’d helped rescue two women. They were right. They didn’t mention
+the two doors I’d known were locked before the fire.
+
+At the hospital a nurse cut the sleeve of my coat away from a burn on my
+forearm. The doctor checked my breathing and kept me on oxygen for a
+while. A deputy came in to ask what I’d seen. I took the folded fire
+report from my trousers and gave it to him. I told him where I’d found
+it and showed him the notes I’d written about the alarm. I did not
+mention sitting in my truck. I said Martin had sent me away and I’d
+returned when I realized there was trouble. The deputy wrote that down.
+He asked whether I knew the emergency exit had been chained before the
+fire. I said I’d raised a safety concern with management. That was true,
+as far as it went. He didn’t ask how long I’d known, and I didn’t offer
+the answer.
+
+The investigation went on for months. Inspectors found traces of
+flammable cleaning liquid among the packing material near the old
+conveyor, though no report I saw proved who had lit it. The rough motor
+wiring had made the fire spread faster, but that alone didn’t explain
+how it started. Alan disappeared before police could question him. They
+found his car at a bus station two days later. Martin said he knew
+nothing about the fire. The report I’d taken from the office told a
+different story. It had been written before the fire, with blanks left
+for the time and the names of the victims, but it already blamed a
+maintenance man and declared the east wing empty. Other documents showed
+false equipment losses prepared for an insurance claim and records of
+meat sold with altered dates. The old complaints Ben had found showed
+that the exit had been chained during the 1982 accident as well. Martin
+was charged, and the case took years. I testified. Nora testified.
+Workers spoke about missing pay and the locked doors. I can’t tell you
+how every charge ended because I didn’t attend every hearing. I know the
+company was finished and the building was torn down.
+
+One investigator came to my house with photographs of the electrical
+panels. I showed him the new cable and the bypassed alarm, and he asked
+when I’d first seen them. I said Tuesday. He asked when I’d discovered
+the emergency exit was locked. I said Wednesday. He wrote it down. Then
+he asked why I’d waited until Thursday night to call for help. I told
+him Martin had promised to open the doors and reconnect the alarm. That
+was true too. But it made my choice sound simpler than it was. I’d
+accepted his promise because the alternative meant an argument, the loss
+of a job, and maybe a trip to the police. The investigator asked what
+happened after Martin told me to go home. I said I had gone back when I
+smelled smoke. I didn’t tell him about the truck driver who’d asked
+directions, or the minutes I spent looking at the windows while I tried
+to talk myself out of getting involved. Nobody knew that part.
+
+I considered correcting my statement later. Once I drove to the
+investigator’s office and parked across the street. I had the notebook
+with me. People were going in and out of the building, ordinary people
+on ordinary errands, and I couldn’t make myself cross the road. I drove
+home instead. My wife asked where I’d been. I told her I was running
+errands. She asked where the groceries were. I’d forgotten them. I went
+back out and bought them. That was how it became easier to live with the
+lie than to explain it. People thanked me for going into the factory.
+Nora wrote me a letter. One firefighter said I had done something good.
+I believed them about the two women, but none of them knew what I’d
+failed to do before the fire.
+
+I found Ben’s photograph while emptying my ruined coat at home. It
+showed a little boy beside a red bicycle. He had a wide smile, missing
+front teeth and one hand resting on the seat. On the back, in a child’s
+uneven writing, were the words, Daddy, come home soon. I recognized the
+boy from what Nora had told me. I called Ben’s mother after the funeral
+and said I had something that belonged to him. She told me his wife and
+son were staying with relatives and didn’t want to speak to anybody
+connected to the factory. She said she’d pass on my message. Nobody
+called back. I kept the photograph in my bedside drawer. Every few years
+I’d come across it while looking for something else, and I’d sit with it
+for a while before putting it away again.
+
+Life went on. My daughter grew up, married, and had children of her own.
+My wife died. I retired and moved somewhere smaller. I did ordinary
+things. Fixed a leaking tap, watched television, went fishing when my
+knees felt up to it. I didn’t spend every day thinking about Hartwell.
+There were months when I hardly remembered the place. Then I’d hear a
+sound that reminded me of a conveyor belt or smell hot plastic near a
+workshop, and I’d be back in that corridor for a minute. I don’t think
+guilt works the way people describe it. It isn’t always there making
+noise. Sometimes it just waits until you have nothing else to think
+about.
+
+Last spring I found my old folder from the trial in a cabinet in the
+garage. There were copies of the alarm notes, the fake fire report and a
+letter Nora had sent after the case ended. She’d included records Ben
+copied from the 1982 accident. Workers had complained about the locked
+emergency exit back then, too. Those complaints were marked resolved
+even though nothing had been changed. Alan had signed one of the forms.
+Martin had signed another. Nora wrote that Ben wanted the families of
+the men who died in 1982 to see those papers. She also said he’d asked
+to leave early the afternoon before the fire because his little boy had
+a doctor’s appointment the next morning. Martin told him he’d lose his
+pay if he left before the shipment was done. I knew Ben needed money. I
+hadn’t known he was trying to get home in time for his son.
+
+I read Nora’s letter again and checked it against the records. Ben’s
+father had worked in the plant years before, and one of the complaints
+from 1982 carried his signature. Ben had grown up hearing how the
+company blamed the dead workers. When he found the records, he’d made
+copies because he wanted their families to know the door had been
+locked. His son was ill, and he’d asked to leave early that last
+afternoon to help at home. Martin told him he’d lose his pay. He stayed.
+There wasn’t a clever answer to any of that. He had warned me about the
+report even though it put him at more risk, and I’d spent that same
+night working out whether helping him would be too much trouble.
+
+I looked at the photograph again. I had carried it home from the factory
+but never managed to return it. That was one thing I could still do. I
+made calls and eventually found Ben’s son. He was grown, with a family
+of his own, and he worked in construction about two hours away. When I
+explained who I was, he said he knew my name. His mother had kept
+newspaper clippings about the fire, including one with my picture. She’d
+always told him I was the man who tried to save his father. I said I had
+a photograph Ben had given me on the night of the fire. He asked if it
+was the one beside a red bicycle, with white handles. I looked. It was.
+He’d been looking for that picture for years.
+
+We met at a diner near the highway the following Saturday. He was
+already there when I arrived. I could see a little of Ben in his face
+when he stood to shake my hand. We ordered coffee. I handed him the
+envelope, and he took the picture out carefully. He smiled when he saw
+the bicycle, then turned it over. For a while neither of us said much.
+He told me his father had bought the bicycle secondhand and fixed it up
+in their garage. The picture was taken the day he learned to ride
+without training wheels. He said he’d forgotten about the writing on the
+back. Then he asked what his father had been like at work. I told him
+Ben was quiet, careful around Alan, and brave enough to warn somebody
+he’d barely met. I told him Ben had been trying to help the other
+workers get out when the fire started. All of that was true.
+
+He asked whether his father had suffered. I told him Ben had been
+trapped by a fallen rack and that I’d tried to move it. I didn’t pretend
+it had been quick. I told him I’d spoken to Ben and tried to get help,
+but the fire spread before the crews could reach him. He sat with that
+for a moment. Then he thanked me for staying with his father as long as
+I could. I thought about the truck again. I could have told him
+everything right there. He deserved to know the exits had been locked
+before the fire, that I knew it, and that I’d waited. Instead I told him
+about Ben asking whether Nora had got out. He seemed glad to hear his
+father had been thinking of the others. We talked about our families for
+a while after that.
+
+I could see he was doing his best to ask questions without making me
+uncomfortable. That made it harder. He wanted to know whether the men
+who locked the doors had ever apologized to his family. I said I didn’t
+know. He said his mother had followed the case for years and finally
+stopped because she couldn’t stand hearing the company talk about costs
+and lost property. He’d been too young to attend most of the hearings.
+He said the newspaper articles gave him a list of facts, but not much
+idea what his father had been doing in those last minutes. I told him
+Ben had asked about Nora and the other women. He looked down at the
+photograph for a long time, then said that sounded like his dad. I
+wished I could tell him something that would make it easier. There
+wasn’t anything.
+
+Before he left he asked if we might talk again someday. I said yes,
+although I wasn’t certain I’d be able to do it. He said he wanted his
+children to know a little about their grandfather. I told him the truth
+about one thing. I said Ben had tried to do the right thing when others
+around him were making it difficult. His son smiled and said his mother
+had always told him that. I watched him put the old photograph in a
+folder so it wouldn’t bend. He checked the seat belt twice before
+pulling out of the lot, and for some reason that stayed with me. It was
+such a small, careful thing. Ben would have been in his mid-fifties by
+then if he’d lived. I tried to picture him as a grandfather. I couldn’t
+get past the young man on the floor of the loading bay.
+
+Outside the diner he shook my hand and said his mother had always told
+him Ben was the kind of man who wouldn’t leave somebody behind. He hoped
+he would have done the same. I said I thought he would. He thanked me
+again for coming, then drove away with the photograph on the passenger
+seat. I stayed in the parking lot. The place was busy, and a truck
+pulled in beside me while I sat there. Its heater fan was loud enough
+that I could hear it through my closed window. I thought about November
+1996 and the minutes I’d spent trying to talk myself into going home. I
+started the engine and turned the heater off.
+
+I don’t know whether keeping the worst part to myself protects Ben’s son
+or only makes things easier for me. That question hasn’t become any
+simpler with age. What I do know is that Ben barely knew me, and when I
+told him I’d come back, he believed me. I meant to keep that promise. I
+just should’ve started keeping it a lot earlier.
