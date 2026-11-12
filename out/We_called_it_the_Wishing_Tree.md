@@ -1,0 +1,67 @@
+We called it the Wishing Tree.
+
+It was a tree in the park located at the end of my neighborhood. Not particularly distinct in any way, but you could also just kind of tell which one it was. If that makes sense.
+
+According to neighborhood lore, if you made a wish - any wish - and dropped a drop of blood onto its roots, your wish would come true.
+
+My wife had grown up in our neighborhood, and had always been of the belief that the story of the tree was nothing more than something made up for a school paper and passed around by word of mouth.
+
+Even though she’d had her own “wishes” granted - a lymphoma scare in high school that turned out to be severe mononucleosis, and a plea for love after a directionless situationship right before we met - the evidence was clear that these were just coincidences or dumb luck and easily explainable otherwise.
+
+That all changed with Delaney.
+
+My wife had babysat Delaney numerous times when she was a little kid, and now was considered by her to be a sort of surrogate older sister. When she needed advice she wasn’t comfortable getting from her parents, she went to my wife. That sort of stuff.
+
+One day, she called my wife on the phone. Sobbing.
+
+While home from college on fall break, she’d found out her high school sweetheart and best friend had cheated on her.
+
+She’d gone to the park, hysterical, and made a wish for them to have their hearts broken the same way they’d broken hers. Kind of a non-specific wish, but the gravity of what she’d done had hit her, and she was inconsolable.
+
+My wife told her it was a fairy tale. If anything, they’d probably just start dating only to break up at Christmas. Something like that. It seemed to cheer her up a bit.
+
+Two weeks later, a deranged man attacked two teenagers in the park after being denied money, and then fled after being confronted by a soccer coach who’d come to retrieve a pair of forgotten cleats.
+
+Why the two teenagers were in the park at 9pm on a Monday is both beyond me and irrelevant to this story, as is why he didn’t attack the coach as well.
+
+What is relevant is that the coach called the cops, starting a manhunt that locked down our neighborhood until the early hours of the morning.
+
+Most relevant of all is that the two victims were Delaney’s ex-boyfriend and best friend. After being denied the money, the man had attacked them with a knife, stabbing both in the heart as they sat beneath the shadow of the wishing tree.
+
+Perhaps, planning that night to make a wish to spend their lives together.
+
+They cut the tree down shortly after, with the plan of turning it into a memorial bench.
+
+A college buddy of mine, Mike, was in town for work recently. We decided to grab some beers, and over the course of the day somehow wound up sitting on the stump of the tree, catching up as we sipped our drinks.
+
+He asked how I had been doing following the death of my grandmother a year ago, who he’d gotten to know well during our college years.
+
+I said I was hanging in there, but that it still hurt sometimes. Nearly every day, I told him, I wished to see her just one last time.
+
+Almost as soon as I said that, I felt a prick on my finger, and I swore softly. Mike asked what was wrong. I had a splinter in my finger. Not a bad one, but just enough to break the skin and spill a few drops of blood on the stump of the tree. I gingerly pulled the splinter out, dabbed the blood off with a tissue, and we continued with our day.
+
+It didn’t hit me until later that night what had happened, and I lay awake for a good while trying to rationalize it.
+
+The health scare? Easily solvable with modern healthcare. My wife had had a biopsy the day before she made that wish, and was convinced it was just a funny coincidence.
+
+Us meeting? Purely good timing. We had met on a dating app, so there was a good chance one of us had already swiped right on the other.
+
+And the stabbings? Just a very tragic case of the wrong place at the wrong time.
+
+It took some repeating those words in my head - won’t lie about that - but eventually, I was able to fall asleep.
+
+That was two weeks ago.
+
+I’m now sitting in my dark living room, with the blinds drawn.
+
+I’m typing this all out on my phone, I guess trying to convince myself of my sanity. Or something like that.
+
+Because 20 minutes ago, there was a knock on the door.
+
+My wife is out of town and I have no plans, so I wasn’t expecting anyone. So I didn’t answer it.
+
+Five minutes went by, and nothing else happened.
+
+And then there was another knock, followed by that sweet, singsong voice I hadn’t heard in over a year, since the last time I saw her alive. That was when I grabbed the knife.
+
+*“Hello, my darling boy… could you please let your Grammy in?”*
