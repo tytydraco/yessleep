@@ -84,7 +84,7 @@ I can't go on like this.
 
 *Soon, she climbs back onto her truck and leaves. I am alone again.*
 
-*I am alone and night is coming. I am alone and I want to cry out for my mother, why did she leave me, but my throat is dry and I cannot get up and I hear the animals and spirits in the grass moving around me and I am afraid.*
+*I am alone and night is coming. I am alone and why did mother leave me and I cannot get up. And I hear the animals and spirits in the grass moving around me and I am afraid.*
 
 I wake with a start and automatically reach for the water on my nightstand, but I find I can't turn over.
 
@@ -94,7 +94,7 @@ As my vision adjusts to the blackness, I stare into two large, dark eyes, only i
 
 The boy stares at me, unblinking, his dry, cracked lips parted. His small, claw-like hands have dug themselves into my shoulders, pinning me down with an incredible strength. I cannot move, my terror so complete that I feel like my heart will explode.
 
-Slowly, deliberately, the boy lifts his hands to my face. Gentle as a caress, he puts his fingers in my mouth and begins to wrench my jaw apart. I can feel every part of this, every snap of sinew, the crack of my jaw, and I scream and I scream and I scream but no sound comes out.
+Slowly, deliberately, the boy lifts his hands to my face. Gentle as a caress, he puts his fingers in my mouth and begins to wrench my jaws apart. The pain is excruciating but I cannot move through the snap of sinew, the crack of my jaw, and I scream and I scream and I scream but no sound comes out.
 
 The boy, his eyes never leaving mine, puts his hand into my mouth and begins to push. Past my teeth, past my tongue, into my throat. I am choking, I am trying to scream but he pushes downward, downward, downward.
 

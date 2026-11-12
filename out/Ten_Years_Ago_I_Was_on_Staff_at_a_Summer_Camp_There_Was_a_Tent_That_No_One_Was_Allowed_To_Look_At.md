@@ -406,3 +406,5 @@ And now, ten years later as I sit in my respectable living room in my respectabl
 I have more story to tell, and I’ll try to get back to it, but first I need to take care of her. I think I can see her cloak flutter in my doorway. I think I can hear her chatter.
 
 I don’t think she realizes I’ve noticed her yet. That’s why I’m still typing–so she won’t realize I’ve spotted her. But now I need to get up. I need to turn on the lights. I need to do what I couldn’t do ten years ago. I need to face her.
+
+[Next Part](https://www.reddit.com/r/nosleep/comments/1xrd8wy/ten_years_ago_i_was_on_staff_at_a_summer_camp/)

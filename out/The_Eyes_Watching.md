@@ -2,7 +2,7 @@ Ever since I was a kid, my parents have told me that I have extreme paranoia. It
 
 The house I lived in was a nice one. It was an early-modern, single-story house that seemed to be built around the early 90s. The outside was painted dark green and white, with windows facing every direction. My room sat facing the backyard. I liked it that way; it made me feel safe from weirdos peering into my room from the public street. Inside, the house was a typical middle-class home. 3-bed, 3-bath. 
 
-I loved my room; as a kid, my room was filled with all sorts of trinkets and toys from who knows where. My prized possession was an old TV that sat atop a dresser, with a PlayStation plugged into it. The only problem, undoubtedly, was my closet. The house we lived in was old, which sadly meant a lot of my belongings, including the closet, were broken. 
+I loved my room; as a kid, my room was filled with all sorts of trinkets and toys from who knows where. My prized possession was an old TV that sat atop a dresser, with a Xbox plugged into it. The only problem, undoubtedly, was my closet. The house we lived in was old, which sadly meant a lot of my belongings, including the closet, were broken. 
 
 The closet itself was an old white wooden closet with blinds ever so slightly open. The darkness in the closet always seemed to peer at me, a black emptiness that felt like it was coming toward me, trying to absorb and hide whatever lay behind. I always felt watched. Whatever the reason, I tried my best to cover the cracks in the closet, but it always returned to its original state. It felt like the closet was watching me, and whatever I did to hide its eyes… it didn't work. 
 
@@ -24,7 +24,7 @@ One night, my friend Mitch came over, hopefully to take my mind off the “man�
 
 Mitch and I were surprisingly similar in personality and physical appearance. We always joked that we were “brothers from another mother”; I wish we were brothers; it would make my no-friends situation at school a lot better. Honestly, without Mitch, I’d be pretty much alone. We both had dark brown, curly hair and glasses. At times, it felt like staring into a mirror. Sometimes at school, Mitch and I would swap name tags just to confuse the teachers. It was kind of stupid, but we thought it was hilarious. 
 
-Mitch and I stayed up late playing video games until close to midnight. It was about time we headed to bed before my mom found out we were still awake. We were in the middle of playing Halo 3 on the old PlayStation when, suddenly, the hair on my arms and the back of my neck stood up like twigs glued to my body. A chill ran through my body with every heartbeat. Sweat beaded as I sat there motionless. I was being watched. 
+Mitch and I stayed up late playing video games until close to midnight. It was about time we headed to bed before my mom found out we were still awake. We were in the middle of playing Halo 3 on the old Xbox 360 when, suddenly, the hair on my arms and the back of my neck stood up like twigs glued to my body. A chill ran through my body with every heartbeat. Sweat beaded as I sat there motionless. I was being watched. 
 
 “Are you feeling okay?” Mitch asked, slightly amused. “You look like you've seen a ghost?”
 
@@ -84,14 +84,10 @@ I woke to the smell of breakfast, cinnamon rolls and bacon, a smell that could m
 
 As I climbed down the ladder, I expected to see Mitch. There was nothing. Nothing but a slightly wrinkled piece of paper. 
 
+*Hey, Mom, I've decided to run away. Please don't try to come after me. This is what I wanted. Please respect my decision.* 
 
-
-*Hey, Mom, I've decided to run away. Please don't try to come after me. This is what I wanted. Please respect my decision.*   
-		  
 *Love,*  
 *Braydon*
-
-
 
 My heart nearly dropped to my stomach. It was a letter I wrote for my mom. For obvious reasons, the letter made my blood run cold, sending a wave from my head all the way down to my toes. Memories of last night rushed back. As I turned to run to my mom, I noticed something. 
 
@@ -148,4 +144,3 @@ Right outside my apartment window.
 —
 
 .-- .- - -.-. .... .. -. --.
-
