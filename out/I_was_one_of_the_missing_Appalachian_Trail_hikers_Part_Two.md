@@ -400,6 +400,6 @@ As I dozed off, I heard two voices from outside in hushed, angered whispers. I c
 
 I covered my head with my pillow, drowning out any noise from outside and partially slowing my spinning head. I felt my face press against the cool, vinyl tent floor, and my consciousness slowly slipped. My intoxicated mind finally gave way to sleep, and I watched the flames creep into my peripheral as I drifted.
 
-  
 ***End of Part Two***
 
+[Part Three](https://www.reddit.com/r/nosleep/s/r4dge3u2rZ)

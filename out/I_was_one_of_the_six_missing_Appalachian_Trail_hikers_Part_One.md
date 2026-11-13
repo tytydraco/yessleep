@@ -359,3 +359,5 @@ Ilanna looked through the binoculars for a long time, moving her head from circl
 I often think back on this moment. I should’ve left. I should’ve walked, no… ran away at the very first uneasy feeling I got. My instincts were screaming at me in every way possible, pleading with me to get out of there. But I ignored them. I wonder if I was a fool for listening to my mother, for believing for one second that this journey would somehow change my mental state. I wonder if I had ever had it in me to turn around and leave, or if my fate was predetermined, my soul condemned to the cruelty that awaited it in the depths of the Appalachian Trail. 
 
 ***End of Part One***
+
+[Part Two](https://www.reddit.com/r/nosleep/s/seYrwSP2U5)

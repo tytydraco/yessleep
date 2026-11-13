@@ -100,8 +100,8 @@ His shoulders slumped. “Ava’s best friend.”
 
 His gaze went to the bathroom door as he said her name, and there was something unspeakably sad in his expression. 
 
-“It asked her to spend the night in the woods.”   
-  
+“It asked her to spend the night in the woods.”
+
 “Oh.” The request wasn’t the craziest thing I could imagine, but it was also bigger deal than anything we had been asked to do this summer–it made catching the owl and giving up an arm full of bracelets feel relatively minor.
 
 “Yeah. I told her not to go.”
@@ -368,6 +368,6 @@ I would be different. I promised myself that next time the tent zipped–next ti
 
 I think that’s all I’ve got in me for today. Sometimes, during the darkest part of the night, I think I can still smell that fire. I don’t want to remember anymore of it right now.
 
-I’ll tell you the rest of what happened later on in the week. 
+I’ll tell you the rest of what happened later on in the week.
 
-  
+[Next Part](https://www.reddit.com/r/nosleep/comments/1xuqxle/ten_years_ago_i_was_on_staff_at_a_summer_camp/)

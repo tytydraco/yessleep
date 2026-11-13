@@ -1,0 +1,15 @@
+There is a ride at the Crimson Carnival that doesn’t appear on any map or listing. No one else seems to realize it’s there, but as I’m walking along the midway, it snags at my attention the way a bur snags at your clothing. Against your will. It’s just there, suddenly, and I can’t look away. A strange certainty inside me gives me the feeling that I was meant to find this ride. Or, perhaps more accurately, that this ride has been trying to find me.
+
+Like all of the rides at this carnival, it is old and a bit rundown, but this one is particularly worse off than the others. Two-seater brown cars pause briefly to pick up riders, before disappearing into the darkness behind the entrance. Discordant music emanates, off key and wrong, and lights around the entrance flash a sickly yellow and orange color. It looks, from the outside, like some form of a haunted house ride, promising papier-mâché monsters and twisted skeletons. Perhaps the odd jump scare here and there. But the outside gives little away.
+
+Around me, other carnival-goers wander by, like their attention is pushed away whenever they near the ride. Not a single other soul so much as glances this way. So why can I see it? And how? It feels like a sign, of some sort. Like I was meant to find it, and who am I to deny fate? What did I come to this carnival in search of, anyway? Escapism? Entertainment? Something tells me I’ve found it.
+
+So I climb the creaking metal steps and move up to one of the empty cars. I hesitate before climbing in, my gut telling me that I should think better of it. Turn back now. But why? It’s just a ride, one of many here tonight. What’s the worst that could happen?
+
+When the car pauses, I take my seat. It’s uncomfortable, the floor strangely sticky, and there’s no seatbelt or bar to hold on to, so my hands just rest in my lap.
+
+“Welcome, welcome, to the Hopeless House!” chants a bright male voice from somewhere I can’t determine. But the words are all bent and distorted, and the inflections is on the wrong syllables. “Please keep your limbs attached and inside the car at all times. Guests attempting to exit early forfeit their right to safety, and the ride is not responsible for what comes after. Enjoy!”
+
+As we depart, we pass a faded white sign with red ink that reads *one way,* and the words stick out in my mind. Then we turn abruptly towards the darkness beyond the entrance, where the flashing lights fade, and the off-kilter music only grows louder. A deep and sudden dread begins to weigh me down. Why was I so quick to do this? Why did I not think better of it? I turn to look back at the carnival behind me, the laughing visitors and ice cream stands and bright lights, feeling a sudden pang to leap out before it’s too late.
+
+But it is already too late.

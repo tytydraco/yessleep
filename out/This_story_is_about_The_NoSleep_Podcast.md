@@ -1,0 +1,28 @@
+**The no**
+
+I never really knew my grandfather. He wasn’t a bad man—just distant. My mother spoke about him from time to time, but there was always something unsaid beneath her words. Still, I decided to visit him one day, bringing a cake as a small gesture.
+
+He looked surprised to see me but welcomed me in. We sat, talked for a while, and then, after a moment of silence, he leaned forward, studying me closely.  
+*You look tired,* he said. *Is everything alright?* I hesitated, then told him the truth.  *had a nightmare… about a podcast.”*
+
+At that, his face drained of color. His hands trembled slightly as he set his cup down. *Do you remember the name?*he asked, voice barely above a whisper. I swallowed. *It was called ‘The no.*The moment the words left my mouth, he stood up so fast that his chair nearly tipped over. His eyes were wide, fearful.
+
+*You need to leave. Now. What? Why.This wasn’t supposed to happen!*His voice cracked. *Go home. Forget about this. Please.*Confused and shaken, I left. When I told my mother what had happened, she sighed. *Your grandfather is getting old. Don’t let it bother you.*
+
+That night, for the first time in weeks, I didn’t have a nightmare. But the next morning, we got the call—my grandfather was dead. It didn’t make sense. He had been fine just yesterday. After the funeral, we went to his house to sort through his belongings. I wandered, not really knowing what I was looking for, until a single book caught my attention. It was old, its leather cover worn and cracked. Curious, I opened it—and my blood ran cold.
+
+Page after page detailed something impossible, something horrifying. My grandfather had worked for *The NoSleep Podcast*. But according to this book, they didn’t just write horror stories. They *received* them. They *collected* them. And the way they did it They had made contact with something.
+
+I know how this sounds. I know you think I’ve lost my mind. But listen to me—how else do you think they come up with these stories? Every week, new horrors, endless nightmares. They don’t just *write* them. They *hear* them. They *record* them. And my grandfather—he had been part of it. I wish that was where it ended, but it’s not. Because after I read that book, I had another nightmare. And in it, I saw *him*.
+
+The Devil. He smiled at me, his voice like fire and whispers.*Do you think your grandfather can protect you?* Since then, I haven’t dared to close my eyes. Every time I blink, I see him—closer than before. So I’m begging you. Listen to me. The NoSleep Podcast is not what it seems.
+
+⸻
+
+**Police Report:**
+
+We’ve received multiple complaints from neighbors about an individual at \[REDACTED\] shouting at passersby, insisting they “open their eyes” and “see the truth about The NoSleep Podcast.” Officers attempted to make contact, but no one answered the door. A strange smell was reported, prompting a call to the fire department.
+
+Upon forced entry, the apartment was found abandoned—except for a single phrase scrawled across the walls in red ink:
+
+in our next story

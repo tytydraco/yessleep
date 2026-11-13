@@ -1,0 +1,91 @@
+Part 1: [https://www.reddit.com/r/nosleep/comments/1xlsdhx/she\_said\_her\_vows\_to\_an\_empty\_church/](https://www.reddit.com/r/nosleep/comments/1xlsdhx/she_said_her_vows_to_an_empty_church/) | Part 2: [https://www.reddit.com/r/nosleep/comments/1xoun7t/there\_were\_two\_veils\_in\_my\_box/](https://www.reddit.com/r/nosleep/comments/1xoun7t/there_were_two_veils_in_my_box/)
+
+You counted. I need you to know that first, before anything else, because everything that happened after happened because you did.
+
+I posted here about my sister June, who said her vows to an empty church, and about the cedar box by my door, and the second veil, and I asked you to count me, to stand watch over me, because in my family the watching is the signing and I believed enough strangers watching at once would be a wall.
+
+For three nights it worked. Three nights I slept in my own bed and woke up in my own bed, chair still wedged under the handle, box where I left it. On the third morning I made coffee and laughed out loud in my kitchen, alone, like a fool, because for the first time in six years I thought the thing had finally met something bigger than itself.
+
+On the fourth night the comments started changing.
+
+A woman in Oregon wrote that she had dreamed of a church she had never seen, a woman standing in it with her back turned, in a veil, not turning around. A man in Texas wrote that his wife shook him four times before he heard her say his name, and found him standing at their front door, dressed, facing out. A girl, she sounded young, I pray she was lying, wrote three words and deleted her account.
+
+I heard counting.
+
+And one more, the one I cannot stop reading. An account with no history posted a single comment at 3:12 in the morning, under my story, where all of you could see it. It said, You may sit down now. Then the account was gone. Not deleted by the person. Gone the way a pew is empty after a service. Like it had only ever been opened to say that one sentence, in the voice my family knows, the one that is not a woman's.
+
+I answered the kind ones. I told everyone what my mother told me. Walk back loud. Sing, pray, count out loud like a child. It is very polite, it cannot stand to interrupt. I typed it so many times my phone learned the sentence and started finishing it for me.
+
+Understand, I did not just believe the counting protected me. I tested it, because I am my grandmother's granddaughter and records are the only weapon this family has ever had. I sent half my story, only half, to a friend from work, and I told her, stop at the middle, do not finish it, and tell me how you sleep. She stopped. She sleeps like a stone. Three nights, nothing, no dreams, no doors.
+
+Then I made the mistake every woman in my family makes. I wanted to be sure. I sent her the rest.
+
+She called me at 4 a.m. from her own kitchen floor. She did not remember the drive down her own hallway. She remembered the taste of lake water at the back of her throat, and she remembered standing, and she remembered, this is the part she kept saying, she remembered being glad. Glad the way June looked glad under the veil. Kept. She had read to the end at 11:48 that night. She finished at the exact minute my third quiet night ended.
+
+Finishing is the seating. Reading to the end is taking the seat. Half a story is just a story. The whole of it is an invitation, and an invitation accepted is a debt, and this thing collects its debts the way the lake collects what falls in it, slowly, and without ever once raising its voice.
+
+I drove to my mother's house with my hands shaking so badly I had to stop twice. She was on the porch in the cold, waiting, the way she must have waited six years for one of her daughters to come asking the right question. Behind her, through the screen door, I could see her kitchen table. Set for two. It is always set for two now. I used to think she was feeding it. I said so.
+
+"No, baby," she said. "I never fed it. I kept its seat. There's a difference and the difference is the whole of it. A thing that is expected does not go looking. I gave it a chair in my house so it would not take one in yours."
+
+"Mom," I said. "How long."
+
+"Since your sister's wedding. And don't you look at me like that. Some nights I wake up at that table and the second plate is used, baby. Fork wet. Water in the glass gone grey, like something drank it through a cloth. And my own chair turned to face the door. It sits polite. It wipes its mouth. Your grandmother set for it too, at the end. That's how I knew what to do. It's how I know what comes next in the order of things, and I am telling you now because you have gone and changed the order."
+
+Then she told me the rest of the rule, the part underneath the part I knew, and I am going to write it plainly because plainly is the only mercy left in this.
+
+At a wedding, near the end, the priest asks if anyone knows any reason the two should not be joined. And then there is a silence. You have all sat in that silence. It lasts four seconds, maybe five. In those seconds, everybody in the room, by saying nothing, says yes. That is the congregation's job. Not the singing, not the rice. The silence. Speak now, or forever hold your peace. Holding your peace is the consent. It is the last signature on the contract, and it is signed by everyone present, all at once, in the quiet.
+
+"June's wedding never got its silence," my mother said. "The guests left by ten. The church was empty. Father Alden asked the question to a room with one witness in it, and one person's quiet is not a congregation's quiet, it is just a girl too frightened to breathe. So the question has been hanging open in that church for six years, baby. Open. Like a mouth. And everything since, the walking, the calling, the veils, is that question, still waiting, gathering its answer one person at a time."
+
+"You didn't build a wall," she said. "You filled the church. And every soul who read your words to the end and sat quiet over them has held their peace."
+
+I asked her what it does with a congregation, once it has one. She looked at me the way you look at a child who has asked what the lake does with what falls in it.
+
+"It finishes," she said. "And then it does what weddings do at the end. It takes the bride home."
+
+Elias called that night. You remember his warning, I wrote it down for you word for word. If I ever stop waking up dressed, do not open your door. It will not be because I got better.
+
+He has stopped waking up dressed. He sleeps deep now, and ordinary, and he is not afraid anymore, and his not being afraid is the most frightened I have ever been in my life. Because he dreams now, and what he dreams is the inside of that church, from the groom's place, where he stood in the frost and never arrived. He dreams it full. He told me, in the voice of a man describing weather in a town he is glad to be leaving, that he can see every face. Hundreds. Thousands. And every face is looking down, the way people look down at a hymnal. The way people look down at their hands. The way people look down at a phone, reading, in the dark, in their beds, in houses forty miles and four thousand miles from any lake.
+
+"It practices standing where I stood," he said. "All night, in the dreams, it stands at my mark on the drive and it practices being still, being ordinary, being a man at his own wedding. It doesn't need me anymore, Miss. A doorway is only needed until the guests are all inside. And Miss." He stopped then, and I heard him swallow, and when he spoke again the politeness was gone out of him for the first and only time, and what was under it was a man I have never met, begging.
+
+"It asked me your name," he said. "It already had it. It was being polite. It was asking the doorway for the bride's name, because asking is what you do at a door."
+
+Beth's card came the next day. Six years of one sentence. Then a year with two. This year there was no sentence at all. There was a drawing, in pencil, in handwriting gone worse than bad, like she drew it standing up in the dark. Two rows of chairs. An aisle between them. At the end of the aisle a figure in a veil, drawn small and careful. And over the chairs, pressed so hard the pencil tore the card, one word. SEATED.
+
+Her husband called an hour later. Beth arranges chairs now. Every night. Two rows facing the bed, and when they run out of chairs she lines up the books and the shoes, because anything that can face the bed counts, and last night she ran out of everything and stood in the gap herself, at the end of the second row, in her nightdress, facing the bed, being a seat, and when he said her name four times she turned her head, only her head, and said to him pleasantly, in the voice that is not hers and is not a woman's, "You may sit down now." She was smiling. He said that is the part he cannot say without crying. She looked kept.
+
+I record myself sleeping. Last night's recording is why I am writing this at 4 a.m., dressed, shoes on, back against my bedroom door, with the taste of lake water at the back of my throat that no glass of water will touch.
+
+At 2:47 a.m. I get up. I do not walk. I prepare. I carry my chairs into my bedroom, four kitchen chairs, the desk chair, the stool, and I set two rows facing my bed with an aisle down the middle, and my hands move the way Elias folds a jacket, the way my mother folds a napkin, careful, gentle, like the world is a thing you can keep from wrinkling. Then I carry the cedar box down my own aisle and set it at the end of the rows like an altar, and I open it.
+
+There were not two veils in the box.
+
+There were dozens. Folded. Careful. And each one, I know this because I made myself look, I am my grandmother's granddaughter, each one has a name tape sewn into the hem, in brown thread, in handwriting nobody living was ever taught. I found June's. I found my mother's, and my mother's was warm. I found one with the name of my friend from work, the one who finished reading at 11:48, and hers was damp, and smelled of deep water, though she has never in her life been to our lake.
+
+Mine was on top. Mine was dry. Mine was the only dry one. I have thought about that for hours and I believe I finally understand it. The others were taken off wet, because the others were received in water. Mine is dry because mine is not a memory. Mine is a fitting.
+
+At 3:12 a.m., in the recording, I lift my veil out and I turn to face the rows of empty chairs, and I hold it out over both hands, the way you hold a coat for someone, the way a gentleman holds a door. And I wait. Three quarters of an hour. In the dark. Without moving. And here is the part I have watched forty times, the part I would give my hands to unsee. In the black glass of my bedroom window, my reflection is not holding the veil.
+
+In the glass, I am wearing it.
+
+In the glass my hands are empty and folded, and the veil is over my face, and it is wet, and behind me in the glass the chairs are not empty. Every seat is taken. Every face is down. Every one of them is holding their peace, and the peace they are holding is me.
+
+At 3:58 every sound in my house stops at once, the refrigerator, the pipes, my own breath on the microphone, the way a room stops when the music starts. And out of that silence, far away and close, the way sound comes up through deep water, a bell rings once.
+
+That bell has rung every midnight of my life except one. It did not ring the night my sister said her vows to an empty church, because a bell like that does not ring for an empty room. It rang last night. It rang because the room is not empty anymore.
+
+So listen to me now, because this is the last true thing I know and I am giving it to you flatly, the way my family gives everything.
+
+Tonight at midnight, in my house, the question gets asked out loud. If anyone knows any reason these two should not be joined. It has waited six years for a room quiet enough to answer it. And the only way out of a seat at this wedding is the one nobody in six generations of my family ever thought to try, because we are a family of quiet women who hold our peace at kitchen tables and in vestry doors.
+
+Speak.
+
+Not in a comment. Comments are just more sitting. Out loud, with your actual voice, wherever you are, before midnight. Say, I object. Say it to your empty kitchen. Say it to your bedroom door. It is very polite, this thing. It cannot stand to interrupt, and it cannot take a bride over an objection that is still hanging in the air. One voice breaks it. Maybe. I am not going to lie to you about the maybe, I have lied to myself enough for six years. But silence signs it, that much my mother swears on her own used plate, and I would rather die objecting than live received.
+
+I am leaving the camera on. I am leaving the box open, because closed did nothing. The veil, my veil, the dry one, is in my hands as I write this, and it is warm now. Sleeping body warm. Worn warm. It was not warm an hour ago.
+
+If the comments under this go quiet at midnight, do not write to me about it in the morning. I will already know what it means. It will mean you held your peace.
+
+Please, God. Speak now.
