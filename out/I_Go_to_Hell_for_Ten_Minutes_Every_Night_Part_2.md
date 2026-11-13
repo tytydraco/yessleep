@@ -97,3 +97,5 @@ Somehow I was able to squirm free of the thing and I started to flee from it. I 
 It read 1:30 am.
 
 Something over there touched me last night, and I was there for twelve minutes.
+
+[**\[Part 3\]**](https://www.reddit.com/r/nosleep/comments/1xv5ick/i_go_to_hell_for_ten_minutes_every_night_part_3/)
