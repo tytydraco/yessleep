@@ -1,0 +1,152 @@
+[https://www.reddit.com/r/nosleep/comments/1x23zbr/im\_an\_apartment\_maintenance\_technician\_i\_get/](https://www.reddit.com/r/nosleep/comments/1x23zbr/im_an_apartment_maintenance_technician_i_get/)
+
+Hi, everyone! This is Andrea. Caleb has mostly been busy doing research about the town and the woman across the hall, so he said I could write an update. There have been some developments on my side of things. I never thought some simple tea visits would lead to what it did. I have learned much about her, but at great cost.
+
+It all started on my second visit. Despite all of Caleb’s stories, I could not help but look forward to my next visit. I found her immensely interesting, and after a week, I was desperately craving her tea. Caleb, at that point, had told me every horrible thing he could possibly tell me about our neighbor. I think he was trying to scare me into following the rules. I had no intention to break any of them.
+
+I was welcomed at the door of her apartment by a rat so fat I thought he could be related to her. When I opened the door, he scurried into her apartment like a cat that had been locked out all night. Inside, she sat upright on her couch with a surprisingly warm smile plastered on her face. In a way, she reminded me of my own somewhat overweight grandmother. The biggest difference was my grandma was obsessed with cleanliness to the point where I thought it a bit much. The neighbor clearly didn’t have that problem.
+
+I handed her cup to her, and she said, “I’m so glad you could make it, my dear. I’ve been counting the days since your last visit. I’ve warmed up your tea just the way I knew you’d like it.”
+
+I eagerly took a sip. I closed my eyes and took in the flavors. Of course, she was right. It was as perfect as tea could be to me.
+
+“How is it, my sweet?” she asked.
+
+Without thinking, I answered, “Oh, it’s amazing!”
+
+Then I placed my hand over my mouth, realizing what I did. My eyes must have been as wide as my cup as I watched her, frozen in fear. I thought any moment her mouth would unhinge and she would attack me like she did to Caleb’s coworkers. But no attack ever came.
+
+She smiled warmly. “Go on, dear. I love when people compliment my tea. My last guest was obsessed with it. So much so, she had it three times a day. What do you like about it?”
+
+Slowly and carefully, I ventured forth another answer. I figured I had already spoken to her. If she was going to eat me, a few more answers wouldn’t change anything.
+
+“It’s sweet... but not too sweet. Like you somehow added the perfect amount of sugar down to the molecules. It’s also really creamy, just the way I like it. I couldn’t make my own tea this good even if I prepared it a million times.”
+
+“You’re too kind,” she cooed.
+
+She observed me as I continued to nervously watch her, and then, as if reading my mind, she said, “You have nothing to worry about with me. I would never intentionally harm one of my guests. Think of this as your little haven where you can have a delicious spot of tea whenever you’d like. You are safe here.”
+
+Even though I knew what a monster she could be, I believed her. Not just because Caleb told me that she never lies, but because of how desperately she seemed to want me here. I began to realize just how terribly lonely she must be. I actually found myself breathing easy.
+
+“So...” I said, with a flurry of thoughts forming in my mind. “Can I come here and have tea whenever I want? Not just on Wednesdays?”
+
+“Of course, my dear! I will have a fresh cup waiting for you whenever you arrive. Is there anything else I can do to improve your visits?”
+
+I looked around. Every surface was so gross, and I wished I could have somewhere clean to sit. I wanted to ask, but I was afraid to offend her.
+
+I managed to say, “Well, my tea cup is different from yours. I was hoping maybe a chair that was as clean as that?”
+
+She actually laughed. “Oh, I know my home is filthy. You don’t need to be scared to tell the empress she’s naked. I’d gladly get you a chair. It’s no problem, and I promise not even a speck of dust will be found upon it.”
+
+“Thank you,” I said. Then, suddenly, our conversation was interrupted by some shouting in the hallway. It was the neighbor in 1003 screaming at her children again. She always yelled at them for the smallest things at a volume so loud you would have thought they lived alone in a cabin in the woods.
+
+“Ugh,” I groaned. “I hate how she yells at her children. If I ever have my own children, I hope I’m not like that lunatic.”
+
+She laughed again. “I’m sure you’d be a wonderful mother, my dear. You don’t have to worry about becoming like that. People like her will get what’s coming to them.”
+
+She really was beginning to remind me of my grandma and how much I missed her. She was really fun to talk to. Eventually, I looked over at the clock and realized twenty minutes had passed. I know I shouldn’t have been breaking the rules that much, but at least I managed to say the correct goodbye to her.
+
+“Thank you for the tea. I have to leave, but I will be back next week.”
+
+Then I placed my cup on the table and left.
+
+I left the apartment feeling conflicted. I knew that I was being reckless by breaking the rules. Caleb made it clear to me how risky that could be, but I already had a plan forming. If I was safe in the apartment, that means I could communicate with her freely. If I could communicate freely, then I could ask her any question I wanted. Since she can’t lie, then I could possibly find a way out of this all for both me and Caleb. I might be safe, but he clearly wasn’t, and I wanted to put an end to this as soon as possible.
+
+The neighbor also made it clear I could come by whenever I wanted, so I resolved to come by every day until I had the answers we needed. I knew that I had to keep this to myself because I was sure that Caleb would not approve of me being in there more than I needed to be.
+
+When I arrived, she was sitting up and smiling again and greeted me with pet names and compliments. I sat in the brand-new chair she acquired for me. It was simple, a wooden kitchen chair with a small red cushion, but it was clean. That’s what was important. There were no stains or grease, and somehow, there was not a single fly that landed on it.
+
+I started by asking only a few questions. I wanted to test her and make sure that I was truly safe before going forward. The first question I asked was what the weather would be the next day. She said it would rain, and I checked my phone and saw that it said it would not. I won’t make anyone hold their breaths, but the next day, it did, in fact, rain.
+
+I asked her what color the rug in my living room was, and she answered correctly. I asked if Katie at work was stealing my pens, and she said she was, but not on purpose. I kept asking question after question, and each one was seemingly correct. Before I knew it, I was finished with my tea, and it had only been ten minutes.
+
+“Oh, dear, let me refill that for you,” she offered.
+
+I accepted, and she took the cup from me, and when I blinked, it was suddenly filled. When she handed it back to me, our hands accidentally brushed. The tea was just as amazing as before, if not better. Our visit was soon finished, and while I had not learned anything crucial, I was feeling more confident in talking to her.
+
+The next few visits went similarly. I asked a few questions, she answered, and I had a cup or two of her delicious tea. I found that when I asked questions about herself, she was a bit avoidant.
+
+She’d say things like, “Maybe another time, dear.”
+
+“It’s a long story.”
+
+“You don’t want to hear about that.”
+
+I quickly realized it wasn’t a lie if you simply didn’t tell someone something. I was going to have to find a way to get her to open up. It didn’t take me long to find a solution. I noticed that when I volunteered information about myself, even things she clearly knew, she would reward me with information about herself.
+
+I would tell her the reasons I dropped out of college. She would tell me that she actually does like some of the maintenance workers, but she doesn’t see them as guests. I ended up revealing a lot of information about myself, but it seemed like she already knew everything, so I figured it wasn’t a problem.
+
+I learned that she was around for at least hundreds of years. I learned that the last woman she considered a guest died mysteriously. I found out that people have been serving her far longer than these apartments had been around. It was all beginning to paint a picture, but it still wasn’t clear to me. There were still certain things she avoided telling me.
+
+I started to notice some strange changes in myself that I couldn’t help but wonder if they were connected to her. There were strange marks on my hands where our skin made contact. I also started to gain weight. Now, there is nothing wrong with gaining a little weight. After Caleb and I moved in together, I started to put on a few pounds because Caleb loved cooking. He never minded at all, but I had hit a plateau, and I had stayed around the same weight for a while. Since I started visiting her, I put on five pounds in a week. I don’t know if it’s the tea or something else, but it’s not something I’m worried about. Yet.
+
+There was something else I found that really bothered me. She was sweet. Like, really sweet. She started to tell me how beautiful I was every time I entered the apartment. She filled my cup without me asking. She listened incredibly well. She always sat forward, nodding her head and never interrupting me.
+
+It was easy to open up to her. I told her about how I was bullied in school, and she told me it wasn’t my fault. I let her know my feelings on how Caleb lied about that lump, and she assured me that he loves me. It seemed like I told her everything, and she listened to it all.
+
+The thing that I hated about all of this is it felt like it was impossible to reconcile how she treated me with what I knew about her. I know that she ripped chunks out of Javier’s shoulder. She murdered and devoured Emilio. Caleb was terrified of her. But I really started to like her, even care about her, and that scared me more than anything.
+
+The visits had gone on daily for weeks when I thought I was really starting to make some progress. She finally let out that there was a way for us to get out of our arrangement with her. Then she made an announcement.
+
+“I have a surprise for you.” There was a smile across her face, but it wasn’t filled with the same warmth I had become accustomed to. This was something else.
+
+She did something I had never seen her do before, which was stand up. She was surprisingly graceful and had no problem standing. She led me down her hallway. There was a stench. She opened a door. When I stepped inside, I almost screamed.
+
+A woman was hanging from the ceiling fan with an electric cord wrapped around her wrists. There was a swarm of flies resting on her body when I walked in and they were startled and flew around so loudly I felt like I was in front of a plane engine. It took me a moment to recognize her, but it was our other neighbor. The one who yelled at her children. Her skin was a purplish grey, and there were wounds all over her body. They looked like bite marks. I could see her ribs peeking out, and she was missing a leg from the knee down. Maggots crawled out of every inch of her.
+
+Her decomposition didn’t make any sense. I had seen her only days ago, but she seemed far too rotten. If I didn’t know any better, I would have thought she was here for weeks, but I never smelled anything. I must have become too used to the stenches of 1001.
+
+My voice cracked as I spoke. “What is this?”
+
+“A gift,” she answered.
+
+“What do you mean, a gift? For me? This is not something I would ever want! What will happen to her children?”
+
+I was so angry I could feel tears welling up in my eyes.
+
+“Oh, my sweet child. I know that you don’t understand right now, but you will one day. This was for the best. You were right to recognize how she treated her children. I could see that there was true malice for them in her heart. They are better off without her.”
+
+“That’s not a license to kill!”
+
+“It’s okay, dear. If you want, I can tell you how to break the contract that Caleb has.”
+
+As much as I desperately wanted to know, I could not stand to be near her at that moment. I stormed out of her apartment and then walked back across the breezeway into my own. Once I entered the apartment, I saw Caleb sitting at the table. It was almost like looking into a mirror image of when I sat at the table waiting for him to come home just a few weeks ago. I could tell from his face that we needed to talk and that it was serious.
+
+“I got a call from the resident,” he said solemnly. “She told me next Tuesday I have to come and clean up that bitch next door that Andrea hates. Do you know anything about that?”
+
+My face went pale. “I... I...” I didn’t know what to say. I was still trying to process what I had seen in 1001.
+
+“So you saw what she did to her, didn’t you?” he calmly asked.
+
+“Yes,” I answered. “It was so horrible. It never crossed my mind that she would do that.”
+
+“Why not? I told you what she’s capable of.”
+
+“It seemed like she cared about me. It was almost like we were friends.”
+
+“Have you been talking to her?” I could hear a hint of anger in his voice.
+
+“I have,” I admitted. “But there’s been a good reason!”
+
+He sighed. “How could there ever be a good reason to talk to her?”
+
+“She can’t lie, and I found out she can’t hurt me. She told me herself. I’ve learned things about her, and I can possibly find a way out of this. For both of us. I didn’t realize she would hurt other people.”
+
+“That’s how she is! The rules are there for a reason. She operates in ways that we’ll never understand. It’s never worth talking to her for any reason. You have to follow the rules!”
+
+“I’m really close to finding something!” I insisted. “She offered to tell me herself. I just need a little more time.”
+
+“I’m close to something too. Whatever she’s going to tell you, it’s just not worth it. She always hurts people. No one else needs to die.”
+
+“What if you die before you find a way out? You’re the one who’s at risk every time you go in there! At least she’ll never hurt me.”
+
+He sighed again. “I know that when your mind is made up, I can’t stop you, but if I can’t get you to stop talking to her, just be more careful. Don’t mention anyone else to her, or she might get an idea.”
+
+I knew he was right. My words led to someone’s death, and I had to live with that. Even though I know that she yelled at her children, she certainly didn’t deserve to die, and now her children were without their mother.
+
+“Okay. I will watch what I say to her. I understand how dangerous she is now.”
+
+There wasn’t much else to say, and we spent the rest of the night in strained silence. I thought about waiting until Wednesday to visit her again like I was supposed to, but then I thought about her tea. Obviously, it was doing something to me, but I couldn’t help it. I didn’t think I could wait almost a week before I had it again. Besides, the sooner I get some answers, the better.
+
+Tomorrow I will go. Tomorrow I will find some answers. Tomorrow I will find a way out of this, if not for me, at least for Caleb.
+

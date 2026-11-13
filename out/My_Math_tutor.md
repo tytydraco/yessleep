@@ -1,0 +1,29 @@
+I don’t know why my mom and dad insisted that my sister and I be homeschooled. The blackboard takes up an absurd amount of space in our room, and I absolutely despise the screeching noise it makes. There’s a perfectly good whiteboard in the corner, but it does nothing except collect dust.
+
+Our tutor, Mark, is writing an equation, and I’m doing my best not to fall asleep. The numbers blur together as my mind wanders elsewhere.” Come and solve the equation, little cutie.” I get up, although something about the way he says it makes the hairs on the back of my neck stand on end. There’s something wrong with this man. I can’t put my finger on it, but I feel it deep in my bones.
+
+I pick up my pen and write the answer: 17. The seven overlaps the one in my messy handwriting. That’s when I notice something terribly stupid. I’m writing on the chalkboard with a white whiteboard marker. Great. Now he’s going to think I’m an idiot. I turn the pen around and use its sponge end to rub away the white ink. All I manage to do is smear it. I curse under my breath. “Oh man, f\\\*\\\* this.” I take a step backwards to grab the big sponge, but the ink only spreads further. I give up, write a seven in the middle of the mess and step back.
+
+My breath catches in my throat. The white smear looks like chalk. Except it isn’t just a smear anymore and the equation isn’t an equation. On the blackboard, there’s Mark, sitting behind a desk, surrounded by seven children holding hands. Their faces are contorted in agony. Their eyes are clenched shut, tears running down their cheeks, snot gathering around their lips. One of them is looking towards the top of the blackboard , as if expecting something to come and save it. The hopelessness in its little face is almost impossibly detailed. Mark has his hands pressed against the heads of two children sitting opposite each other, while a mist is wrapped around the neck of the white smear, which now resembles a child and stands beside Mark.  Behind him, two more children are sitting at the desk, their faces tilted downwards. Saliva pools on their shirts as they sleep. They look eerie. I don’t know how, and I don’t know why, but I know they’re me and my sister.
+
+I return to my seat without making a sound. I slip my phone out of my pocket and quickly take a picture of the blackboard. Then I send it to my sister. I watch her reach for her phone. The moment she sees the picture, the colour drains from her face. “We have to go to Dad.” her response reads. I get up and grab her hand. “Excuse me, Mark. We need to leave for a moment.”  I hear Mark chuckling.
+
+We head straight to my dad in the living room. He’s sitting on the couch with his eyes closed, resting.    
+“Dad, something is wrong with Mark. Look at this!” I pull out my phone and search through my gallery. All the pictures are there except the one of the blackboard. Marks footsteps echo in the hallway as he comes into the living room. He stands and leans his shoulder against the giant mirror opposite us, near the door. I turn towards my sister, “Sis, quickly! Do you still have the picture ? I can’t find it!” She pulls her phone from her pocket and checks her photographs, even the deleted ones. There’s nothing.  “No… I don’t.”    
+Mark laughs, the smile reaching his eyes. He looks like someone watching a show while already knowing how it ends.
+
+My mind races. I have to think of something. Anything that will make him leave. “Dad, Mark touched me inappropriately and called me a cutie. Kick him out!”     
+My dad’s face turns red. He smacks the couch cushions with his hands. I see his veins flex while he tries to stand up. I witness the exact moment he realises he can’t get up. It’s as though invisible shackles have been fastened around him, keeping him glued to the couch.
+
+Panic begins to take over. I don’t know what else to do.    
+I shout, my voice cracking in the end.  “In the name of god, I command you and whatever you brought into this house to get out. NOW!” Mark smirks.    
+I gather whatever strength I have left and begin praying loudly .” OUR FATHER IN HEAVEN, HALLOWED BE YOUR N…” My voice disappears. Not a single word comes out, no matter how hard I try. It’s like the air of my lungs is sucked out . Mark taps his fingers against the glass , waiting for me to look into the mirror. Our reflection is there but something isn’t right . I see Mark and all of us standing perfectly in line. Our faces are nothing but black mist. The only distinguishable feature is a horrible smile stretched wide across each face, revealing enormous, razor-sharp teeth. They begin moving towards the edge of the mirror, trying to climb out.
+
+Mark steps within inches of my face and holds my gaze with his dark eyes. In that moment, I find them beautiful.    
+My anger surges. What is wrong with me? I feel my heart pounding, and something powerful rushing down into my palms. *I can’t let him get away. He needs to die*.  
+My hands find his beautiful throat, and I tighten my grip.    
+I watch his veins bulge and his face turn red. “Beautiful,” he whispers. All I can do is plead inside my head to whatever might exist beyond us. *God, let us be the last ones. Let him die. Let him never come back.* His neck snaps like a twig in my hands.  His body goes limp and hits the ground with a thud.
+
+My hands smack my sides. *Welcome my children.*  
+A voice echoes inside my head. I feel my heart drop. I turn towards my family and all I can see is their horrified faces losing colour.  I feel my mouth stretching, my vocal cords forming noises I cannot understand. The voice coming out of it is foreign. It doesn’t belong to me. It’s loud and screeching, much like the chalkboard when u draw your nails on it. I feel like a passenger trapped inside my own body, watching something happen that I have no control over. A moment of clarity hits me and I can only understand the last phrase spoken.    
+“And so it begins.”

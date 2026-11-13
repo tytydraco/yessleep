@@ -1,7 +1,5 @@
 [https://www.reddit.com/r/nosleep/comments/1wruybe/im\_an\_apartment\_maintenance\_technician\_i\_get/](https://www.reddit.com/r/nosleep/comments/1wruybe/im_an_apartment_maintenance_technician_i_get/)
 
-
-
 Emilio’s dead.
 
 I hadn’t expected to post so soon after my last one. I had been supervisor for a few months by the last upload, and I thought that was the end of the story. I was wrong.
@@ -440,3 +438,4 @@ I can’t say that I’m thrilled Andrea will be going into 1001 every week, but
 
 It seems we have found a balance with her. She’s continued to leave me alone at night, and the marks she left on me have started to fade, but now I know how easily things can break with her. I know I can’t let it go on forever, but for now, what choice do I have? I don’t know if I can find a way out that doesn’t end with me dead or forcing my job on someone else, but if anything changes, I will be sure to post and update. For now, I will enjoy my weekly bonus and do my best to keep everyone around me safe.
 
+[https://www.reddit.com/r/nosleep/comments/1xvgu9k/im\_an\_apartment\_maintenance\_technician\_i\_get/](https://www.reddit.com/r/nosleep/comments/1xvgu9k/im_an_apartment_maintenance_technician_i_get/)

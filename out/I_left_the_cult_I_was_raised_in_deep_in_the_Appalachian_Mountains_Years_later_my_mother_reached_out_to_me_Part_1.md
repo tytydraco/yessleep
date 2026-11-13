@@ -1,0 +1,312 @@
+My childhood was fairly different compared to most. While other children fraternized on playgrounds, I was free to roam the forests of the Appalachian Mountains, making one-sided friendships with birds perched in ever-stretching oak trees. Instead of living in a colonial out in the suburbs, we had a wooden shack nested against the exposed sandstone of the mountainside. Instead of a teacher, I had Isabelle, my primary caretaker, tasked with instructing me on how to assist in tending to the land.
+
+For most of my life, I was led to believe that this freedom, this life, was provided to us by Mother.
+
+Our one true Mother.
+
+She is a sensitive topic for me. I don’t like thinking about her much less talking about her. Mother was a mystery to me in my adolescence. A name that invoked respect and immense reverence. But the view I had of her was soured once I was finally able to meet her face to face. Now, I wish I could just erase her from my memory. Just paint over that page of my life and continue blissfully unaware and free from all of the trauma that comes with it. But nothing in life is ever that easy.
+
+Aside from that, my life was otherwise fine, but some things tended to stand out when I likened it to a standard household. For one, we never really left the mountain. After all, we were given everything we could need. Fresh venison and rabbit, fertile land to plant vegetables and fruits, and an expanse of forest to do as we pleased. We divvied these blessings amongst our flock and never found ourselves hungry. Plus, there was always some work to be done in managing the land and we were all equally responsible for that never-ending task. Our little community consisted of about thirty women and a lonesome little me. For a good portion of my youth I was an only child and the only boy for that matter. As you can imagine, that can feel quite isolating.
+
+But then Sophie came. My dearest friend. At the time, my only friend. I know now with great certainty that Sophie’s arrival was a pivotal turning point in my life. Her indoctrination was the advent that marked the beginning of an end, the catalyst to a sequence of events that would unravel my entire understanding of who I was and how I lived.
+
+I remember the night she turned up as though it were only yesterday.
+
+I lay on my side, linen covers drawn up to my chin. The sound of cicadas singing thrummed all around our shack, but that wasn’t what awoke me. A low creaky moan came from the worn wood of the cot across from mine, Isabelle’s cot. I pretended to be asleep as she shuffled about. It was only once she had left through the door that I pushed myself from the bed to hastily throw on my leather boots.
+
+You see, Isabelle leaving in the night like this could only mean one thing. A newcomer had arrived. At the time I couldn’t tell you why, but it was always at night, especially on the night of a full moon. When I was younger I would hear her, but barely stir and in the morning there would be a new sister. However, as I grew older and more inquisitive I began to notice this happening on nights when my sleep had been disturbed but I had been too lazy to investigate. This time I had just enough curiosity to rouse myself from bed.
+
+I teetered on my toes, peering through the shack window watching as she practically glided towards the tree line. Nervous fingers worked to tie my laces as I was dead set on trailing her. Slowly, I opened the door, my head popping out to scan the perimeter. My eyes darted across the clearing looking around to make sure no one else was awake to observe. Thankfully, most of the others lay fast asleep.  
+Isabelle was out of sight and with that I was on the move. Admittedly, I hesitated as I approached the forest. I’d never been out this late and the way the trees towered over me felt nothing like my lofty friends I greeted in the morning. In the dark, they looked domineering and eminent. Swallow me up, I thought. That’s what the forest will do; it's gonna eat me up.
+
+“Mother, please provide me with strength,” I murmured and with my prayer uplifting me I stepped forward.
+
+Night birds cooed and whistled all around me. Leaves shuddered against one another hissing and bristling. The white of Isabelle’s nightgown radiated in the distance, drifting like a wayward ghost. But just like a specter she soon disappeared and now I was alone, truly alone. Forward, I just needed to keep going forward and I would find her again. But the forest seemed to get darker then. The chorus of the night grew louder too. Insignificant, I regretfully crept underneath the dense canopy of foliage. The light of the moon barely sifted through. I was just about to turn tail and run back to the comfort of my covers when I heard something. A new voice. My breaths were heavy, but I quickly quelled them before sneaking closer to witness the welcoming of our newest addition.
+
+Isabelle stood there, her white garment completely unsullied despite crossing what should have been a blind trek. She was undoubtedly divinely guided.
+
+“You’ve made it. We’ve been expecting you.”
+
+“Yeah…Yeah, we made it. You know, I really thought I was just going crazy. I was almost certain that we were just gonna end up dying out here, but then you came. Oh my god, you really came. When it told me about this place—” The woman grasped at her chest as if bracing herself.
+
+“*She*…” Isabelle quipped, a swift correction.
+
+“Oh, yes. I’m sorry. When she told me about this place. When that… I just thought I completely lost it is all.” The newcomer looked up from the clearing, towards the sky.
+
+“If you were lost then consider yourself found. Though, I am certain she was clear in her instructions, so why is that here?” A sleeved arm raised at Isabelle’s side and a single digit set its sights behind the woman.
+
+“You couldn’t just expect me to leave her. Especially not there.” The woman seemed to snap out of her trance then, her tone now taking a defensive turn.  
+Isabelle lowered her arm, but continued looking past the woman.
+
+“She was clear in her instructions.”
+
+A heavy, pregnant silence hung between them.  
+“If she can’t stay then neither can I…” The woman's voice waned with despondence, but she held firm.   
+She meant it.
+
+Isabelle’s irritation was evident in the way she craned her neck, yet she conceded.
+
+“You understand she will have to pull her own weight. It is expected of everyone.”
+
+The woman released a hefty breath of relief.
+
+“Yes, yes ma’am. We understand. She’s a hard worker. She used to help her Paw-paw on the farm. We will not cause you any trouble. Come now, Sophie. Say thank you.”
+
+“Thank you.” A new, young voice rang out.
+
+“Do not thank me. I am not who provides. I assume you are exhausted from your journey. Let’s get you two into bed. It is late after all.” Isabelle looked back, her eyes locking with mine.
+
+A pitfall unfurled in my belly as my stomach plummeted. Had she known I was there this entire time? I didn't stay long enough to find out.
+
+I dove through the brambles back through the forest, into camp and into the shack. I kicked off my boots, placing them in the exact spot I'd found them. I dusted my pants and crept back under my covers. When the door opened shortly after, my body remained still as I feigned sleep. I could hear her moving, the floorboards groaning as she ambled back to bed. My body was still rigid as I held the shape of an undisturbed repose.
+
+“Your steps are too heavy Malik. I heard you as soon as you set foot into the forest. You need to lighten your footfall when tracking. You’ll never catch anything if you keep moving like that.” I remained silent, but I knew that she knew that I was awake.
+
+I thought about that voice all night. Its soprano danced around in my head swinging back and forth like a branch in the breeze. When morning came, I was eager to learn who it belonged to.
+
+Isabelle was readying herself for the day. She sat in front of the window, eyes trained on her reflection as she gathered her hair into a single braid. I stood before her, readily dressed.
+
+“I want to help you show our new sisters around.”  
+Isabelle continued to braid, eyes still focused on the window.
+
+“*Our* new sisters, not yours. Remember Malik, you’re above that.”
+
+I grimaced at the mistake, but continued urgently.
+
+“*Your* new sisters. I want to help you show the new sisters around.”
+
+“Hm, you’ve never been this keen before. Why now?”
+
+“Well, one of them sounds like me. I have yet to meet someone like me, so I want to speak to her. That’s all.” I felt that my reasoning made sense, but I couldn’t gauge whether it did or not because even still Isabelle had yet to look at me. I judged most of my decisions based on that. Whether her eyes widened in approval or squinted with doubt.
+
+She finished braiding and opened the window. The wind whistled in and for a moment we stood there both listening. She closed her eyes, taking it in, focusing on something I couldn’t quite understand.
+
+“You will come with me and we will show them around. Afterwards, I will take Carrie to the goat pen, and you will take Sophie to the apiary. Come afternoon we will all weed the gardens until supper then we shall eat. Is that clear?”
+
+I was brimming, “Yes, Isabelle. Thank you!”
+
+“Do not thank me. I do not provide.”
+
+“Yes, I’m sorry. Thank you, Mother.”
+
+The wind whistled as if it had affirmed.
+
+We trekked across camp to the convert quarters. It was separate from the sisters' and priestesses' quarters, much smaller too. But that made sense to me because it wasn’t normal that we would get two converts at the same time. I asked Isabelle what a convert was once and she had told me they were women who adopted the true faith in allegiance to Mother, but I never asked what else someone could be aligned to and I’m not certain she would have answered that question either. Isabelle was good at that. Shifting a question and bending it in a way that it didn’t need to be explained, but otherwise she would answer most things.
+
+Isabelle went in and roused them from sleep. I patiently waited outside, greeting the flowers. When they came out I was able to see them much better than I had at night. Carrie was an awfully pretty woman, but she had a frazzled look to her that reminded me of a hare. Sophie was like me, not in looks but in age. Another child. Yet her eyes looked tired and wise.
+
+“Malik, these are the new sisters. Sister Carrie and Sister Sophie. We will be giving them a tour of the commune.” Isabelle swept out a hand showcasing the camp.
+
+“Good morning, I’m Malik. It’s nice to meet you two. It’s been a while since we’ve had new faces.”
+
+Carrie offered a quaint, wary smile, but Sophie just stared. She seemed indifferent to me altogether. Was she used to seeing other children, I wondered.
+
+We showed them the gardens, the stalls, the sleeping quarters, the chapel, the pantry, the well, and last, but certainly not least, the mining shaft. At the entrance stood two priestesses who welcomed us with warm smiles and Isabelle with courteous bows of their heads. The shaft was dark with no lanterns illuminating its insides and I could only wonder how far it went. How *deep* it went. Down. Down. Down.
+
+“What’s in there?” Sophie whispered, as if she were scared whatever it could be might hear her.
+
+“That is where Mother rests. We priestesses stand watch at all times to ensure she is never disturbed.” Isabelle answered.
+
+“She’s down there all by herself? Doesn’t she get lonely?” Sophie asked.
+
+“Oh, she is never alone. She can hear and feel all of us.”
+
+For some reason that didn’t seem to comfort Carrie or Sophie.
+
+“Alright, it is time we tend to our duties. Carrie, you and I shall milk the goats and muck out their stalls. Malik, you will take Sophie to the apiary and harvest a jar of honey. We will all meet back at the garden to weed the beds.” Isabelle was about to continue when Carrie interrupted.
+
+“They just go off alone? Out here? That seems kind of dangerous don’t you think?” Carrie bit nervously at the corner of her lip. I could see she wasn’t very eager to separate from Sophie.
+
+“This is all Mother’s land. They are safe here and under her protection. We are all under her protection and we must all carry our weight. Leave the doting to Mother, Carrie. You renounced that title the moment you set foot on her sacred soil.” Isabelle’s eyes slit with annoyance.
+
+Carrie looked taken aback, but Sophie sounded off to reassure her.
+
+“It’s okay Ma. I can handle myself.”
+
+“*Carrie*. She is Carrie now, Sophie. Remember?”
+
+“Oh, yeah. I’m sorry Ms. Isabelle. I’m still getting used to it.” Sophie gripped the edge of her smock.
+
+“Isabelle. No title necessary. Now go on you two and follow me, Carrie.”
+
+I didn’t wait for another order. I looked at Sophie then bounded off towards the forest edge. She caught on and trailed after me. I made my way through the forest, greeting each tree.
+
+“Your Mom really just lets you walk out here alone?” Sophie questioned.
+
+“Mother? Yeah, why wouldn’t she?” My shoulders rose in a perfunctory shrug.
+
+It didn’t take us very long to get to the apiary. It was just a couple yards away from camp. You could hear it before you saw it. The steady hum from the buzzing bees grew louder as we moved closer to the clearing. I stepped up towards the nearest hive, pulling a mason jar from my satchel. I unscrewed the silver lid, setting the top and jar down beside the boxes. I looked back at Sophie, confused as to why she was so far behind.
+
+“Are there any suits? We’re not gonna mess with them dressed like this, are we?” She pointed at the hives, her face scrunched into an uncertain expression.
+
+“What are you talking about?” I couldn’t understand why we would possibly need a suit for something like getting honey.
+
+“They’ll sting us if we’re dressed like this. I’m not messing with them unless we get one of those beekeeper suits.”
+
+“Sting us? The bees would never sting us over honey. Mother wouldn’t let that happen. Look, they’re nice.” I removed the cover, setting it down gently on the grass.
+
+I watched the throng of bees as they climbed over one another. Despite being disturbed they continued working diligently for the greater purpose of the hive. A few stray, amber bodies flew past me, some landing on my shoulders, then my cheeks and into my hair. I could feel their little legs crawling over my skin, their buzzing filling my ears. Not once was I stung, not even as I removed a frame thick with scarlet honeycomb.
+
+Thick, crimson honey oozed and dripped from the wooden board. I shook off the more stubborn insects that clung to the comb and by the third shake all had but abandoned it. I reached back into my satchel, pulling out my utility knife. It made quick work of the comb as I sawed out heap after heap of decadent red. Once the jar was full, I placed the frame and boxes back in their respective places. The bees drifted from my body, no longer curious about my efforts.
+
+I placed the sticky knife back into my sack. I would clean it later. I turned to Sophie and ran to her triumphantly, honey in hand.
+
+“I’ve never seen red honey. That comb looks like meat.” Her nose wrinkled in disgust.
+
+“Honey comes in other colors?” I’d never seen honey that wasn’t red. The bees always made it red.
+
+“It’s been gold every time I’ve seen it.” She nodded as if this were fact.
+
+“Gold honey sounds weird. I’m certain ours is better.” I held the jar out towards her, offering her the first taste.
+
+Hesitantly, she stuck out a finger staining it red. Her tongue darted out for a quick taste. Her eyes widened in surprise.
+
+“Whoa! It’s really tasty and really sweet, like candy.” Sophie giggled and it filled my chest with pride, but something confused me.
+
+“What’s candy?” I asked, closing the lid and carefully packing the goods.
+
+“You’ve never had candy?! Don’t tell me this place doesn’t have candy. Where’s the store? Every store has candy!” She huffed in disbelief.
+
+“Candy? Store?” I was perplexed. Much of what she said just brought more into question, “We store our food under the shack floorboards in preparation for winter. Are you talking about that?”
+
+Her eyebrows knitted together.
+
+“No pea-brain, a store! Like, a place you get your groceries and toys and stuff. What rock have you been living under?”
+
+I couldn’t help feeling ashamed. How much didn’t I know? I was certain Isabelle taught me everything I needed to know. The embarrassment made my ears grow hot and the bees grew louder behind us.
+
+“…I’m sorry, that was awfully mean.” Sophie wiped her hand over her smock, vermillion streaking the ivory cloth. “I didn’t know about red honey, so I guess I’m a pea brain too.”
+
+That made me smile. It made me feel less ignorant at the moment. If only I knew.
+
+“Well, I can teach you about the mountain and you can teach me about stores and stuff.”  
+Sophie nodded and we shook on it, sticky hands and all.
+
+“Their buzzing kind of sounds like all that noise in the camp.” Sophie remarked, “It’s so loud. It made it really hard to sleep.”
+
+“Noise?” I caught myself as I remembered, “Oh, you’ll be a priestess! You’re hearing the word of Mother. I’ll tell Isabelle when we get back.”
+
+“Wait, what do you mean? You can’t hear it?” Her tone was panicked, but at the time I couldn’t understand why.
+
+“No, not really. I mean, sometimes I think I can, but it’s really faint for most sisters and me. The Priestesses are special. They can hear her clearly and over time they can interpret her word. Isabelle says that after studying and stuff they can even hear each other. It’s like, they’re all connected. That’s why Priestesses do the important stuff like watch over Mother, stock the pantry, and make really important trips off the mountain. They can kind of hear each other, so if one sister is over there, but another is over here they can speak. But Isabelle says it’s not a conversation like this; she says it’s like a feeling. I don’t really get it, but you will.”
+
+Sophie looked unnerved by this.
+
+“Do I have to be a priestess? I’ve always wanted to be a nurse like Nana and help people.”
+
+“Priestesses do help people, especially a High Priestess like Isabelle. She helps me every day. All who hear Mother become a priestess. It’s an honor.”
+
+“Isabelle is your *Mom*, right?”
+
+“What? No. I had a weird idea that she was *Mother* once, but she quickly corrected that assumption. I'm just under Isabelle’s tutelage.”
+
+“You know all these big words, but you don’t know about the store?”
+
+“I know about everything that matters.” I scoffed, once again offended.
+
+“Okay, well then why is the honey red?” Sophie jeered.
+
+“Well, it’s because of the flowers. Look.” I bent down, reluctantly plucking a daisy. I tore off a velvety petal, watching as wine-red nectar bubbled out.
+
+“See. The nectar is red and the bees use the nectar from the flowers to make the honey. That’s why it’s not gold like stupid outsider honey.”
+
+Sophie ignored the insult, completely entranced by something else. Her still-stained finger played at the end of the stem, watching as spindly nerves limply clung to her nail before they wilted from death.
+
+“That’s so cool.” She whispered.
+
+I knew Isabelle would be cross with me for carelessly ripping out a flower like that, but it was all worth it for Sophie to have called me cool.
+
+We returned to camp, honey in tow. I took it to the pantry where it was safely stored and we made our way to the garden patch where some sisters were already working out the weeds.
+
+Sophie pushed past me, heading straight to Carrie. The two were really close and I felt a bit jealous that Carrie was a better friend to Sophie than I was. But I was sure that, with time that could change.
+
+I made my way to a shadier plot. It was a hot day and as my hands worked through the spoil I felt relief from the damp earth against my skin. A carmine stain began to form on my palms.  My nostrils welcomed the rusty, metallic scent. Gently, I plucked away weed after weed, watching as garnet droplets formed where a vandal once took root. We all worked like this until evening.
+
+The congregation met in the chapel for supper. Isabelle led Grace and promptly after we dug in. Today’s dinner was roasted rabbit and garden salad. The day worked up quite an appetite. Eagerly, I tore into my meal, but I couldn’t help paying attention to Sophie. I was pleased that she had sat beside me, but she hadn’t exactly appeared overjoyed about our supper. She pushed the meat over, back and forth, with her fork.
+
+“What’s this stuff on it?” Her tone was hushed as she spoke to me.
+
+I looked over, seeing the oil-slick sheen that filmed over the slice of meat. I saw nothing wrong with it. All meat looked this way. Didn’t it?
+
+“That is simply light diffraction. It is caused by the light bouncing off of the meat's muscle fibers. It is completely safe and edible.” Isabelle chimed in from the head of the table.
+
+Sophie jumped, surprised she could be heard at her volume. I could see she wasn’t comforted by this answer, but she tried it nonetheless. After a single bite, her eyes lit up. She must have enjoyed it, because soon she began to eat as voraciously as the rest of the table.
+
+Things went on like this for quite some time. I showed Sophie the ways of the mountain and she told me about life outside of it.
+
+One day, I took her to my favorite place. My secret place. It was a clear patch of high, soft grass. No trees or weeds formed here.
+
+“This is it? Just some boring clearing?”
+
+“Hush. Look and listen.” I pointed to the patch and after some time she noticed it.
+
+In a steady rhythm, the grass began to shudder. It pulsed out like waves rippling in a steady tempo.   
+I led her to the center and lay there; she followed after me. I put my ear to the ground and when she followed suit I knew she could hear it too.
+
+The pulse was faint, but unmistakable. A measured, rhythmic thump.
+
+We lay there together, basking in its glory.
+
+“How did you and Carrie find out about Mother?” I whispered, not wanting to disturb the serenity surrounding us.
+
+“Ma- I mean *Carrie* said a deer spoke to her. I thought she was using that bad stuff again, but I hadn’t seen her use it in a while. She kept going outside and talking to it, then one day she got me and we snuck out into the night and we came here. I was real scared, but I’m glad we’re here now. I like it.” She smiled. I thought I’d never get to see that when she first arrived.
+
+“What’s the outside like? Like, all of it, not just the small places. What’s it really like off the mountain?” Ever since Sophie came I’d gotten more curious. I’m certain Isabelle was growing tired of my questions.
+
+“There’s a lot. I couldn’t explain it all in a day. It wasn’t all that great for us though. Me and Carrie, I mean. We lived in her boyfriend's trailer. I used to live with my Nana and my Paw-Paw, but I’d no choice but to move there after both of them died.” She grimaced. The memory must have hurt. “Paw-Paw didn’t like how Carrie was living and he really didn’t like Mason. Mason was Carrie’s boyfriend. He was really mean. He was weird too. He made Carrie call him Daddy. He even tried to make me call him Daddy, but I already got a Daddy out there somewhere and I know he isn’t anything like Mason.”
+
+“What’s a Daddy?” My nose wrinkled in bemusement at the word.
+
+“A Daddy is a Dad. Uhm, a Father! It's like the opposite of a Mommy or Mother.”
+
+I was floored by this. I stayed silent for I don’t know how long. The concept was so foreign to me, so odd. A Father? The opposite of Mother? What could that possibly mean?
+
+“You have a Dad, don’t you? I mean, everybody does. It’s just the way things work.” Sophie sniffled, wiping her nose.
+
+“I don't think so. There's no one weird or mean in the camp.” I tried to imagine a Father. The word felt so wrong.
+
+“I told you, Mason ain’t my Dad. He’s not Carrie’s dad either. You don’t have to be mean or weird to be a dad. Paw-Paw was Carrie’s dad and he was awesome. I miss him every day.” Sophie was silent now. Her eyes began to well up with crystalline tears.
+
+I clapped my hands loudly, inches from her face. She jumped in surprise, glaring at me.
+
+“What was that for? Are you crazy?” She hissed, wiping away any residual tears.
+
+“I’m sorry. That’s what Isabelle does if I start to cry. She says crying never fixes anything, so there’s no point in doing it.” I never quite did like it when she did that, but it had worked in getting me to stop.
+
+“Isabelle is weird.” Sophie rolled onto her back gazing up at the clear, blue sky. “You know, it’s okay if you don’t know your Dad. I don’t know mine and I don’t think Carrie knows either.”
+
+I was just about to speak when the words caught in my chest. I could hear something in the distance, in the direction of camp. A deep, angry voice. Unlike any voice I’d yet to hear.
+
+Sophie turned to me, eyes wide like a startled doe.  
+“That’s Mason.”
+
+Without another word, we crept back towards camp. In the middle of our home stood a tall, lanky man. Isabelle said in time I would become this, but I had hoped I wouldn’t end up looking anything like the jittery, vicious thing that circled our gardens. He was waving around something dark and blocky.
+
+“He’s got a gun.” Sophie whimpered.
+
+“Carrie! Come on out you dumb bitch! Thought I wouldn’t find you? You thought I didn’t know you had a go bag you stupid cunt? You hid it like shit!” He prattled on, “It’s tracked bitch! You thought dumping it on the side of the road would throw me off, but I can smell that money maker for miles!”
+
+Thankfully, the camp was empty. Or at least it appeared so. Mother must have warned the Priestesses he was coming. To an untrained eye, the clearing was desolate, but I knew better. I could see them scattered about hiding. Waiting.
+
+“If you don't come out now when I find you I’m gonna fuck you up! You still owe me skank! We’ve got money to make! What kind of hippy shit is this?” He kicked down a wooden planter, sending our crops toppling over.
+
+“Fine don’t come out. I’ll come back and burn all this shit down,” Mason growled. He was something like a coyote. The sick kind. The ones we were forced to put to rest.
+
+“I need to find my Ma. He’s gonna hurt her.” Sophie whimpered.
+
+She leapt away from me before I could snatch her back. I covered my mouth. I knew better than to be caught. She was trying to sneak about, but she was too loud. Her footfall was too heavy.
+
+Mason descended upon her. He yanked her up, pressing the gun against her cheek. Sophie wailed, kicking and screaming, but he was relentless.  
+“Come out now cunt, or don’t! I bet chomos will pay top dollar for this! I don’t mind tapping into a new market!”
+
+I was horrified, but just as I was about to play hero I watched as Isabelle materialized from the tree line. Her steps were so careful and precise it was as if she was floating. In her hand she held a muddied sickle.
+
+Mason carried on belligerently and for a moment I believe he saw Isabelle, but by the time he had it was too late. With a swift swing, she lodged the end of that sickle into the side of his throat, effectively hooking him. He stumbled, dropping Sophie and the gun. His hands clawed at his neck, as he gasped for air. He ripped the sickle from his neck and when it dislodged came the quick spurts of crimson. It showered over Sophie as she huddled there in shock.
+
+Mason turned to Isabelle, coughing up his lifeblood. Then Carrie came out, screaming. In her hand she gripped a weeder. She jammed it into his back. His knees buckled. Soon another sister came, then another, then another. As they swarmed him, Sophie still knelt there enduring her sanguine baptism. Once Carrie had her fill she made way to her, holding her close as she sobbed into her sticky, wet hair. But Sophie was catatonic. She could hear it and I could hear it. Our eyes were locked on the horde of sisters that tumbled around, tearing apart the man that never stood a chance. The buzzing was deafening, maddening. It drowned out my thoughts, all thoughts. Nothing but, kill.
+
+*Kill. Kill. Kill.*
+
+The noise was so intense, too intense. I grasped at something, anything. My fingers dove into the ground clinging to the grass too hard. It started bleeding.
+
+I think it’s best that I take a pause here. So much that I had fought to repress is resurfacing and it’s a lot to remember all at once. I should be able to tell you all about it in the second half. I just need to take a breather. Thank you to all who have listened so far.
