@@ -1,0 +1,346 @@
+I'm writing this only a few hours after it happened, and I genuinely don't know what to make of it.
+
+I've experienced the usual strange things before. 
+
+Catching something out of the corner of my eye, thinking I heard someone call my name, or mistaking a shadow for a person.
+
+But this was different.
+
+This wasn't a fleeting shadow that disappeared when I looked at it.
+
+This was something that unfolded over several minutes. Something so ordinary at the time that I didn't even question it.
+
+And now, after talking to everyone who was home, I'm left with a question I really wish I didn't have to ask.
+
+**Who, or what, did I watch leave our apartment tonight?**
+
+Let me explain.
+
+Earlier this evening, I was in the kitchen preparing dinner. I had a podcast playing on my phone while I stood in front of the stove.
+
+My boyfriend was in our bedroom, and his mother was getting ready to take a bath.
+
+Our apartment has a particular layout. The kitchen sits directly across from the front door. When I'm standing at the stove, the white apartment door is visible in my peripheral vision to the right.
+
+However, I can't see down the hallway or into the living room from that position. I can only see the area around the front door.
+
+Remember that.
+
+Just before I started cooking, my boyfriend's mother and I crossed paths. She was heading into the bathroom, and I was walking into the kitchen.
+
+I remember seeing the bathroom door slightly open behind her.
+
+A short while later, I heard it close.
+
+Everything was completely normal.
+
+About five minutes later, I heard her talking on the phone. It sounded like she was somewhere in the hallway or living room. 
+
+I distinctly remember hearing her tell someone that she'd be right down.
+
+It was her normal voice. Familiar enough that I didn't give it a second thought.
+
+Earlier that evening, she'd mentioned wanting to walk to the store, so I assumed she was arranging to meet someone downstairs.
+
+I continued cooking.
+
+A few minutes later, movement caught my attention from the corner of my right eye. Something dark was in front of our white apartment door. 
+
+It was shaped like a person.
+
+Long black hair. Dark clothing. What appeared to be a shorter black jacket. 
+
+My boyfriend's mother has long black hair and almost always wears black. She also owns a short black leather jacket.
+
+So naturally, I assumed it was her.
+
+But here's what I've been thinking about ever since.
+
+**I never actually looked directly at the figure.**
+
+I saw it in my peripheral vision, where the black shape stood out sharply against the white door.
+
+I couldn't see where it had come from. I couldn't see it approaching from the hallway.
+
+It was simply there, in the exact place where someone would stand before leaving the apartment.
+
+Then I heard the front door open.
+
+A voice said something like, "Be right up."
+
+And I heard the door close.
+
+I didn't turn around.  
+I didn't say goodbye.  
+I didn't even acknowledge it.
+
+But there's something about that voice that bothers me now. It wasn't quite her normal voice.
+
+My boyfriend's mother sometimes jokingly puts on this strange, deeper, mumbled voice when talking to him.
+
+That's what I heard at the door.
+
+It sounded like her, but not the way she'd been speaking on the phone just minutes earlier.
+
+At the time, I assumed she was joking around with my boyfriend. So I ignored it.
+
+I had no reason not to.
+
+In fact, I was actually irritated.
+
+I figured someone had arrived downstairs, and she was going to let them into the building.  
+I remember thinking, *Great. We're going to have company.*
+
+I was hot, sweaty, wearing shorts, and trying to get dinner finished. The last thing I wanted was to socialize with someone unexpectedly.
+
+I even started worrying about whether there would be enough food.
+
+Think about that for a second.
+
+I was standing in my kitchen, planning how to accommodate a guest, because I was so convinced I'd just watched someone leave.
+
+There was nothing frightening about it.
+
+Not yet.
+
+Several minutes passed.
+
+Nobody came upstairs.
+
+Eventually, I started wondering what was taking her so long.
+
+Maybe I'd misunderstood what she'd said.  
+Maybe it wasn't "be right up."  
+Maybe she'd said "be right back."
+
+I remembered her mentioning the store earlier, and I figured she'd probably gotten picked up by someone.
+
+That seemed reasonable.
+
+So I stopped thinking about it.
+
+I went back to cooking.
+
+And then something happened that has made me question the entire evening.
+
+Maybe five minutes later, I noticed movement to my right again.
+
+This time, it was coming from the hallway.
+
+My boyfriend's mother appeared from the direction of the bathroom.
+
+**Wearing nothing but a towel.**
+
+She casually said something about forgetting to grab something, hurried into the living room, grabbed whatever she needed, and disappeared back into the bathroom.
+
+I barely reacted.
+
+At first.
+
+Then, about a minute later, I felt this sudden wave of confusion.
+
+*Wait a minute.*
+
+*How did she get back inside?*
+
+I stopped cooking for a moment.
+
+I looked toward the front door.
+
+I'd been standing directly across from it the entire time.
+
+I hadn't heard anyone come back.  
+I hadn't heard the door unlock.  
+I hadn't heard it open.  
+I hadn't heard it close.
+
+And I certainly hadn't seen anyone enter.
+
+Yet there she was.
+
+Back in the bathroom.
+
+Taking the bath she'd supposedly left the apartment in the middle of preparing.
+
+I tried to make sense of it.
+
+Maybe I'd mistaken my boyfriend for her?
+
+But that didn't make sense.
+
+The figure had looked like her. The voice had sounded like her. And my boyfriend wouldn't normally leave without telling me where he was going.
+
+Still, I needed to check.
+
+I walked into our bedroom.
+
+My boyfriend was lying on the bed.
+
+Fast asleep.
+
+He hadn't gone anywhere.
+
+I stood there for a moment, trying to put the pieces together.
+
+If he was asleep...
+
+And his mother was in the bathroom...
+
+**Who had I just seen at our front door?**
+
+I went back to the kitchen.
+
+I didn't know what else to do.
+
+Dinner was almost ready, and I was trying to convince myself there had to be some simple explanation.
+
+Maybe I'd gotten distracted.  
+Maybe I'd misunderstood something.
+
+But I couldn't shake the memory.
+
+The long black hair.
+
+The dark figure against the white door.
+
+The voice.
+
+The unmistakable sound of someone leaving.
+
+Eventually, I finished dinner and woke my boyfriend.
+
+We sat down to eat.
+
+And as we were eating, the entire sequence of events came rushing back into my head.
+
+I started telling him what had happened.
+
+At first, I was just confused.
+
+But the more I explained it out loud, the more uncomfortable I became.
+
+Because I was beginning to realize something.
+
+**I hadn't just thought I'd seen someone. I'd spent the next several minutes behaving as though that person had actually left.**
+
+I'd wondered who she was meeting.  
+I'd worried about unexpected company.  
+I'd questioned why she was taking so long.  
+I'd even come up with an explanation for why she hadn't returned.
+
+It had all made perfect sense.
+
+Until she walked out of the bathroom.
+
+When she finally finished bathing, my boyfriend and I went to talk to her.
+
+I asked her whether she'd gone downstairs earlier.
+
+She looked confused.
+
+"No."
+
+I asked again, explaining that I'd heard her talking on the phone and watched what I believed was her leaving through the front door.
+
+She insisted she hadn't gone anywhere.
+
+I described hearing her say she'd be right down.
+
+Then hearing the door open.
+
+Then hearing that deeper, mumbled voice say she'd be right up.
+
+Then the door closing.
+
+She had no idea what I was talking about.
+
+According to her, she'd been in the bathroom the entire time.
+
+The only time she'd stepped out was when I'd seen her wearing a towel, briefly retrieving something from the living room.
+
+That was it.
+
+She hadn't gone downstairs.  
+She hadn't opened the front door.  
+She hadn't returned from anywhere.
+
+And my boyfriend had been asleep.
+
+As I finished explaining everything, all three of us started getting goosebumps.
+
+Because nobody could account for what I'd experienced.
+
+I've been replaying it in my head ever since.
+
+And the more I think about it, the more certain details bother me.
+
+I heard her normal voice first, apparently speaking on the phone.
+
+Then, minutes later, I saw what I believed was her standing at the front door.
+
+But the voice at the door was different.
+
+Deeper.
+
+Mumbled.
+
+Almost like someone deliberately imitating that joking voice she sometimes uses.
+
+And the figure itself...
+
+I keep remembering how black it looked against the white door.
+
+At the time, my brain immediately identified it as her.
+
+But thinking back, I can't say I actually saw her face.
+
+I saw the shape of a person.
+
+Long black hair.
+
+Dark clothing.
+
+A silhouette that looked familiar enough that I never questioned it.
+
+And then there was the door.
+
+I heard it open.  
+I heard it close.
+
+But I never actually watched it move.
+
+I never turned my head.  
+I never looked directly at whoever was standing there.
+
+I simply accepted that it was her.
+
+And carried on making dinner.
+
+I've heard stories about things called mimics.
+
+Things that supposedly imitate the voices and appearances of people you know.
+
+I've also come across stories warning people not to acknowledge them, not to answer familiar voices coming from strange places, and not to follow something that looks like someone you recognize.
+
+I don't know whether I believe any of that.
+
+Until tonight, I would've probably brushed those stories off as creepy internet entertainment.
+
+But now I can't stop thinking about one particular detail.
+
+**Whatever I saw, I never gave it my attention.**
+
+I never answered.  
+I never turned around.  
+I never made eye contact.
+
+Not because I sensed something was wrong.  
+Not because I was frightened.
+
+But because I was so completely convinced it was someone I knew.
+
+And that's what disturbs me the most. 
+
+If I'd turned around, what would I have seen?
+
+Would it have looked exactly like her?

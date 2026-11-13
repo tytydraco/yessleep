@@ -1,0 +1,45 @@
+Okay so, long story short I have an unkillable plant in need of killing.
+
+It first technically came into my possession when I broke up with my girlfriend. She moved out and took all her stupid crap with her, except for the plant. It was tiny at first, barely casting a shadow from its stoop in the windowsill. It's pot was handmade during one of our dates from ages ago, I don't really remember when or really why.
+
+Basically, I thought she'd sneak by to pick it up at some point. It looked special and it was in a special thing, why wouldn't she came back for it?
+
+Anyway, I thought it'd be funny to spite her by killing it. She'd come back and see that I got the last laugh or whatever. It seemed like a funnier idea when I was high.
+
+At first I just let it be, no water or special-wecial fertilizer. Pure neglect. It drooped and yellowed a bit, but honestly it looked the same as usual. Maybe it just adapted or something, like plants in the desert.
+
+So, when I picked up drinking again I decided to share with it. At first it was just because I thought it was funny, but eventually it just became part of my routine. Come home from work, crack a beer for me, pour one on the plant, Tv time, bed. 
+
+It was a stupid waste of good alcohol but running out the cases sooner made me feel less lonely, like I was drinking with someone.
+
+That was the last time I felt some semblance of a positive emotion towards it. 
+
+The gimmick behind the beer got old pretty quick and eventually I just decided to throw the stupid thing away. She hadn't texted me at all and wasn't answering my calls, so she probably wasn't ever coming back for the stupid plant.
+
+In a fit of rage (admittedly while also very drunk), I yanked open a window overlooking an alley and stomped over to grab the stupid pot to chuck it out. It could be some other sad sack's problem now. The only issue is that it didn't budge. I stumbled back in confusion when my swift yank didn't deliver anything except a shallow cut on my left hand.
+
+It stung like crazy, I don't really remember when it grew thorns. I can't really remember when it started growing in general.
+
+I tugged on the pot again and managed to lift it up just high enough to see all the roots growing through the bottom and into my windowsill. The windowsill! 
+
+I dropped it on reflex and watched it resettle itself. It moved itself, like someone readjusting while sitting on a chair. I stared at it for what felt like hours expecting it to lunge at me or suddenly spawn teeth. It just…. sat there.
+
+I eventually tried to take a knife to the roots, but after I lost the second blade I gave up. This probably explains why I haven't seen any roaches lately. It's been feeding.
+
+If I wasn't in an apartment complex I'd have burned it weeks ago. I can't risk getting arrested for arson or accidentally killing Mrs. Wheeler next door. She needs an oxygen tank or something.
+
+I tried looking it up on one of those find-a-plant apps and my camera keeps getting it wrong. Whenever I look at it through the camera it just looks like a clump of ivy or something. 
+
+The app keeps telling me it's just a pothos plant, but I'm not that dumb. It can't be a pothos plant, it's growing too much extra crap.
+
+Honestly, if it wasn't for the pollen building in the air I'd have given up altogether and just accepted it as a roommate. 
+
+I don't even know if it is pollen, I'm not a plantologist or anything. It just keeps growing these pods that wake me up in the middle of the night when they pop, which then further pollute the air. I've installed box fans in like every single one of my windows to push it all out and three (3!) plug in filters in my room.
+
+I don't make enough money to move, I really don't know what to do. Its grown large enough that it's blocking the window now. The roots have started to come out through the faucet too, so I have to wash dishes in the bathroom.
+
+I'm too scared to try a toxic plant-killer, what if it gets in the water?
+
+Anyway so I'm just really hoping that someone out there will have some magical answer to killing the stupid not-pothos so I can stop overdosing on allergy medication in order to breath whenever I walk through the kitchen. Whatever it's dumping in the air has gotten thick enough that I have to shower at a gym before I go to work. I'm always itchy no matter how much I scrub.
+
+Just, please help me. If Amanda's reading this please please please come get it I'm sorry for cheating on you just pick up the phone please. I think it misses you.
