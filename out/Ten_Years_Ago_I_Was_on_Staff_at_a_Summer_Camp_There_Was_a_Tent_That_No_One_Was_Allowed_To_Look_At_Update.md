@@ -1,4 +1,4 @@
-\[[Part One](https://www.reddit.com/r/nosleep/comments/1xmidmf/ten_years_ago_i_was_on_staff_at_a_summer_camp/)\]
+\[[All Parts](https://www.reddit.com/user/Emerald_City_Ghosts/comments/1xwa5dc/stories/)\]
 
 Warning: animal death
 

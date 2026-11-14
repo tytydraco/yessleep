@@ -1,4 +1,4 @@
-\[[Part One](https://www.reddit.com/r/nosleep/comments/1xmidmf/ten_years_ago_i_was_on_staff_at_a_summer_camp/)\]\[[Part Two](https://www.reddit.com/r/nosleep/comments/1xrd8wy/ten_years_ago_i_was_on_staff_at_a_summer_camp/)\]
+\[[All Parts](https://www.reddit.com/user/Emerald_City_Ghosts/comments/1xwa5dc/stories/)\]
 
 After the owl firestorm, the tent stayed quiet for a few days. There was a part of me that hoped it was over, even though I knew it wasn’t. The door stayed open, zipper flapping in the breeze, and I kept watching, waiting for it to close.
 
@@ -86,8 +86,8 @@ At first I was confused. It seemed like quite a coincidence that a random owl wo
 
 But then I looked closer at her tail.
 
-I saw the way the tips of her feathers were singed and melted.   
-  
+I saw the way the tips of her feathers were singed and melted. 
+
 She shook and soot rained down from her wings.
 
 It was the same bird. 
@@ -101,8 +101,6 @@ When I gathered the others to tell them, it felt strange. It felt more like shar
 Maybe I was.
 
 \*\*\*
-
-
 
 Nico and I built a fire a few nights later. He had cleaned all the birds out of the firepit earlier in the week, which I thought was exceptionally good of him. I don’t know that I would have had the stomach for it. 
 
@@ -142,8 +140,8 @@ He was right. When I first showed up, everyone had been so welcoming, and I had 
 
 Overhead I heard a bird or a bat brush up against the leaves. I shuddered at the memory of our last bonfire and tried to put it out of my head.
 
-“When you go home, what’s the first thing you’re going to do?”  
-  
+“When you go home, what’s the first thing you’re going to do?”
+
 I thought about it. Then I said, “I’m going to get like ten hours of sleep, and I’m not going to worry about the Witch waking me up.”
 
 “Come on, Kit. That’s so boring.”
@@ -263,5 +261,3 @@ I searched the note for any alternative meaning–anything to soften the blow of
 But there was nothing. The note was beautifully, perfectly, terrifyingly succinct.
 
 *Bring me a child.*
-
-  

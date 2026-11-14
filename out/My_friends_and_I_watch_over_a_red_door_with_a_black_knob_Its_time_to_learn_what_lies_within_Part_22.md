@@ -361,3 +361,5 @@ We were all each other had in this dark abyss, and whether it was before the red
 For all the insanity of the moment, and for all the fear that I felt, suddenly, I felt temporarily invincible. Enough to charge beyond the doors behind us, axe raised in defiance, not surrender. Enough to trust that my friends might be invincible too. Enough to feel that I could take on a god.
 
 Maybe even three of them.
+
+[{Next Part}](https://www.reddit.com/r/nosleep/s/TCT4HhdYGF)

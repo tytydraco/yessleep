@@ -1,3 +1,5 @@
+\[[All Parts](https://www.reddit.com/user/Emerald_City_Ghosts/comments/1xwa5dc/stories/)\]
+
 In the center of the camp where I worked, there was a circle of staff cabins, and in the center of those cabins, there was a tent. 
 
 On my first day, when I asked what it was, the other staff told me not to touch it–especially if it was zipped up. I assumed it was because it belonged to one of them and they wanted privacy, or maybe it was some kind of hazing thing I was going to need to deal with later. Either way, I was a pretty boring kid looking to fit in, and I did what I was told.

@@ -1,0 +1,190 @@
+They say nightmares are dreams perverted, but the story I am about to tell actually happened to me about half a year ago. It might sound crazy and I know it sounds insane, but I hope that at least one single person believes me. Since everyone else I’ve told this story only called me crazy, mad, or psychotic. So now this is my last resort. I wouldn't normally tell you (reddit)  my story, but I believe that whatever happened 6 months ago is happening again and might be happening to one of you.
+
+It all started in May. Back then I was living in a small two bedroom apartment, even still I had to live with a roommate, James (my job didn't and still does not pay well).James was a tall,skinny and well put together guy. He was always energetic and he considered himself an entrepreneur and I considered him a friend. We would go to the bar every Monday night, he  would make me a coffee every morning and I would bring him dinner after work. But that would all change …
+
+The day before I went on my trip to Britain,  he made me breakfast. “You know , you could build a startup instead of going on vacation” he said. “Fuck you “ I told him in the same, sarcastic tone I used every time he would mention one of these things. I went to work and the next morning I left.
+
+After I had just gotten back from my incredible, weeklong trip to Britain ( I had gone with a close friend, who had driven me home). Everything seemed normal, but as I entered my apartment, it was quiet, my roommate was gone-and I mean GONE. His room was completely empty. His clothes gone. His bed gone. He was gone.
+
+I searched the room. The only place worth searching was the closet, built into the wall. NOTHING. It was empty. “squip” I had stepped into something, a small puddle of goo. I took my socks off. A gray, wet mass was on it. It was disgusting and smelled like the rest of the room, but stronger
+
+The room smelled weird; it was a smell which I still can't quite explain. It had hints of vanilla and cinnamon, but with a much strong, horrible rotten stench. So I called him. Call 1: nothing. Call 2: no answer. Call 3: An answer-3 seconds long, a long uncanny breath followed by him saying “I’ll be back” in a short, sped-up way.
+
+By the end of the day, he still hadn't gotten back to the apartment.
+
+Then the doorbell rang: “bzzt,” and then again, “bzzt,” and again and again. I opened the door, and there he stood-James -not in good shape, but he was there. His muscles were twitching, his T-shirt was stained with some sort of unknown gooey substance, some of it already on the floor beneath him, and the worst part: the smell was back, that awful smell with its artificial undertones.
+
+“Hello,” he said in a monotone, cheerful voice. “James! What happened?” I asked.
+
+He stopped completely for a moment. “Nothing,” he eventually answered. Then he jerked back into his former position.
+
+“HEY! What happened!?” I asked once again.
+
+“Nothing” he said, in the exact same way as before, he had repeated it.
+
+Something was wrong, very, very wrong.
+
+And then he continued, in a voice almost his own: It was slightly too raspy. Slightly too low. It cracked every few sentences.
+
+The things he started talking about were normal, so normal it was uncanny—the weather, his hobbies, and my trip.
+
+At some point, I asked, “Where’s all your stuff?” “Yes,” he answered, as if even he did not know the answer.
+
+I didn't understand what he had meant, so I asked him to repeat it. “Yes,” he repeated. It was the same “yes”-I don't mean it was his voice, it was more like he took a sound effect and repeated it.
+
+And then I noticed it: he had not blinked the entire time.
+
+By this point, I was freaked out, but I still thought it was just me being sleep-deprived. So I went to bed.
+
+“I am … just sleep-deprived” I thought.
+
+“Yeah just sleep-deprived ,... or maybe … this is a prank”  I continued, I convinced myself that there was nothing more to it.
+
+The next morning was Monday ( I had taken two weeks off of work, so I still had seven days). I woke up at 6am and James was gone. What was he doing so early on a Monday, he worked from home?
+
+The fridge was empty.And so I went to the store, and on the way there, I noticed a strangely high amount of missing persons posters: EVE BASKIN - MISSING (a week) OWEN RYDER - MISSING (3 days) JOSH BAKER - MISSING (4 weeks)
+
+At the store, I saw Sarah (James’s sister). I had met her a few times, but never really had a conversation with her. She tried walking away, but at some point I caught up to her. I asked her about James, but she would not talk about him and just ran off. "Go away!" she yelled. I tried to follow her, but she got into her car and drove away.
+
+When he came home that night, I asked him “ You coming?”, I meant to the bar of course. “Where” he asked, in that unnatural monotone voice, what should have been a question sounded like a statement, but so did everything else he said. I told him to forget it and went alone. By now even I could not convince myself that this was normal.
+
+That night, the talking started. James made weird, sped-up noises; they sounded almost pre-recorded in this eerie, mechanical way. These noises sounded almost like talking, but only almost-it was as if he were talking in a long-past foreign language. And every night, this would get louder and louder.
+
+By the second night, it was the volume of your average scream. By the third the neighbors started to complain.
+
+On the 4th night, it was impossible for me to sleep. I looked at what he was doing. His eyes were wide open, but he was in a sleep-like trance; his twitching was less strong, he was lying in a puddle of the oil-like substance which had stained his shirt, and he was playing these noises on repeat over and over and over and over again. They cycled through clicking noises into more and more human-like ones, these were still unrecognisable but they sounded almost human. This cycle would restart every few minutes
+
+I don't know if it was because of shock or if I got caught in the trance myself, but I watched for a long time, until at around 1 AM, his twitching got much worse for around 20 minutes, and the noises got much louder.
+
+The next morning, I asked him about it-he did not answer. Maybe he didn't hear me. I asked him again in the middle of a conversation-he ignored me. “Are you listening?” I asked. He still did not answer.
+
+Only an hour later, he left again. He had been away from 6 AM to 8 PM every day. What was he doing?
+
+But that day, when he got back, someone called me-it was Sarah.
+
+I answered the phone. "Hello," I said. “He is here; he’s been here for two days,” she said in a frantic and frightened voice. “Who?” I asked. “James,” Sarah answered.
+
+Suddenly, James walked into the room. “But he's in his apartment?” I said, confused. James sat down next to me. “THAT’S NOT THE PROBLEM!” she snapped. “What do you mean?” I asked. “Who are you talking to?” James asked. This was the first time he had raised his voice. “Haven’t you heard?!” she continued. “WHO ARE YOU TALKING TO?!!” James said. It was repeated, louder.
+
+I ignored him. “WHERE IS HE?” she asked. “Next to me,” I answered. “GET OUT!!!” she screamed.
+
+I ran, but he did not follow. Once I was outside, I looked back-only for a moment-but I could clearly see James standing at the window, watching, his eyes dark, his mouth open.
+
+I called Sarah after I had gotten about a mile away. “Who is that?!” I asked in a horrified tone. “I don't know, but they aren't James! James has been missing for a week!” Sarah answered. “...But I know what they say while sleeping, I recorded it...” she continued. “What!?” I asked. “It’s reversed and sped up, but this is what they say...” she started. “Go to Marrow Bay! The Echoes of the Red Ones will burn the flesh from the sin and guide us to paradise!” “What is that supposed to mean?” I asked. “Marrow Bay is a small town not too far from here,” she answered.
+
+I decided to go to marrow bay. Best case - we find James. Worst case - we find nothing. Maybe we could save James. Maybe we could help. Maybe we could stop this. At least that was what I thought, I was so, so wrong. Even still Sarah agreed.
+
+ "I'll meet you tomorrow at 2,” I said. After that, she hung up.
+
+On the walk to the closest motel, all I could hear was the strange noises James made-well, maybe it was not James, maybe it was someone else, one of the missing people, or all of them.
+
+The next day, I bought myself a gun: a small revolver with a pack of 20 bullets. Then I walked to the meeting point, me and Tom (the friend I went to Britain with).
+
+Tom was rich, or rather his father was. He didn’t have a job and even if he had, I don’t think he would have kept it for more than a few months. It was easy to convince him to come with me.
+
+We met up in the parking lot of a small, dilapidated, almost abandoned car park. I threw my bag into Tom's old red car—well, it was red at some point; by now, the red had faded, and the car was covered in dirt. “charm” was his reason for keeping it - I did not say he was smart.
+
+Tom, of course, did not know why we were driving there. Why would we tell him? Why would we make him think we were insane, or in some kind of group psychosis? He was just the only one with a car. Even if we all had a license, my car had been stolen a few months prior, and Sarah just never bought one.
+
+Eventually, Sarah arrived. Much like me, she also brought a friend. "I'm Julia,” she introduced herself.
+
+After we introduced each other, we went to the only place which was open... Waffle House.
+
+We sat down in one of the many booths. It seemed sticky, but we had no other option, and there is no denying that the food is good. After only a few minutes, our waitress arrived. “And what can I get for you three?” a young blond woman asked.
+
+I ordered a black coffee, and 5 long minutes later, our waitress brought it to me.
+
+ “So what are we going to do? Sightseeing?” Tom asked the group. “ You’ll see.” I responded. “Come on!  Why are we going?!” he repeated. Nobody answered.
+
+The waitress leaned down and gave me the mug. “Here you go,” she said in a disgusting monotone voice.
+
+Then she left and then I noticed it... a strange goo all over the mug and the table’s edge,the smell-the putrid stench of cinnamon, vanilla and rot.
+
+I gave Sarah a quick glance, and then we started to walk out. Tom, who still had half a waffle in his mouth, asked, “Where are you going?”. “To the car,” Sarah replied in a scared, quiet voice.
+
+Both Tom and Julia gave us a confused look. “Why?” they asked. “Just follow us!” I yelled. After a few moments, they got up and they walked out with us. We got halfway to the door, but then it said, “Where are you three going?” in that horrible monotone voice. “We didn't notice how late it was. We left a 50 on the table, sorry,” Tom lied. He had always been skilled at talking his way out of situations.
+
+That “thing” turned around and got back to cleaning the tables. I don't think it noticed what we were up to and then we ran out of the restaurant.
+
+We all got into Tom's car and started our trip to Marrow Bay. “So what is this all about?” Julia asked, not looking up from her phone. “ We are trying to find an old friend” I responded. She did not listen.
+
+ After a few hours of driving, we stopped at an old motel. It looked exactly like the type of run-down motel you would see in a movie-the one Norman Bates would run. It had one floor with maybe 25 rooms and a small pool filled with leaves in the back.
+
+The owner was a pleasant old man who didn't seem to realize what shape the place was in. He gave us the keys to room 13 (because of course it was). The room was nothing surprising; it had 2 beds and a bathroom with a shower which none of us would have ever used.
+
+While getting some stuff from the car, I met another group-two people, both guys in their twenties who seemed to be some of the only other guests of the motel. “Hey, could you help me carry this?” I asked them. “Yeah!” one of them answered. “So where are you heading to?” I asked while we walked past one of the only other two cars in the lot. “Marrow Bay,” the man answered. “We are going there too” I said. “Well, maybe we’ll see each other tomorrow,” the other one continued.
+
+I went back into the room and we headed to bed.
+
+“good night” Tom whispered. “good night “ I repeated back to him.
+
+ and it did not take long for us to sleep. Then it started again—the noises. It came from another room, but one of these “things” was in the motel. I got up: 1 AM. It got louder and louder.
+
+*Thomp!* Suddenly, someone banged on the door.*Thump.* There it was again.
+
+I walked over. I opened the door, and there stood the two men I had met earlier. “We have to leave!” one of them said. “Now!” the other one continued. “All of us!!!” the first shouted.
+
+They seemed on edge, like they weren't joking. We woke the others up and were in the cars within less than 5 minutes. I threw the key in front of the lobby and got in. By this point, Tom was annoyed, confused, and exhausted. “WHAT THE FUCK IS GOING ON!!!?” Tom asked. “YEAH! I thought this was going to be a relaxed weekend !” Julia shouted. “We don't know!?” Sarah answered. ““I don't know if it's the city or the world, but people are being replaced!” I continued. “ARE YOU ALL MENTALLY DERANGED!!!” Tom shouted. “No, it’s true, James is one of them! It tried to sneak into my place, but I knew it was not a person! They talk at night! That is what we heard in the motel! ” one of the young men said. “What do you mean, replaced?” Sarah asked. “Like skinwalkers or something,” the other man answered. “That’s why so many people have been going missing!” I said. “And why are we going to this fucking town!?” Sarah asked. “They talk about it while they sleep!” I shouted.
+
+Before we knew it, we could see the sign:*“Marrow Bay - population 1273”* We had arrived at our destination.
+
+Marrow Bay was a small town on the coast, not any different from any other of the thousand neon-stucco towns. At a first glance, it looked completely normal—it was the average American town. Was it a great vacation spot? No. But was there fog, or constant signs of a cult, or dead bodies everywhere? Also no. It wasn't run-down, dilapidated, or disgusting; it was just empty. No kids walking to school. No old people sitting on the porches. No lights, except for the ones in public places or those in the shops. “Where is everyone?!” I asked. We drove past an abandoned convenience store, an old mechanic’s shop, an empty restaurant - nothing, not a single living thing.
+
+The smell was also back, it was not strong but it was there. By this point, I would have preferred to have seen 1273 of those “fakes” walking throughout the town, but there wasn't even a single one.
+
+Tom pulled over into the next hotel-“Marrow Bay Inn,” it said on the big neon sign next to the entrance. As we entered, the smell of vanilla and rot got stronger. “At least we are the only guests here,” one of the men said. His joke did not land. “Oh, I’m Arnold, and this is Chuck. And you are?” the other one introduced himself.
+
+They still seemed extremely on edge, but we all were. We followed Arnold up, introducing ourselves along the way.
+
+The hotel was old, but was that a surprise? Yet it seemed only recently abandoned. Chuck rang the rusty bell on the front desk. After a minute—no one. After 5—still nothing. “Hey, anyone there!” Arnold shouted. After 10 minutes, we just took the keys to a few of the rooms and went upstairs.
+
+The rooms weren't much better than those at the motel, but after all we had been through, there was no other option than to get a good night's rest and to start looking around town in the morning.
+
+We slept for a few hours, and surprisingly, as we got out of the hotel, there was still no one on the streets. We decided to go to the convenience store; maybe someone would be there, or maybe one of *them* would be there.
+
+We got to the store after maybe an hour. There was a single blue pickup truck parked at the front of the store. The shop itself was stocked, but not perfectly organized, as if the shoppers had just evacuated. 
+
+“Do you want chips or popcorn ?” Tom asked me. “I don't care” I answered. “You’re in a good mood” he said sarcastically. “I’m … just on edge.” I mumbled, before continuing through the store.
+
+The only weird thing was that all canned food and bottled water was missing. We took some snacks, a couple of Red Bulls, and left a 20 on the counter. We settled back into our rooms, unsure of what to do next.
+
+It seemed weird—why this town? It wasn't much more than an abandoned set of walls. I tried to relax, but we were all too scared, especially the two in the other room.
+
+We decided to meet up outside the hotel at 6, which gave us just enough time to each take a shower. Eventually, we all stood outside, but something was off. I went through our group: I, Sarah, Tom, Arnold, Chuck... Julia? Julia was missing.
+
+“Guys, where is Julia?” I asked the group. “FUCK! FUCK FUCK! SHIT! FUCK! WE'RE ALL GOING TO DIE!” Chuck and Arnold started cursing. "What's wrong!?” Tom asked. Sarah started to sob. “Yesterday... at... at the motel... we went into the lobby... and we saw the dead body of the owner... he had been stabbed only minutes before. That is why we fled!” Chuck told us. “What the fuck!” Tom yelled. “Why didn't you tell us?!” I questioned Arnold. “We should have...” he answered. “Maybe this is all a coincidence!” I tried to calm the group. It did not work, since we all knew it wasn't.
+
+Suddenly, the inn and everything around it felt much more ominous. These “fakes” weren't just here to copy—they were here to kill, to take over. We started to search the place. “JULIA!” we shouted. She wasn't in her room. “JULIA!” I yelled. She wasn't in the lobby. “JULIA!!!” Tom screamed. She wasn't anywhere.
+
+We had checked every room—well, every room except for a single walk-in closet behind the office for which we did not have a key. “Maybe... maybe she is... is still at the gas station,” one of us stated.
+
+So we went back. She was not at the store, but she was not the only thing missing. “The... the truck... it is gone...” I remarked. “Someone’s here,” Chuck replied. “Where is she!?” Sarah cried. “We don't know!!!” Tom growled. He never liked Sarah.
+
+We started the walk back. But then, suddenly, we heard a shriek. It came from an old brick building, probably one of the oldest in town. Unlike the rest of the town, it seemed like it had been abandoned decades ago. At some point, it must've been a beautiful and wonderful mansion, but now it was only a run-down building waiting to be torn down. Next to the front door, there was a metal plaque; it said:*“Home of our dear founderMr. R. S. Marrow”*
+
+“JULIA! SHE'S IN THERE!” Sarah squealed.
+
+We broke down the door. We ran in. We split into 2 groups: Sarah and Chuck with me, and Tom with Arnold.
+
+I checked my pockets. “Fuck!” I exclaimed. I did not have my gun. None of the others heard me.
+
+We did not know where the scream had come from, but  Tom and Arnold wanted to check the bottom floor, so we went upstairs. Many pictures hung on the wall, some in beautiful, golden frames and some in rotten ones. One of them made me stop for a moment - it was of an old man in front of some church, it was dated 1975. That wasn’t the weird part, the thing that both confused and disturbed me was that right next to it was another photo, same church, same man, but dated to 1920. The man looked the same. “What the fuck is going on here!” I asked myself. “How?” I thought. Photoshop, or some form of photo editing was my flimsy excuse for the pictures. I tried to continue, but by now I had realized this was more than just a few somewhat peaceful body-snatchers. This was the place we were going to die. Chuck grabbed my arm and snapped “ Come on ! I know this is wrong! But we don’t have time for this! Do you really want to end up like the others!” We continued through the house. There was no use in fighting each other. “We had driven here and by the end of the weekend we would all drive back out.” at least that is what we all wanted to happen. We all wanted this to end, for this only to be a nightmare. But it was much, much more sinister than that. That we would realize shortly after
+
+ The manor's second floor was U-shaped, so that when we went into the main hallway connecting the rooms, we could never see across the entire house. Most of the rooms were bedrooms; one was that of a child, another must have been for guests. Some of the other rooms were for music or games. But one was different—it was some sort of chapel.
+
+“Maybe this is what those things are talking about?” Sarah remarked in a clearly disturbed tone.
+
+It was a small, dark room, only lit by the light from a few dark red candles. In the middle of the room stood a table of stone, probably an altar; on it laid a cloth covered in the goo. Behind the altar stood a statue of whatever deity was worshipped. There was a single small window which pointed directly at a few windows on the other side of the house.
+
+“Y-Y...eah...” I trembled, trying to keep my composure. “Arnold!” Chuck called.
+
+A few minutes later, we all stood within the room. I glanced out the window. Even within that short timeframe I could see it: Someone was being stabbed. Then another scream. Both the victim and the killer were out of view, but the stabbing was clear.
+
+“FUCKK!” I shouted while running out of the room. I broke down the door-no one. It was only a tape recorder and a mannequin holding a knife. The scream had been prerecorded.
+
+“So nobody is here!” Tom exclaimed. “We have been wasting our time!” Arnold yelled. “Shit!” Chuck followed. “No... someone had to replay the scream,” I remarked.
+
+Then another sound-a truck driving away, the same truck from the convenience store. We ran out and after it, to no success. We had no other option than to go back to the hotel. Maybe Julia ran off, maybe she had died; by this point, we didn't care, and by this point, the only thing we could agree about was that we wanted to sleep and did not want to be outside at night.
+
+That's all the time I've got today. I will post the rest tommorow. Until then, remember: if your friend starts talking to you in prerecorded sound clips, do not answer him!  
+RUN!

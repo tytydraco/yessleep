@@ -1,0 +1,242 @@
+[Original Post](https://www.reddit.com/r/nosleep/s/rDTyym2vRx) \~ [Part List](https://www.reddit.com/u/Ink_Wielder/s/QNTzgxpim9)
+
+Content Warning: >!Child Harm!<
+
+I think we all expected more fanfare when trying to open the grand set of double doors that my thread trailed into. It was clear by its grandeur that the barrier acted as a threshold from our plane into whatever one the triad of witches had created. Surely entering into their cosmic vanity project would have come equipped with some sort of welcoming ceremony.
+
+When we pushed, however, the doors heaved open without issue, slow and stiff at first, then coming alive and carrying the weight away on their own. Their waking hinges yawned with a soft groan that echoed out into the space lying beyond, and I swallowed when I saw how vast it was.
+
+No longer were we in the tight floral halls. The smell of moist, dank earth wafted over us like a crashing wave, accented by the slightest tinge of rot. We were outside, it seemed, though you wouldn’t be remiss for thinking otherwise. Like the halls, darkness and the air around us seemed married to one another, snuffing our flashlights before they could travel more than a couple yards.
+
+Immediately from the other side of the door, a patio of cracked bricks caked with moss and lichen stretched out before us then descended downward through a grand set of stairs. A railing adorned with small, sculpted statues followed alongside it, but each was crumbled and weathered away beyond interpretation—far more decrepit than anything even in the Red Manor. Did time move differently here in this pocket of reality woven from souls? If so, how much longer had this place been laying in ruin than the home it was carved from? If there ever had been a welcome ceremony, we were several decades late.
+
+Our flashlights revealed that the steps down led to an intricately pattered road of brick leading away into the dark that was just as battered as the patio, but any other tells of what the land here was like were concealed by the ebony curtain. I suppose that in itself was a tell. Whatever had happened to this place, it had caused the light that graced it to go out.
+
+I’d be inclined to believe that light never had graced this place to begin with (both literally and figuratively), and it was simply the way it was meant to be, but there were signs that stated otherwise. We couldn’t see directly in front of us, but speckling the horizon, there was strange patches of dull light that graced the wastelands, punching through the sky like spotlights to focus on points of interest. Their source was nowhere to be seen up in the black sky, just dull luminary pools on the ground like lamps framing artefacts in a dim museum.
+
+The one nearest to us, maybe a few miles off in the distance, was lower in elevation, informing us that we were on a hill or mountain of some kind. In its beam lived inorganic terrain—a city composed of stacked stone monuments made of white marble and trimmed with gold, the way Roman temples were depicted in paintings or even something as grand as the gardens of Babylon. From so far away and beneath the dim golden light, you could almost be convinced that the city was beautiful, but there were clear breaks in the grandeur that showed ruin: towers that appeared crumbed and shattered into rubble.
+
+Further beyond and speckling all sides in varying distances from one another were more light patches, their beams illuminating nothing but dense forest. From the way the light danced through their branches, it was easy to see that most of them were dead or in rot. *Almost* all of them. Strangely, there were a few spots that looked weirdly alive despite the surrounding death; One patch was divided near perfectly down the middle by a line, one side lush and healthy, the other brittle and naked with gnarled black bramble.
+
+No matter the condition of it all, one thing remained the same. It was dead silent. No wind, no animals, no voices. Just a rotting, dark husk of a place.
+
+The only other point of note, positioned on a mountain directly opposite of us, was a tower. Not far up the hill from the city, a spire rose from a breathtaking castle that’s top barely crested into a circle of light before being swallowed by the darkness below. Compared to everything else, it seemed to stand untouched by time.
+
+Its location across the valley, looming above the city, made it clear that the place was meant to be a centerpiece, even before the sun left the land. A crown atop creation to display who presided over it all. There was no question of who those persons might be. The tower seemed to almost eagerly stare at us like the slit of a serpent's eye against the rounded shape of the yellow pool.
+
+I thought I would feel fear or have my breath taken away by the sight, but instead I found myself completely shocked. Overwhelmed by the sheer scale of what awaited us. I had known and been reminded several times that the witches were building a land of their own, but for some reason the weight of what that entailed hadn’t hit me until I was fully staring over its vast expanse.
+
+Slowly, though, as I took in what it had become, that shock wore off in favor of rage. All of those lives lost, all the sacrifices of innocents committed to build this place—it had all been for nothing. No, *Less* than nothing.
+
+There was no ‘personal heaven’ anymore; now this was hell. A city in the valley implied some sort of civilization here at some point, but the lack of noise meant that they had long passed, surely suffering on their way out from whatever apocalypse had ravaged the land. The children used to make this place didn’t get to live among it like the witches had promised; instead, their souls were bound to wander the loom for all eternity, never finding rest from their pain. Hell, not even the vain and vile goals of this place's creators—if you could even stomach counting them getting their way as a ‘victory’—had been fulfilled. Surely they were suffering just as much as the others; why else would they go through such lengths just to find us?
+
+And then there was that. All of that suffering, and it still wasn’t enough. There was so much of it that it leaked through the seams, bursting into the real world to ruin our lives too. To take Mindy and Casey and Mrs. Thatcher then torment us for endless, sleepless days and nights.
+
+It was a frustration so strong that it propelled me onward down the path with a different vigor than I’d come in with. I couldn’t believe that I had almost come in here with the intent to give the sisters what they wanted. Now I felt closer to how my friends did—to what Kait had said. I wanted to storm our way over to that tower and climb to its top where I knew we’d find the witches. I wanted to rip their lives from their precious loom the way they had done to so many others.
+
+I turned back to see if my friends had the same vigor, and was certain they did. In the faint afterglow of their flashlights, the looks on all of their faces was one of grit. This had gone on for long enough, and it was time to end this.
+
+Once they’d arrived, I had gotten an earful from Lacey, Carly and Bryce just as equal as the one Kait had given me, but given that I was still in a sorry, sullen state upon their arrival, they cooled off fast. Besides, if this new course of action was going to work for us, there was no time to waste bickering, and that went for my stubbornness too. The witches would soon realize that I was no longer here to turn myself in, and when that happened, I was sure they’d have a fresh beast to send our way; most likely the grand finale they had planned for if I hadn’t shown.
+
+We had mastered the art of holding a choke point against the monsters in a cramped, fortified basement. I didn’t want to count our odds against such a foe in this open valley where vision was a luxury we couldn’t afford.
+
+Luckily, even if we failed and something new tried to break loose, our plan so far had worked. Back down the halls and on the other side of the red door, the sheriff had rallied his deputies to stand guard, and Carly and Bryce had actually pulled through, getting a news station to come out and investigate the mysterious manor. There was no telling what on earth anyone would make of it, or if the station would even run the odd story that they might assume was some kind of hoax, but so long as it was in the publics eye somewhere where it couldn’t be erased, I didn’t care. The red door was known now, and though I hated to thrust its responsibilities onto someone else, there would soon be many lines of defense to hold against it.
+
+I think this is what we were all thinking as we watched the double doors slowly drift themselves shut behind us, ending in a prominent yet soft echoing thud as they met in the middle. I wasn’t even sure if we would be able to open them again from this side, but by now, I think we had all found a way to accept that this would most likely be a one-way trip. We would rather die together than live knowing that lives were traded for the other’s sakes.
+
+“You’re sure the sheriff won’t follow us in if we don’t come back?” I asked in a low tone. Even the soft utterance felt like I was sounding an alarm out into the inert valley, and I hoped the echo of the doors that was still ringing would mask it.
+
+Lacey nodded then jabbed, “It took a lot of convincing, no thanks to your ‘clever’ little set up, but he understood. If we don’t come back, he knows that guarding the door is life and death for everyone outside.”
+
+“What about the camera crew?”
+
+“No telling what they’ll make of this,” Carly shrugged, “I can’t believe we actually got them to come out, but now that they’re here, I’m sure they’ll report on it, even if they think its all just a hoax.”
+
+“Just getting it into public eye is the important thing,” Kait said, “So long as this can’t be buried by any force—supernatural or otherwise—that’s all we need.”
+
+There was a long beat of silence as we all glanced back to the doors again. The building they were attached to looked like some kind of grand cathedral, though, the building was just as tattered as everything else in the valley. Bryce finished running his beam over its surface before he skimmed back out into the vast expanse. Then, he thought twice about the beacon he was creating for anything that might be out there, and he aimed it once more to the ground.
+
+“So this place is it? This is what they killed all of those children for?” he spoke.
+
+I scanned around for Lucy, who’s form had faded not long after my friends had shown up, but she was nowhere to be found. She either couldn’t follow us in here, or didn’t currently want to. With a sigh, I nodded, “It seems that way.”
+
+“I hope it was worth it,” Kait scoffed, running her hand over one of the destroyed head busts on the railing, “really looks like they got their money’s worth.”
+
+“Probably did at one point,” Carly said, casting her gaze over the light speckled valley, “Before it fell apart, it looks like they really had gone all out.”
+
+“Yeah, and I can’t help but notice the only thing still intact is the castle above it all,” Lacey scowled, eyes fixing on the tower, “I suppose there’s no mystery as to where we need to head.”
+
+I nodded, “I’d wager we’ll find them there, too.”
+
+Bryce shook his head, “You would think with everything we’ve been through this wouldn’t be so weird to me, but… fuck, how is any of this possible? This is like something straight out of a dream.”
+
+“Or a nightmare,” Kait corrected.
+
+“What do you think is out there?” Bryce continued, “The monsters they send—you don’t think they roam freely?”
+
+I thought on the question, but then shook my head, “It doesn’t seem likely. Them only showing when the clock chimed made it seem more like a spell of theirs. I’m sure there’s a method to the madness.”
+
+That answer seemed to reassure everyone, but there was still a good couple miles of hiking downhill to get to the first stretch of light lingering over the city, and within the darkness between, there could be anything hiding there.
+
+Lacey heaved the shotgun in her hands and took the lead, pushing past me. While she must have felt the same frustration I did from this place, she was still boiling within about the way the witches had used her brother’s corpse, and she wasn’t going to let any demon, no matter how horrifying, stop her from making them pay. I was quick to join her side.
+
+And just like that, we were off on our quest, following the once ornate brick road whose serpentine body had become a jumble of debris and tripping hazards. From the darkness, the tall lurking figures of twisted cast iron lamp posts watched us, their vacant glass eyes curiously wondering who the new intruders were.
+
+I suddenly felt like I was in the show that had so firmly stuck in my mind as a child. The one that I had never seen the ending to before my father’s recliner permanently branded me a waste of space across the back of my hand. Young kids in a fantasy land traveling into the unknown to stop an evil witch. Only this wasn’t a show, and this place was no fantasy. This was a real, hellish nightmare, and unlike the Saturday morning cartoons that dictated the heroes must always win, there were no such stipulations for us.
+
+Our dread kept mounting the longer we pressed on down the road, but no threats ever revealed themselves to us, which in turn only fueled that anxiety more. This land hadn’t been turned into a total wasteland by its collapse, it was somehow much sadder: it was completely abandoned. All around us were signs of a once intelligent civilization—benches, signs written in odd, flowy script, small houses in the distance that the fingers of our light could just barely reach—and yet a soul never turned up, friendly or otherwise.
+
+The first living thing we came across nearly made us jump out of our skin, and I respected Lacey greatly for the restraint of her trigger finger. We had been walking for nearly an hour when suddenly, our lights caught a glimpse of two glowing orbs hanging nearly eight feet off the ground ahead. We froze, and Lacey raised her weapon, but as we stalked closer to pull it into our light and see what threat we were up against, our fear turned to confusion.
+
+The creature did not look like the beasts we fought, but it was also nothing that was known to us. It appeared to be some sort of cross between an elk and horse, with thick fur that was a robin egg blue and a fluffy ringed tail that curved up and over its back like a scorpion. Its face was thin, long and uncanny, and as it turned fully to face us, I saw something open on its forehead to reveal what I could only assume to be a third eye, glittering and shining in the dark like a diamond.
+
+The deer thing stared at us, probably just as confused by us as we were by it, then without making a noise, it pranced off somewhere into the fields beside us, and we never saw it again.
+
+The grotesque gnarled arms of the dead foliage began to get thicker as we neared the edge of the city, but thankfully, it wasn’t so dense that it could be called a forest yet. If we had seen something resembling a deer, and this place was made to function as its own world, that implied the existence of a predator, and while I stood by my earlier statement to Bryce about the monsters from the red door, that didn’t mean there weren’t any threats at all.
+
+The city had looked beautiful from a distance, even in its ruin, but now that we were up close, the fear that we had managed to slowly shed during our walk came rolling down the hills after us to catch back up. The light seemed to emanate from a single point above the cities center, and it was barely bright enough to read in, which cast all the white-stone walls and golden trim pillars in ominous silhouettes.
+
+My museum comparison from earlier suddenly felt awfully accurate; like I was walking through an exhibit for this extinct place long after the gallery had closed. I looked up to the dark sky to see if I could find the sun the glow appeared from, but it was just a dark abyss.
+
+We were all hyper aware of the weight of our steps as they traveled into the streets away from us before bouncing back. The ruin and layer of moss covering everything once again confirmed we were alone, but with the buildings of the city lacking any doors or panes in their windows, it was hard not to imagine bodies within possibly watching our every move.
+
+The road we remained on carried us through the heart of the city, showing off several more statues and once glorious buildings that must have been meant to impress anyone passing through. Some were of creatures that I didn’t recognize, others were clearly human women, most likely busts of the ‘benevolent’ goddesses who made this place. I wondered if those who lived here were awed by the sculptures every day, otherwise I didn’t know who they could be for. After all, who was visiting this place from the outside?
+
+“As much as I hate everything this place stands for,” Kaitlynn began, “I would be fascinated to know what it was supposed to look like.”
+
+“Clearly they built it with humility,” Bryce mocked, shining his flashlight on the grand fountain settled in the heart of a square we’d just entered. Three statues—one of each sister, completely nude and with regal features—stood on a pedestal, their arms holding cornucopias that they tilted toward the surrounding pool, clearly meant to spout water as if they were gracing the land with some sort of bounty. Now, the spouts were dry, and the water in the basin had collected a film of settled dust and grime so thick across its surface that it almost looked solid.
+
+The smallest pattering noise from beside us jolted us to attention, and all at once we whirled and aimed our flashlights. In a doorway only a few yards away, something pale peeked around the corner, human in shape, but not in physicality. It was small, with long gnarled hair the color of ash and skin as pale as snow. Its form was gaunt and starved, bony hands holding the corner to peer at us, and its face, much like the deer thing we saw earlier, was a uncanny level of thin.
+
+ Even beneath its gangly, tattered exterior, the odd starry iridescent orbs in its eye sockets sparkled beautifully in our lights, and there were hints of an elegance that the creature might have once held. It wore no clothes and shivered though the air was not cold, and by the expression it wore on its face, I suddenly got a rush of familiarity at the sight. The thing looked at us the same way that Lucy often did. This thing was a child.
+
+None of us moved, afraid that we might startle the child, or that it might become aggressive should we start too suddenly. We stood that way eyeing one another until, in the after glow of our beams, another pale thing appeared. This one was much bigger, some kind of adult, and it made a small, feral huffing noise before snatching the arm of the child and dragging it back into the dark.
+
+“My God…” Lacey began, “Were… those the denizens of this place?”
+
+I cautiously took a step closer to the building that they disappeared into, casting my light through the nearest window and peering inside. Beyond was a home that I could only guess was once beautiful, but now, any and all furniture within had been turned over, smashed, or reduced to parts and scattered about the cold, hard stone. Behind it all, huddled at a corner in the back, the child was held tight by the adult, both of them huddled in with a group of four more.
+
+Their eyes squinted in the glow of my flashlight, and they froze helplessly with trembling fear as I studied them. My mind couldn’t help but connect them to the deer creature from earlier. They seemed just as wild and feral with their naked and timidness. If they were the civilization that once ruled this place, it must have taken countless generations for them to be reduced to this. That only begged the question again: How long had this place been left to rot?
+
+That’s when I realized something. Stupidly, I checked the sky as if to find the suns position before remembering that wasn’t possible. Turning to my friends, I asked, “Have any of you heard the hour strike since we got in here?”
+
+I could see of their brains set to work trying to recall if they had. The last hour went off only about 15 minutes before we’d entered, and we’d been traveling for well over an hour already. The clock should have struck by now.
+
+“No,” Lacey returned, letting the implications hang in the air.
+
+Luckily, it seemed time traveled slower here, rather than the other way around. On the off chance we did make it back out, what a cruel fate it would have been to return to a world decades in the future.
+
+Just then, another sound erupted through the streets. It crashed off the walls of the labyrinthine corridors then whirled around the circle of the square, rattling us each to the core. We’d heard countless beast cries by this point and shouldn’t have been afraid, but this particular one gave me chills because it was a reoccurring one.
+
+It was the spider, and this time, we were fully on her turf.
+
+I had hoped that even thought it didn’t kill her on the spot during our last encounter, the shotgun blast to the skull still would have killed the woman later. Clearly that wasn’t the case, and that also meant that any attempt at fighting her right now would only end poorly, no matter how experienced we were. If a slug at point blank couldn’t smite the demon, then our axe swings and machetes weren’t going to do much either.
+
+Running was another option, but with the way her wailing was reverberating off the walls of the silent city, we had no idea where the spider would appear from, and any direction we went ran the risk of running straight into her. That left our best option to attempt to hide.
+
+The group seemed to unanimously agree on this without a word as we ran from the hut before us and dove through the door of the space next door. Flashing our beams around the room, we found that thankfully this den was not occupied by the feral denizens of the city, and there were plenty of debris piles for us to take cover behind. We did so, then turned back out toward the square, dowsing our lights and becoming one with the shadows beneath the city’s dull lamp.
+
+A moment later, the gangly pale form of the spider scuttled into view, clawing her way onto the rim of the fountain and using all fours to scurry across its edge. She was so much faster in this place than in the loom back home, and I worried that her senses might somehow be heightened in a similar way. She obviously knew we were here—why else would she have arrived—but was she able to sense our exact location?
+
+It didn’t seem like she could. The spider clambered over the fountain then pounced to the ground, and as she did I noticed the earth around her hands glowing vibrantly with a silvery light. From the cracked stone streets, her fingers tangled threads just like when she was weaving through the loom of the past, though I suppose given that this world was composed entirely of them, she had a lot more tangibility.
+
+She strummed the fine strings beneath her feet, her dark locks pooling in the dirt as she nearly pressed her nose into them, like a dog sniffing up a scent. I could almost hear the muscles in Lacey—who had ended up crouched beside me—tense in preparation.
+
+For a moment, I thought we were immediately had when the spider’s head snapped up in our direction. Through her greasy black veil, it was impossible to tell where her eyes lingered, but with the whole city a ghost town, there were only a few targets for them to find. I think we were all about to jump up at the same time as she darted across the square toward us, but thankfully, we had the good sense to hold our ground. She was heading next door.
+
+It turned out her eyes had found one of those other targets. In the abode next door, I heard a violent thud, then the scuffle of debris getting tossed around. There were strange gasping noises that were quickly overpowered by the spider's own screams, then she reappeared. The empty stone window framed the perfect screen for us to watch the horror unfold as the woman dragged the child we’d just seen moments ago into the open.
+
+It turned out that, timid as they were, the adults still had fire within them. A sharp gasping noise like a cat's hiss erupted from next door, and one of the pale humanoids burst forward rushing at the monster that had its baby by the ankle. We all waited with held breath to see what was about to happen, knowing how durable this demon was, but we never could have guessed the outcome.
+
+As casually as someone shooing away a fly, the spider lifted one of her arms and flicked her hand through the air. The hissing sound from the denizen died on their lips as their body sagged and elongated, their flesh bursting and ripping with random seams and unspooling into… threads.
+
+By the time they reached their target, there was nothing left of their emaciated form. They’d become nothing but a messy pile of silver threads like a bale of hay, and as it met the ground, the whole thing was pulled under, like water leaking into the earth. With a wave of her hand, the Spider had reduced a living being into nothing but the threads they had been stitched from.
+
+What lay in store for the child pinned beneath her was even worse. Instead of being unraveled out of existence, their fate was far more gruesome. We watched from our spots, paralyzed with repulsion as the child silently struggled against the spider's grip, its tiny weak legs kicking uselessly against the eldritch woman. The long locks almost concealed the sight as she dangled her head parallel with her victim, but there was just enough visible for us to see her raise a single hand and descend it down into the poor kid's face.
+
+It was over before we could even think of intervening. There was a squishy crackle of flesh and a panicked gasping as tiny limbs kicked faster and harder, then, all at once, stopped moving. Only for a moment, though. With her hand now somehow buried completely in the Child's skull, the spider violently wrenched it upward, causing the body to contort and jitter. Its limbs began to elongate, then do strange things like curl or inflate. Their skin seemed to bubble and morph like it was made of latex, but then it changed altogether.
+
+Parts of it mutated. The hands turned dark and sprouted claws before morphing into some kind of talons. Their body grew bigger like an adults, then became barreled and rounded like the torso of an animal. Where its face used to be, I could see light flickering, as if the spider’s hand was striking a flint against the back of their skull. I was mortified, and for a long spell I had no idea what I was witnessing. Then, I noticed the strange sounds coming from the body like recordings on a speaker, and it hit me.
+
+My first guess had been that the spider was flickering the child's body through different forms of life that existed here—reshaping it into something new. The way it was digging its arm around made it appear like it was looking for something, though, the same way it could rifle through the layers of the past back home. It was scouring the child's memories. Flipping through the threads of its being to find out what it knew.
+
+The information she was looking for was obvious. She knew we were here, and she was trying to see if this child was a witness.
+
+I grabbed Lacey’s arm and leaned so close my lips grazed her ear, “It’s looking for us.”
+
+She pulled away confused, but the urgency in my voice helped her connect the dots of the scene, and she nodded, looking back toward the others. As she heaved her shotgun, I nodded to the door. Judging by Bryce's fervent head shake, it was clear they didn’t understand, but there was no time to get the information to them. The spider was distracted right now and facing away, but if it eventually found the gold it was digging for, we’d be cornered in this small house, and we would have to watch the same scene unfold again from a first person perspective.
+
+In the meager light that glowed in from the window, we somehow crossed the space without kicking any debris, and the four of us reached the opening then slip through. In the streets, the horrible squelching sounds coming from the child’s ever shifting body were even clearer, and I prayed that she couldn’t do the same to us if we were caught. The lot of us sidled along the building's edge with great care, and we were finally to the corner when the spider made a sharp grunt and sat up straight.
+
+On the ground, the child had stopped moving, landing on a tall form that looked startlingly human. No—it *was* human. A human wearing the same clothes as me. A memory from moments ago.
+
+We started to run before the spider's head had even snapped fully in our direction. Erupting with anger, the sound of shrieks mixed with the rapid patter of her bare hands across the ground echoed from behind us, and I chanced a look over my shoulder. The spider had just pounced from the fountain and landed only fifteen feet away, but somehow even with how dire the distance was, it wasn’t my focus.
+
+Behind her, I could see the body that had transformed into my visage start to move independently. It scraped itself off the ground, and once it was in a full sit, I could see that it wasn’t the perfect copy I might have thought. Its features were disproportionately off, and it retained several parts that didn’t belong on a human. It’s slack jaw sported fangs like a hound, and its eyes were strangely glowing like the beam of my flashlight.
+
+With a frantic panting that I could hear even over the screams of the spider, my doppelganger stumbled to all fours, then snapping its head toward the building it had been dragged from, it sprinted with a disturbingly hungry speed through the window. I focused ahead after that.
+
+*KOW!!!*
+
+The blast of the shotgun beside me nearly made my eardrums explode within the silence. Even though there was screaming and stomping and panting already clogging the air, the sheer blast of the cannon would reach much further, informing the entire lost kingdom that unwelcome guests had officially arrived.
+
+The shot that Lacey had directed toward the spider didn’t hit its mark at center mass as we ran, but by some miracle, the slug found a way to clip the side of the creature's arm. Indestructible as ever, the bolt that should have removed the limb did little to stop it, but it certainly made the woman stumble and lose distance, which had been the intention.
+
+We skidded around the corner of a street into a crossroads, and suddenly I felt like I was back in the halls for the first time again—just as disorienting and dense. My eyes skimmed around for Lucy, praying that maybe the young spirit might have appeared to help guide us, but I still didn’t even know if she could enter this place. Instead, we would have to settle for a different guide.
+
+The motionless form of a palace built high above everything in this layered cake of a city stared down at us, it’s edges lit by the glow from above. Without needing to confer, we all pressed onward, taking any streets that sloped upward and hitching turns along the way to throw the spider from our trail. A high point would allow us to see out over the entire city and gather our bearings; it was our best bet.
+
+Behind us, the spider tailed as close and persistent as our shadows. Living up to her nickname, she didn’t just move across the ground; I could see her hands digging into the threads that composed the wall, using them to scale after us and cut through shortcuts that we couldn’t. Lacey had to fire two more times to keep her at bay, but we had limited ammo now, and with Lacey unable to get a clear shot, they weren’t doing much but buying microseconds.
+
+One last crack ripped the sky as Lacey finally took the risk to dead stop, whirl around, then take aim. With impressive accuracy, the slug struck the side of the woman’s face, ripping free a chunk of her black locks that scattered away into air behind her. In the gap in the curtain, I could see an eye for the first time, bloodshot and dark, a wild fire behind them.
+
+The blast was disorienting enough to make the woman yield a few extra steps, just enough for us to make it around the next corner and break the line of sight. We took an immediate turn to gain even more cover, then flew up a set of stairs and under a grand looking archway before the palace at the top of the hill.
+
+The place we’d found ourselves in was a garden of some kind. Like everything else, it must have been quite a sight in its prime, but now it was nearly a jungle with how wild and unruly it had become. Bramble and bushes flooded the paths, but like the wilds surrounding the city, they were a patchwork of lush, flourishing flora, and gnarled, brittle branches.
+
+We were just scouring for a path through when something dawned on us. The screams of the spider were still present, but they were a good distance away now, and not drawing any closer. Against my better judgement, I halted my running, then crossed to the edge of the garden where, through metal bars of an ornate fence, I glanced back down at the streets.
+
+There in the middle of the road, the pale woman angrily thrashed and spat guttural, incomprehensible curses at me. Clearly her desire to obtain us hadn’t changed, but for some strange reason, she wouldn’t move any closer. My friends joined my side to investigate just in time to see the spider howl one last time, then clamber away back into the streets of the city.
+
+Kait put it best, “That can’t be a good sign.”
+
+I turned back out to the garden to see what sort of threat might be out here to scare her away, but there was nothing but leaves and rotting planters. None of it so much as even swayed since there was no breeze to dance to.
+
+“Come on,” I said, heaving my axe and taking the lead, “Let’s move through here fast, just to be safe.”
+
+The tower on the horizon had gotten away from us, so we reoriented our path and moved through the gardens, looking for an exit to take us in that direction. Everyone was on high alert looking through the overgrowth, jumping at statues speckled throughout or gnarled branches that reached like hands.
+
+The chase aside, we were all on edge thanks to the scene we’d just witnessed, and though it probably wasn’t going to help with nerves, there was a lot we needed to unpack. With no time to stop, we did so while moving.
+
+“That child… did you all see what she did to it?”
+
+Carly nodded, “And that adult, she just… obliterated them.”
+
+“You don’t think she can do that to us, can she?” Kait asked.
+
+“I've never seen her do anything like that,” I noted, “I thought she could only move around the threads.”
+
+“Here she must have more control over them,” Bryce offered, “This whole place would be made of the stuff, right?”
+
+I furrowed my brow, something about the spider feeling off to me, “Yeah, but still, no other monsters we’ve run into have been able to touch the threads like that, let alone bend them around. She fully *changed* that kid—sculpted them into something else like—”
+
+The revelation hit me before I could finish the sentence, and I froze in my tracks. There might not have been wind, but I felt a cold breeze ripple through me. How could I have not connected the dots sooner? Maybe it was because of the spider’s grotesque appearance, or how animalistic she was like the other beasts, but I somehow hadn’t lined up the evidence.
+
+I was right; no other monster could manipulate threads, let alone weave them into something new. The only people with that power were the witches who had made this place, and while at one point they had been regal and beautiful, untold centuries trapped in this hell would make anyone lose their grace. One of those witches also had a feature that lined perfecting with the spider. The long, raven black hair that flowed like a curtain.
+
+“Oh my God,” I began slowly, “That’s not just a monster. That woman is one of the witches. It’s *Natellie.*”
+
+The group paused at the revelation like I did, the implications setting in fast. If just that feral beast of a person had so much control over this place and was immune to our bullets, what chance did we stand at coming in here and trying to take them down?
+
+We didn’t have long to sink into our despair. Just then, from a doorway behind us that peered into a garden mausoleum, a voice spoke, crackly and weathered.
+
+“You met my sister…” it rasped, “I’m afraid time was less kind to her than even me.”
+
+For a moment, I considered not even regarding whatever lay in the darkness of the building. The second it spoke, I wanted to corral my friends forward and out of the garden without looking back. Once the words registered on me, however, I dared to raise my flashlight into the space, casting light on the culprit.
+
+There, hanging from the far wall, tangled in bushes and ivy, a woman hung by her hands and legs. The light couldn’t reach enough to fully reveal her features, but there were two so vibrant they were illuminated all on their own. Curly red locks that were gnarled into near knots and stained brown with dirt, and two bloodshot, pale eyes, their irises so icy blue I swore they were glowing as they peered at us.
+
+Her lips that were once painted a perfect glossy red were now only the shade of brown dry blood from her cracked lips. I thought I could hear them crackle as they turned up in a smile. No matter how worn and weathered she now looked, I could place the face instantly from that smile, even all these years later.
+
+“Hello, Jessie…” hummed Adeline, “It’s so lovely to *finally* see you again.”
+
