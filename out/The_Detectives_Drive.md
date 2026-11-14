@@ -1,0 +1,48 @@
+My name is Detective Ross Rogers, I’ve been on the force for 15 years. The first 5 years as an officer and 10 as a detective. I’ve seen all manner of crime, scumbag and horrific scenes. Once I took a call because I was in the area of a traffic accident being reported. I wasn’t first on scene but what I saw always makes me tell anyone riding a motorcycle to wear a helmet. I won’t bore you with the details but let’s just say, the victims “top” was popped open.
+
+Anyway, I’m not here to talk about past cases I’ve worked or things I’ve seen that have a clear explanation. Even if you have to do some digging first, the truth almost always comes to light. I say almost because…..there are some cases that you never solve and some things you can never explain.
+
+Now, I’m not one to believe in the paranormal. Ghosts, monsters, cryptids, aliens what have you, just a bunch of nonsense if you ask me…before I had my very own encounter with something that…I can’t figure out. The kind of encounter that has me locking my doors at stop lights, in the middle of the night when I’m the only car on the road.
+
+I work in Maryland but live in Pennsylvania, like a true commuter does. My shift starts early in the morning, so on my long drives to work I find myself the only car on the road for miles at a time. It’s a peaceful drive, it’s where one can really think about things. I use the time to go over cases I’m working to see if I can have my eureka moment.￼ Funny how a little peace and quiet can clear one’s mind of rabble and put things in order again.
+
+This mornings drive was like any other, I had just recently been put on a missing persons case. The situation didn’t make much sense, the victims car was found on the side of a highway with its highbeams facing oncoming traffic. Thing is, when patrol officers got there they claimed no one was in the car despite evidence of food and drink still warm inside. This isn’t about that though, this is about what happened to me.
+
+While lost in thought over the case I come up to a red light. Damnable luck, I never get stopped at this light, I thought as I slowly came to a stop. As I’m sitting there at the light I look left and right down the roads and see nothing. No lights coming, no people crossing, nothing. Which isnt odd as it is 3 in the morning after all. Nothing to do but sit back and wait.
+
+Time seems to crawl forward waiting for lights to turn green when you’re the only one on the road. I look around again, seemingly thinking this light is taking a bit longer than normal. I begin to tap my fingers on the steering wheel as I’m anticipating the light to turn green at any moment. I suddenly get that feeling you get when something is staring at you. I look around again but there is nothing, but I can’t shake this feeling.
+
+I let out a heavy sigh and slump back in my seat. Still have that unnerving sense I’m being watched, I look to my left and jump slightly in my seat. There on the corner is a woman and two children, one looks to be in his teens and the other a bit younger. They weren’t there moments ago, where could they have come from? They must’ve noticed me looking in their direction, the woman smiles and gives a slight wave. Not being a complete asshole, I wave back and nod and turn back towards the light.
+
+The light finally turns green and I go about my way, I can’t explain why but I look back towards the small family as I drive through and they are all just staring at me. That…was an odd encounter, I say to myself. For the next few miles nothing untoward happens. Few cars driving the opposite direction, one doesn’t turn off their highbeams and for a moment I almost want to turn around and pull them over.
+
+After a bit I come to a four way stop, I’ve been here before. Remember that “popped top” I mentioned earlier, happened right here. I pull my vehicle to a stop and look to my left and then to my right and left again. That’s when I saw them, the same three person family I did before. That’s…impossible I think to myself, there’s no way they could have gotten here. I sat there foot on the brake just looking at them, and they stared right back. I go to turn away and start driving when suddenly there is a knock on my driver window. I jump in my seat, I’ve never been so startled in my life, when I turn to see what it was. I’m met face to face with the woman and her two kids.
+
+I took a moment to compose myself and ask if I can help them? They don’t respond at first so I think maybe they didn’t hear me with my window up. I roll it down just a crack, something in the back of my mind is telling me NOT to roll it down all the way. I repeat “Ma’am can I help you with anything?” She smiles and says
+
+“Good morning sir, would you be so kind as to give myself and my boys a ride just up the road? It’s very early and we are exhausted and just want to get home.” She seems sweet and genuine but, something tells me this isn’t right. Before I could answer one of the children pipes up    
+“Please sir, we’re so tired. Would you help us.”
+
+“Just open the doors and we’ll climb in, the trip won’t take long.” The older child exclaims.
+
+The sudden burst from the older child takes me aback a bit. I go to push the unlock button when suddenly I hear yelling. Not from outside but from inside my own head. The voice yells to me to stop and don’t open the door. Without thinking I do stop, my finger just hovering above the unlock button. I glance up at the woman to my surprise almost has her face against the window. That’s when I got a real good look at her.
+
+She didn’t seem to be out of sorts in anyway, but I looked at her eyes. Her eyes they were as dark as a moonless night.
+
+“Ma’am I’m going to have to ask you step away from the car please.” I command trying to hide the shakiness in my voice. She smiles a toothy grin, like the Joker from Batman. She just says “Open the doors please, we need a ride.”
+
+I notice her children are not with her and before I could ask I hear a knocking and what sounds like someone trying to open my passenger door. I snap and see the older child frantically trying to open the door while he stares at me. He doesn’t seem right, twisted sort of almost out of focus. I see his eyes too, all black and lifeless.
+
+“Detective….just open the door, help us!” The woman pleads. I look back over and see my hand is again hovering over the unlock button. Again I hear this voice yelling in my head “Don’t listen! They’re not what they seem!” I snap out of it and pull my hand back and look at the woman’s dark, abyss colored eyes and say “I…I’m sorry, I have to get going to work. Please get home safe.”
+
+In an instant it seems, her two children are at her side and they moved away as if one entity. “You’ve got good instincts and you’re a good man detective. Maybe next time huh.” The woman says, backing away smiling that toothy grin and never leaving my gaze.
+
+I face forward and slam my foot on the accelerator and fly down the road for at least a few miles. I snap myself back and realize I’m going well over 65 and pull over. It takes me a moment to realize I was holding my breath that whole time while driving. My hands are shaking, and I’m trying to catch my breath. Sweat beading down my neck, I put both hands on the steering wheel and bow my head into my arms. My breathing is staggered but I slowly get myself right and look at my rear view mirror. I look just to reassure myself they aren’t some how following me. When I look, I see nothing but the road behind me.
+
+After taking some time to calm down, I pull back onto the road and drive the rest of the way to work. What happened back there? Where did that family come from? Why were they so insistent on me opening the door to the point they were trying to force their way in. Who or what was that voice that told me to stop. The biggest question I had though was…how did she know I was a detective. I never said I was anything. So many questions, and not many answers.
+
+When I got to work my partner said I look as if I had seen a ghost or something. I play it off like I was just tired.
+
+I don’t know what happened to me but I did a little sleuthing online to see if anything would pop up. From what I found, it was a case of  Black Eyed Children.￼ I won’t go into detail about what they are, we all have the internet in our pockets look it up yourself. I’m just thankful I got out of that situation.
+
+At the end of the day, I wouldn’t say I’m a true believer in the paranormal. But after going through that experience, I am beginning to think they’re more things in this world that we’ll never truly understand.￼
