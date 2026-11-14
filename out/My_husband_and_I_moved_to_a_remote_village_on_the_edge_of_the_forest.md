@@ -97,3 +97,5 @@ Ethan tapped his forehead lightly with a small laugh. "Ah, shoot, I forgot to di
 I nodded, choosing to trust him.
 
 Yet as I walked into the kitchen to pour myself a glass of water before heading upstairs, my steps came to an abrupt halt in front of the kitchen window, whose curtains I hadn't gotten around to drawing shut. Outside, darkness had swallowed the entire backyard. The white boundary stones marking the edge of our property were no longer visible beneath the thick wall of mist that had crept forward—stopping just a few yards from the wooden walls of our house, as if something inside the fog had just found its way home.
+
+[\[Part 2\]](https://www.reddit.com/r/nosleep/s/W4Jms9Yxzt)
