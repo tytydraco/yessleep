@@ -1,0 +1,542 @@
+**1: Upper Extremity**
+
+The first year of medical school is a very isolating experience.
+
+You start to have less time for your friends and eventually, you have even less time for yourself. They supplied us with many presentations during orientation all saying the same reminders.
+
+“Make time for yourself!”
+
+“Focus on your wellness”
+
+Conveniently left out was the part where more than half of us would be pulling all-nighters before exams, drinking more caffeine than what’s recommended, sitting sedentary at a desk pouring over lecture slides for 12 hours a day, and a myriad of other things that our textbooks say *not* to recommend to our future patients.
+
+It’s not like there was much of a choice and everyone knew that. Some would say it's a rite of passage but I found myself having to remind myself that I begged and prayed to every higher power to get into medical school just to get through the rest of the week.
+
+Exam weeks ate up seventy hours easily for me. Probably more.
+
+Memorization had never been my strong suit, which was unfortunate because anatomy seemed determined to make that my problem.
+
+Even more unfortunately, I wanted to be a surgeon.
+
+So I stayed in the anatomy lab. A lot.
+
+We weren't allowed to dissect or cut outside our designated sessions, but we could come in whenever we wanted to independently review structures we'd already exposed.
+
+My friends thought I was insane.
+
+“June, I think you spend more time with the cadavers than you do with us” I remember one of them saying. Now that I think back on it, they were probably right.
+
+Maybe that’s why I started talking to them.
+
+It wasn't anything dramatic at first. I didn't hear voices or see shadows moving between the tables. I also wasn't the type to be fascinated by death and if anything, I had spent most of my life avoiding the subject whenever I could.
+
+But anatomy was different.
+
+I had always been a bigger-picture person. Give me physiology or psych and I could talk through cause-and-effect relationships for hours. Point to one of the superficial back muscles and ask me to identify it, though, and my mind became a white room. Blinding lights and even more blinding were the blank walls.
+
+It wasn't that I was bad at anatomy.
+
+It just took me longer.
+
+Or maybe everyone else seemed to understand it faster.
+
+That was the worst part.
+
+They would gather around the table, peel back the layers, and point things out with the confidence of people who had been born knowing where each nerve, vein, and artery were supposed to be.
+
+"Oh you can really see the sub-occipital triangle here!"
+
+"Oh, wow, you're right! I didn’t expect it to be so clear…"
+
+My groupmates would crowd closer and I would lean in with them with simulated understanding at whatever pinkish-brown strip of meat their probe was gesturing to.
+
+Then I'd go home and study those structures again. Draw them out. Blast through flashcards. Then forget it all again.
+
+So I spent my evenings in the lab.
+
+At first, I told myself it was because the lab would be empty.
+
+There were no classmates asking questions I didn't know how to answer. No professors walking past our table to check the quality of our dissection. No TAs appearing over my shoulder with a cheerful, “Need any help?”
+
+After hours, nobody knew I was struggling.
+
+But the bigger reason was that the anatomy lab was peaceful when everyone else left.
+
+Just me, the hum of fluorescent lights, rows of stainless steel tables, and the heavy smell of formalin that followed me home no matter how many times I washed my scrubs.
+
+And of course, the donors.
+
+Our professor didn’t want us to call them cadavers.
+
+"They are donors," they told us. "They made a decision that will contribute to your education long after they are gone."
+
+I thought that was a nice way of putting it.
+
+I don’t think I understood the gravity of it all until later.
+
+There were about thirty tables in the lab, each with its own donor. Our class was divided into groups of four, and my group had Table 12.
+
+Our donor was an eighty-three-year-old woman whose card listed respiratory failure secondary to complications of Alzheimer's disease.
+
+That was almost everything we knew about her.
+
+Eighty-three.
+
+Female.
+
+Cause of death.
+
+Anything else we learned came from what her body revealed to us.
+
+At some point, I started calling her Mary. It was just a name I'd given her in my head but I never said that out loud until I was alone with her for the first time.
+
+The first time I came to study in the evening, I pulled on my gloves, tied my apron behind my back, and peeled the plastic shroud and muslin away from her upper body.
+
+“Okay, Mary,” I said. “You and me.”
+
+The words sounded ridiculous in the empty room. I glanced toward the door. The clock beside it read 10:24 PM.
+
+Nobody was coming in at 10:24 on a Thursday.
+
+“You're going to help me figure this out.”
+
+I spread my printed lecture slides across the music stand beside the table.
+
+Mary, naturally, said nothing.
+
+I spent the next two hours talking to her anyway.
+
+As I peeled at her layers, I explained the anatomy out loud.
+
+Then I started to complain about my classmates. About Dr. Stephens who would answer every question I asked with another question.
+
+I told her some gossip. I told her about a guy named Dylan in my class who had a fiance three states away but had been trying to hit on multiple girls during orientation week. About this one girl who asks the dumbest questions in class. I told her that the second years thought that our cohort was full of a bunch of sweats.
+
+I also told her things that I hadn’t shared with anyone else.
+
+I told her that I barely passed the first exam and was a whole twelve percent below the average. That I couldn't figure out how everybody else seemed so much more prepared for this than I was. How sometimes I wondered if I'd slipped through the cracks somehow.
+
+That eventually somebody was going to realize they'd made a mistake letting me in.
+
+That they would realize they wasted a seat at the table on someone like me.
+
+At some point, I started crying.
+
+Quietly at first.
+
+Then embarrassingly hard.
+
+"Sorry,” I said after my head started to hurt. I craned my neck to wipe my tears on my upper arm as my fingers were still embedded in Mary’s tissue.
+
+The room was silent. I looked down at her, arm pulled out laterally, layers of skin and muscle peeled back to expose the network of nerves that extended distally from her axilla down her arm. Under the fluorescent light, the preserved tissue had a dull, almost waxy sheen.
+
+I sniffled.
+
+The smell of formalin had settled into the mucus in my nose.
+
+Why did I feel so embarrassed when..."I know you're dead,” I mumbled.
+
+Saying that made me feel worse. I shook my head and walked off to the side and stripped off my gloves so I could properly clean my tear stained goggles.
+
+When I came back, Mary was exactly where I'd left her. Not that she would be anywhere else.
+
+I stood beside Table 12 for a moment in the silence of the lab. Then I pulled on a fresh pair of gloves.
+
+“Well,” I said. “That was embarrassing.”
+
+Of course, she said nothing. I smiled at her anyways. “Sorry you had to see that.”
+
+The clock told me I'd spent twenty-three minutes crying over an anatomy exam I'd taken three days ago.
+
+Pathetic.
+
+I turned back toward the table and took a deep breath."Okay. Let's try again."
+
+I picked up my notes.
+
+"The brachial plexus."
+
+I stared at the diagram.
+
+Again, a white room.
+
+I knew the words. I knew what they meant individually. But whenever I tried to put them together, everything became tangled.
+
+"Roots, trunks, divisions, cords, branches," I muttered.
+
+I pointed at the first line of the diagram.
+
+"Roots."
+
+Then the next.
+
+"Trunks."
+
+Then the next.
+
+"Divisions."
+
+I stopped.
+
+Come on, I had done this before.
+
+A hundred times.
+
+I knew this.
+
+I just—
+
+*You're overthinking it.*
+
+The thought had arrived before I'd decided to think about it.
+
+I looked up.
+
+Nothing.
+
+No footsteps. No door closing. No voice echoing through the lab.
+
+Thirty tables. Thirty donors. Rows of stainless steel and blue curtains disappearing into the dim corners of the room. The ventilation system hummed overhead.
+
+I waited…for what?
+
+My eyes moved back to Mary. She hadn't moved.
+
+Obviously.
+
+"Yeah," I whispered. I looked down at the diagram. "I'm overthinking it."
+
+It was probably me. I had to have been studying for hours now, it was late enough that my brain was allowed to do something weird without immediately requiring psychiatric intervention.
+
+"Roots, trunks, divisions, cords, branches." I tried again. This time, I didn't look at the diagram and I traced my eyes along Mary’s arm.
+
+The structures weren't words on a page anymore.
+
+They were there.
+
+They had to go somewhere.
+
+A nerve wasn't called something because a professor wanted me to memorize another word. It came from somewhere, traveled somewhere, innervated something.
+
+It had once done something.
+
+It belonged to someone.
+
+The big picture.
+
+For once, the words didn't feel completely arbitrary.
+
+A smile crept onto my face as I looked down at Mary, face still shielded by moist cloth to keep her flesh from drying out in the open air. "Okay, that wasn't so hard."
+
+I don't remember how long I worked after that.
+
+What I do remember is that sometime around 1:20 AM, I realized I hadn't looked at my notes in a while.
+
+I was trying to locate the deep branch of the radial nerve, but fascia and connective tissue obscured my view.
+
+I was about to give up when it happened again.
+
+*Look closer.*
+
+Again. No sound. The thought simply appeared, completed but different among my own. It felt less like hearing someone speak and more like remembering a conversation but not the voice that said it.
+
+My fingers stopped. For a second, I tried to remember whether I had intended to tell myself that.
+
+I couldn't but again, I didn’t care.
+
+Instead, I leaned closer.
+
+I wedged my fingers between the muscle compartments in her forearm quietly naming what I was touching.
+
+Pronator teres.
+
+Flexor digitorum profundus
+
+Then—
+
+There.
+
+A small nerve branched from the median just below the elbow. A small artery joined it on its course through the forearm.
+
+Before I could reach for my notes, the answer was there.
+
+*Anterior interosseous.*
+
+I paused and found myself laughing. Not loudly. Just enough for the sound to seem inappropriate in a room full of dead people. “See that Mary? I found something.”
+
+Silence as usual.
+
+By then, I decided it was probably time to go home.
+
+I sprayed the hydrating solution over Mary's exposed tissues, replacing each reflected layer as carefully as I could.
+
+Then I pulled the muslin back over her limbs and covered her with the shroud.
+
+I caught myself smoothing the plastic over her shoulder. “Goodnight,” I whispered as her head disappeared behind the white plastic.
+
+I ended up getting back home at around 1:50 AM.
+
+The next lecture felt different. Definitely not easy, but manageable. For the first time, I felt like I could keep up.
+
+I even started looking forward to dissection.
+
+My night time routine continued throughout the block. Lecture, library to study, have some amalgamation of snacks for dinner, then head into the anatomy lab and study with Mary.
+
+I wouldn’t go every night but probably more often than one normally would.
+
+I couldn't tell you exactly when things changed but I can tell you the first time I noticed.
+
+My second exam score was 88/100.
+
+That evening I walked into the anatomy lab practically buzzing and borderline skipping over to Table 12.
+
+“I passed the upper-extremity exam!”
+
+My excitement was met with silence, but I continued.
+
+“I wouldn’t have been able to do it without you.” I pulled on my gloves and tied my apron behind my back with the efficiency of someone who had done it far too many times.
+
+“I know an 88 isn’t exactly groundbreaking,” I continued as I pulled back the shroud. “But considering I almost failed the first one, I think I deserve to be a little excited.”
+
+I paused for a moment, The white cloth over Mary’s face held the impressions of her features beneath. “I know it's stupid but…I like to think you’d be proud…”
+
+I continued setting up my printed out notes in the silence I had grown so used to. Then…
+
+*I am.*
+
+My hands stopped.
+
+For a moment, I didn't breathe.
+
+The lab seemed to expand around me.
+
+I looked toward the entrance.
+
+“Hello?” I called out into the emptiness.
+
+Nothing answered except the ventilation system and the rush of my own pulse in my ears.
+
+I turned back to Mary. Her face was still covered by the muslin and with shaking hands, I reached for the edge of the cloth. I don't know what I expected to find underneath. Open eyes, maybe? A moving mouth? Something that would justify how hard my heart was pounding. Though I’m not sure how much of a comfort that would have been if that is what I uncovered beneath.
+
+But I didn’t see anything that didn’t belong.
+
+I hadn’t seen her face that often, only twice maybe. The first time being during orientation and the second time being when we had to flip her over after we finished dissecting the back.
+
+Her skin had yellowed slightly beneath the preservatives, the features stiffened into something that looked less like sleep the longer you stared at it, her limbs were taut, her hair had been shaved close to the scalp leaving gray stubble, and her eyelids were firmly shut.
+
+So were her lips.
+
+She looked like what she was.
+
+A dead woman.
+
+“This isn't funny...”
+
+*I wasn't trying to be funny.*
+
+I stumbled backward at that. A stool caught the back of my legs and screeched against the floor, the sound harsh and clashing with the urgency of me yelling out, “Jesus Christ!”
+
+*Sorry.*
+
+I stared at her. I had caught myself on another table, bracing myself against the metal as my knees began to feel weak. I tried to let the cool feeling of the steel ground me as my brain tried to rationalize what was happening.
+
+Her mouth hadn't moved. Nothing had moved. That somehow made it worse. After a moment, I shook my head.
+
+“Yeah, no.”
+
+Silence.
+
+“Nope.”
+
+I tore off my gloves.
+
+“Absolutely not.”
+
+I grabbed my backpack,
+
+I didn’t cover Mary. I didn’t wash my hands.
+
+I could shower for three hours when I got home and burn these scrubs, nevermind the set was $95. The chemicals must have been getting to me. The lack of sleep was getting to me. Something was getting to me and I needed to go.
+
+*June.*
+
+I stopped mid stride. Hearing my name was different. I remembered the other times I had felt this insertion of thought.
+
+*You're overthinking it.*
+
+*Look closer.*
+
+*Anterior interosseus.*
+
+Those could have easily been me. Thoughts I'd generated and forgotten generating. Things my exhausted brain already knew and delivered in a strange way.
+
+But my name…
+
+I turned around.
+
+“Say that again.”
+
+Nothing. I marched back over to the table.
+
+“Say my name.”
+
+Silence.
+
+I stood there biting the dead skin from my lip and feeling increasingly ridiculous
+
+“Right.” I laughed nervously. “Okay. I'm losing my mind.”
+
+*Juniper.*
+
+My heart hammered hard against my ribs while some detached, useless part of my brain supplied ‘sympathetic nervous system’
+
+“You're dead.” I said frankly.
+
+There was a pause.
+
+*You've mentioned that.*
+
+I don't know why, but I laughed. It wasn't because anything was funny. I think my brain simply ran out of appropriate responses.
+
+“You're dead,” I repeated, putting emphasis on the second word.
+
+*Yes.*
+
+“And you're talking to me.”
+
+*Apparently.*
+
+“How?”
+
+Silence again. I waited.
+
+“How are you doing this?”
+
+*I don't know.*
+
+I should have left. I mean, any reasonable person would have left.
+
+I should have gone home, slept for twelve hours, and maybe made an appointment with somebody in the morning. Get a proper anatomy tutor instead of giving myself a sleep disorder to pass a first year course.
+
+Instead, I slowly set my backpack back down.
+
+Then I grabbed another pair of gloves.
+
+“Were those you?”
+
+*What?*
+
+“The other nights,” I stepped closer, “the suggestions, the tips. Was that you?” I asked urgently. I had to know if she had been trying to speak to me from the beginning.
+
+A pause.
+
+*Yes.*
+
+I looked at her arm. Toward the place where I'd found the anterior interosseous nerve. “You helped me.”
+
+*You found it.*
+
+“Because you told me where to look.”
+
+*I told you to look closer.*
+
+“That counts.”
+
+*If you'd like.*
+
+For several minutes, neither of us said anything.
+
+It was strange.
+
+I had spent weeks talking to Mary without expecting an answer. Now that I had one, I couldn't think of anything to say.
+
+Eventually, I asked the first question that came to mind.
+
+“Is your name actually Mary?”
+
+There was a pause.
+
+Then:
+
+*No.*
+
+I suddenly felt horrible.
+
+“I'm sorry.”
+
+*Why?*
+
+“I've been calling you the wrong name for like a month.”
+
+*I know.*
+
+Before I could say anything else
+
+*Mary is fine.*
+
+Something about that answer unsettled me. Not enough to scare me but just enough to remind me that I knew almost nothing about the woman lying in front of me.
+
+For the a while she was Table 12:
+
+Respiratory failure secondary to complications of Alzheimer's disease.
+
+Eighty-three.
+
+Female.
+
+Then, she became Mary.
+
+I knew she had a small accessory head of the biceps.
+
+I knew that her back muscles were thin. We had to be extra careful not to cut through multiple layers when reflecting them.
+
+I knew her spine had a left leaning scoliotic curve which made flipping her over a nightmare for four first-year students terrified of dropping her.
+
+I knew things about the inside of her body that people who knew her alive never would.
+
+But I didn't know her name. I didn't know where she'd lived.
+
+I didn't know if she'd been married. I didn't know if she had children.
+
+I didn't know what she'd done for work
+
+I didn’t know if someone had held her hand when she passed. I didn’t know if her remains would be returned to those same hands.
+
+And yet I had spent more time with her over the past month than I had with most of my friends.
+
+“Can I still call you Mary?”
+
+*I told you. Mary is fine.*
+
+“Okay.” I looked down at my notes. Then back at her. “Do you actually know anatomy?”
+
+Something touched the edge of my thoughts that felt unmistakably like laughter.
+
+Calling it a voice or a noise wasn’t right.
+
+Mary never sounded like anything. There was no pitch. No volume. No direction. Nothing traveled from her mouth to my ears. Her words simply arrived as if my brain had skipped hearing them and gone straight to understanding.
+
+And somehow, despite there being nothing recognizable about it, I knew this particular thought belonged to her.
+
+*I know more than you do about anatomy.*
+
+“Oh, screw you.”
+
+*You got an eighty-eight.*
+
+“An eighty-eight is good!”
+
+*You said you wanted to be a surgeon.*
+
+I stared at her.
+
+That night, somewhere between the absurdity and the exhaustion and the fact that I had apparently lost whatever tenuous grip I'd once had on reality, something changed.
+
+What I felt was no longer fear.
+
+It was an opportunity.
+
+So, deciding not to waste any more time I picked up my notes. “Fine,” I flipped to the first page with a smile.
+
+“Let's see how much you know.”
+

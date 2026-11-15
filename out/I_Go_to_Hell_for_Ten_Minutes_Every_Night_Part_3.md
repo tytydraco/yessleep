@@ -129,3 +129,5 @@ If she blacks out again I’m biting the bullet and driving her myself. Fuck the
 So that catches you all up. I’m sitting here in the motel typing this while the sun’s still asleep. I have no home and I’m hiding from the law. Worse than that, all of my efforts have failed, Maia is still over there, and now my friend is hurt really bad.
 
 I don’t have a clue what to do next, but there’ll be another 1:18 tomorrow night and I’ve got to figure out how to be ready for it.
+
+[**\[Part 4\]**](https://www.reddit.com/r/nosleep/comments/1xwtdlw/i_go_to_hell_for_ten_minutes_every_night_part_4/)
