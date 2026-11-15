@@ -6,7 +6,7 @@ You watch scary movies and it always begins with some ominous event and it’s o
 
 
 
-It started with a check-in. I was on an 5-3 that day. 5pm to 3am. It wasn’t a big hotel, but management wanted the desk manned around the clock. Shifts would overlap an hour each side to allow for issues. Check-in opened at 3pm, so by the time I started at 5pm most of our expected guests for the day were already there. You’d always get a couple of Johnny-come-latelies though. He was one of them. 
+It started with a check-in. I was on a 5-3 that day. 5pm to 3am. It wasn’t a big hotel, but management wanted the desk manned around the clock. Shifts would overlap an hour each side to allow for issues. Check-in opened at 3pm, so by the time I started at 5pm most of our expected guests for the day were already there. You’d always get a couple of Johnny-come-latelies though. He was one of them. 
 
 
 
@@ -162,7 +162,7 @@ I guess I drifted off because suddenly the phone was ringing again and now it wa
 
 
 
-“Why didn’t you open the kitchen for me? The chef had to let me in himslef. His meat was still raw.” 
+“Why didn’t you open the kitchen for me? The chef had to let me in himself. His meat was still raw.” 
 
 
 

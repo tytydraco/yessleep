@@ -1,0 +1,84 @@
+Content warning: >!Gore!<
+
+  
+My life changed for the worse this past week. I saw things I cannot unsee. I never wanted to find what was in those woods. It wasn’t something I was meant to see. Now I’m here, doing my best to describe it. 
+
+
+
+It seemed like a normal day. I worked at my job at the gas station. I worked during the daytime, and got off at 5. This was the first day I worked after the clocks were turned forward for daylight savings time, the beginning of November. There was a fall chill in the air, and the leaves were falling from the trees by the thousands. 
+
+
+
+I drove to the local gym after my shift. It was dark on my way there, when it hadn’t been the previous week. I did a quick lift, I think it was legs that day. After I lifted I decided to run. I love running. It's one of the most consistent hobbies I’ve kept up through my life. Not that that’s saying much, I’m young and have only been running since high school. I really didn’t like running on the treadmill though. This fall, I decided that I was going to quit the treadmill once and for all. 
+
+
+
+I brought a flashlight with me that day. It was actually a really nice one. When I used it in a dark room, it lit up the entire thing. This was my companion on my run. I was going to be running on trails at a park about half a mile away from the gym I went to. It wasn’t quite the middle of nowhere, but it sure felt like it. 
+
+
+
+The time was only around 5:30 when I left. It was almost totally dark out. The last gasp of the day was fading quickly into the night. I put my earbuds in and started running on the road to get to the park. The road to the park was paved, and well maintained. It made for a good running surface. 
+
+
+
+After about 8 minutes of running, I made it to the entrance to the trail. The park was in a valley, and the darkness was so much thicker here. I shined the flashlight further down the road, and could only see a sharp turn sign a bit further away. The way the light danced on it and then dissipated into the inky abyss that lay ahead of me gave me the creeps. 
+
+
+
+I took a breath and said, “Well, here I go.” 
+
+
+
+The trails at this park are quite rocky. It isn’t hard to run on them in the day, but at night, it’s a whole different ball game. I tripped a couple times in the first few minutes I was on the trail. 
+
+
+
+As I ran, I eventually came across a bridge. I let the flashlight fall on it, and across I went. After I crossed, I saw something strange in a tree ahead of me. I looked at it and realized it was some kind of sweatshirt someone had lost. It was blue. I thought it was weird, but I was also in my own head because of just how dark it was. It almost felt unnatural.
+
+
+
+The further I jogged, the worse my mental state got. The trees appeared to reach out to try and grab me through the darkness. Their leafless branches were like uncanny long arms. I could see maybe ten feet ahead of me. 
+
+
+
+Eventually I reached the bottom of the valley, where there was a parking lot, and a small building used for storage with a single security light outside of it. As I ran through the parking lot, I thought I saw someone move near the building. I just assumed it was my imagination, or a maintenance person finishing up their shift. 
+
+
+
+At this point I could feel an unnatural adrenaline, but I still needed to make some distance on my run, so I followed the road connected to the parking lot. It went further into the woods. It felt like I was being pulled deeper in. There was a gate across the road that let small vehicles and people through. There was a sign that read “motorized vehicles prohibited, no winter maintenance.” This just meant that the road was pretty dilapidated, but still very suitable for walking or running. 
+
+
+
+The first thing I noticed was the smell. Something smelled bad. Like, really bad. I never smelled anything as bad as it. It was like roadkill but worse. It was so bad I could barely hold the flashlight. I dropped the flashlight for a second to cover my nose, and for a brief moment I felt something touch the back of my neck. It was a weird, electrifying feeling. It hurt the slightest bit, and then as soon as it came on, it was gone. 
+
+
+
+I was freaked out at this point. The darkness felt as if it was consuming me whole, and I swore I could hear whispers in the shadows. I turned around to start to head back. I saw the trailhead and ran to it. In my mind I thought it was too close and could have been a wrong turn, but I was scared and ignored that fact.
+
+
+
+As I went further and further into the forest, my flashlight seemed to become dimmer and dimmer. I kept jogging along, when I noticed the smell again. It was pungent, and stronger than before. It was like the further I went on the trail, the worse the smell got. Eventually, my flashlight flickered and died. It was dark, I was cold, and alone. I took a few more steps, thinking of what to do.
+
+
+
+That’s when I felt it. I stepped on something soft. It was crushed under my foot with a squelch. Some kind of warm liquid seeped into my shoe. It was too thick to be water. A part of me knew what it was without even looking. I still looked down though. I pointed the dead flashlight at what I just stepped in, and suddenly it flickered a few times.
+
+
+
+What I stepped on, no, who I stepped on shook me to my very core. In the flickers of light I saw myself. My throat was torn out, and my face contorted in a scream that never happened. I felt my throat go dry, and I ran.
+
+
+
+I ran for what felt like hours. The flashlight came back to life after I saw the horror of the woods. I ran and ran and ran. I ran until every breath was gone from my body. My lungs burned like they were full of glass. It hurt, and I cried. It might have been from relief or stress. I still don’t really know.
+
+
+
+I filed a police report about it hours after. They told me they would look into it, but they told me that the trail I was describing didn’t exist. There was no trail where I found the body. 
+
+
+
+They searched the entire area, and found nothing. The body I described was gone. The trail was gone. That shed I saw was real though. The cops said there was evidence of someone breaking into it on the night I experienced the incident. Cameras were deemed unnecessary in that part of the park, so no one was caught for it. 
+
+
+
+It didn’t make sense to me. I knew what I saw that night. The image will never leave my mind. I don’t think we’re supposed to see ourselves dead. I am probably the only person in the world who has. 
