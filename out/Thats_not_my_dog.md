@@ -1,70 +1,177 @@
-On this particular weekend, my parents flew out to for a funeral of a family member. In hindsight I probably should've come with them, but someone needed to watch the dog. Leia is a very hyperactive husky that doesn't really function well without any of us present, and we couldn't bring her with us, so I had to stay behind.
+&#x200B;
 
-We live in the middle of nowhere, on a secluded road that leads into the woods, the next nearest house is roughly a mile away, which means Leia gets to stay outside for long periods of time, and that dog absolutely loves running around the forest. I've had to go out there and bring her back on numerous occasions simply because she loses track of time and wont return on her own. 
+***My name is Jake, and I live alone on a small farm in rural Colorado.***
 
-And don't get me started on the dead animals she brings back, I wish she wouldn't. 
+***The property is about sixty acres, with fields and a thick forest on the eastern side. My closest neighbor is over two miles away, and the nearest town is about twenty minutes by car.***
 
-It was a Saturday afternoon when I decided to go for a walk with Leia by my side, I often took walks through the forest to clear my mind, and not being able to attend the funeral was getting to me mentally. 
+***The house belonged to my grandfather. There's a barn, a few fenced pastures, an old shed, and not much else.***
 
-I called out to her inside of the house and she was by my side not even ten seconds later, panting and ready to go out. As soon as I opened the door she bolted out at full speed, which made me grin. I love that dog to death. 
+***The only company I have is my dog, Duke.***
 
-There's a hiking trial through the forest that I usually walk to not get lost, and Leia also knows to stay on track, and even if she doesn't, one quick call and she's usually by my side within a minute again. 
+***Duke is a five-year-old Border Collie. He's incredibly smart and has been with me since he was a puppy. He knows almost every command I use around the farm.***
 
-I was just observing Leia, watching her run back and forth and roll around in the leaves occasionally. She was getting really dirty and I knew I'd have to hose her down before I let her back into the house. The forest felt strangely eerie today, I was feeling uneasy and I couldn't really pinpoint why. I chalked it up to just me feeling upset because of the funeral. But my stomach would not stop churning. 
+***Or at least, I thought he did.***
 
-Leia was really loud today, louder than usual. I could hear the leaves crunching even when she was completely out of sight much further ahead than I was. "Leia!" I called out to her, and it echoed through the woods. I stopped to listen more closely, I could hear leaves crunching up ahead, and it was getting closer. Then I saw her emerge from behind a tree. The first thing I noticed was that she was no longer dirty, and then I noticed that she was dripping wet. I sighed, I had forgotten that we were near the river, I was too distracted. I usually turn back before we reach the river. 
+***A few months ago, I was fixing a fence when Duke started barking at me.***
 
-She ran up to me. "Oh Leia.." now I'll need to give her a bath. She started shaking the water out and onto me, and then ran back off into the direction of the river.
+***I pointed toward the house.***
 
-"Leia! Come back!" I called out again, but she was still running. This wasn't like her. I stood there, completely and utterly confused. My bad gut feeling was only growing stronger. That's when I noticed something odd. The forest was eerily silent today, there were no birds chirping, no leaves rustling. Dead silence. I hadn't been paying too much attention to the nature itself. 
+***"Go home."***
 
-Just as I was about to call out for Leia again, I saw her shape bolting toward me again, with her tongue out.   
-She was dirty again. I just turned around and beckoned for her to follow. We were going to head home, I couldn't stay here any longer, something felt really off about the forest today.
+***He immediately turned around and walked to the porch.***
 
-The walk back took around an hour, I hadn't realized we had gotten that far from home. Time flies by fast when you spend it inside of your head, thinking of your dead cousin and the happy memories you shared together. 
+***I didn't think much of it until I realized I'd never taught him that command.***
 
-Leia behaved during the walk back and didn't run off again which saved me some trouble. I hosed her down when we got back to the house.
+***The next morning, I raised my left hand while he was sitting beside the barn.***
 
-I felt more comfortable now that I was finally home, but my gut feeling was still screaming at me that something was wrong. Had I missed something? 
+***He stood up.***
 
-I filled the dog bowl for Leia to eat dinner, and then decided to lie down for a nap upstairs, I had a terrible headache. 
+***I lowered it.***
 
-I woke up sometime later to a phone call from mom, it was dark out now, and raining. They had just gotten to my cousins house and were ready to head to bed.
+***He sat down.***
 
-We talked for a little bit and I felt better after seeing them both. 
+***I tried it again.***
 
-After some time, we ended the call and I looked around my room, noticing Leia wasn't here. She usually made her way upstairs and slept at the foot of my bed if I was sleeping. I got up from bed and walked downstairs to see if I could find her. I could hear the rain pouring outside and some very distant thunder, Leia hated thunder, she might've been hiding under the dining table.
+***Same thing.***
 
-I checked under it, but she wasn't there. I also checked over a dozen other places, and I couldn't find her. 
+***I'd never taught him that either.***
 
-"Leia!" I yelled into the empty house, my heart was churning even worse than in the forest now. Something was terribly wrong. 
+***I figured my grandfather must have taught him before he died.***
 
-Just as I was about to yell again, I heard her footsteps behind me, I turned around and took a sigh of relief. She was right here, she came out of the direction of the living room. She looked alright. I kneeled beside her and gave her some pets. "Good girl." 
+***That evening, Duke stopped at the edge of the yard and stared into the forest.***
 
-As I was doing so, my ears picked up on a strange sound. I could hear scratching somewhere. I listened in, it was hard to discern through the pouring rain and thunder. It sounded like it was coming from the kitchen. I stood up and began walking there. Leia followed behind me. Something was off.
+***I called him.***
 
-In the kitchen the scratching was louder, it sounded like it was coming from outside. I had closed all the blinds earlier on all the windows and the back door, so I couldn't see outside. I slowly tiptoed to the back door, making sure to be silent as to not be heard, and I parted the blinds to look outside.
+***Nothing.***
 
-My heart dropped. Leia was outside, scratching the door asking to be let in. 
+***Then I said, "Come here, Duke."***
 
-But.. Leia was right here..? I turned around and looked at my dog. She was standing in the doorway, looking at me funny. If Leia is inside, then what's out there, scratching at the door? The dog outside howled, making me flinch. It sounded like Leia. 
+***He immediately came running back.***
 
-I kept staring at Leia in the doorway while listening to the Leia outside, and something finally clicked in my mind. Something was.. wrong with her. She looked like Leia, but she also didn't. The proportions were all.. wrong, her posture was unnatural, her slightly tilted head, the way she was looking at me.. it.. it wasn't Leia. The Leia outside started barking. 
+***The next morning, I found footprints in the dirt near the porch.***
 
-My mind was running a thousand miles a minute. Was this Leia, or was the one outside Leia? And more importantly.. what was it, that was imitating her? The Leia in the doorway finally moved, she began walking towards me. It looked so.. wrong. That's not how Leia walked. I turned around and started fumbling with the key to unlock the back door. 
+***They looked like dog prints.***
 
-The footsteps kept getting closer and closer, they started sounding heavier and heavier. I finally managed to unlock the door and Leia bolted inside, going straight for the other one.. except it didn't look like Leia anymore. It had doubled in size, instead of paws it had hooves, instead of ears it had horns, while still wearing Leia's hide and head. Nothing could've prepared me for that sight. 
+***Except they were much bigger than Duke's.***
 
-My fight or flight instincts kicked in and I ran past them both, Leia was barking at the monstrosity. 
+***They came from the forest and stopped at the porch.***
 
-I bolted upstairs and inside of my room, I locked the door behind me, my heart was beating out of my chest. I could hear the growling and barking downstairs, they were still having a showdown. Leia, and whatever.. it was. 
+***There were no footprints going back.***
 
-Eventually it grew silent and all I could hear was the rain and occasional thunder outside. 
+***I called Duke over.***
 
-Then I heard a faint sound, I wasn't sure what it was at first, but then it clicked. Something was scratching at my door. 
+***He sniffed them once and backed away.***
 
-I couldn't be sure if its Leia or not, so I kept the door closed and stayed quiet. Eventually the scratching grew silent. I haven't left my room yet and its the morning now. 
+***That was when I started feeling uneasy.***
 
-I called my parents and they told I was being paranoid. I called the cops and they thought it was a prank call. 
+***Later that day, Duke was standing in the pasture, staring at the forest again.***
 
-I don't feel safe but I have to check the house. I'll be going into my parents room and grabbing their gun before I clear the house and make sure its gone. 
+***He wouldn't come when I called.***
+
+***That night, I woke up around 3:15 AM.***
+
+***I looked out the window.***
+
+***Duke was standing in the yard.***
+
+***On two legs.***
+
+***Not for a second.***
+
+***He was actually walking toward the forest.***
+
+***I checked the security camera footage the next morning.***
+
+***At exactly 3:00 AM, Duke got out of his bed.***
+
+***He stood on two legs, walked to the back door, opened it, and stepped outside.***
+
+***Then he turned around and closed the door behind him.***
+
+***He stayed outside until sunrise.***
+
+***Then he walked back, still on two legs, opened the door, closed it behind himself, dropped onto all fours, and went back to bed.***
+
+***I barely slept that night.***
+
+***The next evening, I stayed downstairs and watched the clock.***
+
+***2:59 AM.***
+
+***Duke was asleep.***
+
+***3:00.***
+
+***His eyes opened.***
+
+***He slowly lifted his head and looked directly at me.***
+
+***Then he smiled.***
+
+***Not like a dog.***
+
+***Like a person.***
+
+***I couldn't move.***
+
+***Then he said my name.***
+
+***In my own voice.***
+
+***"Jake."***
+
+***He took a step toward me.***
+
+***Then another.***
+
+***After that, everything went dark.***
+
+***Now I'm writing this from the floor.***
+
+***I don't know how much time I have left.***
+
+***But I finally understand what happened.***
+
+***Duke disappeared into the forest two weeks before all of this started.***
+
+***He was gone for almost two weeks.***
+
+***When he came back, I was just happy to see him.***
+
+***I never questioned why he seemed different.***
+
+***Why he knew things I never taught him.***
+
+***Why he kept staring into the forest.***
+
+***The real Duke never came back.***
+
+***Whatever returned was wearing his life.***
+
+***It killed him.***
+
+***And now it knows I'm going to die too.***
+
+***That's why it isn't attacking me anymore.***
+
+***It's just waiting.***
+
+***I can hear it walking around upstairs.***
+
+***Every few minutes, I hear my own voice.***
+
+***"Jake?"***
+
+***Then silence.***
+
+***"Jake?"***
+
+***It's coming downstairs now.***
+
+***I can hear its footsteps.***
+
+***And this time, it's using my voice.***
+
+***"Don't worry, Jake."***
+
+***"I'm almost there."***

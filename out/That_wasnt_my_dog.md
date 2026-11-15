@@ -1,0 +1,177 @@
+&#x200B;
+
+***My name is Jake, and I live alone on a small farm in rural Colorado.***
+
+***The property is about sixty acres, with fields and a thick forest on the eastern side. My closest neighbor is over two miles away, and the nearest town is about twenty minutes by car.***
+
+***The house belonged to my grandfather. There's a barn, a few fenced pastures, an old shed, and not much else.***
+
+***The only company I have is my dog, Duke.***
+
+***Duke is a five-year-old Border Collie. He's incredibly smart and has been with me since he was a puppy. He knows almost every command I use around the farm.***
+
+***Or at least, I thought he did.***
+
+***A few months ago, I was fixing a fence when Duke started barking at me.***
+
+***I pointed toward the house.***
+
+***"Go home."***
+
+***He immediately turned around and walked to the porch.***
+
+***I didn't think much of it until I realized I'd never taught him that command.***
+
+***The next morning, I raised my left hand while he was sitting beside the barn.***
+
+***He stood up.***
+
+I ***lowered it.***
+
+***He sat down.***
+
+***I tried it again.***
+
+***Same thing.***
+
+***I'd never taught him that either.***
+
+***I figured my grandfather must have taught him before he died.***
+
+***That evening, Duke stopped at the edge of the yard and stared into the forest.***
+
+***I called him.***
+
+***Nothing.***
+
+***Then I said, "Come here, Duke."***
+
+***He immediately came running back.***
+
+***The next morning, I found footprints in the dirt near the porch.***
+
+***They looked like dog prints.***
+
+***Except they were much bigger than Duke's.***
+
+***They came from the forest and stopped at the porch.***
+
+***There were no footprints going back.***
+
+***I called Duke over.***
+
+***He sniffed them once and backed away.***
+
+***That was when I started feeling uneasy.***
+
+***Later that day, Duke was standing in the pasture, staring at the forest again.***
+
+***He wouldn't come when I called.***
+
+***That night, I woke up around 3:15 AM.***
+
+***I looked out the window.***
+
+***Duke was standing in the yard.***
+
+***On two legs.***
+
+***Not for a second.***
+
+***He was actually walking toward the forest.***
+
+***I checked the security camera footage the next morning.***
+
+***At exactly 3:00 AM, Duke got out of his bed.***
+
+***He stood on two legs, walked to the back door, opened it, and stepped outside.***
+
+***Then he turned around and closed the door behind him.***
+
+***He stayed outside until sunrise.***
+
+***Then he walked back, still on two legs, opened the door, closed it behind himself, dropped onto all fours, and went back to bed.***
+
+***I barely slept that night.***
+
+***The next evening, I stayed downstairs and watched the clock.***
+
+***2:59 AM.***
+
+***Duke was asleep.***
+
+***3:00.***
+
+***His eyes opened.***
+
+***He slowly lifted his head and looked directly at me.***
+
+***Then he smiled.***
+
+***Not like a dog.***
+
+***Like a person.***
+
+***I couldn't move.***
+
+***Then he said my name.***
+
+***In my own voice.***
+
+***"Jake."***
+
+***He took a step toward me.***
+
+***Then another.***
+
+***After that, everything went dark.***
+
+***Now I'm writing this from the floor.***
+
+***I don't know how much time I have left.***
+
+***But I finally understand what happened.***
+
+***Duke disappeared into the forest two weeks before all of this started.***
+
+***He was gone for almost two weeks.***
+
+***When he came back, I was just happy to see him.***
+
+***I never questioned why he seemed different.***
+
+***Why he knew things I never taught him.***
+
+***Why he kept staring into the forest.***
+
+***The real Duke never came back.***
+
+***Whatever returned was wearing his life.***
+
+***It killed him.***
+
+***And now it knows I'm going to die too.***
+
+***That's why it isn't attacking me anymore.***
+
+***It's just waiting.***
+
+***I can hear it walking around upstairs.***
+
+***Every few minutes, I hear my own voice.***
+
+***"Jake?"***
+
+***Then silence.***
+
+***"Jake?"***
+
+***It's coming downstairs now.***
+
+***I can hear its footsteps.***
+
+***And this time, it's using my voice.***
+
+***"Don't worry, Jake."***
+
+***"I'm almost there."***
