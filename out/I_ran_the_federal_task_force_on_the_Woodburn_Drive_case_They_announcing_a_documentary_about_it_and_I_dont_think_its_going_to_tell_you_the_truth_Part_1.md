@@ -185,3 +185,5 @@ I'll post the rest when I can. My wife thinks I shouldn't post any of it. She th
 The whole reason is that a documentary is coming, I don't know when, and the person telling the story in it is the person who knows the most about what really happened in those houses. And I've seen the way she looks into that camera in those forty seconds, and I've seen what she did with her hair.
 
 She dyed it blonde, the same shade as the woman in the white dress.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1xwks2m/i_ran_the_federal_task_force_on_the_woodburn/)

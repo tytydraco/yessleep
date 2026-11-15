@@ -1,0 +1,99 @@
+I haven’t seen my best friends since the winter of 2020, when we were eighteen and stupid. It’s just one of those things. You see each other every day in high school, you grow up, COVID happens, and you all scatter to the winds. Silas graduated from art school, moved twenty minutes away, and only answers texts months after you send them. Like we’re still sending letters in the 1910s or something. Tonya teaches high school in Texas and occasionally has mental breakdowns on Facebook. And Jake had a messy breakup with the girl we both liked and then disappeared to join the Marines, ruining my friendship with her and temporarily destroying the friend group as a whole. Such is the nature of high school friendships. I’m surprised so many of them survive our adulthoods.
+
+I’ve made other friends here and there. Coworkers, mostly. My fiancé’s circle has taken me in like I’m a bird with a broken wing. But I’ve never had friends like Silas, Jake, and Tonya. Maybe it’s because I’m older and it’s a different world. There are no 24-hour Walmarts to bum around in. The mall by my house has closed down. Running around the woods with sticks is fine when you’re eighteen, but when you’re twenty-five, it loses a little luster.
+
+But none of that matters now.
+
+I’m getting married tomorrow, on the land my fiancé’s family owns. It’s nestled deep in the pine forests: a well-kept farmhouse with acres of fenced meadows behind it, then deep woods farther back. Five years of living together, finally cemented in a legal contract and a gold ring. I guess that’s romantic.
+
+He’s having his bachelor party across town. There will probably be strippers or lap dances and light-up shot glasses or whatever else you’re supposed to have at a bachelor party. It'll probably be more fun than mine. I bought ‘pin the junk on the hunk’ from Spencer’s, but no one seemed interested.
+
+Instead, we decided to go to an arcade bar in town. The air is smoky, and the counters vibrate from the cheesy eighties music being pounded from the speakers. I’m entirely sober while my friends must be at least eight shots in, and I try not to eye the half-finished Modelo in Jake’s hand. I’m watching Tonya and Silas bat a puck across the air-hockey table, drinking in every detail.
+
+Tonya has a few stray gray hairs. She’s wearing a Hawaiian dress and dangly hoop earrings. Silas has not aged a day. He’s wearing the same plaid shirt he wore six years ago when I last saw him. Same gray hoodie. His eyes sparkle with the same intelligence as he drunkenly dogs a movie he watched a month ago. Jake sips his beer and looks at me. He has the same pale blue eyes, same dark hair. He has stuble now and more muscle in his arms, but he’s the same guy I would scale parking garages with and join on long, midnight drives. The same guy I’d steal cigarettes from. The same guy I shared the best nights of my life with.
+
+He chugs the rest of his beer and clears his throat. “Allie, can we talk? Alone?”
+
+“Sure.”
+
+My ears are ringing as we leave the bar, and I turn down the cigarette he offers me. I mumbly ask him not to smoke, and he cocks his head, shrugs, and slips the cigarette back into the package. I stare at the yellow filter longingly.
+
+“I missed you,” he says.
+
+“You could’ve texted me.”
+
+He shrugs. “Not the same.”
+
+“I know.”
+
+He plays with the cigarette box, drumming his fingers on the plastic-encased lid. He draws in a long breath, his eyes flicking between me and the ground. I wait. Finally, he asks: “Do you remember that night?”
+
+I lean back and close my eyes. “That night” can only mean one thing. I had tried to forget about it for years. When Jake had said he’d seen ‘a cryptid’ on one of his adventures, I’d offered to come with him. We sat crouched together on a tree branch ten or so feet above the ground, listening to each other’s breathing. It was February, freezing cold. We inched together, our breath clouding in the air.
+
+Before I saw it, I had this feeling. Every hair stood up on my skin, and I thought I would fall off the branch. I knew. I felt it deep in my bones. I *knew* this would be our last adventure together.
+
+And there it was, ghostly silent. Massive, bigger than the Clydesdale horses that would sometimes trot through town at Christmas. It was a moose, its shining hide so white we should’ve spotted it from miles away. And there wasn’t even the crack of a stick or the crunch of leaves. Its antlers gleamed like a rack of bones, bigger than any buck’s I’d ever seen on my occasional hunts. Its nut-shaped eyes blinked red as it lifted its massive head. It nosed and pawed the dirt, silent. Jake trembled beside me, his warm hand suddenly squeezing mine.
+
+I looked down at the moose, at our clasped hands, and then at Jake’s pale face. He yanked his fingers away, and we watched the moose lumber deeper into the woods. Our last adventure.
+
+“I think about it all the time,” I say.
+
+Jake’s eyes trace the cracks in the sidewalk. “Do you think…I mean…do you ever wonder…” He stops. Starts again. His hands clutch limply at his sides. “Do you ever think about what could’ve happened…with us?”
+
+I should be furious. Why the fuck would you bring this up the night before a wedding? But instead, I shrug. “Sometimes. We were always dating someone else or crushing on the same person. It just never worked out.”
+
+“Do you regret it?” he asks. He pulls a cigarette from the pack and raps it against his knuckles. I close my eyes again, remembering the bone-like antlers of the thing we saw together. There aren’t supposed to be moose in Virginia. There’s the Bellwood Elk, elk maintained on government property in honor of John Bellwood’s legacy. And there are zoos. But the thing we saw, the thing that is supposed to herald ill omen, was something entirely different. Something that shouldn’t exist.
+
+“I think I’m pregnant.” It comes out suddenly. I hadn’t even told Dakota yet. “I hid the test. I’m gonna look at it after the wedding.”
+
+“Oh.” He breathes. He smiles, but his eyes are flat. He fumbles to pocket his cigarettes. “Well, just pretend I haven’t said anything. Dakota sounds like a good guy. I’m glad you’re happy. I…I just want the best for you.”
+
+I nod. I feel cold all over, like the cryptid's red eyes are still on me. “I think we should get back inside.”
+
+“Oh, yeah, yeah, of course.” Another nervous smile. He pats me on the shoulder and then stuffs his hands into his pockets. We walk back into the bar, noticeably farther apart than before. “Don’t worry,” he says. “I’ll drink enough for the both of us.”
+
+\*\*\*
+
+The bride and the groom aren’t supposed to see each other until the wedding, but how many hours before is up for debate. Dakota and I are staying at the farmhouse together for the night. I’m sitting on the screened-in porch, trying to read and push the nerves away. It’ll be a small ceremony. Just family and close friends, then the honeymoon. I’m trying not to think about the pregnancy test, tucked in a cardboard box and hidden in the bottom of my suitcase.
+
+It’s a cool spring night. The wind plays across the grass, crickets chirp, and owls hoot from the dark forest in the distance. The air smells of unseen flowers, and I rock back in my chair, watching the clouds roll along the skyline.
+
+Dakota tumbles through the door, laughing. He takes a few stumbling steps, squeezes my shoulders and plants a wet kiss on my hair. He tries to sit across from me and knocks the chair over.
+
+“I love you,” he says. “I missed you. Oh God, my stomach.” His eyes are cloudy from the booze. I grab his hands. I don’t know what I’ll do if the pregnancy test comes back positive. I know he’ll be a good father. He’s a wonderful teacher, well-loved by his students. He’s the kind of man who spends a significant chunk of his paycheck on donuts and crafting supplies for the other teachers and students. I help him to his chair, shush him, and we watch the woods. Another owl hoots. Lightning bugs blink against the treeline, and distant frogs croak.
+
+And then, silence.
+
+Dakota’s eyes flash with fear. He reaches over and squeezes my hand, so tightly it hurts. His body goes rigid. “Do you see it?”
+
+Nothing. And then—
+
+A white shape. Red glowing eyes in the distance.
+
+It isn’t supposed to be here. I’m two hours south of where I saw it last. I’ve never told Dakota about it; I didn’t want to think about it myself. “Stay still. Don’t move. Maybe it’ll go away.”
+
+It’s moving closer, close enough that I can see its crowning rack of giant antlers. They glimmer like a crescent of smiling teeth in the moonlight. It’s looking straight at me, those red eyes cold and unblinking. Dakota whips his head toward me, his eyes suddenly clear.
+
+“That thing is evil.”
+
+I can’t move. Can’t breathe. “What are you feeling?”
+
+“I just, I just have a bad feeling.”
+
+“Like what?”
+
+I’m staring at the moose. Its long white legs gleam like exposed bones. It lowers its head and noses the grass, its body so white that it’s almost glowing. “Dakota, you need to tell me.” I try to keep the rattle out of my voice. “What are you feeling?”
+
+“Like I’ll never see you again.” He stands up. The chair clatters to the ground, but the animal outside doesn’t seem bothered by the loud sound. “I have to kill it.”
+
+“No!” But he’s too fast. He races out the porch door, and I follow into the cold air. I know his favorite concealed-carry gun is tucked in his waistband. But before he left to go drinking, he emptied it.
+
+Something he must’ve forgotten.
+
+He runs so close to the creature that he’s almost nose-to-nose with it. He puts the gun against the animal’s shoulder. The gun clicks. Nothing.
+
+The animal lifts its head. I’m frozen, and so is Dakota. I can’t move, can’t speak, my own fear so thick that it roots me to the grass. Maybe it’s not an ill omen. Maybe it just signals change. Or maybe it’s just an animal, nothing more and nothing less. But I’m so afraid that I can’t move, and neither can Dakota. He just stands there, the barrel of the gun still pressed to the animal's ghostly hide.
+
+It flicks an ear and snorts. It pushes its nose against Dakota’s hair, like a friendly horse. I hold my breath.
+
+And I watch helplessly as the animal rams its antlers through Dakota’s throat.

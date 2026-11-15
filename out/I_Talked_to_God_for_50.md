@@ -1,0 +1,365 @@
+The town I live in is the sort of place that feels like the ass-end of everywhere. The kind of place you don't so much visit as find yourself in by accident, and, once there, discover that leaving is considerably more difficult than arriving. Nothing ever happens here, and nobody ever really leaves. People are born, grow old, and eventually die in the same handful of streets, their lives passing with the seasons and the slow deterioration of the buildings around them.
+
+Time has a peculiar way of behaving in a place like this. The days bleed into one another until there is little distinction between Monday and Thursday, or between one summer and the next. The sun rises, hangs above the rooftops for a while, and eventually disappears beyond the hills. The same cars pass the same houses. The same people sit on the same porches. Every now and then somebody dies, and for a week or two there is something to talk about.
+
+Then life resumes.
+
+Which was why it came as something of a surprise when the circus arrived.
+
+It appeared one afternoon in the gravel parking lot of the abandoned SuperMart, a place that had been vacant for the better part of a decade. By the time most people noticed it, the lot had already been transformed. Brightly colored tents stood where weeds had once grown through the asphalt, and a collection of rides rose above the surrounding buildings, their lights flickering against the late afternoon sun. There were booths, concession stands, and great painted banners bearing names I couldn't quite make out from the road.
+
+Nobody seemed to know where it had come from. As far back as anyone could remember, nothing remotely resembling a circus had ever stopped in our town. There hadn't been any advertisements, no announcements, and certainly no indication that something of this size was coming.
+
+It was simply there.
+
+I called my girlfriend, Emma. She was the sort of person who could find something interesting in just about anything, and I figured she'd appreciate the novelty.
+
+"What's up?" she asked when she answered. Her television was blaring in the background.
+
+"Have you seen it yet?"
+
+"Seen what?"
+
+"The circus. It's set up in the old SuperMart parking lot."
+
+There was a brief silence.
+
+"You're kidding."
+
+"Nope."
+
+"My dad mentioned something about it at dinner last night. I thought he was messing with me."
+
+"Well, he's not."
+
+Another pause, followed by a sudden change in her voice. "Are we going?"
+
+I laughed. "Why else would I have called?"
+
+"Pick me up?"
+
+"Naturally."
+
+By the time I arrived at her house, the sun had begun its descent behind the hills, leaving the sky streaked with orange and violet. Emma was already waiting outside, practically bouncing on the balls of her feet. She climbed into the passenger seat, kissed me on the cheek, and immediately started asking questions about what I'd seen.
+
+The drive to the SuperMart was unlike anything I'd experienced in the years I'd lived there. Cars lined the road in both directions, and people were walking along the shoulders in groups, heading toward the distant glow of the circus. Children rode on their parents' shoulders, couples held hands, and the occasional pickup truck crawled past us with its windows rolled down.
+
+It was almost difficult to recognize the town.
+
+"Look at this," Emma said, leaning forward to peer through the windshield. "When was the last time you saw traffic here?"
+
+"Um, graduation, maybe."
+
+"That many people showed up for graduation?"
+
+"Not even close." I replied. 
+
+She laughed and settled back into her seat.
+
+"I kind of love this," she said after a moment. "It feels like the town has finally remembered how to be alive."
+
+"Yeah. Better not let it know. It might forget again."
+
+She nudged my shoulder. "Do you think they'll have funnel cakes?"
+
+"I'd be disappointed if they didn't. Ain't much of a circus without artery-clogging sweets."
+
+We eventually reached the parking lot, though calling it a parking lot hardly seemed appropriate anymore. Vehicles had spilled onto the surrounding roads, and people were abandoning their cars wherever they could find a space. Beyond them, the circus rose above the crowd in a riot of color and light. Music drifted through the evening air, accompanied by the distant clatter of machinery and the occasional shriek of delighted children.
+
+"Man," Emma said, taking it all in. "Everyone came out."
+
+"That's what's weird."
+
+She looked at me. "What's weird?"
+
+"Nothing. Just... when does everyone do anything?"
+
+She shrugged.
+
+"Maybe we needed a reason."
+
+I couldn't argue with that.
+
+We made our way through the entrance, passing beneath an enormous striped archway. A pair of men in matching red coats stood on either side, smiling at the incoming crowds. Neither said a word as we passed.
+
+Inside, the circus was considerably larger than it had appeared from the road. Rides stretched across the lot, their lights flashing in the darkness, while concession stands filled the spaces between them. Somewhere nearby, a brass band played a jaunty tune that grew louder and quieter depending on which direction we walked.
+
+Emma squeezed my hand. "So, what's first?"
+
+"Food."
+
+"Of course."
+
+We found a concession stand selling funnel cakes, and after a brief argument over powdered sugar, we continued down the midway. The place was crowded, but not unpleasantly so. People moved around us in every direction, laughing and shouting over the music. We stopped at a ring-toss booth, where a man stood behind the counter with a fixed smile. His prizes were an assortment of stuffed animals, most of them faded and sun-bleached, hanging from little metal hooks.
+
+Emma immediately spotted an elephant. "Babe."
+
+"No." I followed her gaze. 
+
+"Please?"
+
+"You're giving me the puppy-dog eyes over a stuffed elephant?"
+
+"Yes."
+
+I sighed and reached for my wallet. "Fine. But don't blame me when I lose. This shit is rigged."
+
+Five dollars and several missed throws later, Emma was happily carrying her new elephant against her chest. She lifted it toward her face and wrinkled her nose.
+
+"Doesn't it smell funny?"
+
+I took a closer look. "Probably vintage."
+
+"Vintage?"
+
+"Yeah. It's fashionable."
+
+She laughed and tugged me toward the next attraction.
+
+"Come on. I wanna ride the Ferris wheel."
+
+The Ferris wheel was an old thing that squealed and rattled with every rotation. It looked as though it had been assembled from whatever spare parts the owners could find, though that didn't seem to bother the people waiting in line.
+
+We joined the queue, slowly making our way toward the loading platform. Just before we reached it, Emma turned and shoved the stuffed elephant into my arms.
+
+"I need to use the bathroom. I'll be right back."
+
+"Now?"
+
+"Yes, now. Don't lose my elephant.”
+
+She disappeared into the crowd before I could answer.
+
+I stood there holding her purse and the ridiculous stuffed animal, watching the line inch forward. After a few minutes, I began to grow restless. The smells of fried dough and popcorn hung heavily in the air, and the constant noise of the midway had started to wear on me. I wandered away from the queue, intending to find somewhere quiet to stand until Emma returned.
+
+That's when I noticed the tent.
+
+It sat behind a crooked row of booths, partially concealed by a faded banner that fluttered in the evening breeze. Unlike the enormous striped structures surrounding it, this one was quite small. Its canvas was a patchwork of faded colors, weathered and fraying along the edges. It looked old, older than anything else at the circus, and I couldn't imagine why someone would bother setting it up so far from the main attractions.
+
+A small wooden sign leaned against one of its supporting poles.
+
+**TALK TO GOD — 50¢**
+
+I stopped. For a moment, I wondered whether I'd read it correctly. I leaned closer, examining the lettering. It had been painted by hand, the words uneven but perfectly legible.
+
+As I glanced around, I noticed that nobody seemed particularly interested in the tent. People passed within a few feet of it without so much as a glance, their attention fixed on the rides and brightly lit stalls. The music seemed strangely distant here, too, as though the noise of the midway had been muffled by an invisible wall.
+
+Then I looked toward the entrance. There was nothing inside.
+
+Not darkness, exactly. Darkness was something your eyes could adjust to, something that occupied a space. This was different. The opening seemed to swallow the light around it, leaving behind a blackness so complete that I couldn't make out the canvas on the other side. I took a step closer to the entrance. 
+
+This was ridiculous, of course, some cheap carnival attraction; probably some sort of magician or fortune-teller trying to drum up business. Still, something about it made me uncomfortable.
+
+I should have left.
+
+Instead, I reached into my pocket and pulled out two quarters. I remember the coins feeling unusually cold against my fingers. I remember looking down at them, then back at the sign. I remember thinking that fifty cents was a fairly reasonable price to pay for a conversation with God.
+
+I dropped them into the little collection box and then stepped inside as the coins struck its bottom with a hollow metallic sound.
+
+I don't remember what happened after that. There are no memories of a room, and certainly no conversation that I can recall. The moment I crossed the threshold, everything simply stopped. Or perhaps it continued in a way that I was incapable of recognizing. One moment I was standing in the entrance, the colors and sounds of the midway fading behind me; the next, I was outside again.
+
+The night had grown considerably darker. The lights of the circus had dimmed, and the crowds had thinned. Somewhere nearby, a ride was winding down, its machinery groaning as it came to a halt. As I stood there for a moment, trying to understand what had happened, I heard someone shouting my name.
+
+"James!"
+
+I turned to see Emma pushing her way through the crowd, her face pale and her eyes wide. She reached me in a few seconds, grabbing my arm with enough force to make me wince.
+
+"Where the fuck have you been?"
+
+I blinked.
+
+"I... uh—"
+
+"I've been looking everywhere!" She interrupted me. 
+
+"I—I was just—" I turned and pointed behind me. "That tent. I went into that tent."
+
+She looked in the direction I was pointing. "What tent?"
+
+"The one right there." I stared at her.
+
+There was nothing behind me except a small patch of trampled grass. No canvas or wooden sign, no collection box. Just an empty space between two booths.
+
+I looked back at Emma.
+
+She was shaking. "Jesus Christ, James,” she pulled me into an embrace, holding on tightly enough that I could feel her heartbeat against my chest. "I thought we'd lost you."
+
+I put my arms around her. "Hey. I'm okay."
+
+We left not long afterward. I don't remember much of the walk back to the truck, or the drive through the crowded parking lot. I do remember a couple of police officers asking me questions, though I couldn't tell you exactly what they wanted to know as Emma did most of the talking.
+
+Apparently, I'd been missing for several hours, which I found difficult to believe.
+
+The drive to her house was quiet. Emma sat with her arms folded, staring out the passenger window. I tried a few times to start a conversation, but she seemed too upset to entertain it.
+
+Eventually, she spoke. "You scared the hell out of me."
+
+"I know. I'm sorry."
+
+"What happened?"
+
+"I don't know."
+
+"You don't remember?" She looked at me.
+
+I shook my head. "I went into that tent, and then I came out. That's all. Really.”
+
+She turned back toward the window. "Well, don't do it again."
+
+The radio crackled as we drove, eventually settling on a local late-night talk show. The host was discussing something about an upcoming town council meeting, his voice relaxed and familiar. It was the sort of program I'd heard a hundred times before.
+
+Emma eventually fell asleep, and I kept driving.
+
+After a while, I began to notice something peculiar about the host's voice. His cadence was wrong. He paused in strange places, sometimes lingering over a word long after its meaning had passed, then rushing through entire sentences without taking a breath. I smacked the radio a few times, “piece of shit," I muttered. Then, somewhere between the static and the low hum of the engine, I thought I heard him say my name.
+
+I looked at the radio, my brows furled in confusion. The host continued his discussion, and a few seconds later, it happened again. "James."
+
+I switched the radio off. The silence that followed seemed almost immediate, and I found myself gripping the steering wheel as my knuckles whitened. I glanced at the rearview mirror, but the road behind us was empty. For a moment, I thought I saw something standing in the distance, directly in the path of our tailights. Though it was there and gone so quickly that I couldn't be certain I'd seen anything at all. I blinked, looked again, and found nothing.
+
+"Get a grip," I muttered.
+
+Emma stirred beside me but didn't wake.
+
+As we reached her house, I pulled into the driveway and switched off the engine. The sudden silence made the little sounds of the night seem unusually distinct: insects buzzing in the grass, leaves rustling in the trees, and the occasional distant vehicle passing along the road.
+
+"Hey." I reached across and gently shook her shoulder. "Emma. We're here."
+
+She stirred, rubbing her eyes. "Sorry. I must've fallen asleep."
+
+"Don't worry about it."
+
+I climbed out and walked around to her side of the truck. As I opened the passenger door, I caught sight of something standing near the end of the driveway. It was tall. Much taller than any person had a right to be, with a frame so thin that it seemed almost impossible for it to support itself. Its limbs hung at awkward angles, too long for its body, and its pale skin stretched tightly over something that was a mocking resemblance of a human being.
+
+It stood just beyond the reach of the porch light. For a moment, neither of us moved. I stared at it, waiting for some explanation to present itself. A trick of the light or a person standing strangely; some optical illusion caused by the darkness.
+
+Then I blinked, and it was gone. Only the trees remained, their branches swaying gently in the warm night breeze.
+
+"James?" Emma was looking at me. "You coming?"
+
+I swallowed. "Yeah."
+
+I shut the truck door and followed her toward the house, making a conscious effort not to look back. At the entrance, she turned and kissed me on the cheek. "Text me when you get home."
+
+"I will."
+
+She disappeared inside, and the door clicked shut behind her.
+
+I stood there for a long moment, looking down the driveway, but there was nothing to be seen.
+
+Eventually, I climbed back into my truck and started the engine. The drive home was short, but it felt considerably longer than usual. Every pair of headlights coming toward me seemed a little too bright. Shadows from the trees stretched across the road, and whenever my reflection appeared in the windshield, I found myself glancing away. I tried turning the radio back on, but the sound only made me uncomfortable, so I switched it off again. A deer darted across the road a few miles from home, and I nearly swerved into the opposite lane. My brakes protested as I slammed on them, my heart hammering against my ribs, and I watched as the animal scampered into the trees.
+
+I sat there for a moment, breathing. "Jesus Christ." I laughed, though there wasn't anything particularly funny about it. I was tired. That was all. The evening had been strange; I'd spent several hours apparently missing, and now my imagination was getting the better of me.
+
+By the time I reached my neighborhood, I had almost convinced myself of that. My house sat at the end of a quiet residential street, tucked between two others that looked nearly identical. I pulled into the driveway and shut off the engine and, for a while, I simply sat there.
+
+Something about the night still felt wrong, though I couldn't have explained what. It was the same sensation I'd experienced outside Emma's house, that peculiar certainty that something was nearby, waiting just beyond the limits of what I could see.
+
+Eventually, I forced myself out of the truck. The porch light flickered as I approached the house. With my keys in hand, I unlocked the door, stepped inside, and closed it behind me. The house was exactly as I'd left it. I dropped my keys on the counter and sat on the edge of the couch. My head had begun to ache, a dull pressure building behind my eyes. I rubbed my temples, wondering whether I'd simply been staring at screens for too long.
+
+*A shower might help,* I thought. 
+
+I turned on the hot water and stepped beneath the stream, letting it run over my shoulders. Steam slowly filled the bathroom, clouding the mirror until my reflection disappeared behind a pale layer of condensation. I stood under the waterfall; the pulsating heat was comforting. For a little while, it drowned out everything else.
+
+When I finally stepped out, the headache had eased somewhat. I dried myself, pulled on an old T-shirt, and crawled into bed.
+
+Before turning off the light, I sent Emma a message. *Home safe. Sorry again about tonight.*
+
+She replied a minute later. *Just glad you're okay. Love you.*
+
+I smiled, put the phone down, and opened my camera roll. I wasn't entirely sure why. Perhaps I wanted to remind myself that the evening had actually happened, that there was nothing particularly strange about it beyond my little disappearance.
+
+There were pictures of Emma laughing, pictures of the Ferris wheel, and a photograph of her holding the funnel cake she'd insisted on buying.
+
+I was scrolling through them absentmindedly when my thumb stopped on one I didn't remember taking. It showed the little tent, tucked behind the row of booths, the entrance a solid black shape, swallowing the light around it. The sign stood directly in the center of the frame.
+
+I stared at the image. Where the original sign had read “*TALK TO GOD — 50¢”*, this one carried a different message: 
+
+**THANK YOU FOR TALKING, JAMES. NOW IT'S MY TURN.**
+
+I felt my stomach tighten as I enlarged the photograph, examining the edges of the tent, the surrounding booths, and the darkness beyond the entrance; but there was nothing else to be seen.
+
+The timestamp told me it was from earlier that evening, while I'd supposedly been standing in line for the Ferris wheel. I put the phone down, and for a long time, I lay staring at the ceiling. I don't know how long I stayed awake, but eventually exhaustion won. My thoughts became muddled, the room grew indistinct, and I slipped into a restless sleep.
+
+I woke sometime before dawn and immediately saw that I wasn't alone, as something stood in the corner of my bedroom. At first, I couldn't quite make it out. The room was dark, and the shape seemed to blend into the shadows surrounding it. But as my eyes adjusted, I began to distinguish the outline of a body.
+
+Tall.
+
+Skeletal.
+
+With arms that hung almost to its knees, and its head tilted slightly to one side. It just sat there, occupying a space that had been empty when I'd gone to sleep.
+
+I couldn't look away. My heart was beating so violently that I could feel it in my throat. I wanted to move, to reach for the lamp, to do anything that might put some distance between us.
+
+But beneath the fear, something else began to surface: anger.
+
+I'd spent the entire evening frightened by things I couldn't explain. I'd been followed, watched, and apparently spoken to by something that had no business knowing my name.
+
+I was tired of being afraid. "What do you want?" I whispered.
+
+The figure remained still.
+
+"I didn't invite you here." My voice sounded embarrassingly small. "You followed me home. You don't get to just stand there."
+
+Nothing.
+
+"Fucking say something!" I swallowed, my eyes fixed on the shape in the corner. the words came out louder than I intended. "Goddamn it, I know you can hear me. Answer me!"
+
+Then, like water bursting from a dam, something happened inside my head.
+
+The pressure returned, sudden and overwhelming, as though an enormous weight had been placed directly behind my eyes. I squeezed them shut, reaching instinctively for my temples.
+
+And I remembered. 
+
+I remembered what had happened inside the tent. There had been no voice. No conversation in any language I could recognize. What I had experienced was something else entirely: an arrangement of colors, shapes, and sensations that had no proper place in the human mind. I saw something that had no dimensions, understood something that had no words, and was made aware of a truth so vast that the distinction between myself and everything else had briefly ceased to exist. It had been trying to communicate.
+
+And now I understood why it had followed me. It needed to be understood, and known. The realization was accompanied by another memory, one I found considerably more difficult to bear.
+
+I couldn’t see Emma.
+
+I remembered the sound of her laughter, the warmth of her hand against mine, and the way she'd looked at me when we first arrived at the circus. But I couldn't remember her face.
+
+I tried. I closed my eyes and searched through the familiar places in my mind where memories were supposed to reside. I remembered her voice, her hair, the little stuffed elephant she'd won that evening. But her face was gone. It was as though the memory had never belonged to me in the first place. The figure was still standing there when I opened my eyes again. 
+
+I knew that whatever had happened hadn't ended when I walked back into the world. Something had stayed.  
+  
+I know how this sounds. I've read enough books and seen enough films to recognize a story like this. A man goes somewhere he shouldn't, encounters something he cannot explain, and spends the remainder of his life insisting that what he experienced was real.
+
+I know what people do with men like that: they call them liars. They call them mad. Sometimes they offer sympathy, though usually only after they've decided there's no reason to take them seriously, and I wouldn't blame you for thinking the same of me. But whatever I spoke to that night didn't leave with the circus. It's watching me as I write this. Just not in the way you might imagine. I don't see it moving in the corners of my room, and I don't hear it breathing behind me. There's no scratching at the walls or footsteps in the hallway.
+
+I simply know when its attention is upon me.
+
+It's difficult to explain. Imagine being aware of the sun even with your eyes closed. You cannot see it, but its presence is undeniable. You know where it is, you feel its warmth when it shines, and you know that it will continue to shine whether or not you acknowledge it. That's the closest comparison I can offer. I don't think it wants anything in the way we understand wanting. I suspect that those are concepts we've invented to make sense of things that are otherwise beyond our comprehension. But I think it needs to be known, and I think it wants me to write this. I've tried stopping. Several times, I've closed my laptop and walked away, determined to forget the entire affair. Each time, the same pressure returns. Thoughts gather at the back of my mind, rearranging themselves into patterns I cannot ignore until, eventually, I find myself sitting here again, writing until the pressure subsides. Sometimes the words come easily. Often times, I find myself staring at a sentence for several minutes, knowing precisely what it means but unable to understand how to express it. I have begun to suspect that the language I'm using is not entirely my own.
+
+There are things I cannot remember anymore.
+
+Faces, names, conversations. Whole stretches of my life have become inaccessible, as though someone has taken a pair of scissors to the pages of a book and left the remaining fragments scattered across the floor.
+
+I know that I loved someone.
+
+I know that her name was Emma.
+
+I know that we went to a circus together one evening and that she won a stuffed elephant.
+
+But I cannot remember her face.
+
+I cannot remember what it felt like to look at her.
+
+And I wonder whether she still remembers me. 
+
+I don't know how long I've been writing this account. Time has become increasingly difficult to measure. The clocks continue to function, the sun still rises and falls, and the world carries on outside my window as though nothing has happened. But something has changed. I can feel it in the spaces between my thoughts and in the moments when I catch myself staring at something ordinary and recognize, for just an instant, that it is not ordinary at all. There is a structure beneath everything. A pattern. I cannot describe it, but I know it is there. It is older than the things we call life, older than the stars, and older than the very idea of existence. It does not begin or end; it just is. And somewhere within it, something is looking back. I paid fifty cents to speak to God. I still don't know whether that's what I found.
+
+Perhaps it was. Maybe I was shown something that humanity has spent its entire existence trying to understand. Perhaps there is a divine intelligence behind everything, and it has finally found a way to speak to us. Or maybe I’ve mistaken something else for divinity. What I do know is that it has been trying to communicate for a very long time. I think the circus has visited other places, and that others have entered that little tent, paid their fifty cents, and been shown what I was shown. I wonder what happened to them.
+
+I wonder whether they remembered their loved ones and whether they're writing as I am.
+
+If this account seems disjointed, if certain passages feel repetitive or unfinished, please understand that I am doing the best I can. There are things I cannot hold in my mind for more than a few moments before they begin to slip away. Sometimes I read what I've written and find that I no longer recognize the words.
+
+But the shape remains.
+
+It is always there.
+
+I beg you, please don't go looking for it. Don't search for the circus, don't ask questions about the tent, and don't convince yourself that curiosity is worth the price of admission. There is nothing waiting for you there that you could possibly understand.
+
+And if you think you already recognize what I'm describing—
+
+Stop reading.

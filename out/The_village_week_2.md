@@ -1,0 +1,1803 @@
+**THE VILLAGE**
+
+**Week Two**
+
+**Monday**
+
+**7:30 AM**
+
+Monday morning. Back to work.
+
+I woke up to find another note from the landlord pushed under my bedroom door.
+
+I'm beginning to think he communicates exclusively through bits of paper.
+
+Today's instructions were:
+
+Things to do today:
+
+Clean the beer pumps.
+
+Check the cellar stock.
+
+Restock the crisps.
+
+Put the Redcap traps out back.
+
+Don't put them near the bins. They learn.
+
+I read that last one about four times.
+
+Redcap traps?
+
+I've no idea what a Redcap is, but apparently it's something that needs trapping.
+
+There were three old metal traps in the storage cupboard, along with a small tin of something labelled BAIT.
+
+I'm starting to think I should have asked more questions during that telephone interview.
+
+**9:15 AM**
+
+I've put the traps out behind the pub.
+
+I don't know what I was expecting, but I wasn't expecting the bait to smell like blood and rotten meat.
+
+Lovely.
+
+While I was setting them out, I noticed three squirrels sitting along the garden fence.
+
+They were watching me.
+
+Not running about or looking for food. Just sitting there, staring.
+
+I moved one of the traps a little further along the fence.
+
+They all moved their heads at the same time.
+
+Probably just squirrels.
+
+There was also a little handwritten warning on the inside of the bait tin.
+
+Do not attempt to communicate with anything caught.
+
+Brilliant. Just brilliant.
+
+**12:30 PM**
+
+Mrs Pritchard popped in for a cup of tea.
+
+I mentioned the Redcap traps, thinking she'd probably know what they were.
+
+She went very quiet.
+
+Then she asked how many I'd put out.
+
+I told her three.
+
+She nodded, finished her tea and said she'd see me tomorrow.
+
+Not sure what that was about.
+
+**3:45 PM**
+
+I found myself in the office today.
+
+Not going in, obviously. Just standing outside the locked door.
+
+I've been thinking about the council's visit yesterday. They seemed awfully interested in getting inside.
+
+I had the brass key in my hand, turning it over and over between my fingers.
+
+What exactly is in there?
+
+And why does the landlord go to such lengths to keep everyone out?
+
+I thought about trying the key.
+
+Then I remembered what happened yesterday when the council tried.
+
+I put it back in my pocket.
+
+Curiosity is one thing. Getting the pub to slam doors on me is quite another.
+
+**11:20 PM**
+
+Just checked the back door before bed.
+
+One of the traps has gone.
+
+Not broken. Not damaged.
+
+Gone.
+
+The other two are still there.
+
+There's something small and red scratched into the wooden fence beside them.
+
+I didn't get close enough to read it properly.
+
+I'm going to bed.
+
+Tomorrow I'm asking for a pay rise.
+
+**Tuesday**
+
+**6:45 AM**
+
+I woke up on the floor outside the office this morning.
+
+Yes. The office.
+
+I have absolutely no idea how I got there.
+
+The last thing I remember was going to bed last night. I certainly don't remember getting up, walking downstairs and making myself comfortable outside a locked door.
+
+My back is killing me.
+
+The brass key was still in my dressing gown pocket.
+
+I stood looking at the office door for a moment. I had this strange feeling that I should open it. I even took the key out.
+
+Eventually I shook the feeling off and put it away.
+
+I think I've had enough excitement for one morning.
+
+**10:30 AM**
+
+Decided to explore a little further around the village today.
+
+I found a footpath that led away from the main street, past some old cottages and out towards the countryside.
+
+Eventually I came across the railway station.
+
+It's an old-fashioned little country station, with a waiting room and a single platform. Everything looks surprisingly well maintained. Someone even seems to sweep the platform regularly.
+
+I checked the timetable.
+
+There were no departures listed.
+
+Not one.
+
+I noticed an old clock above the waiting room. It was ticking away quite happily, although it was showing a different time to my phone.
+
+I asked a woman passing by whether the station was still in use.
+
+She looked at me as though I'd asked something rather silly.
+
+"It's a station, dear."
+
+And carried on walking.
+
+Right. Very helpful.
+
+**2:15 PM**
+
+Back at the pub.
+
+I was sorting out some paperwork when I heard a loud metallic SNAP from behind the building.
+
+One of the traps!
+
+I remembered the landlord's instructions and went straight outside to investigate.
+
+One of the remaining traps had been sprung.
+
+The bait was gone.
+
+There was something caught in the jaws, but it wasn't an animal.
+
+A little piece of red fabric.
+
+It looked like part of a hat.
+
+I wasn't about to start poking around.
+
+I put the trap back where it was and went inside.
+
+I'm beginning to understand why the landlord leaves instructions rather than explanations.
+
+**4:30 PM**
+
+Bill came in while I was working.
+
+He settled into his usual chair and asked for the 1966 World Cup Final.
+
+I gave him his usual lager and left him to it.
+
+A little later, I heard another loud SNAP from outside.
+
+I hurried out to check the traps.
+
+When I came back, Bill had helped himself to three more lagers.
+
+Four in total.
+
+I remembered the landlord's warning. Four was his limit.
+
+Unfortunately, I'd already discovered why.
+
+Bill had stopped looking towards the jukebox.
+
+He was sitting completely still, staring at the bar.
+
+Then he looked around the pub, almost as though he hadn't seen it in years.
+
+Finally, he looked directly at me.
+
+"Jenny, what year is it?"
+
+"2026."
+
+He stared at me.
+
+"2026?"
+
+"Yes."
+
+He sat quietly for a moment.
+
+"Christ. It's really been that long."
+
+His voice was completely different. There was no confusion in it.
+
+"Listen to me, girl. Whatever you do, don't ever join the committee."
+
+I asked him why.
+
+He looked towards the office.
+
+"Because the last time they opened that door was 1966. And I was here."
+
+I asked him what happened.
+
+He looked frightened.
+
+Then he seemed to come around.
+
+He glanced towards the jukebox.
+
+"Have England scored yet?"
+
+Just like that, he was back to normal.
+
+I asked him if he remembered what he'd just said.
+
+He looked at me as though I was talking nonsense.
+
+Apparently, he'd only had one lager.
+
+I wasn't going to argue.
+
+**11:15 PM**
+
+It's been a strange day.
+
+I've been thinking about what Bill said.
+
+The last time they opened the office was 1966.
+
+And he was here.
+
+I stood outside the office door again tonight. I took the brass key out of my pocket and looked at it.
+
+For a moment, I had that same strange feeling that I should open the door.
+
+I shook it off and put the key away.
+
+I went upstairs, stopping outside the goat's room.
+
+"Have you been here since 1966?" I asked.
+
+A loud bleat came from behind the door.
+
+I sighed.
+
+"I'm not sure I should be here."
+
+I went into my bedroom and got into bed.
+
+I'm beginning to think this job comes with more questions than answers.
+
+And I still haven't been paid.
+
+**Wednesday**
+
+**9:30 AM**
+
+Went into the village this morning for a change of scenery.
+
+Found a little café near the square. Quite cosy, floral curtains, wooden tables, cakes in a glass cabinet. The sort of place where everyone seems to know everyone else.
+
+Ordered a tea and a slice of Victoria sponge.
+
+While I was sitting there, I spotted the woman I'd seen at the railway station yesterday. She recognised me as the new barmaid and came over.
+
+Her name is Jess.
+
+She asked if she could join me, and we got chatting.
+
+I asked how long she'd been in the village.
+
+"Since yesterday," she said.
+
+I mentioned seeing her at the station.
+
+"Oh, yes. I arrived yesterday."
+
+"By train?"
+
+"Yes."
+
+I looked at her.
+
+"Funny. Nobody told me trains stopped there."
+
+"They don't?"
+
+Then she changed the subject.
+
+I wasn't quite sure what to make of that, but she seemed perfectly pleasant, so I let it go.
+
+We chatted about the village, the pub and my new job. She had a good sense of humour and was easy to talk to. It was actually quite nice having a conversation that didn't involve missing people, strange letters or instructions about feeding a fireplace.
+
+We exchanged numbers and said we'd meet up again.
+
+I left at eleven and bought another slice of cake for later.
+
+**11:00 AM**
+
+Back at the pub.
+
+Checked the Redcap traps out the back. The little piece of red fabric was still caught in one of them.
+
+The other trap had been moved a few feet along the fence.
+
+The squirrels were watching me again.
+
+All three turned their heads at exactly the same time when I approached.
+
+I'm beginning to think they know something I don't.
+
+Moved the trap back into position and went inside.
+
+I'll leave pest control to someone who gets paid more.
+
+**3:15 PM**
+
+Jess popped into the pub this afternoon.
+
+Made us both a cup of tea and we sat at one of the tables chatting.
+
+We talked about music, films and the usual things people talk about when they're getting to know each other.
+
+She mentioned she'd heard the pub was an interesting place.
+
+I told her that was one way of putting it.
+
+Didn't go into too much detail.
+
+She seems nice. Quite confident, good company, and doesn't appear to take herself too seriously.
+
+It's been nice having someone to talk to who isn't a customer asking for something strange.
+
+**5:40 PM**
+
+Mr Finch came in this evening.
+
+He asked whether I'd reconsidered joining the committee.
+
+I told him I hadn't.
+
+He didn't seem particularly disappointed.
+
+He said he'd see me tomorrow evening for the pub quiz.
+
+I reminded him that I was working.
+
+He smiled and said I should bring a friend along.
+
+"We'd be delighted to meet her."
+
+Jess was sitting at one of the tables, so he nodded in her direction.
+
+"Wonderful. I'll see you both tomorrow evening."
+
+Then he left.
+
+I don't know why, but I found that slightly unsettling.
+
+Possibly because the last quiz involved Satan, an unexpected question about pregnancy and absolutely no one laughing.
+
+**6:15 PM**
+
+Asked Jess if she'd fancy coming to the quiz tomorrow.
+
+She said yes.
+
+Apparently she's quite good at general knowledge.
+
+I told her not to get too excited. I'm not entirely convinced Mr Finch's idea of general knowledge matches everyone else's.
+
+**10:45 PM**
+
+Not a bad day, all things considered.
+
+I've made a friend, had some decent cake and managed to avoid being eaten by anything in the garden.
+
+Tomorrow is the pub quiz again. After last week's little performance, I'm not entirely sure what to expect.
+
+At least this time I'll have Jess there to share the experience.
+
+Hopefully Finch has found some new questions. I've already answered enough questions about Satan for one lifetime.
+
+Goodnight.
+
+Jenny.
+
+**Thursday**
+
+**7:00 AM**
+
+Woke up to find breakfast waiting outside my bedroom door again.
+
+I'm starting to get used to this.
+
+Today's offering was two slices of buttered toast, a boiled egg and a cup of tea.
+
+Still warm.
+
+I knocked on the goat's door.
+
+"Morning. Thanks for breakfast."
+
+A quiet bleat came from inside.
+
+"You're welcome."
+
+I paused.
+
+"Well, I assume that's what you're saying."
+
+Another bleat.
+
+I took my breakfast into my room and ate it sitting on the bed.
+
+I don't know what the goat eats, but apparently it's developed quite an interest in making sure I don't skip breakfast.
+
+I suppose there are worse things to have living opposite your bedroom.
+
+Although I still haven't worked out why it's not allowed out.
+
+**9:30 AM**
+
+Found another note from the landlord.
+
+Today's instructions:
+
+Check beer delivery.
+
+Clean the front windows.
+
+Put the chairs outside if the weather holds.
+
+Make sure the quiz sheets are ready for Mr Finch.
+
+Do not allow anyone to remove the church bell from the storeroom.
+
+I read that last one twice.
+
+We don't have a church bell in the storeroom.
+
+At least, I don't think we do.
+
+I checked anyway.
+
+Just cleaning supplies, empty barrels and a broken vacuum cleaner.
+
+No bell.
+
+I'm beginning to suspect the landlord writes these notes after a few drinks.
+
+**11:45 AM**
+
+Went out to check the Redcap traps.
+
+The two I'd left behind the pub were still there.
+
+The little piece of red fabric was still caught in one of them.
+
+The other had been moved again.
+
+I was about to put it back when I noticed something outside the back door.
+
+The missing trap.
+
+It was sitting neatly against the wall.
+
+Not thrown there or abandoned.
+
+Placed.
+
+I picked it up carefully.
+
+It was closed.
+
+Something had been folded inside the jaws.
+
+A small piece of paper.
+
+I opened it.
+
+Two words.
+
+STOP LOOKING.
+
+I stood there for a while, holding the note.
+
+Well.
+
+That's rude.
+
+I looked around the garden.
+
+Nothing.
+
+The squirrels were sitting on the fence again, watching me.
+
+I pointed at them.
+
+"And you lot can mind your own business."
+
+They didn't move.
+
+I put the note in my pocket and took the trap inside.
+
+I'm beginning to think the pest control situation is getting out of hand.
+
+**1:15 PM**
+
+Jess popped in this afternoon.
+
+She'd been into the village and decided to stop for a cup of tea.
+
+We sat at one of the tables and chatted for a while.
+
+She asked how I was settling in.
+
+I told her it was going reasonably well, all things considered.
+
+She asked what I meant by that.
+
+I thought about the goat, the fireplace, Bill, the jukebox, the missing trap and the threatening note currently sitting in my pocket.
+
+"Just the usual new-job stuff."
+
+She laughed.
+
+We talked about the village again. Jess seems to know a few people already, although she hasn't been here very long herself.
+
+I asked where she'd lived before.
+
+She mentioned a couple of places, nothing particularly unusual.
+
+She also asked whether I'd been to the pub quiz last week.
+
+I told her about it.
+
+I left out a few details.
+
+She asked what sort of questions they'd asked.
+
+"General knowledge."
+
+"That sounds normal."
+
+"It started normally."
+
+She looked at me.
+
+I took a sip of tea.
+
+"Never mind."
+
+She laughed again.
+
+I like Jess.
+
+It's nice having someone to talk to.
+
+**5:30 PM**
+
+Started getting the pub ready for the quiz.
+
+Put the tables back into position, laid out the answer sheets and made sure the pens worked.
+
+Mr Finch arrived shortly after six.
+
+He was carrying his usual folder and wearing the same rather peculiar suit.
+
+He greeted me politely and asked whether everything was ready.
+
+I told him it was.
+
+He glanced towards the tables.
+
+"Excellent. And your friend?"
+
+"She'll be here."
+
+"Wonderful."
+
+He smiled.
+
+I still don't trust that smile.
+
+**6:30 PM**
+
+Jess arrived just before the quiz started.
+
+I introduced her to a few of the regulars.
+
+Mrs Pritchard was there, along with some of the usual customers.
+
+Jess seemed to settle in quite quickly.
+
+Mr Finch stood at the front and welcomed everyone.
+
+He explained that tonight's quiz would consist of five rounds.
+
+General Knowledge.
+
+British History.
+
+Music.
+
+Geography.
+
+And Local History.
+
+So far, so normal.
+
+The first four rounds were perfectly ordinary.
+
+Jess was surprisingly good at the music questions. I wasn't particularly helpful, although I did manage to identify a song from the opening few seconds.
+
+I think it was the first time I'd actually enjoyed a pub quiz in this place.
+
+Then came the local history round.
+
+Mr Finch adjusted his glasses and looked down at his sheet.
+
+"Question one. In which year was the village church first consecrated?"
+
+Someone at the back shouted out a year.
+
+Mr Finch nodded and wrote something down.
+
+"Question two. How many bells are currently housed in the church tower?"
+
+A few people whispered amongst themselves.
+
+One of the regulars confidently answered thirteen.
+
+I looked towards Jess.
+
+She looked back at me.
+
+I was fairly certain the church tower only had twelve bells.
+
+Mr Finch wrote down the answer.
+
+"Question three. What was the original name of the village?"
+
+A man near the window answered.
+
+"The village."
+
+Mr Finch looked at him.
+
+"Incorrect."
+
+"Well, it is now, isn't it?"
+
+Nobody laughed.
+
+Mr Finch continued.
+
+"Question four. Which road was removed from the village map in 1892?"
+
+There was a long silence.
+
+Eventually, Mrs Pritchard raised her hand.
+
+"Church Lane."
+
+Mr Finch smiled.
+
+"Correct."
+
+I looked at Jess.
+
+She was writing something down, but I noticed she'd stopped smiling.
+
+The final question was:
+
+"How many people were recorded as living in the village before the winter of 1892?"
+
+I don't know why, but I didn't like the sound of that.
+
+Someone answered forty-seven.
+
+Mr Finch shook his head.
+
+"Forty-eight."
+
+He wrote it down.
+
+Then he moved on to the next round.
+
+I glanced at Jess.
+
+She leaned towards me.
+
+"Is this normal?"
+
+I shook my head.
+
+"Last week was worse."
+
+She looked at me for a moment.
+
+Then went back to her answer sheet.
+
+**9:15 PM**
+
+The quiz finished without anyone asking who we served or who should carry Satan's seed.
+
+So that's an improvement.
+
+Jess and I didn't win, although we did reasonably well.
+
+The winning team was The Unholy Trinity.
+
+Again.
+
+I don't know whether they ever lose.
+
+Mr Finch congratulated them and handed over the prize.
+
+Then he thanked everyone for attending and reminded us that the committee would be meeting next week.
+
+A few people applauded.
+
+I didn't.
+
+Jess noticed.
+
+We waited until most of the customers had left before sitting down with another cup of tea.
+
+She asked me whether I'd enjoyed the evening.
+
+"Parts of it."
+
+"You're not very enthusiastic."
+
+"I've had a strange couple of weeks."
+
+She smiled.
+
+"You're beginning to sound like a local."
+
+I laughed.
+
+For the first time since arriving, I actually felt like I was making a friend here.
+
+A proper one.
+
+**10:30 PM**
+
+Jess headed home.
+
+I finished tidying the pub and put the quiz sheets away.
+
+I found the little note from the trap in my pocket.
+
+STOP LOOKING.
+
+I put it on the kitchen table.
+
+I went upstairs to get ready for bed.
+
+When I came back down, it was gone.
+
+I checked the floor.
+
+Nothing.
+
+I checked the kitchen bin.
+
+Nothing.
+
+I suppose whoever left it has decided to take it back.
+
+Or perhaps I've finally lost my mind.
+
+Either way, I'm not going looking for whoever wrote it.
+
+I've got enough to worry about.
+
+**11:15 PM**
+
+It's been a rather eventful Thursday.
+
+Had breakfast delivered by a goat, received a threatening note from something in the garden and attended another pub quiz.
+
+At least I made a friend.
+
+Jess seems lovely, and I'm glad she came along tonight.
+
+The local history round was a bit strange, though.
+
+Forty-eight people disappearing in one winter?
+
+I'm going to have to ask someone about that.
+
+Not tonight, though.
+
+I'm going to bed.
+
+And if I find another note outside my bedroom tomorrow, I'm putting it on the landlord's desk.
+
+He can deal with it.
+
+Goodnight.
+
+Jenny.
+
+**Friday**
+
+**7:15 AM**
+
+Woke up to find breakfast outside my bedroom again.
+
+Today's menu was scrambled eggs on toast and a cup of tea.
+
+The goat seems to have developed quite a talent for breakfast preparation.
+
+I'm beginning to feel guilty about eating it all without offering anything in return.
+
+I knocked on the door.
+
+"Morning. Lovely breakfast, thank you."
+
+A bleat.
+
+"I'd offer to make you something, but I'm not sure what goats eat."
+
+Another bleat.
+
+"Fair enough."
+
+I took my breakfast into my room.
+
+I've decided not to question it anymore.
+
+Some things in this village are best accepted.
+
+**9:00 AM**
+
+I've been thinking about last night's quiz.
+
+More specifically, the local history round.
+
+Forty-eight people apparently disappeared during the winter of 1892.
+
+Church Lane was removed from the village map.
+
+And there are supposedly thirteen bells in the church tower, despite there only being twelve visible.
+
+I asked Mrs Pritchard about the questions when she came in for tea.
+
+She looked at me for a moment.
+
+Then she said she'd never been particularly interested in local history.
+
+Which is a strange thing to say when you've lived here all her life.
+
+I asked whether she'd heard about the forty-eight people.
+
+She finished her tea.
+
+"Some things are better left in the past, dear."
+
+Then she changed the subject.
+
+I'm getting rather tired of people telling me that.
+
+**12:30 PM**
+
+Jess came by this afternoon.
+
+We sat together for a while, chatting about the quiz and laughing about some of the questions.
+
+I told her I'd decided to ask Bill about the village's history.
+
+She asked who Bill was.
+
+I explained about the old man who comes in to watch the 1966 World Cup Final.
+
+I also mentioned that he sometimes seems to remember things when he's had four lagers.
+
+Jess raised an eyebrow.
+
+"That's a rather specific number."
+
+"Believe me, I've learned the hard way."
+
+She laughed.
+
+I told her I wanted to ask him about 1892 and the office.
+
+She seemed interested, so I asked whether she'd mind staying for a while when he came in.
+
+She agreed.
+
+At least if the conversation goes badly, I'll have someone to witness it.
+
+**3:45 PM**
+
+Bill arrived just before four.
+
+Same brown jacket, same flat cap, same old routine.
+
+He asked for the 1966 World Cup Final.
+
+I served him his first lager.
+
+He settled into his usual chair and looked towards the jukebox.
+
+Radar Love was playing, as usual.
+
+I sat down with Jess at the nearest table.
+
+First lager.
+
+Nothing unusual.
+
+Second lager.
+
+Bill was muttering about the West German defence.
+
+Third lager.
+
+He was complaining about the referee.
+
+I waited.
+
+Then I brought him his fourth.
+
+I wasn't sure whether I was being clever or incredibly irresponsible.
+
+Probably both.
+
+**4:30 PM**
+
+It happened again.
+
+Bill stopped looking towards the jukebox.
+
+He put his glass down and stared at the bar.
+
+Then he looked around the room.
+
+His eyes settled on me.
+
+"Jenny?"
+
+"Hello, Bill."
+
+"What year is it?"
+
+"2026."
+
+He closed his eyes.
+
+"Christ."
+
+I pulled up a chair.
+
+"Bill, I wanted to ask you something."
+
+He looked at me.
+
+"Go on."
+
+"Do you remember the winter of 1892?"
+
+His expression changed.
+
+"Who told you that?"
+
+"Mr Finch. At the quiz last night."
+
+Bill looked towards the window.
+
+"Finch."
+
+He said the name as though it left a bad taste in his mouth.
+
+"What happened in 1892?" I asked.
+
+"Forty-eight."
+
+"Forty-eight what?"
+
+"People."
+
+"Yes. That's what the quiz said. Forty-eight people disappeared."
+
+Bill shook his head.
+
+"They counted them twice."
+
+I looked at Jess.
+
+She was listening quietly.
+
+"What does that mean?" I asked.
+
+Bill didn't answer.
+
+Instead, he looked towards the ceiling.
+
+"Church bells still ringing?"
+
+I told him there were twelve.
+
+He shook his head.
+
+"Thirteen."
+
+"There's only twelve."
+
+"That's because you're counting the ones that ring."
+
+I stared at him.
+
+"What happens to the other one?"
+
+Bill opened his mouth, but before he could answer, his attention shifted.
+
+He was looking at Jess.
+
+He studied her face for several seconds.
+
+Then he frowned.
+
+"I know you."
+
+Jess looked back at him.
+
+"Do you?"
+
+"I've seen you before."
+
+Jess gave him a small, polite smile.
+
+"Well, it's a small village."
+
+"No. Before that."
+
+She took a sip of her tea.
+
+"You must have me confused with someone else, Bill."
+
+He continued looking at her.
+
+For a moment, I thought he was going to say something else.
+
+Then he nodded slowly.
+
+"Perhaps."
+
+He turned back towards me.
+
+I glanced at Jess.
+
+She simply put her cup down.
+
+"Anyway, Jenny, you were asking about the church bells."
+
+I looked at her.
+
+Then back at Bill.
+
+"Yes. The bells. What about them?"
+
+Bill was staring towards the office now.
+
+"Not here."
+
+"Why not?"
+
+He lowered his voice.
+
+"They listen."
+
+I wasn't sure whether he meant the people in the pub or something else.
+
+I asked him about the office.
+
+"What happened when they opened that door in 1966?"
+
+Bill looked frightened.
+
+"That wasn't the first time."
+
+I leaned forward.
+
+"What do you mean?"
+
+He looked directly at me.
+
+"Last time, they didn't get everyone back."
+
+My stomach tightened.
+
+"Who didn't they get back?"
+
+Bill stared at me.
+
+Then his expression slowly changed.
+
+He looked towards the jukebox.
+
+"Have England scored yet?"
+
+And just like that, he was gone again.
+
+He picked up his lager and took a drink.
+
+I asked whether he remembered what we'd been talking about.
+
+He looked confused.
+
+"Talking about what?"
+
+I decided not to push it.
+
+**5:15 PM**
+
+Jess and I sat quietly for a few minutes after Bill had gone back to watching the match.
+
+Eventually she asked whether I was alright.
+
+I told her I wasn't sure.
+
+She asked what I thought Bill meant.
+
+I told her I had absolutely no idea.
+
+We discussed what he'd said about the bells.
+
+Jess suggested that perhaps the thirteenth bell had been removed years ago.
+
+I said that didn't explain why Bill seemed so certain it was still there.
+
+She shrugged.
+
+"Perhaps someone knows."
+
+I looked at her.
+
+"That's the problem. Nobody seems particularly keen on telling me anything."
+
+She smiled.
+
+"Maybe you need to ask the right people."
+
+I laughed.
+
+"Do you know any?"
+
+"Not yet."
+
+For some reason, that made me laugh even more.
+
+**8:30 PM**
+
+Jess went home a little while ago.
+
+Bill stayed until closing, although he only had the one lager after that.
+
+He didn't remember anything about our conversation.
+
+I checked the office door before going upstairs.
+
+Still locked.
+
+I didn't try the key.
+
+Not tonight.
+
+**11:20 PM**
+
+Well, I've certainly got more questions than I started with.
+
+Forty-eight people in 1892.
+
+Thirteen church bells.
+
+An office that was opened in 1966.
+
+And apparently, not everyone came back.
+
+I'm also still thinking about what Bill said to Jess.
+
+He seemed absolutely certain he'd seen her before.
+
+Jess didn't seem particularly bothered.
+
+Perhaps Bill was remembering somebody else.
+
+He's an old man. It wouldn't be surprising.
+
+Still, there's something about the way he looked at her.
+
+I don't know.
+
+Maybe I'm just getting paranoid.
+
+Tomorrow I'm going to find out whether the church really does have thirteen bells.
+
+Although I'm beginning to suspect I won't like the answer.
+
+Goodnight.
+
+Jenny.
+
+**Saturday**
+
+**8:15 AM**
+
+Woke up to find breakfast outside my bedroom door.
+
+Bacon sandwich and a cup of tea.
+
+The goat is really pushing the boat out now.
+
+I knocked on the door.
+
+"You're spoiling me."
+
+A bleat came from inside.
+
+"Honestly, I'm going to start expecting room service."
+
+Another bleat.
+
+I took my breakfast into my room.
+
+I still haven't worked out what the goat eats, but apparently it's quite happy to keep me fed.
+
+I'm not complaining.
+
+**10:00 AM**
+
+Decided to visit the church today.
+
+After what Bill said yesterday, and everything in the quiz, I wanted to find out a little more about the bells.
+
+The church is just beyond the village square. It's an old stone building with a square tower, a small graveyard and a wooden noticeboard outside.
+
+There were notices advertising a jumble sale, Sunday prayers and a request for volunteers to help with the church garden.
+
+No mention of a vicar.
+
+Inside, I found an elderly woman cleaning the pews. She introduced herself as Mrs Hargreaves.
+
+She looks after the church. Cleaning, flowers, opening and locking the doors, organising things when there's a service.
+
+Apparently, they don't have a resident vicar. Someone comes over when they're needed.
+
+Mrs Hargreaves has been looking after the place for years.
+
+She was very friendly and immediately apologised for the dust.
+
+"I can never keep on top of it," she said. "You'd think people would stop bringing dirt in on their shoes, but apparently that's too much to ask."
+
+I told her I was working at The Sleeping Dog.
+
+"Ah, the pub. How are you finding it?"
+
+"Interesting."
+
+She laughed.
+
+"That's one word for it."
+
+I liked her.
+
+She seemed perfectly ordinary, which was quite refreshing.
+
+**10:30 AM**
+
+Eventually, I asked her about the church bells.
+
+I explained that there'd been a question about them at the pub quiz and that the answer was thirteen.
+
+Mrs Hargreaves nodded.
+
+"That's right."
+
+I told her I'd looked up at the tower and could only see twelve.
+
+"Well, there are thirteen."
+
+I asked whether one was hidden behind the others.
+
+She smiled.
+
+"Not quite. You can't see everything from the ground."
+
+That seemed reasonable enough.
+
+I asked whether there were any old records or photographs of the bells.
+
+She said there were some inventories kept in a cupboard near the vestry.
+
+Then she went off to fetch them.
+
+**11:00 AM**
+
+The records were fascinating.
+
+Well, fascinating if you're interested in old church paperwork, which apparently I am now.
+
+There were inventories, maintenance records and handwritten notes going back well over a hundred years.
+
+Mrs Hargreaves showed me the original bell inventory.
+
+Thirteen bells, each listed separately.
+
+I counted them.
+
+Thirteen.
+
+The entries included their weights, inscriptions and the dates they were installed.
+
+I asked if I could see the later records.
+
+She found another book.
+
+This one was dated several decades later.
+
+I started looking through the entries, mostly out of curiosity.
+
+Then I noticed something.
+
+The inventory listed twelve bells.
+
+I checked again.
+
+Twelve.
+
+I went back to the original record.
+
+Thirteen.
+
+I pointed out the difference to Mrs Hargreaves.
+
+She leaned over the book.
+
+For a moment, she didn't say anything.
+
+Then she closed it.
+
+"Old records aren't always accurate, dear."
+
+"But the first one lists all thirteen individually."
+
+She began gathering the other books.
+
+"These things get complicated over the years."
+
+I asked what happened to the thirteenth bell.
+
+She looked at me.
+
+"Nothing happened to it."
+
+I waited.
+
+She picked up the books and returned them to the cupboard.
+
+"You shouldn't count them, dear."
+
+I wasn't sure whether she was joking.
+
+She didn't look as though she was.
+
+**11:30 AM**
+
+Before leaving, I asked whether I could see the tower.
+
+Mrs Hargreaves explained that the stairs weren't open to visitors. They were narrow, steep and needed some repairs.
+
+I asked whether anyone was allowed up there.
+
+"Only when necessary."
+
+I asked who decided when it was necessary.
+
+She gave me a little smile.
+
+"Me, usually."
+
+I decided not to push my luck.
+
+I thanked her for showing me the records and wished her a good day.
+
+She told me I was welcome to come back if I wanted to help with the church garden.
+
+I said I'd think about it.
+
+I'm not sure I've got the time to become a part-time gardener as well as a barmaid.
+
+**12:15 PM**
+
+Stopped at the village shop on the way back.
+
+Bought a sandwich and some crisps.
+
+The woman behind the counter was having trouble with the card machine, so I waited while she switched it off and on again.
+
+We had a perfectly normal conversation about the weather.
+
+It's amazing how much I appreciate those these days.
+
+**3:30 PM**
+
+Back at the pub.
+
+Spent the afternoon doing the usual jobs.
+
+Cleaned the bar, checked the cellar and restocked the crisps.
+
+The jukebox has been playing Radar Love all afternoon.
+
+I also noticed the office door was slightly ajar.
+
+Only slightly.
+
+I stopped in the middle of the room and stared at it.
+
+I was certain it had been shut when I came downstairs.
+
+I didn't go near it.
+
+After a few seconds, the door moved and closed by itself.
+
+I decided that was quite enough excitement for one afternoon.
+
+**6:45 PM**
+
+Jess popped in this evening.
+
+She'd been looking around the village for somewhere to get a few things for her flat and complained that the village shop didn't have much choice.
+
+I told her she'd have to get used to it.
+
+We talked for a while about where she'd lived before and what she thought of the village so far.
+
+She seems to be settling in quite happily.
+
+Eventually, I mentioned the church visit.
+
+I told her about the inventories and the discrepancy between thirteen bells and twelve.
+
+"That's odd," she said.
+
+"That's what I thought."
+
+I explained that Mrs Hargreaves had told me not to count them.
+
+Jess laughed.
+
+"Well, that's not particularly helpful."
+
+"No. I'm beginning to think helpful information is against village policy."
+
+We changed the subject and spent the rest of the evening talking about films.
+
+It was nice.
+
+No strange villagers, no disappearing people, no warnings about ancient church bells.
+
+Just a quiet evening with a friend.
+
+**10:50 PM**
+
+I've been thinking about the church records.
+
+The original inventory lists thirteen bells.
+
+The later one lists twelve.
+
+Nobody seems to know where the missing one went, although Mrs Hargreaves insists nothing happened to it.
+
+I keep wondering why someone crossed it out.
+
+And why Bill was so certain there were thirteen.
+
+I might have to go back and look at those records again.
+
+Although I suspect Mrs Hargreaves won't be quite as keen to show them to me next time.
+
+Tomorrow is Sunday.
+
+I think I'll leave the church alone for one day.
+
+I've got enough to worry about at the pub.
+
+Goodnight.
+
+Jenny.
+
+**Sunday**
+
+**8:30 AM**
+
+Sunday.
+
+I was hoping for a lie-in, but apparently the goat had other ideas.
+
+Breakfast was waiting outside my bedroom door when I woke up. Toast, butter, a little pot of jam and a cup of tea.
+
+I knocked.
+
+"Morning."
+
+A bleat.
+
+"Happy Sunday to you too."
+
+I took my breakfast inside and ate it in bed.
+
+I've started to wonder whether the goat is actually employed by the pub. If so, it's doing a considerably better job than I am.
+
+I spent most of the morning taking things slowly. Washed some clothes, tidied my room and caught up on a bit of university reading.
+
+I should probably do more of that.
+
+**11:30 AM**
+
+Mrs Pritchard came in for tea.
+
+We had a little chat about the weather, the village and how busy the pub had been lately.
+
+She asked whether I was settling in.
+
+I told her I was getting there.
+
+She smiled.
+
+"You're doing very well, dear."
+
+I thanked her.
+
+She mentioned that the church garden needed a bit of attention and asked whether I'd considered helping out.
+
+I told her Mrs Hargreaves had mentioned the same thing.
+
+"She's a good woman," Mrs Pritchard said. "Been looking after that church for longer than I can remember."
+
+I asked whether she'd always lived in the village.
+
+"Most of my life."
+
+I thought about asking her about the old church records, but decided against it.
+
+Instead, we talked about the price of groceries and how everything seemed to be getting more expensive.
+
+Much nicer.
+
+She finished her tea, wished me a good day and left.
+
+**1:15 PM**
+
+A man from the county council arrived this afternoon.
+
+He introduced himself as Mr Walters and explained that he was following up on the council's earlier visit.
+
+Apparently, they'd arranged for someone to look over the pub's general condition.
+
+He had a clipboard and a folder full of paperwork.
+
+I showed him around.
+
+He checked the bar area, the kitchen, the cellar and the upstairs rooms.
+
+He made a few notes and asked some questions about the fire safety arrangements.
+
+I showed him the fire extinguisher.
+
+He checked the label, nodded and wrote something down.
+
+He also asked about the office behind the bar.
+
+I told him it was locked and that the landlord had instructed me not to let anyone inside.
+
+He made a note.
+
+"That's fine. I'll record that access wasn't provided."
+
+He didn't seem particularly concerned.
+
+After he'd finished, he sat at one of the tables and went through his paperwork.
+
+The general condition of the building was apparently quite good, considering its age.
+
+A few minor things needed attention. Some paintwork, a loose handrail upstairs and a couple of maintenance jobs in the cellar.
+
+Nothing too serious.
+
+He said he'd send the formal report to the landlord.
+
+I asked whether he'd be coming back.
+
+"Only if we need to."
+
+I thanked him and he left.
+
+Honestly, I was expecting something considerably more complicated.
+
+**3:30 PM**
+
+Mr Finch arrived shortly after three.
+
+He ordered a cup of tea and sat at the bar.
+
+I made it for him and asked whether he was planning another quiz.
+
+He smiled.
+
+"Not today, Jenny."
+
+He told me the committee would be holding its next meeting soon and asked whether they could use the pub.
+
+I stared at him for a moment.
+
+"Here?"
+
+"Yes. It would be convenient for everyone."
+
+I asked whether the village hall wasn't available.
+
+"It is, but the committee would prefer somewhere a little more informal."
+
+I wasn't sure what to say.
+
+He explained that they usually met to discuss village matters, upcoming events and various administrative issues.
+
+It all sounded perfectly ordinary.
+
+Then he asked whether the office behind the bar could be made available.
+
+I told him no.
+
+The landlord had been very clear about that.
+
+Mr Finch nodded.
+
+"Of course. We wouldn't want to inconvenience you."
+
+He took another sip of tea.
+
+"The meeting can take place in the main room."
+
+I told him I'd have to check the diary.
+
+"Naturally."
+
+He finished his tea, thanked me and left.
+
+I watched him walk down the street.
+
+I don't know why, but I wasn't particularly pleased about the idea of hosting the committee.
+
+**5:00 PM**
+
+I've been thinking about Bill's warning.
+
+Whatever you do, don't ever join the committee.
+
+At the time, I assumed he was talking about something that happened in 1966.
+
+Now Mr Finch wants to hold a meeting in the pub.
+
+I suppose there's nothing particularly strange about that.
+
+They're a village committee. They need somewhere to meet.
+
+Still, I can't help wondering why they're so interested in the office.
+
+I checked the door.
+
+Locked.
+
+I checked the key.
+
+Still in my pocket.
+
+I put it back in the drawer upstairs.
+
+I'm not getting involved.
+
+**7:30 PM**
+
+Had a quiet evening.
+
+A few regulars came in for drinks, but nothing particularly unusual happened.
+
+Radar Love played several times.
+
+The fireplace ate its chicken nuggets.
+
+The pub creaked occasionally.
+
+All perfectly normal.
+
+I caught myself wondering whether the building was getting used to me.
+
+That's probably ridiculous.
+
+Still, I think I might be getting used to it.
+
+**10:45 PM**
+
+I've been thinking about everything that's happened over the last two weeks.
+
+I still don't know what's going on here.
+
+The Redcaps, the church bells, the people who disappeared in 1892, Bill and his stories about 1966.
+
+And now Mr Finch wants to hold a committee meeting in the pub.
+
+I don't know whether the landlord knows what's happening or whether he's just as clueless as I am.
+
+But I'm running out of people to ask.
+
+I've decided to try something.
+
+I found a piece of paper and sat down at the kitchen table.
+
+I wrote a note to the landlord.
+
+I'm not sure it'll work, but I need some answers.
+
+I asked him about the church bells. Why are there thirteen when everyone can only see twelve?
+
+I asked what happened in the winter of 1892, and what happened when the office was opened in 1966.
+
+I also asked why the committee seems so interested in getting inside.
+
+I finished by asking whether he could please buy a television for the pub.
+
+Bill deserves to watch his football properly.
+
+I read the note twice, folded it and went downstairs.
+
+I stood outside the office for a moment.
+
+Then I crouched down and slipped it underneath the door.
+
+There.
+
+If he wants to communicate through notes, two can play at that game.
+
+I suppose I'll find out whether he answers.
+
+Goodnight.
+
+Jenny.
