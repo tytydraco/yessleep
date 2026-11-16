@@ -1,0 +1,97 @@
+# Some sounds are frightening because of what they might mean. Others are frightening because of where they come from.
+
+I grew up in a comfortable subdivision where most of the families were well-off. The houses were spacious, the properties were generously sized, and the neighbors weren't particularly close to one another. Many of them were established professionals—doctors, lawyers, and families who had lived comfortably for years.
+
+Our house and lot had come from my father's parents. Despite the size of the neighborhood, there was still plenty of greenery around us. There was even a vacant lot behind our house, covered in trees and tall grass.
+
+During the day, it was just another empty piece of land. At night, however, it became something else.
+
+I was never particularly fond of the sounds coming from that lot. The crickets, frogs, geckos, and occasional rustling of leaves and tall grass made the darkness feel strangely occupied.
+
+I've always been sensitive to sounds, even as a child. I tend to notice little noises that other people might easily overlook. I could distinguish the familiar sounds around our house, which was probably why I became so aware whenever something sounded different.
+
+I knew those nighttime noises were ordinary, but that never made me feel any better. Perhaps that sensitivity was also why I could recognize the faint knocking that night, even though it wasn't particularly loud.
+
+There was also a story adults used to tell children to keep them from wandering outside or opening the door to strangers.
+
+They called it the **Toktok Gang**.
+
+The name supposedly came from the sound they made when knocking on someone's door.
+
+Tok. Tok. Tok.
+
+There were different versions of the story. In some, they were simply pranksters who knocked on doors before disappearing into the darkness. In others, they were criminals who went around checking whether anyone was home before breaking in and stealing valuables. The more frightening versions involved violent crimes, even murder.
+
+I never knew which parts, if any, were true. Looking back, I suspect some adults and yayas had exaggerated the stories to keep the children they cared for inside the house and away from strangers.
+
+Whatever the truth was, the story worked.
+
+I grew up believing that three knocks in the middle of the night were something you should never answer.
+
+Our family also had several dogs. They were alert and would bark whenever someone approached the gate. In a way, they were our alarm system. If someone came near the house, we would know.
+
+Which is why I still remember that particular night.
+
+It was moonless. I woke up sometime after two in the morning and glanced at the clock.
+
+**2:17 a.m.**
+
+Something felt different.
+
+The usual nighttime sounds were gone. No crickets. No frogs. No rustling from the vacant lot behind our house. Even the dogs were quiet.
+
+There was no barking, no movement, and no familiar sound coming from outside.
+
+Then I heard it.
+
+**Tok. Tok. Tok.**
+
+The sound wasn't particularly loud or forceful. It was faint, but distinct and deliberate, as if someone was making sure we could hear.
+
+My first thought was the Toktok Gang.
+
+I was still a child, and my instinct was to get up and open the door. I remember starting to move when my father suddenly whispered:
+
+**“Shhh! Huwag mong buksan.”**
+
+He said it quietly, but firmly enough to make me stop.
+
+I stayed where I was.
+
+It was just the three of us in that room: my father, my pregnant mother, and me. None of us got out of bed. My father didn't investigate, and my mother remained beside us.
+
+For a moment, everything went silent again. I waited, listening, perhaps expecting someone to speak or walk away.
+
+Then came another set.
+
+**Tok. Tok. Tok.**
+
+Six knocks in total.
+
+I pulled closer to my parents. I remember waiting for the dogs to bark.
+
+But they never did.
+
+There were no footsteps, no voices, and no indication that anyone was outside.
+
+Eventually, I fell asleep.
+
+The following morning, nothing appeared to be wrong. Nothing was missing, and there were no obvious signs of an attempted break-in. We had no explanation for what had happened.
+
+Over time, I heard that other families in the neighborhood had experienced similar incidents. Some said they heard knocking at their doors in the middle of the night. Others couldn't even determine where the sound had come from.
+
+Years later, I brought up the incident with my mother. She is deeply religious, and during our conversation, she mentioned something she had heard about three knocks being associated with the Holy Trinity. Some people, she explained, interpreted such knocking as a mockery or imitation of something sacred.
+
+I don't know whether she believed that was what happened to us or whether she was simply sharing a belief she had heard over the years.
+
+I have never been able to settle on an explanation myself.
+
+Maybe it was someone playing a prank. Maybe it was a stranger testing the house. Maybe there was a perfectly ordinary explanation that we simply never discovered.
+
+I still remember my father's warning that night. I remember the silence that followed, the dogs that never barked, and those six faint knocks that none of us dared answer.
+
+It would have been less frightening if the knocks had come from our gate, or even our main door. At least then, I could have imagined someone standing outside. A stranger. A prankster. Maybe even the Toktok Gang from those stories adults used to tell us.
+
+But the knocks hadn't come from either place.
+
+**They had come from our bedroom door.**

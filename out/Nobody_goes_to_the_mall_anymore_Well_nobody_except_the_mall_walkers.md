@@ -1,0 +1,431 @@
+I never asked myself what dying really meant. I assumed death was the absence of life, like any normal person would. I know now that isn’t necessarily the case. Some things decay and cease activity immediately; some gradually lose life and function; others stir, spread, and evolve until they’re alive once more. Briarwood College Mall belongs in that last category. 
+
+Nobody goes to the mall anymore. Not even on Black Friday. Online shopping killed them. Rent became too expensive. Department stores collapsed. Teenagers stayed home. People grew too impatient to walk beneath fluorescent lights surrounded by empty pop music for something they could have delivered to their front door the next morning, all from the comfort of their off-brand Wayfair Lazy Boy. It is a sensible explanation. People like sensible explanations because they allow you to stop thinking. I believed it myself.
+
+For almost three years, I worked at a pretzel kiosk in the Briarwood College Mall, selling salted dough to people who didn’t really want it. Our only competition was pizza that sat under a heat lamp for 3 hours. Whenever someone would comment on the growing number of shuttered storefronts or the weeds sprouting all over the neglected parking lot, I would shrug and just say, "Why would they? Nobody comes here anyway."
+
+Every morning before work, I sat in my car, convincing myself to step back into the performance of "customer service". I would arrive ten or fifteen minutes early and park beneath a faded light pole as far away from the entrance as possible. Then I would turn off the engine, pull the keys from the ignition, and sit there with both hands on the steering wheel. Sometimes I watched the minutes change on my car's scuffed head unit. Sometimes I imagined pulling out of the parking space and driving until Briarwood disappeared behind me. Sometimes I imagined driving straight into Briarwood, so I’d never have to face it again. Besides, the mall was empty enough that I’d probably just hit an empty massage chair.
+
+I had a masochistic checking account that seemed almost eager to complain. I had spent three and a half years studying economics before admitting I hated it. Switching to Fine Arts felt like finally making the right decision, until I realized it had bought me another two and a half years of debt, with no job prospects. Six years later, and the needle has barely moved. The only thing that seemed to shrink with each payment was whatever ambition I had left. 
+
+I would eventually open the car door. I always did. Quitting this job had always been the plan, a plan that is like a hoarder’s plan to clean their garage or an obese person’s plan to lose their weight.
+
+The eastern entrance unlocked at 10:30 am for employees. The glass was always cold beneath my hand, even during the summer. Inside, Briarwood smelled like a freshly sanitized nursing home, with a vague hint of depression and vintage air ducts. 
+
+The fountain, empty for months, kept its blue lights burning beneath its stained basin. Artificial trees and bushes stood around it, their plastic leaves gray with dust. Every few seconds, the fluorescent fixture above the old jewelry store flickered.
+
+The mall music was always playing when I arrived. It was too quiet to clearly make out what was playing. You could hear the melody, but not the words. Sometimes I recognized a song only after listening for several minutes, as though it had traveled a great distance to reach me.
+
+The kiosk stood where the mall’s two main corridors intersected. From behind the counter, I could see the empty fountain, the food court entrance, and a long row of shuttered stores.
+
+There had once been an arcade, a toy store, a few dozen clothing stores, and even bungee jumping. By the time I began working there, most suffered the same fate: replaced by black curtains and leasing advertisements. COMING SOON, the posters promised. Remodel projects that never seemed to get their feet off the ground; none of them ever came. 
+
+The hardest part wasn't watching Briarwood die. It was remembering how alive it had once been. 
+
+When I was nine, the fountain was the center of the world. My mom would give me a penny and let me make a wish, then flip it in and watch it float to the tiled floor while she rested her shopping bags on the granite rim. 
+
+Teenagers occupied the remaining storefronts without buying anything. Old men drank coffee for hours. Children dragged their hands through the fountain water while their parents pretended not to notice.
+
+People met beneath the clock near the department store entrance. They waited for movies. They traded gossip in the food court. They sat. That is what I remember most. People were allowed to sit. Nobody called the mall a community space. Nobody called it a third place. Nobody needed to. It was simply somewhere you could be.
+
+Management removed most of the benches, saying they looked "outdated." According to one of the security guards, the real reason was that the mall needed to recoup lost rental income, so they replaced them with those $5-a-minute massage chairs no one sits in. I guess a place where you could just be was bad for business. 
+
+After a pipe burst beneath it, the fountain was drained, and instead of repairing it, the mall placed advertisements inside the basin.
+
+A new vision for Briarwood.
+
+The Louvre Luxury apartments coming soon.
+
+Powell Development Company
+
+My coworker Gage was already at the kiosk when I arrived, as usual, though I don’t know if you’d call what he was doing "working."
+
+Gage was somewhere in his early 20s. I never learned his exact age because he gave a different answer every time someone asked. He had greasy, dark brown hair that he pushed away from his forehead with the heel of his hand, then used the same hand to touch food. It wouldn’t have made much of a difference, I guess, since it looked like he dipped himself in beef tallow every morning. 
+
+His shirts were always stained and wrinkled and smelled like old sweat covered with fruit-scented body spray. He spent most shifts watching videos on his phone, laughing loud enough to startle people on the other side of the mall.
+
+He thought he was famous. Not for anything in particular, though.  He filmed himself reviewing gas-station food, lip-syncing in public bathrooms, and shouting expletives into the camera as people tried to walk around him. Overall, he was just unpleasant to be around. 
+
+I found him sitting behind the counter with his phone propped against the register.
+
+"Oh, hey, Jerry," he said. "Sorry about the noise. I was responding to my trolls."
+
+"Gage, we’re not supposed to have our phones out. Can you put it away so we don’t get in trouble?"
+
+"I will in a little bit; I have to see how the trolls respond to my response…"
+
+He plopped fresh-baked pretzel bites into his mouth, ready for the warmer. 
+
+"These losers have been CYBER BULLYING me for years, and I’m going to repor…"
+
+I ignored his spiel and started organizing the prep.
+
+Conflict made my stomach tighten. Even small confrontations stayed with me for hours afterward. If a customer were rude, I would replay the conversation in bed that night, imagining everything I should have said. If somebody cut in front of me in line, I stayed angry at myself for saying nothing. Even when it wasn’t directed towards me, I curled up like a roly-poly.
+
+Gage knew this. He used it whenever he wanted to leave early, disappear during a shift, or avoid cleaning. He once vanished for nearly two hours to film himself pretending to work at a furniture store across town. When he returned, I asked where he had been.
+
+"Content," he said.
+
+"That doesn’t answer me."
+
+"It does if you understand the grind."
+
+I should have reported him, but I never did. I told myself it was easier to cover for him than to make things unpleasant. In jobs like these, you have to do others' jobs just to get yours done.  
+
+And then there were the mall walkers. At first, I barely noticed them. Mostly elderly men and women in polos or athletic wear, sweatpants, and white athletic shoes, the mall walkers seemed like frugal boomers with nothing better to do. 
+
+Briarwood opened early specifically for them. Signs on the entrance doors advertised it as a community service.
+
+WALK YOUR WAY TO WELLNESS.
+
+Every few months, management posted photographs online. In those pictures, the walkers smiled beneath paper banners and held small bottles of orange juice.
+
+They looked ordinary. I remember that clearly. They were ordinary until I started paying attention.
+
+The first time I noticed anything wrong was this one Monday in October. Gage was filming himself eating a breakfast sandwich while I mixed dough. A group of walkers passed the kiosk. There were twelve of them.
+
+I counted because the mixer timer had not gone off yet, and I needed something to occupy my mind. Twelve elderly people just walking as a group. None spoke. That was not especially unusual. Some people preferred silence while exercising.
+
+They disappeared past the food court. Several minutes later, they returned from the opposite corridor. Still twelve, and still silent. I watched them complete another lap. Then another. Then another.
+
+The woman in front wore a purple tracksuit. Behind her walked a tall man in a red windbreaker, followed by a shorter woman with a white visor. 
+
+They did not pass one another. They did not slow down. Nobody stopped to drink water or tie a shoe. Their arms swung to the same height. Their left feet struck the tile together. Then their right.
+
+I stopped kneading the dough. Gage looked up from his phone.
+
+"What are you looking at?" 
+
+"Look at them."
+
+He watched the walkers pass.
+
+"The old people?"
+
+"Yeah, they’re all walking in uniform. They’ve been doing it for almost an hour."
+
+"That’s what walking is."
+
+"No. Look at their feet."
+
+He did, though only briefly.
+
+"Huh."
+
+"You see it?"
+
+"They’re probably army vets."
+
+"The women too?"
+
+"Women can be in the military, Jerry."
+
+"That’s not what I meant."
+
+He returned to his video.
+
+The walkers rounded the fountain. The woman in the purple tracksuit turned her head toward me. Her body continued facing forward. Her feet did not falter. Only her head moved.
+
+She looked directly at me. Her empty eyes looked to invade my memory and embed themselves there.  Her face was slack and expressionless. Her mouth hung slightly open, as if she were wearing a costume worn a thousand times before. I’m not sure why, but I felt compelled to lock eyes with her, almost as if I were in a trance. 
+
+The mixer alarm went off. I flinched so hard that I knocked an entire container of salt onto the floor. I bent to clean the mess. It couldn't have taken more than twenty seconds. When I looked up, the group was coming around again. The woman faced forward, as if I wasn’t even there or as if nothing had happened. I told myself I had imagined it.
+
+The strange thing about working somewhere nobody visits is how quickly you notice what others don't. Not because you are observant. But because you are bored.
+
+Some days, I could count every customer who walked past the kiosk before lunch. I memorized the cracked tile outside the old jewelry store because I stared at it for hours. I knew which fluorescent light buzzed louder than the others. I knew the air conditioner above the former movie theater rattled every thirty-eight seconds. You notice the little things. People think boredom is empty. It is not. Boredom is incredibly loud. And incredibly painful. The moment I had something new to do, I did it. 
+
+The next morning, I timed the walkers. Each lap took eleven minutes and thirty-eight seconds.
+
+Not approximately. Exactly. The second lap was the same. So was the third. I began watching their shoes. One man favored his right leg slightly. A woman near the back wore a crooked visor. Another had a dark stain on the sleeve of her white windbreaker.
+
+The details should have made them seem more human. Instead, they felt like bugs in code. They were also the most dependable people in the building. Too dependable. They never called in. Never took a break. If they’d been on payroll, they would’ve been employees of the month every month. 
+
+When they passed the kiosk again, Gage glanced up. My eyes stayed on the walkers. My curiosity wouldn't let me look away.
+
+"They do the same thing every day. I don’t think I’ve ever even seen them speak to each other."
+
+Gage continuously tore off pieces from the freshly baked batch of pretzels.
+
+"Maybe they’re undercover aliens rehearsing for an alien invasion."
+
+He chuckled. I did not. For a moment, I imagined grabbing him by his grease-soaked hair and introducing his face to the side of the slushie machine. The thought vanished as quickly as it came. I still need a job. Funny how quickly a temporary job becomes permanent once you run out of doors to open. 
+
+The next morning, I arrived twenty minutes before my shift. Then thirty. At first, I told myself it was because opening the kiosk alone was easier when Gage wasn’t there. In reality, I wanted to see where the walkers came from.
+
+I never did. By the time the doors were unlocked, they were simply present. They did not enter through the eastern doors. I watched those. They did not emerge from the restrooms or the food court. One moment, the corridor was empty. Then I would turn to retrieve something from beneath the counter, and when I looked back, a bunch of elderly people were already completing their first lap.
+
+When the mall closed, they disappeared as if they vanished into thin air. I spent the next few days pretending I wasn't curious. By Friday, though, I was so consumed by my curiosity that I followed them during my break.
+
+I stayed about thirty feet behind the last walker, a stooped man wearing a navy jacket. He moved slowly enough that I should have been able to close the distance, but the group seemed to pull away whenever I started to speed up. 
+
+They rounded the empty fountain and continued through the southern corridor. At first, it looked like a loop. The longer I watched, the less it resembled one. They crossed the food court diagonally, doubled back near the closed Belk, and cut through the middle of the corridor before returning to the kiosk. I guess it kind of made sense as an exercise routine, in its own way.
+
+After my break, I drew the route on the back of a receipt, just to see it laid out. It looked like connected angles folding across one another. Over the next few days, I watched them more closely. Not the group itself; that part never changed. I watched their actions. If they changed their route, looked at anything, or even slowed down, I noted it. 
+
+One time, they passed Claire's Antique Bookshop and Café. I wasn't watching the walkers anymore. I was watching the woman behind the counter who seemed to be watching them. She caught me staring and returned to her book. I immediately knew she knew something.
+
+Claire’s shop was one of the last places in Briarwood that still felt inhabited. It felt real. The store had once belonged to Books-A-Million. When it closed, Claire bought an espresso machine and reopened a smaller shop inside the same space.
+
+Bookcases blocked off most of the old store, leaving only the front third accessible. The aisles were narrow and dim. The shelves were mismatched. Nothing was arranged according to any system I understood. Used paperbacks sat beside antiques, old magazines, coffee mugs, photographs, postcards, and objects that appeared to have been found in somebody’s attic.
+
+Near the back was a small café counter where Claire served amateur lattes and a few pastries she bought from a bakery across town. The shop had four wooden tables, all mismatched with mismatched chairs. It was like she'd raided Goodwill for furniture. That’s where I was headed.
+
+People sometimes sat there for hours. A retired teacher read newspapers by the window. Two women met every Wednesday to play cards. A high school student came in after class and drew in a sketchbook. I visited because it was quiet. She rarely tried to sell anything. Ironically, a dying community center is harboring another. And yet, mall management kept raising her rent. They even offered a lease buyout so they could begin work on their apartment project, but she declined.
+
+Claire looked up from her book as my footsteps announced my arrival.
+
+"What can I get ya?"
+
+"Just black coffee, please."
+
+She poured a mug without another word and set it on the counter. I paid, carried it to a table near the back, and unfolded the receipts I'd been stuffing into my pocket since yesterday.
+
+A few minutes later, Claire wandered over and offered me a refill.
+
+"What've you got there?"
+
+I hesitated.
+
+"This is going to sound strange…"
+
+"I own a used bookstore in a dying mall," she said. "My ceiling is pretty high."
+
+I slid one of the receipts toward her.
+
+"The old people who walk the mall every day." 
+
+"The mall walkers?"
+
+"That's what you call them?"
+
+She shrugged.
+
+"It's easier than saying ‘the old people who walk the mall every day.’"
+
+I couldn't help smiling. I probably looked like a fucking gleeful basket case.
+
+"You've seen them?!"
+
+"Yeah… My front window faces the food court."
+
+She glanced at the sketch.
+
+"What is all this?"
+
+"It’s their route around the mall. I’ve been following them around on my breaks since Monday."
+
+Her eyes drifted over the page.
+
+"That's... more complicated than I expected."
+
+"It isn't a loop."
+
+"No. They don't wander either. They follow the same path each time. Every single time."
+
+Claire looked toward the storefront windows.
+
+"I've never paid that close attention."
+
+"But you've noticed them."
+
+"I've noticed that they're always around. And honestly, they're my most reliable regulars. They just never come in."
+
+"They never talk. You don't think that's weird?"
+
+She considered it for a moment.
+
+"I think most people stop caring about the weird people and things they see day to day."
+
+"So you don't think there's anything wrong with them."
+
+"I didn't say that."
+
+"Then what do you think?"
+
+She rested her hands on the back of an empty chair.
+
+"I think they're easy to ignore."
+
+"But you don't."
+
+"No."
+
+"Why not?"
+
+She looked past me toward the food court.
+
+"They're hard to ignore when you spend all day looking out the same window."
+
+I looked back down at my sketch.
+
+"I was hoping you knew something."
+
+"I'm afraid I don't."
+
+"So it’s just us."
+
+"Maybe."
+
+She looked back toward the front of the shop.
+
+"Or maybe everyone notices them for a minute and decides to act like it never happened."
+
+"You don't believe that."
+
+She didn't answer.
+
+I folded the receipts back into my pocket. It wasn't the answer I'd been looking for. But it was the first time someone hadn't laughed it off.
+
+My conversation with Claire stuck in my mind. It wasn’t about the walkers, but the people around them. For the next three days, I stopped following the old men in tracksuits and started paying attention to everyone else:
+
+The jeweler who unlocked his gate at exactly 10:30 am. The maintenance man who mopped the same stretch of tile every morning, whether it needed it or not. Parents hurried past the walkers without seeing them. Teenagers glanced up from their phones just long enough to avoid bumping into them. Employees looked through them like people stop noticing a broken clock hanging on the same wall for years. The mall walkers never changed, but everyone else did.
+
+I started sleeping poorly. I dreamed about Briarwood. In those dreams, I wandered its corridors long after the stores had closed. The security gates rattled softly as I passed, and voices whispered from behind them in tones too low to understand. No matter which hallway I chose, I always ended up back where I'd started.
+
+By the third morning, I wasn't sure whether I was noticing more...
+
+...or simply imagining it.
+
+What I’ve termed "the bathroom incident" happened three days after my conversation with Claire. I felt like I was in withdrawal from my investigation. No matter how hard I tried, I couldn’t get my mind off of the whole situation. And work didn’t make it any easier. 
+
+Gage left twenty minutes into his shift, right in the middle of the morning rush. Granted, the morning rush was usually two customers, but for Briarwood, that qualified as a sold-out crowd. He was screaming something about his Discord server getting raided by the trolls. 
+
+I refilled the slushie machine, threw in a batch of pretzels, and started wiping down the counter. The mall walkers passed; their shoes clicked against the tile in the same perfect rhythm. I caught my reflection in the glass display case. I was pale with dark circles beneath my eyes. My eyes themselves looked soulless and tired. I thought to myself, "What am I doing? Is this who I am?" Six years of college, several years of work experience, and I was the guy behind the counter, taking your money for shitty dry pretzels. I asked myself that every day. Then I looked away and kept wiping down the counter.  
+
+After finishing the busy work, Gage still hadn't come back, and no customers had come around for over an hour, none in sight. I looked toward the restroom sign near the western corridor.
+
+"Might as well," I muttered.
+
+The men’s bathroom was dimly lit. One fluorescent tube flickered above the sinks. The floor was cracked and faintly discolored. One tile was linoleum yellow, another pearly white, and another splattered gray. Under the sink, a constant drip left a still pool of water beneath.  
+
+A security guard stood at that sink. His name was Randall. I knew that from his badge, though I had never spoken to him beyond saying hello. He was a large man in his late forties with thinning hair and a mustache. He washed his hands slowly, then leaned toward the mirror and picked at something between his teeth.
+
+I offered an awkward smile. He gave a small nod, obviously hoping I wouldn’t acknowledge him. I entered the nearest stall. A moment later, the faucet shut off. The paper towel dispenser buzzed. Then a shoe squeaked against the wet tile. The fall happened so quickly that I did not understand the sound at first. His heel slid. His body twisted. The back of his head struck the porcelain sink. The impact echoed through the bathroom with a sickening crack.
+
+Randall was sprawled on the wet tiles, his skull broken, flooding the bathroom with blood. For a few seconds, nothing moved. I saw it through the gap beneath the stall door. It moved quickly across the white tile, filling the cracks in the grout. 
+
+Randall made a wet gargling sound, like he was drowning. I froze. My phone was in my hand. I unlocked it. I opened the emergency call screen. I typed nine, but then I stiffened. I knew what I needed to do. Call for help, open the stall. Try to apply pressure to his skull. Shout for help. Find a first-aid kit.
+
+Instead, I waited for Randall to sit up. He didn’t. A bubble of blood formed beside his mouth and collapsed. He tried to breathe again. I pressed one, but footsteps approached from outside the bathroom.
+
+click. tap. click. tap.
+
+Randall let out a painfully sharp groaning noise. It may have been my name. It may have been "help". I remained behind the door. I waited for somebody else to enter. Somebody whose uniform meant they knew what to do. A manager, a janitor, somebody. Someone assigned the responsibility.
+
+The footsteps slowed. They did not stop. A shadow crossed the gap beneath the bathroom door. Then another. Then another. The restroom door opened. I heard footsteps walk in. Then, what looked like five pairs of white New Balances stepped right into the pool of blood.  Randall attempted to breathe, probably more of an attempt to scream. 
+
+Something clicked. It sounded like acrylic nails tapping against teeth. Then came the tearing. At first, quiet, like fabric. As it grew louder, the tearing of his tendons sounded like a paper shredder. Randall’s skin was being peeled and torn from his frame. It sounded like wet clothes plopping on the floor. Skin was pulled wetly across the tile, right off his body and face. 
+
+I covered my mouth to muffle my terror. One of the walkers crouched and grabbed the body. The hem of a purple tracksuit lowered into view. They dragged Randall’s skinless vessel out of view. Then a pale, jointed limb emerged from behind the wall and pressed into the blood. The limb divided into several narrow points. They spread across the floor like an insect's legs, soaking up the blood. It sounded like straws vacuuming liquid from an almost empty cup. I’ve never been so nauseous and still unable to puke. 
+
+After what felt like an eternity, the mall walkers left, their shoes turned in lockstep, and made several knocking noises before the door finally creaked closed. I could still hear footsteps down the hall, this time slightly mushier and squeakier.
+
+I did not move until the footsteps disappeared. When I opened the stall, Randall was gone. The pool of blood was gone. It was all gone. Except for a nametag. "Randall." 
+
+I called the mall’s management. By the time the facilities supervisor arrived, the blood was long gone, and so was any evidence that any of this had even occurred. He looked at me as though I had wasted his time.
+
+"There was a security guard," I said.
+
+"Who?"
+
+"Randall."
+
+"We don’t have a Randall."
+
+"Yes, you do. He works in the mornings."
+
+The supervisor checked his phone.
+
+"No guard named Randall has worked here."
+
+"I have his nametag."
+
+The supervisor glanced at the tag for a second, not really looking too closely.
+
+"That ain’t ours."
+
+"H-h-he fell. His head hit the sink."
+
+"There’s no blood."
+
+"There was."
+
+He stared at me.
+
+"Are you on something?"
+
+"No. I’m not on anything." I rubbed my temple and closed my eyes. My head was pounding.
+
+"… I think I’m just going to go home." 
+
+I walked out before he could say anything else. My hands were shaking so badly I dropped my phone trying to unlock it. I called my manager and told her I wasn't feeling well. She asked if I needed someone to cover the rest of my shift. I told her, "No, Gage should be able to handle it." I didn't mention Randall. I wasn't sure Randall was even real. 
+
+The next morning, I should’ve called in again. I sat in my car beneath the same crooked light pole and stared at the mall entrance. The eastern doors reflected the pale October sky well enough that I couldn't see inside. I looked like hell. My patchy beard had started growing unevenly. I couldn't remember whether I'd showered the night before. I reached for the key, stopped, then reached again. If Randall hadn't been real, then I would have spent yesterday accusing a bunch of old people of brutally murdering someone who apparently didn’t even exist.
+
+I wondered if they'd already decided to fire me. A part of me wished they had. If they fired me, I wouldn't have to make the jump. But that would be too kind. As I walked inside, nothing seemed to have changed. The fountain was still empty; the same fluorescent light still buzzed over the abandoned jewelry store. The same advertisement for Briarwood's "new vision" still grinned from the dry fountain basin. For a second, I felt disappointed. I hoped the food court would be filled with police officers, reporters, and caution tape. Something to prove that what happened to me yesterday wasn’t just a stress-induced hallucination fueled by a major panic attack and an unhealthy obsession with some abnormal people. 
+
+Gage was already behind the counter. He looked up from his phone for a second, but dove back in just as fast.
+
+Most people would've spent the next ten minutes asking if I was okay, not because they cared, but because they wanted to feel like they did something good. Gage didn't have that problem. He only cared if my bad day interrupted whatever he was already doing. 
+
+I kept waiting for someone to mention Randall: a maintenance worker, another security guard, an office worker, anybody. I spent my lunch break outside the security office.
+
+A security guard sat in the office, middle-aged and overweight. Just your average mall security guard. He wheeled his creaky office chair over to the giant bank of security monitors. At least twenty camera feeds filled the wall. The food court, west entrance, the loading dock, the hallways. Pretty much everything you’d wanna keep eyes on.  He clicked through them absentmindedly while eating pretzels from a paper bag someone must've brought earlier. Then his radio crackled with muffled security speak.
+
+"Copy. I'll be right there."
+
+He pushed his chair back. He stood, cracking his joints like someone cracking crab legs at a Red Lobster seafood boil. Like he hadn’t gotten out of that grungy office chair in eons. For a second he hesitated, looking between the monitors and the hallway. Then he muttered something under his breath and closed the door on his way out. He brushed past me so quickly I don't think he realized I was still loitering outside of the office. I should've just walked away, but I looked back instead. I saw the blue light from monitors through the glass of the door. I grasped the door handle, and, of course, it was unlocked. This is mall security we're talking about here. They don’t usually take the highest level of precaution.  
+
+Just for a minute, I thought. Maybe less. I don't know why I stepped inside. Maybe I wanted proof. Maybe I wanted to prove I was crazy, but those are probably the same thing. The cameras cycled automatically. First the food court, then the East entrance, then an empty hallway, then another. Even a shot of one of the dark, void-like anchors. It was so dark in there you could barely tell the camera was on. Finally, the camera cut to the West entrance. I scanned each screen, hoping to catch one familiar face. Nothing. Just customers, lazy employees, and emptiness. I didn’t even see any of the mall walkers. A keyboard sat beneath the monitors. A mouse. No password prompt. How typical.  
+
+Beside the desk stood a dented gray filing cabinet. Rusted and dented like it hadn’t been replaced since the 70s. One drawer wasn't closed all the way, barely an inch. I stared at it. My heart was beating so hard it could’ve burst out of my chest onto the cold tile. I knew I shouldn't touch it. I knew opening it could change something. Would change something. I wrapped my fingers around the handle anyway.
+
+I pulled the drawer open. Folders, hundreds of them, alphabetized. I thumbed through them as fast as I could. I got to R. Nothing.
+
+My breath was shaky. Of course there wasn’t anything. What the fuck was I expecting?
+
+Employee: Randall. Cause of Death: Murdered by a gang of exercising elderly people.
+
+I started to slide the door shut, but something caught. The drawer refused to close all the way, like it was before. If I don’t shut it, they’ll know somebody was in here.  I looked down. A single sheet of paper had folded beneath one of the hanging folders. I pulled it free. It wasn't an incident report. Or a maintenance report. Or a Security Audit.  It wasn't even from Security.
+
+It was printed on letterhead I’d seen a hundred times. The same gold logo grinning up from the decaying sign I saw every morning. Powell Development Company. 
+
+TRANSFER AUTHORIZATION
+
+Employee Name: R. Dawson
+
+Department and Position: Security, Security Guard
+
+Current Location: Briarwood College Mall
+
+Transfer Location: Fountain Park Mall
+
+Status: Approved
+
+Date: October 14
+
+I read it three times. Then a fourth. Over and over. R. Dawson. Not Randall. Whoever R. Dawson was, they’d apparently been transferred to Fountain Park Mall as of yesterday. That should've been the end of it, but it wasn't. I’d been there three years and never once asked where everybody went.
+
+The paper crinkled in my hands. A radio chirp from the hall spooked me. I shoved the form back exactly where I'd found it, or at least I hoped I did. The drawer stuck again, then finally slid shut. I quietly backed away from the cabinet just as footsteps echoed toward the office. I was back in the hallway before the security guard rounded the corner.
+
+He nodded at me.
+
+"Can I help you?"
+
+"...No."
+
+He shrugged like someone hadn’t just broken into the security office.
+
+I rushed away, mostly from embarrassment, if I’m being honest. R. Dawson. Fountain Park. It wasn’t proof. Hell, it barely qualified as a coincidence. But it was enough to convince me, for the first time since yesterday, that I hadn’t hallucinated Randall and the mall walkers.  
+
+My hands still shook as I stepped back onto the concourse. It looked like Gage hadn’t moved an inch while I was gone. 
+
+Right as I got back to the pretzel stand, a customer stepped up. Then another, and another. The afternoon had settled back into its rhythm. Paper crinkles, slushie pours, card reader beeps, timer rings. The same songs looping through the speakers for what felt like the hundredth time. I felt out of place. It felt like I was watching a memory already past. I don't know how much time passed before I looked toward the fountain again. Not because I wanted to see the mall walkers. Because I needed to make sure I didn't. I did.
+
+The same slow parade drifted through the food court, weaving past shoppers and employees who never seemed to acknowledge them. Nobody stepped out of their way. Nobody even looked. It was as if they belonged there. 
+
+Randall was with them. He stood out instantly. The others were all elderly, with gray hair and wrinkled faces. They wore sweatbands, windbreakers, and bright sneakers that looked older than I was. Randall was obviously the youngest. He was no longer wearing his security uniform. Instead, he wore a faded gray T-shirt, navy athletic shorts, white tube socks pulled nearly to his knees, and some worn running shoes. He’d swapped one uniform for another.
+
+I counted without meaning to. There were twelve. There had always been twelve. Then I saw who was missing: no purple tracksuit lady. Randall hadn’t just joined them. He’d filled her vacant position. I couldn’t stop staring at him. He walked like he’d been doing it for years. Like nobody ever had to train him.
+
+They passed the pretzel stand without slowing down, without looking at me or acknowledging me. If he recognized me, he wasn’t showing it. I'd spent the last twenty-four hours thinking about Randall. It hadn't occurred to me that I hadn’t crossed his mind once. If he even still had a mind. He simply kept walking, just like the rest of them. One slow step after another until the crowd swallowed him again. I watched until there was nothing left to watch.

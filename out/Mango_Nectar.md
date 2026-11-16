@@ -1,0 +1,57 @@
+If you live anywhere near the west coast of Florida, I am so sorry.
+
+Over five months ago, although I hadn't realized it was that long ago, I'd bought a one-gallon jug of mango nectar from Costco, and I'd drunk it every now and then. It was a bit too sweet for me, so I'd always dilute half a glass with a bit of ice and some water or sparkling water. Whenever I have friends over, I offer some to them. Around half have actually accepted.
+
+The plastic jug is rather distinct in my fridge because I had accidentally dropped it when unloading it with the other groceries out of my car, and although it hadn't burst, the upper connection between the handle and the actual body of the jug is deformed. I never bothered trying to pop it out, and the jug was still usable.
+
+A week ago, I noticed that the jug was about 3/4 of the way finished. I made a mental note to buy another jug the next time I went shopping. I then poured myself a half-glass of it and then put the jug back on the fridge shelf.
+
+That was when I noticed that the amount of mango nectar left in the jug was still rather identical to before I poured this one glass.
+
+I felt odd seeing it but chalked it up to just a trick of my mind or how I was holding the jug initially. I took the bottle of sparkling water from the fridge, and I filled the rest of the glass.
+
+The next day, I experience the same phenomenon after pouring myself another half glass. The amount left in the jug did not change. At all. This time, I decided to pour enough to fill the entire glass. The glass itself was around 24 fl oz in capacity. Yet, the amount in the jug didn't change.
+
+A weird feeling of both shock and disbelief overtook me. I took another glass out of my cabinet and poured another glass of mango nectar. The amount in the jug remained unchanged. I set the jug straight down on the counter and marked the level of mango nectar with my fingernail, and then I fetched another glass and poured it full. Still the same level.
+
+Paranoid and desperate to prove to myself the laws of the universe still worked, I went into my bathroom with the jug of mango nectar. I looked at the drain in my bathtub. I told myself I was being stupid and that I was really going to waste around 2 dollars' worth of mango nectar by pouring it down the bathtub drain.
+
+My hand that held the jug tilted.
+
+I watched the golden liquid pour out, splash onto the white fiberglass surface, and leave little splotches of color around the drain as most of the liquid poured down the drain, bubbling occasionally. I do not remember how long I had been pouring, although it could not have been for too long, maybe a minute. I just remember snapping out of my reverie watching the mango nectar disappear into the drain. I placed the jug onto the flat top of the toilet tank and watched as the sloshing liquid inside settled.
+
+The mark I made with my nail was level with the amount of mango nectar still left in the jug.
+
+This confirmed it for me. I somehow had a never-ending jug of mango nectar that became so after I had already used up a good three-quarters of it. Digging through the drawer in my kitchen where I keep my receipts (most of them being from Costco), I find the one with the gallon of mango nectar listed as an ingredient.
+
+The date on the receipt said June 14, 2026. I'm writing this five months and a day later.
+
+Initially, after getting over the mind-bending shock of it all. I thought that maybe I could put this to good use. I could sell the infinite amount of mango nectar. I could maybe go viral on the internet showing it off (although I abandoned this idea because other people might try to rob me of the jug).
+
+Some time later, my friend "Harry," who owns a boat, asked me if I wanted to join an impromptu party he's hosting on his boat this Saturday (yesterday now). I told him yes, and I also said I'd supply some drinks. I wanted to show off the jug of mango nectar, and hopefully I'll just try to pass it off as a magic trick if someone asks about it.
+
+The boat departed maybe a quarter to a half mile away from the harbor, and the party went on as normal. I manned the drink station most of the time, and I showed off the jug to some of the girls and guys, though most of them seemed to dismiss it as a magic trick, and the one or two people who genuinely look puzzled quickly forgot about it.
+
+I do not remember how much I drank. I only remember waking up with a nasty sunburn on my back, and Harry shaking me awake, obviously drunk and probably high on something, laughing and telling me something I couldn't make out until he repeated it the fourth time.
+
+"Dude! Andrea got so fucking high she threw the drinks into the water!"
+
+At first, I was rather pissed. I didn't want to pay any fines for the littering, and I had spent a good seventy dollars on booze. I glanced up at where I'd set up the drinks station and found only a few plastic cups scattered around, with some spilled booze. I walked around and stepped in a gold-colored puddle on the floor.
+
+*The mango nectar.*
+
+I hurriedly asked around if anyone had seen the jug of mango nectar, and Harry told me again that Andrea, who turned out to be one of the girls I was trying to impress with the "magic trick" had probably thrown it into the water along with everything else. I find Andrea puking over the side of the boat closest to the drinks station, and I look out at the water.
+
+A significant amount of plastic cups and half-empty bottles of booze were lying around. I looked a bit inward from that general area and saw a patch of water that was yellower than the rest.
+
+I saw a part of the jug, with its deformed handle, bob up from the water, pushed by the waves. I saw the nectar still pouring out of it and watched as the jug finally sank back down. The yellow patch kept growing.
+
+I'm home now. I managed to cause a big enough panic for Harry to sober up and somehow get the boat back to the harbor. I tried to explain to the authorities that I had lost "something valuable" in the water, but they told me I was responsible for any personal losses. Harry got hit with a massive fine for littering.
+
+I keep a watch on any forums or subreddits or local news stations about the west coast of Florida. I have begun seeing reports of fish dying in the region, the water having an odd high sugar content, and some areas having yellower water that's sticky for some reason.
+
+I know they're going to close down the beaches soon. I know they're going to announce an ecological disaster soon. I know that until they realize that some magical jug of infinite mango nectar is in the Gulf of Mexico, I have effectively doomed the world's water to a slow, polluting death.
+
+I am so sorry. Please forgive my arrogance. Please find the jug before it's too late. I don't know if it's washed away to some other spot, but it has got to still be somewhere near the west coast.
+
+I don't know why this is happening, but I wish I could've said the same for how. I caused this. I am sorry.
