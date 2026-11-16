@@ -1,0 +1,63 @@
+I was completely focused, entirely cut off from the outside world. Things had finally reached the point I'd been waiting for in the film I'd been watching for a full hour, and I was at the height of my concentration. The detective, who had been tracking down the culprit for the past hour, was now very close to catching and exposing him, and I was incredibly curious. He was about to open the door, walk in, and discover the culprit's identity. I was moments away from finding out whether my suspect was right.
+
+When we look at something, we also see what's to our left and right, albeit vaguely. While watching the television directly in front of us, we can perceive the fan a meter to its right swiveling from side to side. Other objects and movements become blurrier as they move farther away from the center of our field of vision. Everyone knows this and is usually aware of it. Even if your grandfather, sitting to your right at dinner, isn't looking at you, he'll notice if you secretly flip off your brother sitting across from you.
+
+At that moment, the world was nothing more than a rectangle to me. My field of vision had no depth. Ten eagles could have been flying around the room, and I wouldn't have noticed them unless they passed in front of the screen. I had to find out who the culprit was.
+
+Even if you bring your eyes into sharp focus, your ears can't do the same and remain even more open to the outside world than your eyes. When you listen to a song you love, your ears become fully absorbed in it, and your eyes join in, too. You drift away, and your field of vision narrows. But your ears can't join your eyes in doing the same.
+
+“Albert, shut your laptop,” I heard a whisper just as the detective was about to open the door.
+
+At first, I thought it had come from the film. There was no character named Albert in it, and the laptop had very little to do with the plot, but still, I didn't want to take my eyes off the screen before the detective opened that door. However, I'd started thinking by then. A new thought had formed in my mind, and it had weakened my focus. I would enjoy finding out who the culprit was a little less.
+
+I paused the film. I was still looking at the screen, but my field of vision had widened and become rounded again.
+
+I thought I saw a ripple on my right. A moving, blurry image, about a meter in size.
+
+When I turned my head to look, there was nothing there. I looked back at the screen. I thought to myself that being this focused wasn't good either. It bothered me that I was experiencing a mental activity so intensely when the only reason for it was a film. Was finding out who the culprit was really that important? I never focused this intensely when writing my stories, working on a thesis I had to finish, or learning Spanish in the course I'd recently started. That was probably why I'd heard the whisper, too. It was a trick of my mind.
+
+I turned back to the screen. My desire to find out had diminished. Reluctantly, I pressed play.
+
+But then I saw that ripple again. A transparent, shapeless thing, moving randomly. Like a transparent fire, its movements resembled those of a burning flame. I pressed pause.
+
+When I turned my head to the right, it wasn't there again.
+
+A sense of unease had come over me. I stared at the spot where the blur had been. There was no movement at all. All the objects stood still, just as they were.
+
+This time, I saw the same ripple on my left, right in front of the laptop on my lap. I sharply turned my eyes back to the screen. Nothing. The detective walking toward the door, the confident expression on his face. That was all.
+
+I set the laptop aside. I threw off the blanket I'd pulled up to my chest, got out of bed, and sat down at my desk.
+
+I picked up my Spanish dictionary and opened it to a random page to calm myself down a little. I read a few words. The ripple was above me. I looked up at the ceiling, and now it was on the left. I turned to the left, and it moved to the right. Its size changed every time. Sometimes it was a one-meter rectangle, sometimes a scattered circle ten centimeters in diameter, and sometimes a thick line stretching from the floor to the ceiling.
+
+I left the room, and it was on my right, in the shape of a circle. I couldn't get rid of it. My palms were sweating. Now it was on my left. I kept turning my head from side to side, up and down. And I could never bring it into my vertical field of vision; it was always outside it.
+
+I wiped my sweaty palms on my T-shirt. Now it was above me. I tried closing my eyes. But I couldn't. The moment I closed them, a sharp fear would immediately take hold of me, and I'd open them again before even two seconds had passed. My gaze had grown much faster now. Left, right, up, left, down, right, up. I was looking around like crazy. I was like a camera trying to bring an image into focus.
+
+I finally ended up with a stiff neck after one wrong movement.
+
+I could no longer turn my head to the left.
+
+And the ripple was on my left.
+
+I turned to the left with my whole body. It stayed on my left. I turned left once more. It slipped to my left again.
+
+I had turned a full circle. Now it only appeared on my left. It seemed to have found my weak spot. Every time I turned, I instinctively turned my neck a little, too. You know what a stiff neck is like. It's quite painful and sudden. During the day, you forget that your neck is stiff, and if someone calls out to you from your left, you turn to look at them. You feel that sharp little ache.
+
+So I stopped trying to catch it. It stayed on my left, rippling. Sometimes it stretched out, sometimes it shrank, and sometimes it disappeared quickly and reappeared. I moved my pupils as far to the left as I could. Yes, now it had moved to the right, because my field of vision on the left had been reduced to zero.
+
+Now only my pupils were moving. But the image was even closer. And it was getting closer and closer.
+
+Finally, while I was looking straight ahead, I saw it. It hadn't gone away. It's impossible to describe its shape.
+
+“I'm x56 c 66 bmf 8 bmd 8 g 9 kdr 8 889 klkw 999 c 3 d 3 v 3 m 3 g 3 o 3. Thank you for playing with me. By the way, the killer is Michael,” said a voice from very far away, heavily echoing and robotic, sounding a little like a creaking door.
+
+Without knowing why, I tried to catch it with my hand. It was an arm's length away. I'd acted impulsively out of excitement. And it vanished instantly.
+
+The quick, deep breath I drew through my nose passed through my nose hairs and rubbed against my completely dried-out nasopharynx, producing a sound that was a mixture of a faint snore and a low-pitched whistle. I held the breath in my lungs for a while, then slowly exhaled.
+
+I went back into my room, sat down in the armchair, and for some reason, burst into tears. It was like a catharsis. I couldn't remember ever crying this intensely before. Or maybe I was simply crying out of fear, but I wasn't sure that fear could trigger such an intense crying response.
+
+I wiped my eyes, and just as I was about to get up to wash my face, the ripple began speaking from the ceiling, right next to the lamp. It had watched me cry the whole time. Strange.
+
+“If you want to play with me again, all you have to do is look in the mirror and say my name three times, and don't worry, your memory will be erased by tomorrow evening. You'll only remember my name. You'll try to figure out what the hell it was, whether it was your old Wi-Fi password or something. Anyway, Albert, I'm out of here. Take care. It was nice meeting you.”

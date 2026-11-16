@@ -1,0 +1,563 @@
+I’ve been waiting almost ten years to tell this story.
+
+Until a few weeks ago, I legally couldn’t.
+
+I’m not going to tell you exactly where I live. I’m also not giving my last name, the names of anyone else involved, or anything that could identify the town. Those are among the restrictions that are still in place. Andrea is enough.
+
+Almost ten years ago, the small town where I live was selected for a transportation pilot program run by a company called TeleQwest. Small is probably an understatement. We’re isolated enough that getting anywhere useful takes planning. Shopping, appointments, entertainment, most of it requires a drive. So when TeleQwest approached the town with what they called “instantaneous point-to-point transportation,” people listened.
+
+They held a town meeting and packed nearly everyone into one room. Their representatives explained that the technology itself was not experimental. According to them, the teleporters had already undergone years of testing and had successfully transported people thousands of times.
+
+They weren’t testing whether they worked.
+
+They were testing whether people liked using them.
+
+They described it as the equivalent of test-driving a car that had already passed every safety inspection. They wanted to know how ordinary people would incorporate teleportation into everyday life. Where would we go? How often would we use it? Was the booking system convenient? Were the booths easy to operate? What would we change?
+
+Our town was small enough that they could install the necessary equipment throughout the community and study an entire population instead of recruiting scattered individuals. There was one catch. The project only went forward if the town agreed to participate, and everyone who enrolled had to sign an enormous confidentiality agreement. We couldn’t discuss the technology, the equipment, problems with the system, or anything that happened during the trial with anyone outside the program.
+
+At the time, that didn’t bother me. Why would it? They told us the teleporters were safe.
+
+And for quite a while, they were.
+
+The trial eventually ended. The teleporters never became the revolutionary new transportation system we had been told they would become, and for years I assumed my NDA would follow me to the grave. Then, a few weeks ago, I received a letter from TeleQwest informing me that portions of the confidentiality agreement had been terminated. I had a lawyer read it before I said a word to anyone.
+
+There are still things I cannot disclose. I can’t identify the town or the other participants. I can’t share documents, technical information, or certain details about the program. But according to my lawyer, I can finally talk about something that happened to me personally.
+
+So I’m going to.
+
+This happened on what should have been an ordinary trip to Yosemite National Park.
+
+I roll out of bed and stretch toward the ceiling. My orange cat drops from his perch and winds around my ankles, purring hard enough to vibrate against my shins.
+
+“All right, all right, Paprika,” I say, bending to run my hand down his back.
+
+He answers with a sharp little meow and follows me from the bedroom into the living room. I grab the bag of cat food from the coffee table on my way to the kitchen, fill his bowl, then crouch to give him a few more strokes while he eats as though I have starved him for a week.
+
+“What should we do today, Pappy?”
+
+He pauses and looks up at me with the solemn concentration of someone considering an important proposition. Then he lowers his head and continues chewing.
+
+“Guess I’ll go for a hike in Yosemite National Park. Maybe take lunch with me.”
+
+I return to my room, pull on a pink tank top, black yoga pants, and tennis shoes, then collect my earbuds from the computer desk. In the kitchen, I make a sandwich, wrap it, and tuck it into my small backpack. I put on my Yankees cap and head outside.
+
+The teleporter booth is two blocks away. Mrs. Huddleston is inside when I arrive, dragging a grocery wagon through the opening as slowly as possible. I glance down at my wristband impatiently.
+
+ANDREA 4590 glows in blue letters.
+
+I’m not late yet.
+
+But then the band turns orange. I begin tapping my foot.
+
+“Mrs. Huddleston, can I help you? My wristband has turned orange, and I really don’t want to rebook the trip on the app.”
+
+“No, no, no. I can do it myself. Young people these days have no patience. I’ll be out of your way in a jiffy.”
+
+She hauls the wagon clear of the booth. I try to squeeze past her, but she lifts one hand.
+
+“Wait there, missy. I left my milk.”
+
+She waddles back inside, retrieves a gallon jug, and finally steps aside.
+
+“It’s all yours,” she says curtly. Then, not quite quietly enough, she adds, “Pushy little thing, aren’t we?”
+
+I ignore her and enter the booth. The door slides shut behind me with its familiar pneumatic sigh. I put in my earbuds. A woman’s voice speaks from above.
+
+“Destination: Yosemite National Park. Please step through the...”
+
+I press play before she finishes. A Queen song begins playing as the portal opens, its surface shimmering like heat over pavement. I step through. The chorus blares in my ears as the ground vanishes beneath me. For one impossible second, I am suspended in darkness.
+
+Then I fall.
+
+The air tears a scream from my throat. I glimpse a black plain rushing upward and have only enough time to throw out my hands before I slam into the earth. The impact drives the breath from my body. I lie twisted on my side, unable to inhale, while the music continues brightly in my ears. My chest convulses. Nothing happens. Panic blooms with cold precision.
+
+Then air finally claws its way back into me. I roll onto my back and suck in a ragged breath. There is almost no light.
+
+Far above me hangs a violet sphere the size of a moon in the abyss. No stars puncture the darkness. The orb seems less like something in the sky than an opening cut into it, a single purple wound suspended over a landscape I cannot see. For a moment, I have the nauseating impression that it is not shining down on me.
+
+It is looking at me.
+
+I shake the thought.
+
+“Oh, my God.”
+
+The air is wet enough to drink. Every breath enters warm and heavy, coating my throat. Sweat gathers almost immediately beneath my tank top. I sit up too quickly. The darkness tilts.
+
+Where the hell am I?
+
+Something blue moves in the distance. I grab my phone and switch on the flashlight. The beam reveals pale sand, stones with glassy black seams, and shallow grooves that curve across the ground before disappearing beyond the light’s reach.
+
+No trees. No trail. No granite cliffs.
+
+No Yosemite.
+
+“They sent me to the wrong place.”
+
+I frown down at my wristband. The letters are gone. The entire face of the band glows red.
+
+What the hell?
+
+My phone shows no service and fifty-five percent battery. I should not have watched that video in bed this morning. It ate through my power. The blue light is coming closer. It looks like a smiley face floating by itself through the dark.
+
+I stop the music. The silence that replaces it is so complete that I can hear the blood moving in my ears. There is no wind blowing, no crickets chirping, and no owls hooting in this place. Only a low mechanical hum drawing nearer.
+
+“Hello?” I call out. My voice sounds small and wrong in the open dark. “Is someone there?”
+
+The blue face approaches. I aim the flashlight at it and reveal a metallic orb hovering several feet above the ground. A simple digital smile is displayed across one side. It stops just outside the brightest part of my beam.
+
+Then it speaks.
+
+The language is not merely unfamiliar. The sounds overlap in ways that do not seem possible for a single speaker. Wet clicks pass beneath a low electronic drone. Several sounds rise together, separate, then collapse into one another. The hair lifts along my arms.
+
+“I can’t understand you. Can you speak English?”
+
+The Orb remains motionless. Its smile flickers. Blue becomes green.
+
+“You are a Class Five human,” it says in a flat voice. “I am not programmed to interact with your species. I possess limited language data for your species. Do best I will. Proper chain has been reported. Follow, please, for safety.”
+
+“Proper chain?”
+
+The Orb turns and begins gliding away. Green light spills from its rear surface and stains the sand behind it. I stay where I am. The purple sphere hangs above me. The darkness beyond my flashlight feels immense, but not empty. I cannot explain the certainty that something occupies it, perhaps many things, all of them remaining just beyond the beam.
+
+The Orb continues moving. Standing alone suddenly seems worse than following it. I force myself to my feet and go after it.
+
+“Where am I?” I ask.
+
+The Orb gives no sign that it heard me. The ground slopes almost imperceptibly downward. My flashlight reveals only pale sand and scattered black stones, all of it disappearing into the darkness beyond the beam.
+
+After several minutes, a wall emerges from the dark. At least, I think it is a wall. Its surface rises beyond the beam of my flashlight and stretches in both directions farther than I can see. It has no windows anywhere along it. The material looks black and perfectly smooth, swallowing most of my flashlight beam.
+
+By the time we reach it, my clothes are soaked from the humidity and my own sweat. A circular opening contracts into existence. The Orb disappears into the hole. A set of doors slides apart below it. The opening is wide. The Orb waits within, its green face smiling.
+
+I turn and look back. The desert has vanished behind me. My flashlight reveals only blackness beyond a few feet of sand, as though the world ends at the edge of the beam.
+
+So I step inside.
+
+The doors close immediately. The chamber is small and windowless. Violet light leaks through dozens of tiny apertures in the walls. The holes are arranged without a pattern I can understand, yet when I move, the brightest ones always seem to remain opposite me. I tell myself they are ventilation openings.
+
+The Orb disappears through another circular passage. A second set of doors opens.
+
+Hot, wet air strikes me like a hand across the face. I wipe the sweat from my eyes and stare. The chamber beyond is a forest, but the word feels inadequate. It is a vast interior wilderness whose ceiling disappears into violet haze. Lavender light falls through distant openings above.
+
+Plants crowd every surface. Veins of pink and blue pulse beneath translucent leaves. Green markings open and close along black trunks. Fine filaments drift through the air like spider silk, glowing in the violet beams. It reminds me of a barn party I attended when I was seventeen, where black lights made clothing and body paint shine vibrant in the dark and smoky space.
+
+The memory gives me anxiety.
+
+Am I drugged?
+
+The Orb hovers ahead on a narrow path. I realize my phone is hanging at my side, illuminating only my shoes. I raise it.
+
+The flashlight cuts through the purple haze. Trees tower toward the unseen ceiling. They resemble pines only in the broadest sense. Instead of needles, their branches carry clusters of lavender appendages like sea-urchin spines made from soft flesh.
+
+When the beam touches them, every appendage withdraws at once. Away from the light and into the wood. The branches close over them without seams. I sweep the beam across low growth. Leaves fold inward. A vine slips into a crack. Several pale flowers turn their openings toward the ground.
+
+The entire forest recoils from my light in a widening circle.
+
+What in the world is going on?
+
+The doors slam shut behind me. Startled, I spin around and stare at the closed door. Then I try jamming my fingers into the seam. Nothing.
+
+I pound the surface with the side of my fist.
+
+“Open!”
+
+The wall gives no response.
+
+Guess I’m stuck here.
+
+“Follow,” the Orb chimes.
+
+I turn toward it. The path winds between roots broad enough to be walls. Every shadow thrown by my phone resembles something crouched with its limbs pulled close. When I move, those shapes seem to lag a fraction of a second behind the plants that cast them.
+
+I check my phone. Forty-three percent. My stomach tightens.
+
+“That can’t be right.”
+
+It was only fifty-five percent minutes ago.
+
+I switch off the flashlight and pocket the phone. The ambient glow is barely enough to follow the Orb, but my eyes begin adjusting. I take off my cap and fan myself. The moving air is no cooler. A pressure starts behind my eyes. I rub my temples but get no relief.
+
+Ahead, blue light glimmers through the trees. The path opens beside a pool fed by a narrow fountain pouring from the wall. The liquid is too luminous to be water. Pale pink bodies resembling jellyfish drift beneath the surface, opening and closing in slow unison. Two stone benches face the pool.
+
+Something lies beside one of them.
+
+I stop.
+
+The outline is humanoid. For several seconds, I convince myself it is a fallen branch tangled in gray moss. It does not move. I turn the flashlight back on. White and purple spots burst across my vision. When they clear, the form sharpens.
+
+It is built somewhat like a person, but the proportions are subtly wrong. The arms are too long. The chest is narrow and divided by ridges that do not correspond to human ribs. Its hands have four fingers, each jointed once more than my own. Its skin is gray and shines like oil on water. A clear secretion coats its naked body. It resembles a human crossed with a salamander, but there is no tail and no visible nostrils.
+
+“Wha... what is it?”
+
+The words crawl out of my mouth.
+
+I should back away. Instead, I move closer. Its wide mouth hangs open. There are no teeth, only a dark inner membrane that flexes faintly with each shallow breath.
+
+So it’s alive. Should that make me feel better?
+
+It does not.
+
+I crouch and reach toward the nearest leg.
+
+Don’t touch it.
+
+My fingers make contact. The skin is cold, soft, and slick enough that my fingertips slide before I can pull away. A translucent strand stretches from its leg to my hand. It narrows, glistening in the flashlight beam, but refuses to break. Something is secreting from the monster. It remains still.
+
+“Oh, fuck. What am I doing? Touching the fucking thing.”
+
+I wipe my hand on my yoga pants. The slime spreads into a thin film and clings between my fingers. If you have ever held a snail or slug, you know the kind of residue I mean. Except this has a faint metallic smell, and when the violet light touches it, tiny colors ripple through it.
+
+I scrub harder. Some comes off. Not all.
+
+“Yuck.”
+
+“Follow,” the Orb demands behind me.
+
+I jump so violently that my heel strikes the edge of the pool.
+
+“I will,” I snap. “What else am I going to do?”
+
+We continue. The path narrows between bushes. I shine the flashlight ahead, wondering how many more bodies lie outside the beam.
+
+Thirty-five percent.
+
+The battery is falling too quickly.
+
+I turn it off again and wait for my eyes to adjust. After a few moments, I continue down the path. A vine curls around my ankle. I jerk free. The nearby bushes tremble in a coordinated shiver. Their leaves close over one another, then slowly reopen after I move away.
+
+I reflexively reach for my phone again but think better of it. Ahead, another body lies across the path. This one is facedown, one arm trapped beneath it and the other extended toward the wall. In the dimness, it looks as though it collapsed while trying to crawl away.
+
+I don’t turn on the flashlight. I don’t want to see its face. I step over it quickly. For several paces, I feel certain that its long fingers are going to close around my ankle. They do not.
+
+The Orb leads me into a narrow corridor. One side is rough black stone. The other is thick glass. Beyond the glass is a chamber filled with floating oval cylinders.
+
+They resemble Japanese lanterns from a distance. Each contains a luminous core that moves independently of its shell. Pastel colors drift through them in slow pulses. Whenever two pass near one another, their light briefly synchronizes.
+
+Bodies lie scattered beneath them. One is curled on its side as though asleep. Another is slumped against a wall. A third hangs half across a low platform, its fingers almost touching the floor. The beauty of the lanterns makes the stillness worse.
+
+The Orb continues down the corridor.
+
+Glass doors open into a broad chamber of giant toadstools. Light radiates beneath their gills and through large spots on their caps. Stone benches stand among them. One especially tall mushroom supports a gray figure draped across its cap. Its arms hang on one side. Its feet hang on the other.
+
+It looks less like someone who went to sleep than someone whose body stopped receiving instructions.
+
+Are they all sleeping? Is there a sun here? Will it rise and wake them?
+
+These thoughts just add to my uneasiness.
+
+The Orb directs me toward a bench.
+
+“Sit. Stay.”
+
+“I’m not a dog.”
+
+I sit anyway. The Orb hovers nearby. A row of doors lines the far wall, each with a symbol above it. Most of the symbols glow red. One is green.
+
+After several minutes, I stand. The Orb does nothing. I approach the green door. Another motionless figure lies beside it. This one wears a wristband similar to mine, glowing red. Symbols burn across its surface.
+
+I look at the markings above the doors. Three doors away, one matches the band on the sleeping creature.
+
+“Is that your room?” I ask the unconscious being. “Is that your name above the door?”
+
+The question sounds absurd as soon as I say it. I walk the row anyway. None of the symbols become letters. Yet if I stare too long, some seem close to things I recognize: a profile of a face, a hand with too many fingers, a being inside a circle. The impressions vanish whenever I blink.
+
+None say my name.
+
+“That is probably a good thing.”
+
+The Orb watches without reprimanding me.
+
+I decide to test its limits. I enter the lantern room. The Orb follows. The chamber is brighter than the others, but the light is gentle. It does not stab at my eyes. The floating cylinders drift overhead without sound.
+
+I approach one. The closer I get, the calmer I feel. My heartbeat slows. The pressure behind my eyes retreats. Before I understand what I am doing, I place my palms on either side of the oval shell.
+
+The room disappears.
+
+A small childlike being runs through a forest.
+
+The forest.
+
+Wet heat fills my lungs. I feel four toes press into living soil. I hear layers of sound above and below the range of human hearing. Somewhere inside the child’s narrow chest, three quick pulses beat out of rhythm with one another.
+
+The child is laughing. It reaches into a bush and pulls free a plum-shaped fruit covered in moving hairs. It bites down.
+
+For one impossible instant, I taste color.
+
+Lavender is sweet. Green is sharp. A thin silver sensation passes through me that is neither flavor nor sound, but the certainty that I am loved.
+
+The child laughs again. The joy is so complete that it hurts.
+
+Then the lantern releases me. I stumble backward, crying without knowing why. The room returns around me. The floating light drifts exactly where it was before.
+
+“That was a child.”
+
+I approach another lantern, deep blue, and touch it. A teleporter opens inside my mind. An older being waits beside it, its body bent and wrinkled, its skin lighter than the others. The same child runs forward and embraces the elder.
+
+The contact floods through me.
+
+Relief. Recognition. A sense of belonging so vast that the human word love feels too small.
+
+The memory vanishes. I release the lantern, then seize it again. The same scene returns.
+
+“It’s like home videos,” I whisper.
+
+But it is not like a video. It is memory stripped of distance. Memory that does not care whose mind receives it.
+
+I look at the bodies scattered beneath the lights. I had been thinking of them as monsters because I did not understand their bodies. But the lanterns leave no room for that thought. These beings remember their childhoods. They wait for family members to return. They preserve moments of love and relief.
+
+And every one of them has fallen unconscious where they stood.
+
+The realization is more frightening than believing they were beasts.
+
+Something has silenced an entire community. And the machine guiding me behaves as though this is routine.
+
+I sit on a bench again and fan myself with my cap. Sweat runs down my neck. My headache has become a steady pulse once again. If something did this to everyone here, sitting still may be the worst thing I can do.
+
+I force myself upright. A second set of doors opens when I approach.
+
+The next chamber is nearly dark. I turn on my flashlight with my eyes closed, then open them gradually. The room is about fifteen feet square, with riveted metal walls and six enormous portholes. Between two of them, a ladder climbs upward until it disappears into darkness.
+
+I shine the beam along the rungs. The light reaches no end. The ladder continues beyond sight.
+
+I lower the flashlight. Through the nearest porthole is a submerged forest. Long stems drift in black water. Broad leaves pulse with faint violet light. Pale root systems hang downward from nothing I can see. The plants recoil from my flashlight.
+
+I stare through the glass. Sweat runs into my right eye. I wipe it. When my vision clears, a face is pressed against the other side of the porthole.
+
+I scream and stumble backward.
+
+The alien’s eyes are open. Its pupils are huge, black, and without reflection. For one awful second, I know it is looking at me. Then the body rotates in the water. Its arms drift loose.
+
+It is unconscious.
+
+At least, I hope it is.
+
+Thin plants curl around one leg and draw it slowly into the foliage. Their tendrils pass over the body with the delicacy of fingers searching a sleeping face. I shine the light deeper. Another body floats between the plants. Behind it is another. And farther back, beyond the reliable reach of the beam, pale shapes hang at different depths throughout the water.
+
+The flashlight catches one final face. Its eyes are closed. Its mouth opens. A stream of silver bubbles rises, but instead of floating upward, they drift sideways into the dark.
+
+I step away from the glass. The ladder waits behind me. I could climb it. The thought feels inserted rather than chosen.
+
+I grip the wall.
+
+“What am I thinking? I can barely stand.”
+
+My phone vibrates. Twenty percent.
+
+“Ahh, shit.”
+
+I shut off the flashlight. Darkness closes around me. For several seconds, the face beyond the glass remains visible in the afterimage burned into my sight.
+
+Then it opens its eyes.
+
+I cannot tell whether that happens in the room or only inside my head. I back out and return to the mushroom chamber.
+
+I sit on the stone bench and try to remember what the Orb said outside. Was someone coming for me? Is that what it said, or did it say it had alerted the authorities? My head hurts too badly to sort the words out. The humidity is making it difficult to breathe. Making it difficult to think.
+
+The Orb hovers ten feet away.
+
+“Is someone coming to rescue me?”
+
+“Yes. Extract they will. Stay for safety. Protocol.”
+
+A thunderous boom erupts somewhere beyond the forest chamber. The entire structure shudders. Dust drifts from the mushroom caps. Their glowing spots blink out one by one, then return.
+
+“What was that?”
+
+The Orb ignores me.
+
+I stand and walk toward the corridor. Another impact echoes through the building. The walls tremble as I step through the glass doors into the corridor. The doors shut behind me. I continue toward the forest.
+
+Halfway there, I hear the glass doors open behind me. The Orb follows.
+
+“Follow,” it commands.
+
+“You’re following me,” I respond.
+
+The sound comes again. Maybe the rescuers found me. Maybe they are trying to get in.
+
+When I step back into the forest, I stop for a moment and let my eyes adjust to the violet gloom. It isn’t nearly as dark as it seemed before. I can make out the path now, the trunks of the trees, even the tangled shapes of branches farther ahead.
+
+Good. At least I don’t need the flashlight.
+
+I leave my phone in my pocket and keep moving. I follow the path to the blue pool. By the time I reach the benches, nausea rolls through me. I sit and try to breathe.
+
+Another violent quake nearly throws me to the ground. This time the boom seems to come from behind the fountain. I force myself up and step over the first alien I found. From this side, a green light shines beneath its chest. The glow comes from a wristband on the arm pinned underneath its body.
+
+Green.
+
+Mine is red.
+
+I continue along the path. Behind the fountain, a cave tunnel opens through the wall. Purple apertures glow along its sides. Clusters of glowing fungus attached to the narrow walls cast a cold blue light.
+
+“Follow!” the Orb demands as it pursues me.
+
+I ignore it.
+
+The tunnel bends. At the end is a cavern lit by mushrooms. A green teleporter shimmers against the far wall. My heart jumps.
+
+“Oh, thank God.”
+
+A symbol flashes above it. I do not recognize the shape, but the portal is unmistakable. It moves with the same liquid shimmer as the one I entered that morning.
+
+I hurry forward and walk into it. My body strikes a hard surface. A sharp electrical vibration passes through my skin and throws me backward.
+
+“What the hell?”
+
+The portal continues to ripple. I press one palm against it. The surface hums, almost responsive, but it does not open around me. I look down at my red wristband.
+
+“Come on. Please.”
+
+The Orb speaks rapidly in its own language. It looks from my band to the green symbol above the portal.
+
+“I don’t understand you.”
+
+Its face flickers.
+
+“Follow.”
+
+The portal is active. It simply will not take me home. I stare at it a moment longer, then turn away.
+
+Another impact explodes from somewhere beyond it. The floor bucks. I am thrown onto my hands and knees. Whatever is causing the quakes is somewhere beyond that portal.
+
+I get up and follow the Orb back into the tunnel.
+
+Voices reach me before I enter the forest chamber. I freeze. The main doors are open.
+
+I duck behind broad glowing leaves and move through the undergrowth until I can see the entrance. Four humanoid figures stand in the smaller chamber beyond. They are unnaturally tall and thin, with long necks rising from narrow shoulders. Their pale skin is rough and patchy, marked by dark scars and deep pitting.
+
+Their faces are subtly asymmetrical. One eye sits lower than the other. Their mouths are tight seams above almost absent chins. Light armor is strapped close to their bodies. Belts, pouches, and unfamiliar devices cover their chests and hips. Each carries a short, bulky launcher.
+
+They are armed. Their weapons are already raised. Every part of me says to remain hidden.
+
+One speaks into a device near its mouth. The language is sharp and layered, similar to the Orb’s but harsher. All four step into the forest.
+
+The doors close.
+
+Then open again.
+
+A fifth figure enters. This one appears female. She is the same species, tall and spare, with a long neck and narrow, uneven features. Ridges cross her pale skin. Her mouth is almost lipless. She wears less armor and carries no visible launcher. Her movements are smoother than the others, nearly graceful.
+
+One of the armed beings speaks to her. She steps forward.
+
+“Andrea,” she calls. “Please come out if you are in here. We just want to help you.”
+
+Her voice is sweet. Melodious. Completely human. Her mouth barely moves. The words do not seem to come from her throat. They emerge from somewhere beneath her armor, perfect and breathless.
+
+A chill crawls down my back.
+
+That voice does not belong with that face.
+
+“Your teleporter merely malfunctioned,” she continues. “We are here to take you home.”
+
+The statement is too polished. Too complete.
+
+The Orb rises directly above the plants concealing me. Its face flashes green. It calls out in the other language. All four armed aliens turn at once. Their goggles lock onto my hiding place. They raise their launchers.
+
+The Orb has shown them exactly where I am.
+
+I crawl backward. Leaves brush my face. Vines slide across my shoulders.
+
+“Andrea,” the female calls in a singsong voice. “Come out, come out, wherever you are.”
+
+My stomach tightens.
+
+“These plants will eat you alive if you do not come forward. You are not doing well in this heat, are you? The humidity is far too high for your human body.”
+
+The voice remains gentle.
+
+“Step out, and we will take you somewhere air-conditioned. You will feel much better.”
+
+I move farther into the foliage.
+
+“Is delirium beginning to set in?” she asks. “You have been here for nearly an hour.”
+
+Nearly an hour? It feels as though I have been here for days.
+
+Something curls around my ankle. I look down. A vine has wrapped around my foot. I try to kick free without making noise. Another lashes around my other ankle. Both tighten.
+
+The plants yank me backward.
+
+I scream.
+
+Branches rake across my arms and face as I am dragged through the undergrowth. I grab at stems and leaves, but they break in my hands. Bright white fluid pours from the wounds. It glows beneath the violet light.
+
+The smell reaches me.
+
+Rot. Wet soil. Meat left in heat.
+
+My stomach convulses.
+
+Ahead, the base of one of the false pine trees opens into a dark cavity. The vines extend from inside. The opening resembles a mouth only in the way a sinkhole resembles a throat. It is not shaped for eating, yet every part of me understands that this is what it does.
+
+Something wet shifts inside.
+
+I claw at the flagstones. My fingers catch one edge. I grip it with one hand and fumble for my phone with the other. The vines pull harder. My shoulders burn.
+
+I yank out the phone and activate the flashlight. The beam strikes the vines. They recoil. The coils around my ankles loosen. Tendrils twist away from the light. I aim the beam into the cavity.
+
+The opening contracts.
+
+The forest around me shudders.
+
+Not the tree alone.
+
+The entire forest.
+
+For a brief, impossible moment, every luminous marking in the chamber closes at once.
+
+“Yes,” I gasp. “Come on.”
+
+The light weakens.
+
+“No.”
+
+For half a second, it brightens again, throwing the vines into sharp relief. Then the screen turns dark. The vines tighten immediately. They jerk me backward so hard that my fingers nearly tear loose from the stone.
+
+“No!”
+
+I hammer the power button.
+
+Nothing.
+
+A pair of armored boots lands on the next flagstone. I look up. One of the armed aliens stands over me. Up close, he is even taller, all long limbs and knobby joints. Scarred skin shows between the straps of his armor. Green light shines from his goggles.
+
+For one terrible moment, he watches. The vines pull harder. My fingers slip. The alien draws a blade from a sheath at his side. The metal is black until it moves. Then symbols flare along its edge in colors my eyes cannot hold.
+
+He swings.
+
+The vines part. Their severed ends writhe across the stones, pouring white fluid. From inside the tree comes a sound too low to hear and too deep not to feel.
+
+Relief barely reaches me before a sharp pain strikes my right shoulder. I gasp and release the stone. My hand finds something protruding from my skin. I pull it free.
+
+A tiny syringe dart lies in my palm.
+
+“What...?”
+
+My fingers stop obeying me. My hand falls. My face follows.
+
+The woman’s voice reaches me through the dark.
+
+“Oh, good. We got her.”
+
+She says something in the alien language. Then she makes a soft, crackling sound.
+
+It might be laughter.
+
+Or it might be the first honest sound she has made.
+
+I woke up on a park bench in Yosemite.
+
+For a while, I just sat there, trying to understand how I had gotten there. My clothes were filthy, my arms were scratched, and there were red marks around my ankles. My shoulder was still sore from the dart.
+
+Unfortunately, I was also a thousand miles from home. I had no realistic choice but to use the teleporter one more time. I don’t think I’ve ever been more afraid to step through anything in my life, but this time it worked. I came out two blocks from my house, exactly where I was supposed to.
+
+Afterward, I filed a report with TeleQwest and described what had happened. They never gave me much of an explanation. There was also a section asking how satisfied I was with my experience.
+
+I gave them the lowest rating possible and left a single comment:
+
+“I did not enjoy my trip through the teleporter.”
+
+I never used one again.
+
+Not once.

@@ -1,0 +1,49 @@
+I want to share one of the scariest things that has ever happened to me. I know how unbelievable this is going to sound, and if I had experienced it alone, I might have convinced myself that I had imagined the whole thing. But I wasn't alone. My friend was there, and he saw it too.
+
+I was around sixteen at the time. Every Wednesday, a few of my friends and I would get together to play soccer. It was something we did regularly, so those evenings never felt particularly special. We would play for a while, talk, joke around, and eventually make our way home. One of the friends who was with me that night will remain anonymous, so I'll call him Jacob.
+
+That day had been especially good. We had played soccer, had a couple of drinks, and enjoyed ourselves. Just to be clear, neither of us was drunk. We were completely aware of what was going on, and there was nothing unusual about the way we were feeling. When it got late, we got into the car and started driving home.
+
+We put some music on and carried on talking. The drive was normal, and I remember feeling tired in that comfortable way you feel after spending the afternoon playing sports. There was nothing that made me think the night would turn into something I would still be trying to explain years later.
+
+When we turned onto our street, we noticed a horse-drawn cart coming toward us. It wasn't something that immediately caught our attention as strange. I could see the person guiding it, the horses pulling it, and the cart itself. It all looked perfectly ordinary. I remember looking at it for a moment, then turning my attention back to the road.
+
+We soon reached my house and turned into the driveway. I needed to get out and open the gate so we could bring the car inside. Jacob was still nearby while I went to open it.
+
+That's when I looked back toward the street.
+
+There was a streetlight nearby, and it was the only light illuminating that particular stretch of road. Its light fell directly over the cart. At first, I didn't understand what I was seeing. The cart seemed to be getting darker, but not in the way something looks when it moves into a shadow. It was as if its actual shape and appearance were changing right in front of me.
+
+The darkness spread across it. Its outline began to distort, and the cart seemed to lose its original shape. Within moments, it no longer looked like a cart at all. It became a completely black mass, something that seemed to stretch upward and grow taller.
+
+I froze.
+
+I couldn't make sense of it, and I knew I had to get Jacob to look before whatever I was seeing disappeared. I turned toward him and said, "Dude, look at that. Do you see it?"
+
+He looked in the direction I was pointing.
+
+And then I knew I hadn't imagined it.
+
+The cart was gone. The horses were gone. The person who had been guiding them was gone too. In their place was something long, thin, and completely black. It almost looked like a tall, narrow pole standing beneath the streetlight, except it hadn't been there before. We had both just watched the cart turn into it.
+
+For a brief moment, we could only stare.
+
+Then the thing moved.
+
+It didn't walk away, and it didn't move like an animal or a person. It suddenly shot sideways, as if it had been thrown through the air, and disappeared behind the houses. The movement was so strange and unexpected that I barely had time to follow it with my eyes.
+
+And then there was nothing.
+
+No cart. No horses. No person. Just the street, the houses, and the same streetlight shining as if nothing had happened.
+
+I remember looking at Jacob, trying to understand whether he had seen exactly what I had seen. I didn't need to explain much. His reaction told me everything. He was just as confused as I was. We had both witnessed the same impossible transformation, and neither of us could come up with a reasonable explanation.
+
+Even now, I don't know what happened that night. I don't know whether the cart was somehow an illusion, whether we saw something that we couldn't understand, or what became of the person and the horses. I have gone over that moment in my head countless times, trying to find some detail that might make it all make sense.
+
+But I always come back to the same part: the cart was there, clearly visible beneath the streetlight, and then it changed into something completely black and flew away.
+
+I wish I could say I found an explanation. I wish I could say it was just a trick of the light.
+
+But Jacob saw it too.
+
+And to this day, neither of us knows what was standing beneath that streetlight.
