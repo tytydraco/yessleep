@@ -1,0 +1,53 @@
+*Anyone else from \\\[Redacted\\\] County remember what happened near the old rail trestle back in October? (Throwaway)*
+
+**Board:** /r/ParanormalEncounters
+
+**Posted by:** u/Throwaway\\\_PineRidge99 • *4 hours ago*
+
+I’m using a burner because three of us already had to give statements to the state troopers, and I’m not trying to get dragged back into that. If you live anywhere near the state line, you probably heard about the two drifters they found near the abandoned freight yard last fall—or rather, what was left of them. The local paper blamed wild dogs or a black bear. It wasn't a bear.
+
+There was a guy in my senior class. Let’s call him Cole.
+
+On paper, Cole was completely unremarkable. About six feet tall, decent athletic build, short black hair, always wore the same faded grey hoodie and scuffed boots. He didn't talk much, didn't really have friends, and sat in the back of study hall staring out the window.
+
+The thing is, nobody could stand to be in a room with him for too long. My buddy Marcus used to say it felt like standing next to a microwave with the door ripped off—just this heavy, static pressure in the back of your teeth. And his eyes were wrong. I don't know how else to explain it. They were dark, almost flat, and if the fluorescent lights hit him at the right angle, they’d catch a weird, dull shine like a stray cat's. Plus, he blinked way too slow.
+
+Around mid-October, stray dogs started vanishing from the south end of town. Then a couple of rail-hoppers who camped under the Route 11 overpass went missing. Around the same time, Marcus started noticing Cole walking out toward the woods behind the old lumber mill at like 11:00 PM on school nights.
+
+Being eighteen and stupid, Marcus, my friend Devin, and I decided Cole was either running a stash out there or doing some sick animal-cruelty stuff. We figured we’d follow him, catch him on video, and blow up his spot.
+
+We tailed him on a Friday night around midnight. He walked straight down the gravel access road toward the wooded hollow by the train tracks, moving way faster than someone just taking a walk. We kept about fifty yards back, staying in the tree line with our phone flashlights dimmed.
+
+About half a mile in, Cole stopped in a small clearing near the creek. A stray mutt—some skinny hound mix that had been hanging around the gas station for weeks—was rooting around near the bank.
+
+Devin pulled out his iPhone to start recording.
+
+The exact second Cole turned his head toward the dog, the air changed. My ears popped like we’d just dropped five hundred feet on a highway. Every single phone in our pockets—and the one in Devin's hand—went completely haywire. Devin’s screen tore into violent green and purple static, his flashlight strobed twice, and then all three of our phones went dead black. 100% battery to zero in half a second.
+
+Then we heard the sound. It sounded like someone snapping thick, wet tree branches inside a leather bag.
+
+In the moonlight, Cole’s posture just *collapsed* forward. His spine arched up, tearing straight through the back of his grey hoodie. His arms stretched out—way too long, joints popping backward—until massive, leathery wings unfurled and dragged across the dead leaves. He grew easily twice his size in three seconds.
+
+It looked like something straight out of a nightmare. A massive, hairless, dragon-like bat with thick, scarred shoulders and curved wing-claws digging into the dirt.
+
+When it turned its head toward the stray dog, the moonlight hit its face. Its bottom jaw wasn't solid. It split right down the middle into two separate, jagged halves that flared outward sideways like pincers, dripping thick saliva onto the grass.
+
+It made a low, vibrating clicking noise that rattled in my chest. Before the dog could even yelp, the thing lunged with blinding speed, clamped both halves of that split jaw around its torso, and dragged it into the brush with a sicking crunch.
+
+We didn't scream. We couldn't. We turned and ran blindly through the dark woods, tripping over roots until we hit the main road. None of our phones turned back on until we were two miles away.
+
+Cole didn't come to school on Monday. His family’s rental house was empty by Wednesday. I still check my phone battery every time I walk to my car at night, and if the screen ever flickers, I’m not looking behind me.
+
+Top Comment:
+
+Posted by: u/NightShift\_04 • 1 hour ago
+
+You got one detail wrong. My family didn't move out on Wednesday. I left by myself because staying in a town where three kids know what you look like in the dark is sloppy.
+
+For what it’s worth, I didn't want to hurt the mutt. I prefer things that wander in off the highways or ride the freight lines—people nobody files missing-person reports for, people the county is happy to sweep under the rug. It keeps the heat off, and it keeps me fed. When you live like this, you learn to stick to the margins.
+
+I knew you three were in the tree line before you even turned off the gravel road. Your heartbeats were louder than the creek, and your phones were practically screaming in my head.
+
+You’re lucky Devin’s iPhone shorted out when it did. The burst of static gave me a migraine, and by the time I swallowed, you were already halfway back to the asphalt. Running in the dark without lights was the smartest thing you ever did. If one of you had managed to get a clear picture of my face, I wouldn't have left town until I got that phone back.
+
+Keep your heads down, stay off the tracks after sundown, and stop wondering why your batteries die so fast in the winter

@@ -1,0 +1,23 @@
+If you live in the outskirts of any Mississippi's towns and hearing tapping on your windows, do not get up and investigate the sound of the tapping. You will never believe what your eyes had seen and it will be too late to leave now. Someone I had knew had lived to tell a tale and managed to remember details before they had relocated into a different state. They have given me the 10 rules on what not to do and survive the night.
+
+1)When night falls begins, make sure that your cats and dogs are indoors with you. No matter how hard they try to run back outdoors, keep them away from open doors and windows that leads outdoors once you bring them inside. If you have multiple pets, make sure all of them are indoors and count everyone once the doors and windows are locked.
+
+2)Keep all doors and windows that leads outside locked and curtains closed right afterward. Whatever out there won't come in when the home is on lockdown. It's best to keep the windows covered and locked. Even the windows on the doors need to be covered.
+
+3)Have your phone fully charged and close by you at all times. You will need the phone to call for help when something is tapping at your window. Make sure that you called the police once the tapping turns into banging. 
+
+4)If you hear the tapping on the window, do not move close to the window to see who or what was tapping on the window. If you noticed your pets started to react towards the window, grab them and relocate to a different place of the home that doesn't have a window but also have an escape route. Also, make sure that you have a weapon with you when something does break that window.
+
+5)If the tapping stops and you hear a familiar voice calling your name, do not respond back to what's out there. No matter how familiar that voice is towards you, don't respond at all. It will know that you're at home and will try to lure you out of your safe place. Do not shout *I have police on the phone* or *Leave me alone* towards it. Whatever it is out there will break that window and will grab you from your hiding place. Call the police and inform them that there's something outside of your home trying to break in.
+
+6)If they still tapping while calling your name, stay in your hiding place and call the police. Stay on the phone with the police and contact anyone you know by text to let them meet the police so you can escape from the home. Keep the police from hanging up so that way they can allow you to leave once they check the area.
+
+7)If the tapping turns into banging and calling into screaming, locked that door of the room fast and blocked the door with anything big and heavy to keep the thing breaking that door down. Keep all pets quiet and do not make any sounds at all. Make sure that your phone is still on the phone with the police and weapon close to you.
+
+8)If you heard the window breaks and footsteps echo in the home, whatever is outside is now in your home. Stay calm and quiet while it breaks everything in the home looking for you. Do not make a sound or try not to unblock the door to peak what's out there. If you that, it's already too late for you to escape from that hiding spot.
+
+9)If you hear police breaking down the door and gun fires, stay in that room until they speak with you over the phone to come out. Do not start unblocking the door until the officer say you can come out. The gun sounds have to match up to the sound on the phone because the officers will stay in contact with you. If you hear the gun sounds in the house but not over the phone, the thing is tricking you to leave the home so it can drag you into the darkness. 
+
+10)Once the officer say you can come out, take down the items on the door and unlock it. The officer will help you into your car or their car. They will also help you to transport your pets with you into the city. Anyone you had reached out should be with the police so they could help out get out of there safely. 
+
+If you follow all of these rules, you make it to tell your story. Most did not make it pass rule 4 and they were never seen again after that night. Some didn't make it to rule 8 and they were torn into parts along with their pets. If you do not follow all of the rules, it's already spotted you and you don't even know it.

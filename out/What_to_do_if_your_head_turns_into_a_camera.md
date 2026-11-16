@@ -1,0 +1,319 @@
+I’ve always hated horror movies.
+
+Since I was a snot-nosed 10 year old with a father apathetic enough to allow me full access to television, paving the way to a Chucky marathon responsible for many a sleepless night. Yep, not a totally unique story, but many people will say that because it’s true. Even a decade and a half later, I couldn’t bring myself to sit down and watch a scary movie (or walk through the babydoll aisle, but that’s besides the point).
+
+You'd think working at a dine-in movie theater might help me through exposure therapy or whatever. You’d be wrong! I get in and out of those showings as fast as possible, no matter how many shattered bones or horrified screams I hear. I’ve lived 25 years on planet earth free of the genres pleasure and nothing, absolutely nothing, will ever make me change-
+
+“Hey, we’re both off on Saturday, wanna go watch Evil Dead with me.”
+
+Fuck.
+
+That question had come from Jazz, my coworker who I’d been attempting to find the courage to ask out. Normally, I’d be frothing at the mouth and frantically nodding yes, yes, oh my god, yes. We’d started the theater job at the same time and kept a tight bond ever since we got fucked by Barbenhimer on our first week. Since then, we’d been trauma bonded. Spending countless hours talking movies, books, school, life, just about anything to distract us from our employment. I’d played out fantasies where I was brave enough to ask, and she was dumb enough to say yes. This was that fantasy made manifest with one tiny wrinkle.
+
+I’m still the massive bitch I was at 10 years old.
+
+That’s fine, I could just suggest another movie.
+
+“Hell, yeah. What’s showing?” Fuck…
+
+She giggled and gave my arm a soft punch, “the late one, duh! It’s not scary if it’s the middle of the day.” Fuuuuuck!
+
+The rational part of my brain told me that I could easily solve this situation. Jazz was a pretty understanding person, there’s a high chance if I told her I wouldn’t be laughed out of the server lounge. Yet as I stared at her, the flawless hair floating over her uniform like onyx silk, the way her silver piercing peeked behind her lips when she smiled, the way her dark eyes peeked from beneath perfect lashes…
+
+“Hey, don’t be late, loser,” I said, much to my own dismay.
+
+She basically bounced in glee before taking off to the door, she was meant to grab a seat on the other side of the building after all. That left just me and my coworker Josh who was quietly entering tips next to me. He looked up long enough to give a small comment, “about fucking time. Jesus, I was starting to wonder if you were gay or stupid or something.”
+
+I raised an eyebrow, “uhhh, what?”
+
+“You know I really hate getting scheduled the same day as y’all. Nothing ever gets done and I have to listen to what equates to verbal fornication. You don’t understand how many times I’ve had to bite my tongue to not say ‘just fuck already’.”
+
+“Yeah well,” I started, peeking down the hall to ensure she was gone, “I mean, look at her dude! You’ve seen her.”
+
+“Yeah,” he chuckled, “here and in only my happiest dreams.”
+
+“Okay, Josh, we’re really close to having a discussion regarding your attitude towards women.”
+
+He dropped his checks and looked at me with wide, crazy eyes, “Dude, I don’t even realize I’m doing it. I’m doing this report over the Alt Right Pipeline and I think the indoctrination is getting to me. But still, she’s totally into you. Go for that, man.”
+
+“I’d love to but you know how I am with horror. I couldn’t even watch Happy Death Day with you that one time.”
+
+He scoffed, “Oh yeah, forgot you were bitch made.”
+
+I was silent a few seconds before scratching the back of my head, “Yeah… that wasn’t really about women specifically, but the way you said ‘bitch’ felt like it was offending somebody.”
+
+“Ah damn, how’s this? *Bitch* made.”
+
+“Probably best to just stay away from the word ‘bitch’ till you’ve had time to workshop it.”
+
+“Goddman it, I have a Tinder date in like a week! What if I start thinking she’s not a true Eve or whatever?”
+
+“I’m sorry,” I said, “When did we stop discussing my problems?”
+
+He shrugged, “I mean Evil Dead is kinda old. Maybe you won’t get that spooked.”
+
+“It’s a rerelease of the 2013 remake.”
+
+He nodded, “Alright, yep, you’re fucked.”
+
+“Fuck!”
+
+“Look, we can salvage this. You just gotta desensitize yourself before tomorrow. Look, I shouldn’t tell you this since the boss said I’d get totally fired if I told anyone, but, this is for pussy-” I raised an eyebrow to which he played it off as a cough, “for true love so I’m sure he’d let it slide. After 10pm, theater 10 goes into this kinda weird jailbreak mode, you can put any data bricks we have in that projector and it’ll just ignore the schedule and play it. I got some old pretentious film student stuff in the attic, you watch enough of those in a dark theater completely alone and you’ll be ready for anything.”
+
+“Yeah… I don’t know if-”
+
+The next events happened so fast it gave me whiplash. Through a combination of well thought out argument and frantic pushing, I eventually found myself alone in a dark theater while the sound of scuttling echoed from the projector room. After a while, Josh’s voice called out from the booth, “I brought a few, didn’t know which would be best. Looks like we got… My Babysitter Invited the Devil Over? Too silly. Sorority Christmas Slaughter? That’s just Black Christmas. Forsaken? Boring name.”
+
+“Hey man,” I said, “maybe we can just reschedule with Jazz and-”
+
+“Ah, hell yeah,” Josh interrupted, “This one’s it Latin. Yoink.”
+
+The projector buzzed to life, white light reflecting off the screen and illuminating the previously pitch black theater. I shifted in my seat as the reality of the situation began to dawn on me. Decades worth of adaptation triggered within me, attempting to keep me safe from the digital predator. The sensation of that fading, leather recliner was what I imagined a gazelle felt at the edge of a murky watering hole. Josh spoke again, “Hey, ignore this next part. It always does this.”
+
+Ignore what?
+
+The white screen was split into *f*ractures of a dozen colored squares as the speakers of the aud*i*torium let out the horrific cry of mecha*n*ic*al* torment. M*y* body reacted like that gazelle when the drifting log suddenly lunged forward. However, I was caught in the jaws of dancing photons as the colors snapped into an image my mind could comprehend and that horrible scream was traded for the slightly distorted recording of wind on a sunny day.
+
+“What the fuck, Josh,” I yelled back toward the projector booth. I waited for him to laugh, berate, hell, I’d take a sexist remark. None of that happened and when I looked back, I saw the booth empty, “Goddamn it, Josh.”
+
+“Hey there,” I turned my head back to the screen as if the crunchy voice was a guest beckoning for my attention. This caused me to shift in my seat and I couldn’t even really tell you why. Something about the delivery just felt directed and present. The screen was devoid of the voice's owner. What the grainy window into this place could conjure was the distant wall of pine trees separated from my POV by the vast, choppy water of a volatile river. Something about the positioning told me we were atop a bridge of some kind as the water just seemed way too far down for this to be taken from the shoreline or a pier.
+
+Suddenly, the camera was jerked to the right by a thin, pale hand, the owner of which came into focus as the distant trees faded away, “Keep your eyes on me, okay?”
+
+“Okay,” I responded, not really sure why. The girl was… well… she was beautiful. Her pale skin glistened with speckles of water, standing in stark contrast with her vibrant red curles that whipped and blew in the breeze. From behind gold framed glasses she stared at me with emerald eyes. Around her neck rested a cheap disposable camera. She was smiling but it was off, it was a small, sad smile you’d see on a freshly painted corpse in a wake. The film grain danced around her in a way that made the quality strange, it was like the rest of the image was a lower quality than herself. She was white ink on a black page.
+
+Her gaze lifted, tilting her head back to stare out over the vast river. This let the sun illuminate her slender body which was covered in a dress the exact shade of her eyes, completely dry unlike the rest of her. Turns out I was right about the bridge. She was laid across the guard rail as cars roared past around them, her torso propped upright on her two slender arms.
+
+“Are you sure you’re ready,” the camera man said.
+
+She didn’t answer, choosing instead to hold a hand above her brow to shield her eyes from the sun, “think it’ll rain?”
+
+“It’s clear as day.”
+
+“No, I can smell it,” she said, looking back at me with that same smile, “are you ready?”
+
+“Yes,” I answered, heaving up the camera and pulling myself to my feet.
+
+The girl did the same, standing atop the steel railing, her wet feet leaving dark prints where she stood. Cars were honking as they passed now, their roars drowned out as the wind reached a crescendo. Her arm lifted, offering me to join her. I didn’t hesitate, taking her cold grip and climbing atop the railing. We stayed still for a moment, frozen in one another’s hands as the wind made whips of our hair and loose clothing. Then, we danced.
+
+She advanced towards me, my foot retreating my body into a rise before my weight shifted and put her on the defensive. From there, we spun, switching sides on the sun-kissed steel that began to burn our now dry feet. Screams replaced the horns and still we danced. The world became a spinning grainy blue as our eyes stayed locked in an embrace as loving as our arms. Suddenly, our interlocked fingers tightened and pulled one another into an intimate position, my face inches from her’s. She let out a small breath. I felt a strand of loose hair flick behind my ear.
+
+The camera's focus was still on her face, the blurry forest in the distance abuzz with film artifacts craving one fraction of the attention I granted her. A beat passed. A raindrop hit the lens. She laughed. Then leaned back.
+
+The distant forest gave way to the quickly approaching water that crashed like a vicious army against the cement pillars of the bridge. Her hair flowed around the camera as wind caught its curled edges. Those long strands were forced taut at the edges of the lense till all that was visible was her smiling face bordered in red.
+
+I closed my eyes.
+
+*Crack.*
+
+The wind on the grainy speakers was replaced by the muffled rattle of sound underwater. Beneath that, my own panicked breathing. What the fuck? What the fuck?! My body was soaked in cold sweat. My teeth pressed together with enough pressure to shatter. My hands remained held outstretched, still attempting to grip her slender fingers between my own?
+
+No, what? What the fuck? My mind felt split, like I was coming back to reality after a nightmare. The muted logic of dreams and the harsh law of reality fought for power over my reeling mind that only knew one thing. I didn’t want to look.
+
+“Keep your eyes on me, okay?”
+
+I felt cold fingers gently grip my chin.
+
+A scream escaped my lips as my eyes snapped open, no one was there. No one but the broken body of a red haired girl left floating in crimson dyed water. I had just enough time to register the unnatural way her back bent when the mechanical scream sounded again and I was face to face with fractured colors.
+
+I didn’t move from that dark theater for a long while. When I finally did, it was due to Josh throwing the door open, “The fuck, it’s already over? That’s gay. What’d I miss?”
+
+\*\*\*
+
+Didn’t find myself sleeping easily that night. Tell you the truth, I didn’t see myself sleeping any day in the near future. Not when every time I closed my eyes I saw that damn smile staring back at me. I sat alone in my room devoid of light, the only evidence I sat on solid ground was the glow from my socket light down the hall. My eyes stayed glued to the ceiling which bathed in shade. Within that, my tired eyes could almost see something that looked like film grain.
+
+My phone buzzed on the night stand piercing the darkness above me and catching my attention. I looked to the right to see Jazz’s beautiful face at the edge of an Instagram message. Found myself sitting up before I’d even realized I’d moved, my thumbs rapidly tapping on the bright screen.
+
+“You up,”
+
+I think I’d had fantasies that started with this exact text. It cleared my head entirely of any red haired girls throwing themselves to their death. Instead, I quickly went through the various dialogue options I could go with to successfully get her to like me, eventually settling on, “I am now.”
+
+“Oh, sorry,” she wrote, “I’ll leave you alone.”
+
+Damn it, too nonchalant, “nah, it’s fine. What’s up?”
+
+She sent a laughing emoji I couldn’t make sense of before her typing bubble appeared. I watched it anxiously, waiting for the ding of my phone. Only, that’s not the sound I heard first. Somewhere, I heard a strange rattle. My head jerked up to look down the hall. My eyes were no longer adjusted to the dark. A sea of pitch surrounded the small island of dim digital glow my phone gave off. I called out to my cats and heard skittering before my phone finally gave a ding.
+
+My eyes dropped down to the new message, “I realized I kinda just forced Evil Dead on you. Is there something else you’d wanna watch?”
+
+*Finally, I’m free.* “Nah, Evil Dead’s cool,” what the fuck! “It’s my first time seeing it and you seemed really excited so I’m more than happy watching it with you,”
+
+Her bubble appeared again, but I found myself wanting to say more. I wrote my message before her, “Is horror your favorite genre?”
+
+Her bubble disappeared for a moment, I rocked on my mattress waiting for it to reappear as my teeth filed down my nail. Then it happened again, the strange rattle. Too small a noise to tell where, but loud enough to tell it wasn’t far. I sighed and peered into the dark again, “The fuck are y’all fucking with?”
+
+No answer. Till my phone dinged again, “I just feel like it has the most to say, you know? Like, horror is the most versatile genre. You can tell so many stories under the pretext of making someone afraid. It’s something primal inside of us. An emotion we carried back when we were cave men. In a way, all of human existence has been a kind of horror movie.”
+
+I smiled at her message. It was weird, I’ll give you that. But she was weird. That’s why I liked her so much. The fact she was drop dead gorgeous was just a bonus.
+
+The rattle sounded off once more. I groaned, “What the fuck-”
+
+I stopped. Something wasn’t right. I hadn’t noticed it earlier but the detail was now horrifyingly clear. Around me was nothing but black, inky darkness. Why couldn’t I see the hallway’s socketlight anymore?
+
+My breath hitched as I realized the answer. My hands shook as they struggled with what came next. What would have to happen the moment they acted on this realization and laid the situation bare. The phone dinged. I didn’t look. I turned the phone toward the door and watched as the light illuminated bare pale legs and the hem of an emerald dress.
+
+Snap.
+
+There was a flash, blinding me for a moment as my phone fell to the mattress with a soft thud. My breathing grew to violent, primal gasps as I backed against the bed’s headboard. At least, I tried to. My left side pushed back, but my right remained in place. No matter how hard I pushed against the mattress, I couldn’t move. Wait, that wasn’t right. Why couldn’t I feel the mattress? I looked down at my…
+
+My right arm was gone.
+
+Rattling filled the air as she spun the thumb wheel of her disposable camera. My heart was in my throat and terror raced through me. It wanted me to freeze, to rationalize this cosmic impossibility. I ignored that notion, jumping to my feet and running for the bathroom door-
+
+Snap.
+
+I fell as I tried to plant my missing leg into the hardwood floor of my home. Instead, what met the ground was my chin. The taste of metal filled my mouth. Screams for help escaped my lips until they were cut off my a blinding
+
+Snap.
+
+The taste was gone. I couldn’t breathe.
+
+A hand gripped my chin, “you’ll be my star…”
+
+When I woke I gasped for breath sending my cats scattering off the bed and into the dark corners of my room. One obscuring the hallway socket light for a moment before its form fell away and I saw the comforting glow once more.
+
+The phone was open in my hand, “Guess you fell back asleep, see you tomorrow!”
+
+\*\*\*
+
+I didn’t want to go. When I looked at my reflection in the mirror it was that of a corpse dressed in my Sunday best. I wore my sleepless night under my eyes and my stress on my shaking hands. I was in no condition to go anywhere, let alone a fucking date. She didn’t sign up to see a movie with a fucking zombie.
+
+*You fucking pussy. You really gonna give up your one chance with this girl over a shitty fucking student film?*
+
+My brow lowered and I nodded. What was I thinking? This was the right call. I’d just splash my face and give my award winning smile. My hands cupped cool water which met my back with a powerful crack, the sound rattled through by broken bones like a symphony of agony and strength. What little of my breath I still held left my lips and turned to rapidly fleeing bubbles. My eyes grew blurry, staring up at the mirror where I saw the maniac staring back. A wide, forced smile painted on a face contorted by fear.
+
+*That’ll have to do.*
+
+I turned to leave, but stopped, I noticed something I hadn’t before. My head dipped closer to the mirror while my hands searched like a monkey looking for bugs. Sure enough, they found their bounty. A small patch of curly, red hair.
+
+*I’m going to be late.*
+
+Before I knew it, I was in my car, speeding through college town traffic to meet her in the theater. It was my plan to be a bit late, but not by much. Just enough so that she wouldn’t see how horrible I looked in the brightly lit lobby. I swerved as a lifted truck drew a bit too close to my car, cursing under my breath as I did so. Driving in this town was always a pain, but now even more so. My eyes were just so blurry.
+
+*Fucking sleepless nights.*
+
+My jaw clenched in a rhythmic fashion as my teeth went to work on my cheek. Once again metal’s taste was on my tongue as my body floated gently to the bottom of the lake. What little strength remained within me fell away as my mouth opened and released a torrent of red into the murky water that would be my final resting place. He didn’t see what it meant to me, how much I’d give up to see it come to fruition. But he would see. Him and the rest of this rotten world would look up and burn like popping film. I watched the red’s gentle rise until the old woman finally pulled out of her spot allowing me to park and take one more glance in the mirror. I must have done something horrible to my inner cheek because my jaw was poking out in an unnatural way.
+
+Getting in was easy enough. It was well past the time normal people would be arriving so the lobby was devoid of anyone, save for a tired box office attendant watching YouTube on his phone. I pushed open the glass door and gave him a quick nod. He immediately jumped into his prerendered greeting he offered to every customer, “Welcome to ADP Entertainment, what we watching… Holy shit, Alex, you okay dude?”
+
+I smiled, a warm bit of drool running down the edge of my lip, “yeah, I’m good dude, how’s it been?”
+
+My coworker didn’t say anything, his face seemed worried and calculating as they darted up and down my body. I rolled my eyes, “Dude, I’m fine, really.”
+
+“Alex?”
+
+*She’s not in the fucking theater.*
+
+“Jazz,” I asked, turning to see her in all her glory. She was beautiful. Her dark hair glistened in the golden light of the lobby, falling low to disappear into her dark dress that accented her curves. Everything looked just how I imagined it, save for that horrible, piteous expression.
+
+“Hey, sorry, I didn’t mean to run late. You shouldn’t have waited out for me, I know how you love the previews.”
+
+Her hand went to my face, her soft fingers were warm as they dragged across my flesh, “Alex, you’re bleeding.”
+
+When her hand pulled away, I could see her olive color stained with a crimson streak.
+
+*Get to the theater.*
+
+“Why don’t we head to the theater,” I said, placing my hand on the small of her back, attempting to walk her to the halls of the auditoriums. We didn’t get a single step before she planted her foot and pulled away.
+
+When I turned I could see it. She was scared, “have you looked at your phone at all today, dude? Josh has been blowing it up!”
+
+“I must have forgot to charge it. Here, we can talk about this after the movie.”
+
+“Alex, he told me what happened.”
+
+“He fucking what?”
+
+“Josh has been trying to make sure you’re okay because he looked into that film and… look it was real, okay? Obviously you must h*e’s*ave h*l*a*ughing*d your*ight* own suspicion*ow*s… You look r*uined*ough *my one chance with her. He’s in theater 3 right now…*
+
+I pushed past Jazz and stomped my way down the hall. That motherfucker. That piece of shit mother fucker thinks he can fuck with me like this. We’ll see. We’ll see what he thinks of me when he sees my name in lights. When the whole world is watching. I turned the corner just in time to see Josh stepping out of theater 3. His eyes lit up when he saw me.
+
+*Go past him. Into the theater.*
+
+What? Why would I want to do that? He was right here. His stupid fucking dark eyes lighting up with pity as he looked over the state of me. How dare he fucking feign that he cares. I acted without even thinking. My forearm met his throat as we slammed against the ground. Screams echoed from behind me as I tried to force him down. Down deeper into the lake. Deep down into the dark squares of film that bubbled up from the reel.
+
+“I didn’t know,” he gagged out. “I didn’t know it was real. I don’t even know how it made it into our fucking storage. I’m so sorry, man. I’m so sorry-”
+
+“Why’d you leave,” I yelled in his face as Jazz’s hands collided with my back.
+
+“I was getting popcorn! I planned to watch it with you!”
+
+“You know how much film matters to me! I can’t give that up, not even for you! Why couldn’t you stay? Why couldn’t you just understand how much this means to me!”
+
+His brow furrowed, “What?”
+
+*Go to the theater, Alex.*
+
+My vision split, a thin black line bisecting my perspective as I felt something in my jaw turn and crack. Josh’s eyes grew wide, “What the fuck.”
+
+Something’s wrong. Something’s wrong, something’s wrong. I stood and ran to the bathroom as the voices of my friends followed behind me. I paid them no heed as my feet sent splashes across the vast surface of the hall. Wind whipping my hair to encompass the camera until my back collided with the wooden door, forcing it open with a resounding crack that echoed through my bones. I saw myself in the mirror.
+
+Something’s wrong*o to the theater, Alex.*
+
+I leaned closer to ensure I wasn’t insane, my midsection folding against the sink.
+
+I wasn’t insane.
+
+The most obvious thing was my jaw, the left side of which was stretched and crooked like a small child hiding beneath a blanket. When my gasp came, whatever hid beneath my skin spun and opened a tiny gash at my jaw line. That wasn’t all, the thing it was pulling *reeling* moved over my vision. I leaned closer as my fearful gasps left my throat. A line of red hair was pulled from beneath my top eyelid, across my iris, and back beneath the bottom eyelid. I could feel it. The slimy strand that slithered under my skull and between my teeth before vanishing within my jaw
+
+*This can wait till after the movie.*
+
+Why would I think that? Why? Who is that?
+
+*Who else, I ask as I push a loose strand of red hair behind my ear.*
+
+The door burst open suddenly. I turned to see Josh running in, his eyes wide and his voice dying on his tongue. I stumbled toward him. The reel spun and a splash echoed off the walls as blood fell to the floor, “Help me,” I begged in the way a kid would beg his father to turn off the scary doll movie.
+
+*Lights*
+
+“Oh, Christ,” Josh exclaimed, “What the fuck, what the fuck.”
+
+“Help me, I’m scared,” the reel spun again, I felt half my face hang loose.
+
+*Camera.*
+
+From behind Josh, I saw her. Jazz, in all her beauty, “Someone please fucking help me.”
+
+*Action.*
+
+My eye projected a bright light and my friends burned away like film on a projector.
+
+\*\*\*
+
+I knew I was late, and knew I’d have to hear about it later. However, when I stepped into the theater, I was happy to see that it was completely empty, save for the girl on the front row. Looked like the film hadn’t started just yet either, good.
+
+The girl lifted her hand, motioning me over. I sat at her side and straightened myself, “looks like I got here just in time.”
+
+She tilted her head, her green eyes never leaving the screen, “you’re late actually. This was a double feature. You missed the first one.”
+
+“How was it?”
+
+“Eh, kinda bad. The beginning drug on, the middle was super rushed and the pacing was all over the place. But man, that ending. It was like really experimental but kinda cool in a way. I don’t know, maybe tomorrow I’ll find it a bit gimmicky. But either way, it was awesome.”
+
+I nodded, watching my shoes as silence hung over the dark theater. Questions bobbed in my head like boats on a lake, I managed to grab one, “What is this place?”
+
+“Somewhere stories flow from. We’ll be in neon lights, in printed words, in so many backward minds. Don’t get too used to stardom. We’ll watch just as many movies as we make.”
+
+“Who are you?”
+
+She shrugged, “just a girl filming her life away. There’s a million of us out there. I’m not special.”
+
+“A million girls aren’t killing themselves on camera for some fucked up spell.”
+
+“Aren’t they,” she asked, “what I did with the tape was the easy part. Creation in general is inherently self damaging and ritualistic. You’re reaching into nothingness and pulling out something that changes people. Think about that next time you find a weep at the back of your throat after a tearful performance a girl worked her whole life to perfect.”
+
+I shook my head, “so that’s what this is all about? Some shitty parallel?”
+
+“No,” she answered plainly, “I just want people to watch my movie. I’d have preferred you pop your head in a full theater, but this works well enough. Those theaters will empty out eventually, and when they do those extra large Cokes will lead them straight to a man projecting divine light right at the doorway.”
+
+“But why,” I asked, “Why not just make the movie you want to make? Why do all this when you can just make your movie?”
+
+“Don’t you get it? Showbiz isn’t about the movie anymore. It’s the advertisement. The phenomenon. The eyes on the screen. That’s what gets your name in lights. I tried it the other way. Made a perfect little movie that no one saw. No one wants to be a film maker. Everyone wants to be a star. You don’t understand how much I’d burn of myself to just get people to look at what I made. And what better genre than horror, it just jumps out at you, gets in your face with its cheap, loud, attention craving visage.”
+
+I shook my head, half forgotten words slither at the edge of my brain, “I don’t know… I kinda think horror is the most versatile genre. Fear’s probably the oldest human emotion. In a way, our history is one of horror.”
+
+Finally, her eyes left the screen and fell upon me. She smiled. A real, heartwarming smile, “I like that. I’ll have to remember that.”
+
+I heard the doors open, thundering boots sounding off as the others entered the auditorium. My eyes turned back to see Jazz and Josh leading the pack, “when’s it end.”
+
+“The credits.”
