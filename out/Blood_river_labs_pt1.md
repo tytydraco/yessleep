@@ -1,0 +1,701 @@
+Cw blood and gore, human and animal experimentation. 
+
+# Chapter 1
+
+Hello, I guess.
+
+I'm not really sure how to start something like this. Amy says writing might help with my PTSD, or whatever the hell we're calling it. I've never been much of a writer, and I've never been one to put much stock in that sort of thing. But after everything I've been through, I'm willing to try just about anything to get my head straight.
+
+Lord knows I need it.
+
+I'm supposed to testify before Congress in a few weeks. Don't worry, we'll get to that. I'm sure you're wondering how a guy like me ended up in a position where Congress wants to hear what he has to say. The short answer is that I found something I wasn't supposed to find.
+
+The long answer is going to take a while.
+
+I suppose the best place to start is with my job.
+
+Or, more accurately, my old job.
+
+I worked at a pharmaceutical research facility called Red River Lab. I was in the necropsy department, which is a fancy way of saying I performed animal autopsies. At the conclusion of a study, after the animals had received whatever compound the researchers were testing, we'd euthanize them and collect the samples required by the study protocol.
+
+Hearts, kidneys, lungs, livers, glands, brains, eyes. Depending on the study, we might collect just one tissue or practically everything inside the animal. By the time we were finished, there wasn't much left to put back together.
+
+It wasn't a job for everyone, but I was good at it. I understood the procedures, knew my way around the equipment, and had been doing it long enough that most of the work came naturally.
+
+I'm explaining this because the technical details matter. When I describe what happened later, I want you to understand what I was looking at and why I knew it was wrong. I don't want to skip over the procedures and leave you wondering what I mean.
+
+Fair warning, though: some of this is going to get pretty graphic.
+
+Red River Lab got its name from the river running along the back of the property. Most of the year, it's a beautiful place. The public can access it during the summer, and people go tubing, canoeing, fishing, and whatever else people do when they have enough free time to float around in water.
+
+The lab itself is fenced off, naturally. That doesn't stop the occasional idiot from trying to climb the fence to get to the river, but that's a different story.
+
+The interesting thing about the river is that it has a reputation.
+
+Around here, people call it the Blood River.
+
+According to local legend, when the season ends and the river closes to the public, the water turns a deep, unnatural red. Some people claim it gets thick, almost slimy, and that the smell is enough to make you sick. Others say they've found bones along the banks.
+
+I've heard the stories from enough different people that I can't dismiss them all as one big joke. Still, I never saw any of it myself. And whenever I asked someone who claimed to have found bones whether they'd kept them or reported them, the answer was always no.
+
+Convenient, isn't it?
+
+I figured it was just one of those local legends that grows a little every time somebody tells it. There are plenty of those around here.
+
+Besides, I had more important things to worry about.
+
+I'd been working at Red River for about three years when things started getting strange. For the first couple of years, it was just a job. I went to work, did my studies, collected my paycheck, and went home to take care of my horses.
+
+Then, about a year before everything fell apart, I started noticing things that didn't sit right.
+
+It began on a Monday morning.
+
+Nothing particularly unusual was happening. I was working through my usual routine when morning break rolled around. There were a handful of us who generally spent our breaks and lunches together, and I figured I'd go see whether Ray was coming along.
+
+Ray was a good dude. He was old enough to be my dad, but you wouldn't have known it from the way he acted. Most of his friends at work were younger, and he fit in with us just fine. He was the sort of guy who could give you grief for being an idiot one minute and help you out of a jam the next.
+
+Then there was Ally, a blonde girl who was a little younger than me. She'd only recently finished high school, but she had a good head on her shoulders and was more capable than people sometimes gave her credit for.
+
+Kay was our resident rave girl. She had long, slightly curly hair split into two colors, black on one side and blonde on the other. Think Cruella de Vil, only longer and slightly curly. Despite looking like she'd wandered out of a music festival and into a pharmaceutical lab by mistake, she was a nice person. In fact, even though she and I were about as different as two people could be; I probably enjoyed hanging out with her more than anyone else at work.
+
+And then there was Amy.
+
+Amy was my best friend, and as far as personality went, she was basically the female version of me. We'd known each other for about eight years before either of us started working at Red River. To this day, I couldn't tell you why she decided to work there. I still wondered about it even after we'd been coworkers for a while.
+
+Some people just make questionable life choices, I suppose.
+
+I found Ray at his desk, typing an email.
+
+"Hey, Ray. You coming to break with the rest of us?"
+
+He didn't look up immediately.
+
+"Sorry, dude. Can't. I've got a meeting with JJ in five minutes."
+
+That caught my attention.
+
+"What for?"
+
+Ray stopped typing and leaned back in his chair.
+
+"I haven't heard from Jess in almost three weeks, dude."
+
+Jess was his sister. She worked at the same facility, and she was supposed to transfer to a department in another building after returning from vacation.
+
+She'd been excited about the transfer for months. It was a significant promotion, a substantial raise, and a chance to spend more time with her family. JJ had announced it at a department meeting, calling Jess up in front of everyone to tell her that he'd finally arranged everything.
+
+She'd cried when she heard the news.
+
+We'd all been happy for her.
+
+"And you think JJ knows something?" I asked.
+
+"I don't know. He's the last person who saw her before she left. She called me that same day and said JJ had met with her after our shift. Apparently, he'd told her the transfer was finalized and that he'd gotten her a massive raise."
+
+Ray rubbed a hand across his face.
+
+"She left the next day. I haven't heard from her since."
+
+"When was she supposed to be back?"
+
+"She was only supposed to be gone a week. And she always posts pictures when she goes somewhere. Always. My family hasn't heard a damn thing from her."
+
+"That's weird."
+
+"Yeah. No shit."
+
+He looked toward the supervisor's offices.
+
+"JJ told me this morning that he'd talked to the police where she was staying. Said he had an update for me. I'm going to find out what the hell is going on."
+
+I didn't like the sound of that.
+
+"Just be careful, bro."
+
+Ray gave me a look.
+
+"Come on, Colt. I know you don't like JJ, but he's the only lead I've got."
+
+"He isn't a lead. He's your supervisor and he claims to have information he should probably have given you before now."
+
+"Well, I'm going to hear what he has to say."
+
+There wasn't much I could do about it, so I just nodded.
+
+"Well I hope he's got good news for you. Kay was asking about Jess, by the way. I'll tell her what you told me."
+
+"Thanks, buddy. I gotta go."
+
+"All right. Tell that asshole I said hi."
+
+Ray laughed as he stood up.
+
+"I think I'll leave that part out."
+
+He walked away, still chuckling.
+
+I watched him go.
+
+I'd never trusted JJ. There was something about the man that always put me on edge. Maybe it was the way he talked to people, or the way he could make a perfectly ordinary conversation feel like a negotiation. He was the sort of person who could tell you something that sounded reasonable until you stopped and thought about it for five minutes.
+
+Then you'd realize he hadn't actually answered your question.
+
+I figured he was a bullshitter. A manipulative bastard who'd gotten where he was by being good at office politics.
+
+I had no idea just how badly I'd underestimated him.
+
+# Chapter 2
+
+Nothing particularly interesting happened during morning break. Kay spent most of it telling us about a concert she'd attended over the weekend and how high she'd gotten.
+
+I won't repeat the details. Suffice it to say, Kay had a way of describing things that made you question whether the human brain was really designed to handle that much information at once.
+
+By lunchtime, Ray had finished his meeting and joined us.
+
+The girls were discussing a trip they wanted to take together. I wasn't paying much attention. I waited until there was a lull in the conversation, then turned toward Ray.
+
+"So, what did JJ have to say this morning?"
+
+Ray looked at me.
+
+"What do you mean, Colt?"
+
+"Your meeting. You said he had information about Jess. Something about talking to the local police?"
+
+"Jess is on vacation, Colt."
+
+I blinked.
+
+"Right. But she was only supposed to be gone for a week, remember? You said—"
+
+"Jess is on vacation, Colt."
+
+He said it in exactly the same tone as before.
+
+Not annoyed. Not defensive. Just matter-of-fact, as though he were explaining something obvious to a very stupid child 
+
+I stared at him.
+
+"Okay. Do you know when she's coming back? Or why she hasn't contacted anybody?"
+
+The conversation around the table gradually died away. Kay stopped talking. Ally looked between us. Amy, who had been halfway through a bite of her lunch, lowered her fork.
+
+Ray folded his hands on the table.
+
+"Jess is on vacation, Colt. There is no need for alarm or panic. I am going to join her tomorrow."
+
+For a second, I thought he was joking.
+
+"Oh. Okay. That's kind of last-minute, isn't it? Did JJ approve that? Where are you meeting her?"
+
+"I am going on vacation with Jess. She extended hers so we could meet up."
+
+I glanced at the others. Nobody looked any less confused than I was.
+
+"Right. And where are you guys meeting? Is your brother coming along?"
+
+Ray frowned.
+
+"I don't know what you mean, Colt. I haven't heard from my brother for a few years."
+
+Then he stood up.
+
+"I'll see you later, man."
+
+He walked away without looking at anyone else.
+
+We watched him cross the cafeteria and disappear through the doors leading back to the lab.
+
+For a few seconds, nobody said anything.
+
+Then I turned to the others.
+
+"What the fuck was that?"
+
+Amy set her fork down.
+
+"Okay, so I'm not the only one who thought that was weird."
+
+"No," Kay said slowly. "You're definitely not."
+
+Ally was still staring at the doors.
+
+"Did he seriously just tell us he hasn't heard from his brother in years?"
+
+"Apparently."
+
+"But he was talking about his brother last week," Amy said. "I remember because he was complaining about him wanting to borrow money."
+
+I nodded.
+
+"And I don't think Jess is still on vacation. She was supposed to be back weeks ago."
+
+Kay looked at me.
+
+"Something's wrong with him."
+
+"Yeah," I said. "I'm starting to think so."
+
+I didn't know what had happened in JJ's office that morning. I didn't know whether Ray had been threatened, drugged, or simply told something that had broken his ability to think straight.
+
+I only knew that the man I'd spoken to that morning was not behaving like the man I'd known for years.
+
+And the worst part was that he seemed completely unaware of it.
+
+I kept an eye on Ray for the rest of the day. He went about his work as usual, spoke to people when necessary, and appeared to have no trouble following the procedures he'd performed hundreds of times before.
+
+But he didn't joke with anyone. He didn't come by my desk. When Kay asked him whether he wanted to join us for coffee, he told her he was busy.
+
+It was as though he'd quietly withdrawn from the group without realizing it.
+
+I didn't get a chance to speak with him again before the weekend.
+
+The following Monday, I was working on a dog study when John came over.
+
+John was one of my favorite people at the facility that wasn't in our normal group. He was a former Green Beret, the kind of guy who'd done things most of us would only ever see in movies. He was professional, capable, and generally pretty levelheaded.
+
+He was also outspoken about things he thought were bullshit.
+
+That was probably why we got along.
+
+We shared an interest in firearms, a similar outlook on life, and a mutual dislike of JJ.
+
+"Hey, Colt. How you doing?"
+
+"Not too bad, brother. How about you?"
+
+"Could be better, to be honest. You heard anything about Jess?"
+
+I set down the scalpel I was holding.
+
+"What about her?"
+
+"I heard a rumor that Ray left last week to try and find her."
+
+"That's... partially true."
+
+John raised an eyebrow.
+
+"What does that mean?"
+
+I explained what had happened at lunch, including Ray's strange behavior and his sudden insistence that he was going on vacation with Jess.
+
+John listened without interrupting.
+
+When I finished, he shook his head.
+
+"That's not good."
+
+"No shit."
+
+"I was talking to Hugo over in A Building,  where Jess was supposed to transfer."
+
+"And?"
+
+"According to Hugo, the transfer was never arranged. There's no paperwork, no pending position, nothing in the system. As far as that department is concerned, Jess stopped working for Red River the day she left for vacation."
+
+I stared at him.
+
+"You're kidding."
+
+"Nope."
+
+"JJ told our entire department that he'd spent months arranging that transfer. He called Jess up in front of everyone and announced it himself."
+
+"I know. I was there."
+
+"So what did JJ say when you asked him about it?"
+
+"I haven't asked him yet. I wanted to talk to you first."
+
+"Why me?"
+
+"Because Kay told me Jess had been acting strange before she left. Said she seemed off, but she couldn't put her finger on why."
+
+I felt the familiar knot forming in my stomach.
+
+"So let me get this straight. Jess disappears, the transfer she was promised doesn't exist, and Ray starts acting like he's forgotten his own family immediately after meeting with JJ."
+
+"That's about the size of it."
+
+John crossed his arms.
+
+"I'm going to talk to JJ later."
+
+"Be careful, man."
+
+He gave me a look.
+
+"What?"
+
+"I'm serious. Ray's acting like a completely different person. Whatever JJ told him, I don't think it helped. We need to figure out what's going on before we start making accusations."
+
+John considered that for a moment.
+
+"All right. I'll let you know what he says."
+
+"Good."
+
+I took a breath and glanced back toward the holding rooms.
+
+"And there's something else I wanted to tell you about Ray when—"
+
+A howl tore through the hallway.
+
+It was loud enough that both of us turned toward the holding room at the same time.
+
+We ran.
+
+Inside, a dog was lying on the procedure table, screaming. One technician was trying to hold the animal still while another stood beside it with a syringe in his hand.
+
+The kid holding the syringe looked like he was about to pass out.
+
+"What the hell is going on in here?" John demanded.
+
+"I blew the vein," the technician stammered. "I thought I was in, but he pulled back, and then—"
+
+"Stop talking. Give me that."
+
+John took the syringe from him.
+
+"Colt, swap him out."
+
+I didn't say a word. I moved between them, pushed the younger tech aside, and placed my arm across the dog's shoulder to help keep him down. Then I took hold of the front leg and applied pressure to the vein while John prepared to administer the sedative correctly.
+
+The entire thing lasted only a few seconds.
+
+It felt like an hour.
+
+The dog kept howling. Each cry was louder and more desperate than the last, and I could feel the animal straining against my arm.
+
+I'd seen procedures go wrong before. Anyone who works in animal research long enough has. But hearing that dog howl while not being able to do a damn thing to help it made my stomach turn.
+
+When John finally administered the sedative successfully, the dog gradually went quiet.
+
+I kept my hand on its shoulder until I was sure it had lost consciousness.
+
+John exhaled through his nose.
+
+"Get the office on the phone," he told the two younger technicians. "Tell them we need another dose of solution immediately."
+
+They scrambled out of the room.
+
+I stepped back from the table, trying to get my breathing under control.
+
+"What the fuck, man?"
+
+John glanced at me.
+
+"I know."
+
+"How the hell is this supposed to be humane? Who thought letting people this inexperienced handle procedures like this was a good fucking idea?"
+
+I stopped myself before I got any further.
+
+John understood. He'd seen the same things I had. Too many new hires were being pushed into procedures they weren't ready for, and the animals paid the price.
+
+The euthanasia solution was brought over, and John volunteered to finish the procedure and perform the perfusion. He could tell I wasn't in the right state of mind to continue.
+
+For anyone unfamiliar with the process, perfusion is a method of preserving tissues by replacing the blood circulating through the body with a fixative solution.
+
+The animal is placed under deep anesthesia, and the chest is opened so that the heart can be accessed. A pump is connected to the circulatory system. As the pump circulates the fixative, the blood is displaced and the tissues become preserved.
+
+The procedure depends on the circulation working properly. The heart must still be beating when the process begins, which is why the animal is deeply anesthetized rather than fully euthanized beforehand.
+
+It's a difficult procedure to think about while you're performing it. You have to focus on the technical steps and not on the fact that you're standing over a living animal that is essentially being preserved to death.
+
+I couldn't have done it that day.
+
+I stood outside the room for a while, listening to the muffled sounds of the equipment, trying to convince myself that I was just shaken up by what had happened.
+
+Eventually, I returned to my desk.
+
+But my mind wasn't on the study anymore.
+
+It kept returning to John and his conversation with Hugo.
+
+The nonexistent transfer.
+
+The strange meeting.
+
+Ray's bizarre behavior.
+
+Jess's disappearance.
+
+I tried to tell myself there was probably a reasonable explanation for all of it. Maybe JJ had lied about the transfer for some stupid administrative reason. Maybe Ray was having a breakdown over his sister's disappearance. Maybe there was something going on in his personal life that none of us knew about.
+
+I wanted those explanations to be true, because I wasn't sure what the alternative was, and quite frankly, I wasn't sure I wanted to find out.
+
+# Chapter 3
+
+I decided I would talk to Ray when he came back.
+
+That was the plan, anyway.
+
+I figured I'd give him a few days to calm down, then try to get him alone. Whatever had happened in JJ's office, I wanted to hear about it from Ray himself.
+
+I never got the chance.
+
+Two weeks after Ray's strange behavior began, we learned that he and Jess were dead.
+
+The news came on a Saturday.
+
+Apparently, their car had been rear-ended by a semi. Both of them had died in the crash.
+
+Kay heard about it first, through Ray and Jess's brother, Steve, who'd found out from a news article.
+
+A news article.
+
+Not a call from the police. Not a call from the hospital. A fucking news article, and take a guess as to who fucking sent it to him. 
+
+I remember staring at the floor when Kay told me. I had been in the barn about to do stalls. Her words cut through me like a knife through butter. I stood there silent for so long Kay though the phone disconnected. 
+
+It hadn't.
+
+We spent the weekend trying to process what had happened. By Monday morning, I was still struggling to accept it.
+
+The department held an emergency meeting.
+
+I barely listened.
+
+JJ stood at the front of the room and spoke in the same measured, professional tone he used for everything. He expressed his condolences, said the company would make arrangements for anyone who needed time off, and reminded us to support one another during a difficult period.
+
+He sounded like he was reading from a script.
+
+Then I noticed something on the computer screen behind him.
+
+Ray and Jess had already been removed from the department roster.
+
+Their names were gone.
+
+No pending status. No note explaining their absences. No indication that two people who'd worked beside us for years had just died.
+
+They'd simply been deleted.
+
+I watched JJ click through the system, moving on to the next item on his agenda as though he were clearing out an old spreadsheet.
+
+I wanted to walk up to him and punch him square in the mouth.
+
+I didn't, obviously.
+
+I am trying to be a good Christian. I'm not particularly good at it, and I wasn't even baptized at the time, but I'm trying. That counts for something. Right?
+
+Besides, punching my supervisor probably wouldn't have helped anything.
+
+Still, I couldn't shake the feeling that something was wrong.
+
+I mean seriously, let's think about this. Again.
+
+Jess disappears for weeks. The transfer she'd been promised apparently never existed. JJ claimed to have spoken to the police before her own family knew anything. Ray suddenly begins behaving as though he'd forgotten basic facts about his own life.
+
+Then, after all that, they're both killed in a car accident.
+
+Maybe it was a coincidence.
+
+Maybe I was letting my distrust of JJ turn ordinary events into something sinister.
+
+But I couldn't make the pieces fit. They were all there, I just didn't know how they all fit. 
+
+And I wasn't the only one who couldn't.
+
+John returned to work on Wednesday after taking Monday and Tuesday off. He'd been close to Ray, and I understood why he hadn't wanted to sit through the department meeting.
+
+We didn't talk much at first.
+
+Then, sometime after lunch, he came over to my desk.
+
+"What did JJ have to say about it?"
+
+I looked up. Confused and caught off guard at first.
+
+"Ray and Jess.” He said “What did he say?"
+
+"Nothing you'd want to hear."
+
+John's jaw tightened.
+
+"I'm going to talk to him."
+
+"John—"
+
+"That fucker has something to do with this. I know it."
+
+I couldn't blame him for feeling that way. I was thinking along the same lines.
+
+But there was a difference between suspecting someone and being able to prove it.
+
+"I know how you feel," I said. "But we need more before we confront him. JJ's shady, but he's not stupid. If we go in there making accusations, whatever he's doing will get buried."
+
+John stared at me for a moment.
+
+Then he nodded.
+
+"You're right. I just need to look him in the eye and see what he says."
+
+"Give me a little time. I've got a buddy in the police department. I'll see if he can find anything out about the accident."
+
+John agreed to wait.
+
+I wish he'd listened.
+
+A few days later, I was assigned to cover a study in another lab while the team lead stepped out to make a personal phone call.
+
+The lead was Don Glover, a big dude with red hair and a beard. He looked like a Viking who'd wandered into the wrong century. He was a decent guy, a little newer to the lead position than some of the others, and generally easy to work with.
+
+I'd been there longer than he had, but I had no desire to become a team lead myself. More money wasn't worth the headache.
+
+Don had plenty of headaches of his own.
+
+I was reviewing the study paperwork when an alarm sounded.
+
+Don came back through the door almost immediately, looking more concerned than I'd ever seen him.
+
+"Everybody drop what you're doing and get out of the building. Now!"
+
+The room went quiet.
+
+"What the hell's going on?" I asked.
+
+"I don't know. Security came running down the hall and told me to evacuate before pulling the alarm."
+
+Nobody argued.
+
+We shut down what we could, left the equipment where it was, and made our way outside.
+
+Everyone from our lab seemed to have made it out. We gathered in the parking lot, confused and irritated, waiting for someone to tell us what was happening.
+
+Then the police arrived.
+
+One cruiser.
+
+Then another.
+
+Then four more.
+
+Within a minute, there were so many police vehicles outside that I began wondering whether the entire city's police department had decided to stop by.
+
+Nobody would tell us anything.
+
+We stood there for another few minutes.
+
+Then we heard gunshots.
+
+Two in quick succession.
+
+A pause.
+
+Then one more.
+
+Every conversation in the parking lot stopped.
+
+Someone asked whether we should run.
+
+Someone else told them to shut up.
+
+I stood staring at the building, waiting for JJ to come outside.
+
+He didn't.
+
+An hour later, management finally sent us home. As I drove through the gate, I saw an ambulance with a body bag being loaded into the back.
+
+I found out what happened later that day. The police released the bodycam footage within a few hours.
+
+That doesn't mean it was easy to watch.
+
+The audio began with shouting.
+
+"IT WAS YOU!"
+
+The voice was unmistakable.
+
+John. He was shouting so loudly that his voice distorted the recording.
+
+"YOU MOTHERFUCKER! YOU KILLED THEM BOTH! YOU WERE GOING TO DO THE SAME THING TO ME WERENT YOU!"
+
+The camera moved into a room where John stood with a handgun pointed at JJ.
+
+JJ had his hands raised. Backing away slowly. 
+
+"Easy, John," he said. "I don't know what you're talking about. I would never hurt Jess or Ray. Why would I do that? What would I gain from that?"
+
+JJ's voice was calm, the same professional management voice he used when explaining to someone why they were wrong when they objected to one of his shitty decisions. 
+
+John's face was twisted with rage.
+
+"FUCK. YOU. YOU TWISTED PIECE OF SHIT!"
+
+Then Officer Nolan entered the room.
+
+I knew Nolan. He was a friend of mine, a good cop, and the same guy I'd intended to ask about Ray and Jess.
+
+"Drop your weapon, John!" he shouted. "Put it down now!"
+
+John didn't move.
+
+"Drop it, John. Don't make me do this to another vet, man. We've lost too many already."
+
+Nolan's voice broke slightly on the last sentence.
+
+The camera picked up the sound of him praying under his breath.
+
+"God, please. Please don't make me do this."
+
+John began backing away.
+
+"Get away from me. Get away from me. Get away from me!"
+
+His voice grew louder.
+
+"GET THE FUCK AWAY FROM ME!"
+
+He raised the handgun toward JJ.
+
+"JOHN, NO!"
+
+Nolan fired.
+
+Two shots struck John in the chest. He stumbled backward and fell to the floor, still gripping his custom-built 1911.
+
+For a moment, it looked as though he might let it go.
+
+Instead, he raised the weapon again.
+
+Nolan fired a third time.
+
+John fell still.
+
+The footage continued for several seconds as officers entered the room and secured the scene.
+
+I sat there staring at the screen long after the video ended.
+
+I'd known John. I'd talked to him only days before. I'd seen him angry, frustrated, and deeply upset.
+
+But I'd never seen him like that.
+
+He was stumbling and erratic. His face looked wrong somehow, his expressions changing too quickly for the emotions he was supposed to be experiencing. He seemed almost disconnected from the situation around him, as though he were reacting to something the rest of us couldn't see.
+
+I'd told the police that much.
+
+They didn't seem particularly interested.
+
+And I couldn't entirely blame them. From their perspective, an employee had confronted his boss with a gun and forced a police officer to shoot him after being given multiple opportunities to surrender. There was no obvious reason to assume anything more complicated than that had happened.
+
+They hadn't known about Ray.
+
+They hadn't known about Jess.
+
+They hadn't seen Ray at lunch, repeating the same sentences as though someone had programmed them into him.
+
+They hadn't heard John talk about his suspicions.
+
+They didn't know what I knew.
+
+Hell, I wasn't sure I knew anything at all.
+
+All I had were suspicions, dead friends, and a supervisor I couldn't stand.
+
+It wasn't enough.
+
+I needed proof.
+
+And I was going to find it. (End of pt1)

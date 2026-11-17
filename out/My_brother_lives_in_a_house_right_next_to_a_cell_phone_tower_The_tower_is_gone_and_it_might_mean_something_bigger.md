@@ -1,3 +1,7 @@
+PART 2: [https://www.reddit.com/r/nosleep/comments/1xy22yz/my\_brother\_lives\_in\_a\_house\_right\_next\_to\_a\_cell/](https://www.reddit.com/r/nosleep/comments/1xy22yz/my_brother_lives_in_a_house_right_next_to_a_cell/)
+
+
+
 “It’s *GONE?”*
 
  

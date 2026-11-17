@@ -1,0 +1,58 @@
+Phone’s at 58% and plugged in. Walt ran an orange extension cord out from the break room and set the charger on the floor by my left shoe. He didn’t say anything about it. He said “You’ll want to eat something” and went back to the front.
+
+Around seven Gina left a banana on the podium. She didn’t look at me. I don’t know if Walt asked her to, or if she was just putting down a banana, or if somebody leaves one there every morning. I ate it. I’m not going to think about it too hard.
+
+My phone says 7:51. The clock over customer service says 7:51. I haven’t decided if that’s better.
+
+I have to talk about the bathroom, because I’ve been standing in one spot for four and a half hours and I’m a person with a body. That’s what started this. I wasn’t trying to find anything out. I needed to know how long I had.
+
+The only number I have is six minutes. That was the third night, when I stood with my hands behind my back and the lights started going in sections. I don’t know if that’s a rule or just how long it felt like. I picked ninety seconds. I put my phone on the podium with the stopwatch running, because I wanted a record.
+
+I stepped off with my left foot first. I don’t know why.
+
+I expected 0.0. I’ve seen that screen with nothing on it for four months.
+
+It said 6.4.
+
+“Unexpected item in the bagging area. Please remove the item and try again.”
+
+I stood there with one hand on the podium. I got down on one knee and looked across the platform at eye level. Yellow footprints. Rubber mat. A piece of gum so old it’s part of the mat. I turned on my phone light and went over it an inch at a time. I didn’t touch it. I held my hand about a foot above where I’d been standing and moved it left, and the number didn’t change, so I stopped.
+
+6.4 pounds is a bag of sugar and a can of soup. I know because the baking aisle is eight feet from the podium and I wanted something I could picture. It’s also a small chicken. They run six to six and a half in the cooler.
+
+I want to say what I did next as plainly as I can, because I’ve been thinking about it for twenty minutes and I can’t make it shorter.
+
+I went to the podium and got my notebook. Walt had put it back under, squared up with the edge. Nineteen numbers. The lowest one is 104.2. I don’t know who that was. I wrote “person” next to it like every other line.
+
+Nobody in that ledger is small. Nobody’s under a hundred. In nineteen nights it has never asked me about anything that weighed less than a person. Tonight is the first time, and I’m the only one in the building who can say yes.
+
+My card was right there on the lanyard. I could have tapped it with me off the scale. It would have taken the 6.4, and I would not have known what it was, and neither would you.
+
+I think about Denise’s candies. The first nineteen, I never got to decide. I tapped because that’s the job and I didn’t know what the number was until after. This is the first time I’ve known ahead of time, and it’s still me holding the card.
+
+I didn’t tap it. At 1:26 on the stopwatch I stepped back on.
+
+The red went out. The voice didn’t say “Please continue,” it just stopped. The reading went to 178.4 and sat there.
+
+So wherever the 6.4 is, it’s on the platform, and there’s room for it next to my shoes. That’s all I’ve got. It was there when I was off and it’s there now. I can’t see it, I can’t feel it, and it’s been standing on this scale with me since 6:40.
+
+I told Walt at 8:05. He listened and didn’t write anything down. I told him the number. He said his has never read under 160, and then he stood at the end of the aisle looking at Kiosk 4 for longer than I’d have liked. I asked if he wanted to hold the card. He said, “No, I’d say yes.”
+
+I’m writing the rest of this standing here.
+
+I should say I’ve never looked at the gray print for more than the one line. Nine minutes ago there was a second line under it. I almost missed it.
+
+EXPECTED: 178.4  
+ITEMS: 2
+
+That made sense to me. Me and the 6.4. I did the math twice.
+
+Then I watched it change.
+
+ITEMS: 3
+
+The weight didn’t move. It’s still 178.4. Whatever the third thing is, it weighs nothing.
+
+The red didn’t come back. The voice didn’t say anything. Nobody’s come in. It isn’t asking about it.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1xwk06i/i_work_overnights_at_a_24hour_grocery/)

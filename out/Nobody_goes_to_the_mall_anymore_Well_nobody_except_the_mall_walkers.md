@@ -429,3 +429,6 @@ Randall was with them. He stood out instantly. The others were all elderly, with
 I counted without meaning to. There were twelve. There had always been twelve. Then I saw who was missing: no purple tracksuit lady. Randall hadn’t just joined them. He’d filled her vacant position. I couldn’t stop staring at him. He walked like he’d been doing it for years. Like nobody ever had to train him.
 
 They passed the pretzel stand without slowing down, without looking at me or acknowledging me. If he recognized me, he wasn’t showing it. I'd spent the last twenty-four hours thinking about Randall. It hadn't occurred to me that I hadn’t crossed his mind once. If he even still had a mind. He simply kept walking, just like the rest of them. One slow step after another until the crowd swallowed him again. I watched until there was nothing left to watch.
+
+  
+[Part 2](https://www.reddit.com/r/nosleep/comments/1xy72df/nobody_goes_to_the_mall_anymore_well_nobody/)
