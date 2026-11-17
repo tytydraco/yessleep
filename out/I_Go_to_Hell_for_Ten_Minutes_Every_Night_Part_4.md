@@ -173,3 +173,5 @@ Somewhere in there I told him everything, and while I don’t think he believes 
 I think Maia is still in shock. She hasn’t said a lot since I got her out, and I can’t leave the room or she’ll try to follow me. That’s no good either, because half of her left leg has been turned to marble, and so is the sole of her right foot.  I pray to god that getting her away from there is enough to reverse the spread.  I guess I’ll find out tomorrow.
 
 I’ll leave it there. Catch you on the next one.
+
+[**\[Part 5\]**](https://www.reddit.com/r/nosleep/comments/1xyhm9a/i_go_to_hell_for_ten_minutes_every_night_part_5/)

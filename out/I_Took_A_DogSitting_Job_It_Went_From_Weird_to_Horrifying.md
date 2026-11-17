@@ -1,4 +1,4 @@
-Part I 
+Part I
 
 **Job Opportunity** 
 
@@ -23,8 +23,6 @@ I turned the TV back on, trying to get my mind off the fact that I might be home
 Drowning in thought, I went back to searching for anything. I needed money, and I needed it quick. 
 
 —
-
-
 
 After a while of doomscrolling, I found myself on 5Miles. A place where people can make a quick buck doing jobs for others, mostly landscaping and other random jobs on occasion. 
 
@@ -93,9 +91,9 @@ Peering over the half-wall that led into the living room, I spotted it. A VHS ta
 
 “It's just the dog,” I said, thoughts leaving my mouth without permission. 
 
-Taking a deep breath, I figured it was probably just a black Dutch shepherd, based on the hair I saw. It's probably just a shy one; I'll let it warm up to me. I just need to watch this video. 
+Taking a deep breath, I figured it was probably just the dog's tail, nothing to worry about. It's probably just a shy one; I'll let it warm up to me. I just need to watch this video. 
 
-Standing there for another couple of seconds, the heat in my body slowly turning the metal back into its liquid state. I began to move once more. I picked up the VHS and looked at the side. Written in Sharpie: 
+After another couple of seconds, the heat in my body slowly turned the metal back into liquid. I began to move once more. I picked up the VHS and looked at the side. Written in Sharpie: 
 
 # House Rules
 
@@ -107,7 +105,7 @@ I walked over to the VHS player beneath the old TV and pushed the recording in. 
 
 “I did not actually,” I said, words slipping once more. 
 
-“If, for some reason, the interview never happened. I will leave a note with basic instructions on the fridge. But this video is what to do about the… animal.” Her demeanor shifts to a more serious tone. “If you couldn't tell already, she’s very shy and often doesn't come out during the day, even for me. I've learned that she only comes out during the night. You must stay awake during this time. Leaving the house isn't allowed either. Keeping an eye on her at all times is very important. She’s grown a liking to… trying to run away if she thinks she's alone. 
+“If, for some reason, the interview never happened. I will leave a note with basic instructions on the fridge. But this video is what to do about the… animal.” Her demeanor shifts to a more serious tone. “If you couldn't tell already, she’s very shy and often doesn't come out during the day, even for me. I've learned that she only comes out during the night. You must stay awake during this time. Leaving the house isn't allowed either; you must keep an eye on her at all times. She’s grown a liking to… trying to run away if she thinks she's alone." 
 
 The woman's eyes lock onto something off-camera, breaking her train of thought. A couple of uninterrupted seconds go by before-
 
@@ -165,4 +163,3 @@ Thoughts leaving my mouth, without permission. 
 —
 
 .-.. .. ... - . -. .. -. --.
-
