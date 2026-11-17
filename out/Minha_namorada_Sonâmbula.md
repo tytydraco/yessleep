@@ -1,0 +1,65 @@
+Minha namorada sempre foi sonâmbula, mas o que começou a acontecer na semana passada me fez trancar a porta do quarto pelo lado de fora — e eu nem estou dormindo lá dentro mais.
+
+Nós moramos juntos há dois anos em uma casa antiga, de dois andares, nos arredores da cidade. No começo, o sonambulismo da Clara era inofensivo, quase engraçado. Ela levantava de madrugada, ia até a cozinha, abria a geladeira, encarava as prateleiras por uns dois minutos com os olhos vidrados e voltava para a cama. Às vezes murmurava coisas sem sentido sobre trabalho ou fazia gestos no ar como se estivesse dobrando roupas invisíveis. Eu apenas a guiava suavemente pelos ombros de volta para o colchão e ela apagava na hora.
+
+Tudo mudou na terça-feira retrasada.
+
+Acordei por volta das 3h15 da manhã com o som da madeira rangendo no corredor. Olhei para o lado e a cama estava vazia. Levantei, meio grogue, esperando encontrá-la na cozinha ou no banheiro, mas o andar de cima estava completamente silencioso. Desci as escadas no escuro, guiado apenas pela luz fraca do poste da rua que entrava pelas janelas da sala.
+
+Clara estava parada de frente para a porta de entrada. Não apenas parada — ela estava com a testa encostada na madeira, as mãos coladas nas laterais do corpo, rígida como uma estátua.
+
+— Clara? — sussurrei, me aproximando devagar para não assustá-la.
+
+Ela não se mexeu. Quando cheguei mais perto, percebi que os lábios dela estavam se movendo muito rápido, soltando um sussurro baixo, quase um chiado, sem pausa para respirar. Inclinei a cabeça para tentar entender o que ela dizia, e meu estômago gelou.
+
+"Não abre. Não abre. Não abre. Não abre."
+
+Ela repetia aquilo em um ritmo frenético, mecânico, enquanto lágrimas escorriam pelo rosto dela, mesmo com os olhos completamente fechados. Coloquei a mão no ombro dela e senti seus músculos duros como pedra, tremendo de tensão. Quando a puxei de leve, ela soltou um suspiro profundo, o corpo amoleceu na hora e ela acordou confusa, sem lembrar de absolutamente nada.
+
+Na noite seguinte, instalei uma câmera de segurança simples na sala, apontada para a escada e a porta da frente, só para garantir que ela não saísse na rua dormindo.
+
+Na quinta-feira, acordei sozinho na cama de novo. Eram 3h33. Dessa vez, antes de levantar, abri o aplicativo da câmera no celular.
+
+A tela em visão noturna mostrava a sala vazia. A porta da frente estava intacta. Soltei o ar, aliviado, achando que ela só tinha ido ao banheiro. Foi quando olhei para o canto inferior esquerdo do vídeo, bem perto da base da escada, onde a câmera não pegava direito. Havia uma sombra ali.
+
+Levantei da cama em silêncio e fui até o topo da escada. Olhei para baixo.
+
+Clara estava sentada no último degrau, de costas para mim, olhando fixamente para o canto escuro debaixo da escada — o espaço vazio onde guardamos caixas velhas e o aspirador de pó. E ela estava sorrindo. Não era o sorriso normal dela; era um sorriso largo demais, esticado, que mostrava todos os dentes e fazia os olhos dela parecerem afundados na penumbra.
+
+Ela levantou a mão direita e acenou devagar. Um aceno curto, de quem cumprimenta alguém que acabou de chegar.
+
+— Quem está aí? — gritei, acendendo a luz do corredor e descendo os degraus de dois em dois.
+
+Assim que a luz da sala acendeu, o sorriso sumiu do rosto dela. Ela piscou várias vezes, olhou para mim assustada e perguntou por que eu estava gritando. Olhei debaixo da escada. Só havia caixas de papelão empoeiradas e o aspirador.
+
+Na sexta-feira, eu já estava exausto e paranoico. Decidi ficar acordado vigiando. Por volta das 2h50 da manhã, Clara sentou-se na cama com um movimento brusco, como se alguém a tivesse puxado pelos cabelos.
+
+Fingi que estava dormindo, observando-a pelos cílios semicerrados.
+
+Ela virou o rosto lentamente na minha direção. Os olhos dela estavam abertos dessa vez, mas as pupilas estavam tão dilatadas que quase não dava para ver o castanho da íris. Ela ficou me encarando por longos segundos, a respiração pesada, quase gutural.
+
+Então, ela se inclinou bem perto do meu ouvido. O hálito dela estava gelado.
+
+— Ele disse que você está atrapalhando — ela falou. A voz não era a dela. Era grave, arranhada, como se estivesse raspando no fundo da garganta. — Ele disse que, se você não sair do quarto hoje, ele vai entrar pela sua janela em vez da minha.
+
+Meu coração disparou tanto que achei que ia sair pela boca. Antes que eu pudesse reagir, Clara se deitou de volta, virou para o outro lado e começou a ressonar suavemente, como se tivesse acabado de cair no sono mais profundo do mundo.
+
+Não preguei o olho pelo resto da noite. Assim que amanheceu, tentei conversar com ela, mostrei os vídeos da câmera — mas, estranhamente, o arquivo da quinta-feira estava corrompido, mostrando apenas estática entre as 3h10 e as 3h45. Clara achou que eu estava inventando coisas por estresse e ficou brava comigo, dizendo que eu estava tratando-a como uma louca.
+
+Ontem à noite, sábado, decidi dormir no sofá da sala para provar a mim mesmo que era só paranoia. Deixei a câmera gravando tudo.
+
+Acordei no meio da madrugada com o celular vibrando no meu bolso: uma notificação de movimento da câmera da sala. Peguei o aparelho, ainda meio dormindo, e abri a transmissão ao vivo.
+
+Na tela do celular, eu me via dormindo no sofá. E, parada bem atrás do encosto, inclinada sobre a minha cabeça, estava Clara. Ela segurava uma das facas grandes da cozinha na mão direita, apontada para o meu pescoço.
+
+Não me mexi. Não respirei. Apenas continuei olhando para a tela do celular, rezando para ela não perceber que eu estava acordado.
+
+Foi então que olhei para o fundo do vídeo, na direção da janela da sala.
+
+Do lado de fora, colado ao vidro, havia um rosto pálido, sem pálpebras, com o mesmo sorriso largo e esticado que Clara tinha dado na escada. E, na tela do meu celular, eu vi a boca daquela coisa se abrir e mexer, em perfeita sincronia com o sussurro que Clara soltou bem acima da minha orelha:
+
+"Ele disse que você ainda está aqui."
+
+Eu rolei do sofá para o chão, derrubando a mesa de centro, e corri para o quarto de hóspedes, trancando a porta e empurrando a cômoda na frente. Ouvi passos pesados subindo a escada, seguidos por arranhões lentos na madeira da porta — não na altura das mãos de Clara, mas bem perto do batente superior, a mais de dois metros do chão.
+
+Os arranhões pararam há uns vinte minutos. O sol está começando a nascer agora, e estou escrevendo isso encostado na cômoda, com o celular em 4% de bateria. O pior de tudo não é o barulho ter parado. É que, pela fresta debaixo da porta, eu consigo ver os pés descalços da Clara parados no corredor... e, logo atrás deles, há um segundo par de pés, cinzentos e tortos, que não tocam o chão.

@@ -178,7 +178,7 @@ At 1:18 I cleared my mind and focused on the marble isle that drifts within a vo
 
 “That’s my business. I’m here to ask you what you’ll give me.”
 
-He laughed before he winced in pain again. “I’d play your game, because I don’t think I have much time left. What do you want?”
+He laughed before he winced in pain again. “I’ll play your game, because I don’t think I have much time left. What do you want?”
 
 “I want to cure Maia.”
 
@@ -217,4 +217,3 @@ And then they just left. We haven’t been attacked and Sarah seems fine. She’
 And that’s what we did, because we were long overdue. I spent the night snuggled up to Maia and there were no dreams.
 
 That’s good enough for now.
-
