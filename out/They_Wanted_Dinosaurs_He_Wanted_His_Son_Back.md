@@ -1,0 +1,444 @@
+It was a warm summer day as most were in the Virgin Islands. José picked me up from my apartment complex. He rolled up to my building and waved to me from his black Jeep. I hustled down the steps and threw open the passenger door.
+
+“You ready?” He asked excitedly.
+
+“You know it!” I responded as I got into his Jeep.
+
+He smiled, backed out of the parking spot, and exited onto the main road. Our job today was one we had done many times. Our job was in outreach. Members of the church could call in if there were people they were concerned about. It was on us to reach out to these people of concern.
+
+“How many do we have on the list today?” José asked.
+
+“Only three houses today. Attendance has been pretty good recently.” I responded, looking at the list of names and addresses on my phone.
+
+“That’s good to hear. We must be doing a pretty good job!” José exclaimed.  
+   
+I nodded. “The first house should be coming soon.”
+
+“What color?”
+
+“Uhhh… not sure. I think it’s that blue one.” I said, trying to match up what Google Maps was telling me and what was in front of my eyes.
+
+“You think, or you know?” José asked impatiently.
+
+“Just pull in the driveway, and we’ll see if it’s the right place.”
+
+José groaned. “Whose house is this anyway? I’ve never been this way before.”
+
+“Looks like… huh.”
+
+“Huh? What do you mean, huh?” José asked with raised eyebrows.
+
+“They’ve got Dr. Flores on the list,” I said. “He hasn’t been to Mass in 5 years.”  
+   
+“Dr. Flores. Flores. Flores. Flores.” José paused for a moment to ponder the name. “Is that the guy who lost his wife and kid a while ago? Nobody has checked on him in 5 years?”
+
+“Apparently someone called the church anonymously and wanted us to check on him. At least, that’s what the list says. I’m guessing he’s not going to be interested.”
+
+“It’s at least worth a try,” José said. “If nobody checked on him after what he’s been through, he may not be doing the best. I don’t think I would be.”
+
+“Yeah, poor guy.” I sighed.
+
+Just then, my phone buzzed in my pocket. I took it out quickly and read the name.
+
+“Whose that?” José asked.
+
+“Nobody.” I quickly hung up the call. “Just spam.”
+
+In truth, it was my sister. We hadn’t talked since she told our family she and her girlfriend would be moving to New York. I remember the way my parents cried when she told them. I didn’t hate her for it. I want to be clear about that. It was more awkward. I didn’t know how to feel or what to say so I just avoided conversation altogether.
+
+“You got a little jumpy for a spam call,” José said incredulously.
+
+“It took me by surprise, okay?” My voice unintentionally reached a yell.
+
+José shrugged. “Okay, but if something is bothering you, you can talk to someone. That’s part of why we build the church community.”
+
+“I’m fine!” I said harshly. “If something is wrong, I’ll go to confession and talk to the priest!”
+
+The rest of the ride was quiet. I didn’t really want to talk. I was angry but couldn’t piece the words together to say why. Eventually, we arrived at our destination. A nice, dark blue house. Two-car garage, two stories tall. There was a basketball goal on the right side of the driveway.
+
+José walked up to the door and knocked. We waited a moment before José knocked again. This time we heard movement from inside the house. The door opened, and a well-dressed man with graying hair answered.
+
+He was a short and slightly rotund in build. His glasses sat low on his nose, and his brown eyes peered over the rims.
+
+“Can I help you, boys?” His deep voice rumbled.
+
+I verified his name quickly on the list. “Hello, Dr. Flores! My name is Sebastian, and this is José.” I tilted my head towards José. “We are with Saint Paul’s. We noticed you hadn’t been to Mass in a few years and wanted to check in on you.” I smiled with practiced enthusiasm.
+
+Dr. Flores smiled back. “Oh, St. Paul’s, huh? Well, it’s been a very long time since I had visitors. Would you boys have lunch with me? I’d love to discuss this more over sandwiches.”
+
+José and I looked at each other and nodded.
+
+“We’ve got time for a short visit,” José replied.
+
+Dr. Flores’s smile widened. “Excellent! Come on in! The kitchen is straight ahead.” He moved to the side so we could get through.
+
+There was a long hallway. At the end of it was the kitchen. A plate of premade sandwiches sat on the counter.
+
+“Were you expecting company?” José asked. “We won’t keep you long if you are.”   
+“No, no, it’s just me today.” Dr. Flores said behind us.
+
+José suddenly grabbed the back of his bicep and looked it over. I didn’t think much of it at the time.
+
+We passed a room that obviously used to belong to his son. It had a race car theme, and there were full buckets of toys that were too organized to have recently belonged to a child.
+
+José put a hand to his head as we reached the kitchen. “Sebastian. My head. It doesn’t feel right.” José muttered.
+
+“Do you need to sit down? Eat a sandwich. It might get your energy up.” Dr. Flores said worriedly.
+
+José placed his hands on the countertop and leaned over. I reached out to him. “We may want to get you home.”
+
+I suddenly felt a slight prick on the back of my upper arm. Instinctively, I grabbed it with my hand. I looked at it and then behind me. I saw Dr. Flores quickly shove his hand in his pocket. He wasn’t fast enough to hide the syringe, though. For a brief moment, I saw it. I know it.
+
+“What did you do?” I asked. As I turned to face the doctor, my head started to spin.
+
+Dr. Flores put a finger to his lips. I heard José slump onto the counter behind me and slide to the floor. My vision started to blur.
+
+“Why?” I said. Confusion and anger raced in circles in my head. 
+
+I took a shaking step toward the doctor and then another. Each movement felt heavier than the last. I reached my arms out as I got near Flores. I don’t know what I would’ve done if I reached him. It really didn’t matter. Darkness enveloped my vision, and I was unconscious before I hit the ground.
+
+For a long time, my consciousness was weakly in and out. I heard traffic for a moment, then the car shut off. I felt myself being pulled over the floor. Finally, I woke up. My vision returned slowly. I squinted and blinked my eyes.
+
+The lighting of the room was eerily dim, as if the lights were only working at half power. I was sitting in a hard metal chair. My arms were tied together tightly behind my back. My feet were tied to each leg of the chair. My bindings were some kind of rope or cord.
+
+To my right was José. He was just waking up and bound the same way I was. Before us was a small empty metal table. By the lack of weight in my pockets, I knew my phone and wallet had been taken.
+
+I looked around for a moment and realized we were in the kitchen again. However, this one was sterile white and devoid of all character. We faced a long dark hallway with who-knows-what at the end of it.
+
+“I apologize, boys.” Came the voice of Dr. Flores. “I needed a change of scenery. That house hasn’t been a home in many years. This place is my home now.” 
+
+“What are you going to do with us?” I screamed angrily. 
+
+Dr. Flores moved in front of us. “I want to have the conversation we didn’t get to have earlier.”
+
+“You want to talk about religion after what you’ve done?” I yelled. “You think God looks favorably on this?”
+
+“I’m not here for God's favor. He’s made it very clear I don’t have it!” A flash of anger moved over his eyes. “Besides, I have no need for him anymore.” 
+
+“What do you mean you have no need for him?” José asked.
+
+“Where was God when I asked him to bring my son back? Where was he when I asked to see my drunken wife in the deepest part of hell?” Dr. Flores loomed over us.
+
+“You spent years with the church. You know that isn’t how faith works. Your wife and son have moved on from this world. Their souls don’t belong here.” José said firmly.
+
+“That’s what you think, but I have done what God is too weak to do.” Dr. Flores chuckled proudly to himself.
+
+“Cut the cryptic nonsense.” I spat. “Just tell us what you did or commit whatever crime you intend to do.”
+
+“They wanted dinosaurs!” He pressed his hand to his forehead and unleashed a trembling laugh. “Dinosaurs! Can you believe it? It was absurd!” He laughed harder. “However, in the absurdity of it all, I found an avenue to have my boy back. I have toiled for years to give him a body that would grow. A voice that would speak. Eyes that could see!”
+
+José and I exchanged fearful looks.
+
+“Let me show you what your God couldn’t do!” Dr. Flores smiled proudly. “Mateo! Come greet our guests!”
+
+Down the dark hallway, I heard a door slide open. There were footsteps like those of a person, but each step was taken with a scraping tap against the floor. I heard it breathe a deep wheeze from its mouth. From the dark, its grotesque form manifested. 
+
+To enter the doorway, it had to duck its head. It looked up as it passed through. It looked at us with large yellow eyes, its pupils contracted as they entered the light. It stood to its full height. It must have been nearly 8 feet tall. Its body was skinny with visible ribs. Its limbs were long and gangly.
+
+The hands of the creature had four fingers, with the 3rd and 4th fingers being partially fused. The pointer finger had a very long hooked claw that was at least six inches. The short thumb was barren of any claw or nail, while the other fingers had claws up to an inch. It had four toes as well. Each was tipped with a short claw that was chipped and worn down.
+
+Its scaly skin was mottled white and black. Thin and patchy white hairs were distributed over its body. Its skull was human in shape except for the short, deep snout on its face. Reptile-like nostrils flared sharply with each wheezing breath. Its mouth was thin, and sores covered its lips. Wounds resulted from sharp teeth that didn’t fit right in its mouth. Around its neck was a metal collar that was fixed tightly to its skin.
+
+“What is that thing?” My voice shook. Fear had turned my blood to ice. My heart beat into overdrive. My body was so ready to run away, but I couldn’t.
+
+At my words, the creature lowered its head and shifted its large eyes to the floor.
+
+“This is Mateo. My son.” Dr. Flores said it like it was obvious.
+
+“That’s a monster!” I screamed.
+
+The creature shrank in on itself as much as an 8-foot monster could and hugged its body with its long, clawed arms.
+
+“It’s my son!” Dr. Flores yelled back. “The dinosaur part is hard to break, but I know my boy is in there, and I will bring him out!”
+
+“You’re sick!” I spat at the doctor. “You made a deformed beast and think you are on the level of God? You’re insane!”
+
+“Sebastian, stop!” José shouted. “We are in no position to be hurling insults. Let’s just cooperate with what Dr. Flores wants, and we can leave.”
+
+“Listen to your friend, boy, and save that energy. You’re going to need it.” Dr. Flores smiled. “For now, I want to introduce you to Mateo.”
+
+Dr. Flores clapped his hands loudly, and the monster jolted to attention.
+
+“Mateo! Please bring our guests some tea.” The mad doctor called.
+
+In response the beast bowed its head and to my astonishment he spoke from his wounded lips. “Yes, father.”
+
+Its voice was rough and strained. It was as if dust and stones churned in its throat with every syllable. It was painful to listen to. I can’t imagine what it was like for the speaker. 
+
+The creature moved to the side of the room that was behind me. Each step was awkward and unsure. As it passed, I noticed a stubby tail about a foot long.
+
+The tea tray must have been behind me. Due to the ropes, I couldn’t see behind me, but I heard the clink of the tea tray as it left the counter. I heard the monster's footsteps get closer. I heard its wheezing breath behind me. It set the tray down between José and me. Keeping its long pointer claw out, it shakily grabbed two porcelain teacups off the tray and gave one to José and then one to me.
+
+Next, with slow care, it shakily brought forth the white teapot. The creature moved to pour José his tea. Its large yellow eyes darted nervously as it did. Its hands shook, but it managed to fill José’s cup and then slowly turned in my direction. I made eye contact with it and had to look away.
+
+The monster poured my tea as shakily as José’s, but when he got halfway, his hand shook more than he wanted and spilled the tea onto the table. With fear in his eyes, he looked at Dr. Flores, who pressed a button on a small remote.
+
+There were two beeps from the beast's collar and then the crackling of electricity. The monster screamed in agony. It was a sound that no man or beast could produce unless the two were twisted together.  
+   
+The monster dropped the teapot and clawed at the collar, but it didn’t budge. He collapsed to the floor, whimpering in tea and porcelain shards.
+
+“No, no, no! Mateo wouldn’t spill the tea! His hands were always steady!” Dr. Flores yelled. “Apologize to our guests!”
+
+“Sorry! Father, forgive me! Please, so sorry!” The monster wailed. By the crack in its voice, it was clear he was crying, though it lacked the glands to produce any tears.
+
+“It's not like we can drink the tea anyway.” I muttered gesturing to our binding.
+
+Dr. Flores frowned and produced a knife and two rags from one of the drawers. “The tea was a demonstration of my son's capabilities. Capabilities that clearly need refining.” Dr. Flores scowled down at the monster shaking in sorrow on the ground.
+
+“His next demonstration will be more reliable.” He grabbed the ropes of my hands and sliced the knife across my palm. I gritted my teeth, not wanting to give him the satisfaction of causing me pain.
+
+Blood dripped from my hand, and the doctor dabbed the wound with the rag. He moved on to José and did the same thing with a different rag. José grimaced.
+
+“What are you doing?” José asked.
+
+The doctor ignored him and turned his attention to the monster. He delivered a sharp kick to the monster's side that made the beast yelp. “Get up, Mateo! It’s almost time to eat.”  
+     
+The creature slowly got to his feet. He shook his head. “I don’t… want to.”
+
+“This isn’t a negotiation.” The doctor was emotionless as he moved behind José and produced a pistol from his pocket. He pressed it to the back of his head. “Try anything, and I’ll have your brains on the other side of the room.”
+
+Dr. Flores leaned down and sawed through José’s ropes. He cut his feet free first and then his hands. José didn’t move.
+
+Keeping the gun on José, he moved behind me. “Same thing for you. Try anything, you die.” He leaned over, and I felt the bindings of my feet cut loose.
+
+“Both of you stand up and move towards the hallway.” He gestured toward the dark pathway Mateo had entered from.
+
+We both did as we were told. My heart was beating so hard it could’ve cracked a rib.
+
+“I hope you two don’t take this personally. My son requires a strictly carnivorous diet.” He grabbed the two bloodied rags and held them up to Mateo’s nose. “Sniff,” he told the monster.
+
+It shook its head and pulled away.
+
+“Now!”
+
+The creature winced and slowly lowered its head to the rags and inhaled.
+
+Dr. Flores threw down the rags and pulled the remote he used earlier. “When I press this button, he will stop at nothing until you are both dead. For his enrichment, I'm going to give you two a 30-second head start. Feel free to use the rooms and hallways of the facility to prolong your survival. Timer begins… now.”
+
+I felt like I barely understood what was just said, but I knew I had to run. José and I turned and started running down the dark hallway. We passed multiple open rooms, but they all seemed too close to the starting point to be reliable hiding spots.
+
+“José! What do we do?” I yelled.
+
+He just shook his head. “Keep moving.” His voice trembled.
+
+The hall seemed endless until it came to a T. By random chance, José grabbed me by the sleeve and pulled me right. The last thing we heard as we turned the corner was the doctor's voice. “Time's up!”
+
+There was a distant cry of pain and then silence. We kept running past room after room. This new hallway had sparse lighting and large vents in the ceiling. The hallway came to an end with two push doors to a room labeled “Cafeteria”. We charged through the doors and ran so fast we slammed into a heavy table on the other side.
+
+“Move it against the door!” José screamed with desperation.
+
+Quickly, we shifted to the other side of the table and pushed it against the door. I paused for a moment and noticed a heavy smell like rotting meat. The room was very dark except for the dim light from the door windows. As my eyes adjusted, I could make out the outline of something piled against the back wall like a large mound of clothes.
+
+“What’s that smell?” I asked José shakily.
+
+“I… I don’t know. Probably expired food. It doesn’t matter. We need to put something in the pull handles to keep the door shut.”  
+     
+We immediately searched the room. I naturally looked towards the pile on the wall, thinking it might be clothes we could use to tie the door.
+
+I got closer, reaching my hand out instinctively. It went in and hit something hard. Bone. It was a pile of bones and dry, decaying flesh.
+
+I gagged. My head went light, and I stumbled back. There were no defining features of these people. Pulled apart and discarded, there was no way to know how many there were.
+
+This is where I will be, I realized. Another bone. Another strip of dry flesh in the pile. I heard José opening doors and rooting around in something. I just stood staring at the remains in front of me.  
+    
+I forced myself to look away. In the corner of the room, José had found a janitor's closet. He held up extension cords and a bunch of mop and broom handles. 
+
+Not a word was said between us. Immediately, we worked together to tie the extension cord around the bottom of the door handle. Then, we shoved as many broom and mop handles into the handle of the door. We stepped back. 
+
+“José. There are bodies in here.” I whispered. 
+
+“What? Where?” He asked. 
+
+“In the back. I don’t know how many. It’s too hard to tell.” 
+
+I watched him look to the back of the room and observe the pile of corpses. He put his head in his palms. His breathing accelerated. “No, no, no! Oh God, no! José sank to the floor. 
+
+“José, it's…” I stopped. There was a distant noise that got my attention. Tap. Tap. Tap. Tap… it repeated. It was getting louder. 
+
+I remembered how the clawed feet of the monster had scraped against the floor.
+
+“José, we have to hide,” I said. “It’s getting closer.” 
+
+He didn’t say anything. He just got up, and the two of us placed ourselves against the side wall away from the door windows. We waited with bated breath as if practicing to join the pile of corpses against the wall. 
+
+Then, there was a loud bang against the door. There was a shriek of frustration. Scratching ensued like a desperate wild animal. The glass of the door window shattered as the creature slammed its hand through. It started grabbing at the broomsticks in the door. One flew across the room and clattered to the ground next to us. 
+
+“No!” José screamed and grabbed the broomstick on the floor. 
+
+“José, wait!” I called, but it was to deaf ears. I followed behind him. 
+
+José brought the stick back and smacked the creature on the arm. The monster didn’t recoil in pain but instead let out a squeal to indicate an emotion I did not know.
+
+The monster reached its clawed hand through the door to its maximum length and swiped at José, but he was too far. The beast pulled his hand back and peered in with those haunting yellow eyes. They were no longer shifty and nervous like before. The pupils were dilated and never left José. 
+
+With the end of the broomstick, José jammed it into the creature's eye. The beast yelped in pain and backed away. He shook his head before looking back at us. I stood frozen. A million scenarios and thoughts arrived in my brain. None stayed around long enough to be acted on. 
+
+The monster took a few steps away from the door and looked up. His eyes found the vent. With clawed hands, he reached up and hooked them into the cover. One yank was all it took, and the vent was open. The monster reached up and pulled himself into the ventilation shaft. 
+
+We heard banging as it moved rapidly inside. As I followed the sound, my eyes landed on the vent in the center of the Cafeteria. I heard my blood pumping in my ears. José noticed too. 
+
+“We can’t stay here! Move the table!” He cried desperately.  
+   
+I ran over, and we pushed the table out of the way. There was a bang on the cafeteria vent. José frantically pulled the broomsticks from the door. With another bang, the vent broke loose and clattered loudly to the ground. 
+
+José frantically tried to unwind the extension cords, but in his panic, his fingers worked against him. I looked over and watched in horror as the tall, skinny form of the monster descended from the ceiling. 
+
+The monster's claws clicked against the floor, and it dropped to the ground. Without a thought, I threw myself under a table and bit my hand to muffle the whimpering that tried to escape me.
+
+From my hiding spot, I watched. José didn’t turn around. He’d nearly gotten the cord undone, but the monster was fast. Gone was the awkwardness of the creature. It moved with swift predatory intent. In seconds, it was on José. With one hand, it plunged its clawed fingers into his neck. The other hand sank into his chest. 
+
+José’s body twisted and flailed. His face was grimaced, and his eyes were wide with primal terror. Blood gargled in his throat. I backed away until my legs gave out and I fell against the wall. 
+
+The beast brought José off the ground and held him against its body. Then, it opened its mouth. Its lips pulled back to reveal wounded gums and crooked teeth. Its mouth closed where José’s neck met his shoulder. There was a sickly crunch of tissue and bone. José’s head flopped limply to the side.   
+   
+The creature removed its claws, and blood poured thickly from the wounds. It moved back under the vent it came from. Its yellow eyes remained locked on me as it did. It raised its arms and hooked them into the vent. It hoisted itself without a grunt. José’s body swung lifelessly as it did. Together they disappeared into the dark tunnel of the ventilation system. 
+
+A wet crunch indicated that the beast had started its horrid feast. There was a second crunch, and a piece of flesh fell to the floor with a wet splat. That was a wake-up call for me. If I wanted to live, I had to get out of this room.
+
+I threw myself against the door, clawing at what little chord was left. I threw it to the floor and pushed the remaining broom handles from the door. They clattered loudly against the ground, which sent another jolt of panic up my spine. I flung the doors open and raced back into the hall. There was room after room. Many of them were missing their doors. None were the exit. 
+
+Behind me I heard a horrid screech and then a familiar banging sound coming from above. It grew closer by the second. I didn’t dare to look back. I hated the idea of hiding again. Putting myself in a corner like a scared rabbit seemed foolish. Still, I’d never outrun this thing. I needed to give myself time. At the first intact door, I threw it open, ran inside, and slammed it shut. 
+
+I checked the ceiling. No vents. There was a heavy metal cabinet near the entrance. I rocked it back and forth a few times until it tipped over with a crash that rang out like gunfire. I turned and had to stifle a scream.
+
+Across the room were rows of tall shelves filled with jars. Fetuses and infants suspended in preservation fluid. The first few were only eggs cracked open so the yolk could be exposed. The others had bodies that had started to form, though incorrectly. Some had multiple limbs or heads; others had organs on the outside. Some hadn’t developed skin or had twisted spines. Toward the back wall were the three largest tanks, far too large to be jarred. Inside two of them were creatures that took forms more similar to the monster that pursued me, though the biggest specimen was about half the size. The final large tube remained empty. 
+
+I moved to the back of the room. There were a few cabinets and drawers on the side walls that I hoped might hold something that could serve as a weapon. My hands trembled as I desperately tore through the room. There were beakers, flasks, and microscopes, but nothing that made a good weapon. 
+
+Eventually I found a hammer stored away with Post-it notes and plastic bags. It was never going to even the odds against the creature, but it was the best there was so far. Then, a loud clatter of metal outside made my heart race again. I stopped my search immediately and cowered behind the furthest row of shelves from the door. My palm grew sweaty as I tightly gripped the hammer in my hand. 
+
+Then came the familiar tapping of claws against the floor. Within seconds, it grew closer until there was a loud crash against the door. The metal cabinet I placed against the door scraped against the ground as the door was forced partially open. There was a terrible screech of frustration. I held my breath as the creature's claws reached in and scraped manically against the door and wall. The cabinet slammed against the wall as the beast finally forced its way in. 
+
+It sprinted towards the back of the room. Its nostrils wheezed as it smelled the air. Its mouth and hands were covered in fresh blood. I put the hammer in my mouth and slowly crawled towards the front of the room, keeping myself concealed behind the narrow front of the shelf row. I peered around the corner. The monster moved along the back wall. Its eyes shifted across the shelves and cabinets I had explored moments ago. 
+
+The gaze of the monster moved to the first of the large tanks. It paused. It stared into the glass at the specimen inside. It let out a raspy whimper and moved on to the next specimen. The terrible beast shook its head and groaned as if in pain. It placed its large palms over its eyes and took a few steps back. Its chest heaved as its breath quickened.
+
+Its large hands fell away, and it looked up at the very last tank. The monster's eyes widened to witness the vast container in all its emptiness. Through the magnification of the glass, I watched its pupils contract for only a moment before they dilated again with predatory intent. The monster threw its head back and let out a terrible wail of pain and rage. It drew its arm back and swung it into the empty tank. Glass shattered across the floor. The creature raced over to the first row of shelves and grabbed it with one movement and threw it to the ground. Jars crashed and splintered. Wet preservation fluid splashed across the floor and tossed its putrid smell into the air.  
+   
+I shuffled back behind the shelf. I heard another crash as it continued its tantrum. Shelf after shelf, it moved closer, tearing the room apart. I closed my eyes and clung to my hammer. 
+
+I heard the monster's steps close in. It moved close enough that I could hear its ragged breath. The shelf a row over crashed down. It was now just on the other side of where I sat. I opened my eyes. I looked up at the towering rows of jars. Black, undeveloped eyes looked back. If I sat and did nothing, I was dead. I put my shaking legs to the ground. In one movement. I threw myself upwards and slammed my shoulder into the heavy shelving unit. I stood up. It seemed to tilt in slow motion. I turned my head up and saw the creature turn its head at the same time. Its eyes widened in surprise. 
+
+The jars fell like rain. The shelf tipped, slow and heavy. The creature didn’t have time to react as the shelving unit slammed into it. The beast fell backwards. Its head cracked hard against the floor. It groaned and moved its head slowly. Not wasting the opportunity, I clamored over the toppled shelf and brought the hammer back. With a quick motion, I connected it with the side of the monster's skull. Its head flopped to the side, and a stream of blood poured from where I struck it. 
+
+I exhaled a sigh of relief and felt my body start to relax a little. Carefully, I stepped over broken glass and deformed fetuses. As I stepped around the beast, I heard a faint crackling sound from around its neck. My eyes fell on the collar around the neck of the monster. It still emitted an electrical pulse. Rage burned inside me. It was like the doctor was still trying to get to me through his monster. I moved towards the beast. I hooked the collar with the back of the hammer. I grabbed the beast's disgusting maw to hold it in place. I pulled the hammer back as hard as I could. I strained my muscles as the collar stretched. Finally, the collar gave up its stubbornness and snapped. 
+
+A ring of red, irritated skin was left around the throat of the beast. I tossed the collar, and it skidded across the ground. Looking around the room, rage churned in my chest. All these creatures, all these twisted babies and fetuses that he prided himself on creating. I thought José of and all the other people he fed to his deformed creation. Believing himself to be above God because he could make monsters. I tightened my grip on the hammer and left the room.
+
+I walked down the hall. My shoes squeaked with the preservation fluid that coated their underside. Retracing my steps, I walked down the hall. I passed the vent torn from the ceiling. I turned the corner, going back towards the sterile kitchen area where we woke up. I saw the dim light of the room at the end of the hallway. The fear from before started to creep back in. I had a hunch the doctor was guarding the exit, and there was no real way out the way he sent us. I wondered what I would do if I had to confront him. Could I kill him? Did I have it in me to take a human life? I would find out soon enough. 
+
+I stepped into the dim room. Dr. Flores sat with his back towards me. He was cleaning the knife he’d used to cut our hands. The hammer felt heavier in my grip. I lifted it, taking a few creeping steps forward.
+
+“Back so soon, Mateo?” Dr. Flores asked. “You must’ve made quite the mess. I could hear your squeaky steps all the way down the hall!”
+
+I froze solid in my tracks.   
+The doctor turned around. “Oh. It's you.” Flores said, disappointed. “Where’s your friend?”
+
+Anger boiled inside me. I rushed at him. He stood up and pulled the pistol from his pocket. I stopped again. I skidded to a halt. 
+
+“I figured this might happen. Mateo has been struggling with hunting two targets at once.” Dr. Flores shrugged. “Something to work on in the future.”
+
+“There is no future with that thing. I killed it.” I said plainly.
+
+The doctor raised an eyebrow. “Is that so? And you did it with that hammer?” He asked skeptically.
+
+I nodded shakily.
+
+“I’m afraid I don’t believe you,” said the doctor smugly.
+
+“Don’t believe me? Check the room where you keep all your little monsters!” I yelled.
+
+“I wouldn’t cling so tightly to your lie. If Mateo is dead, then I’ll have to kill you myself.” Dr. Flores said coldly. “Toss the hammer. Now!”
+
+I hesitated but then threw down the hammer. It clanged loudly and skidded across the tile floor.
+
+“Good.” Dr. Flores took a few steps closer. He looked me up and down. “Perhaps additional human material should go in my son's next body.” 
+
+He moved next to me. I felt the gun dig into my stomach. With his free hand, he grabbed my chin and turned my head to one side and then the other. 
+
+“In some ways, you even look like him.” He muttered. “You…” He trailed off. His eyes shifted behind me. 
+
+“Where’s your collar?” His voice trembled.
+
+I heard the familiar tap on the floor. The familiar wheezing exhale that shot adrenaline through my body. 
+
+“Fa-ther.” The creature gargled.
+
+Dr. Flores stepped away and started approaching the monster. My gaze followed him until I saw the monster myself. The creature bled from small cuts across its black and white skin. A trickle of drying blood fell from the head wound I gave it. 
+
+“Oh Mateo, what did they do to you?” Dr. Flores said with concern that it was frighteningly genuine. “Once you take him out, we can get you cleaned up.” 
+
+“Don’t want to hurt… anymore.” The creature's haunting voice stated.
+
+The doctor rushed towards the beast. “But Mateo, he hurt…”
+
+“Not Mateo!” The monster rasped. “Not me!”
+
+“Listen to yourself!” The doctor chuckled nervously. “Just calm down, and we can talk through this.”
+
+“No!” The grotesque hybrid screamed.
+
+I watched the monster bring its clawed arm back and slash it across the doctor's chest. Dr. Flores fell onto his back as the creature's tall, lanky figure moved in on him. 
+
+“So this is it?” Flores gasped as blood ran down the wounds in his chest. “You’re going to kill your own creator?”
+
+I took a few steps back, unsure what to do. I looked on the table and found the knife the doctor left behind. I swiped it quickly and held it up in front of me. However, Flores and his creation were far too occupied with each other.
+
+The creature reached out its hand and grabbed the doctor by the shirt. It lifted him off the ground. Flores yelped and squirmed in the monster's grasp. It brought its creator inches from its face.
+
+“Told you. Don’t want to hurt anymore.” The creature said.  
+   
+A loud bang suddenly rang out. The creature gasped in surprise. Its yellow eyes were wide with shock. It dropped the doctor and stumbled a few paces back. Blood pooled from a wound in its abdomen and dripped onto the floor. 
+
+“Do you know how much I have invested in you?” The doctor asked, gun in hand. “2 years I spent refining you! Molding you! Still, your beastly DNA hides him from me.” 
+
+The creature let out a pathetic whimper and collapsed to the ground, clutching its stomach.
+
+Flores got to his feet. “Let's hope your successor isn’t such a disappointment.” He leveled the gun at the creature's head. 
+
+With the doctor distracted, I lunged. It was all a blur. I don’t know what I was thinking or if I was thinking at all. All I remember is feeling the knife sink into the doctor's back. The gun fired, and the bullet struck the wall. The knife stalled as it hit the doctor's ribs, but I forced it deeper. The doctor made a garbled noise of distress as I pushed the blade in until only the handle was outside his body. Warm blood leaked out onto my hands. I retracted the blade and held it up defensively. Flores dropped to his knees, exhaled, and then collapsed face down. I looked down at my shaking hands painted red with blood. The knife clattered against the floor. My head spun as I took two uneasy steps back. 
+
+“Please forgive me,” I muttered under my breath. 
+
+I fell to the floor and dug through the doctor's pockets, trying to find a phone. I found car keys and his wallet, but the rest were empty. I sighed. Why didn’t Flores carry a phone on him? I stood up again. My legs felt tired and heavy as the adrenaline spike started to subside. I located a door at the back of the room. Thankfully, it wasn’t locked. Opening the door, I found a long, dimly lit concrete hallway. At the end of it, I could see the beginnings of a staircase and possibly my way out of this hellhole.
+
+“Wait! Please!” A hoarse voice called to me.
+
+I turned around. Looking back, I saw the monster still alive on the floor where it had fallen. Its clawed hand reached out helplessly. Blood had dripped from its abdomen and pooled on the ground. 
+
+“Don’t leave me!” The monster pleaded. “Hurt… bad.”
+
+Perhaps I was driven half crazy given that I just killed a man; however, for the first time, I looked into the eyes of the monster and saw a soul. Not the soul of the doctor's son, but a soul unique and hurting. At that moment, something in me changed. I thought of my sister. I thought of how she was discarded by her family because she wasn’t born the way they wanted. Guilt pierced me like the knife in the doctor's back. I felt hot tears build in my eyes for the first time in months. 
+
+If I were smart, I would’ve turned around and left. Moments ago, I had watched this creature tear apart my friend and attempt to hunt me down. Still, as he lay there bleeding, reaching out for comfort, he seemed to be an entirely different being. All I could wonder was what kind of pain the doctor had put him through to bring that out of him.
+
+I grabbed a clean rag from the counter and approached the creature cautiously. “I’m going to put this over the wound. You need to apply pressure to it.” I said as I pressed the rag against his bleeding stomach.
+
+The creature grimaced before it placed its awkward, clawed hand over the rag to hold it in place. He panted heavier than normal.
+
+“Dying.” He muttered. 
+
+“Don’t say that. We’re going to get out of here and get you help.” I said, trying to comfort him. “Lean your arm on me. I’ll help you walk.”
+
+The creature put his long arm around me. I pulled him up, which caused him to cry out in pain. He had to hunch over to bear part of his weight on me. With one arm around me and the other clutching a rag to his wound, the two of us slowly made our way to the door. Together we shambled down the long concrete tunnel. I looked to the ground and noticed dark drops of blood still dripping from the creature's wound.
+
+We eventually made it to the stairs. We ascended upwards, and at the top was another door. The ascent was even slower than the walk over. With every step, the creature winced. A few times we even had to stop for a moment so he could rest. However, we eventually made it to the door, and with a push, warm sunshine washed over me. We found ourselves on a hill that sloped down to the beach. I saw the clear blue water rolling gently in and out. A complete juxtaposition to the hell we’d been in.
+
+I felt the creature's arm leave my shoulder. “The sun.” He breathed. 
+
+His eyes squinted as he stumbled forward. His arm reached up towards the sunlight as he moved. He walked until he could no more. His legs shook. I rushed to catch him, but I wasn’t fast enough. The creature fell with a small gasp of pain. He shifted himself so that he could lean back and look out on the scene in front of us.
+
+“Get up! We’re almost out!” I yelled, grabbing the creature's arm. 
+
+“No more.” The creature said weakly. “Tired.”
+
+I put his arm on my shoulder. “We can still make it.  We have to keep going.”  
+The creature just shook its head, the sun reflected in its eyes. “Thank you. Never been outside.”
+
+I stopped and let his arm fall off my shoulder. I sighed and sat down beside him. “How is it?” I asked.
+
+“Beautiful.” 
+
+I don’t know how long we sat there. It was quiet for so long I didn’t even notice when he stopped breathing. I only noticed when I looked over and saw his eyes sleepily half open. His head slumped slightly to the side. I tried to jostle him but got no response. I checked his pulse. Nothing. I stood up, made the sign of the cross, and prayed.
+
+“Dear God, I have witnessed three souls enter your hands today. Grant peace to the suffering, comfort to the mourning, and forgiveness for the sinners. Guide me, too, toward atonement for the sins I committed today and day prior. Thus I say to you, amen.”

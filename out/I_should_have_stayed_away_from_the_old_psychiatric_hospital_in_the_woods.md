@@ -1,0 +1,258 @@
+I pulled out a blue pin and stuck the newspaper clipping onto the cork board. 
+
+In the article, she mentioned driving at night in the pouring rain when she saw a dark figure standing in the middle of the road. She continuously beeped her horn and tried to slow down, but she saw it wasn’t moving. She ran her car off the road and went headfirst into a tree. When she came to, the figure was gone.
+
+Fortunately, she was one of the lucky ones. I was happy to add another blue pin to my board- I had to use so many reds lately. I pinned this one right where Hospital Road was on the map and looked at all the red pins surrounding it. 
+
+I leaned back in the leather recliner I inherited from my old man, thankful I got to enjoy one thing I got from him. Then I started at the big cork board in front of me, the one with 40-odd newspaper clippings all spread out over a map of the woods on the other side of town. Some of the articles on here were older than I was.
+
+I took a sip of coffee and leaned back; the same questions that came in my head came racing through 
+
+Why do I keep doing this?
+
+When will this end?
+
+And then the one that made my skin crawl.
+
+Why do I feel like I have to go and check this out?
+
+Growing up, my parents were the best. They were loving and caring, and they gave me a childhood most people would kill for. As I got older, I realized that there was a certain hollowness to their smiles, like they were always on the verge of tears. 
+
+I noticed it first in my mom, so one day I asked my dad about it. He sat me down and showed me this board. I was amazed; it was a detailed map of the forest, and in the middle of the map there was a big picture of the old Psychiatric hospital. Its brick-red exterior always reminded me of an old school. 
+
+Then, he began to tell me about how my brother died. 
+
+My parents had another son when they were young; his name was Jeremy, and as my dad described 
+
+“He was born different.”
+
+My dad told me that he and my mom were so young when they had him and that they loved Jeremy so much and they just wanted to do what was right for him, and after consulting with doctors, they recommended that they admit him to the local Psychiatric Hospital.
+
+He told me it wasn’t like what people thought; the hospital staff was friendly and they wanted to help him. It broke their hearts when they had to sign him over to the staff, but they visited him often, and they were assured that it was the best place for him. 
+
+One day, they got a call telling them that Jeremy had killed himself. 
+
+It broke their heart, particularly my mom’s; she was never the same. My dad told me that, even after they had me, almost 20 years later, he had hoped he would see some of her old joy come back, but even then he could still see the sea of sadness behind her smiling eyes. I never did tell my dad that after he told me about my brother, I could see the same sadness in his eyes too. 
+
+My dad went on to explain that he had never believed that my brother had killed himself, that Jeremy was always happy. He never spoke about harming himself and the staff never reported that he had any incidents.
+
+ One day, weeks later, my dad was drinking his morning coffee, reading the paper, and he came across another newspaper clipping where another patient had mysteriously committed suicide. 
+
+Then another, and another, and so on. To most, this probably just looked like “crazy people killing themselves,” but not to my dad. He saved every newspaper clip and posted them on the map attached to the corkboard.  A little while later, an investigation into the psychiatric hospital led to its immediate shutdown and evacuation. 
+
+Rumors about what happened spread through the press; my dad kept those pinned to the side too. Some reported that there was a slaughterhouse on site where the patients were killed, but that was a lie. I had seen pictures of the ward throughout the years, and the only thing that ever felt out of place on the hospital’s grounds was the farm, where the patients got to work with and care for animals. There were rumors that some patients snuck out at night and the farmer came across them and that he killed them in cold blood. There were also reports of underground tunnels that staff could navigate, but nothing was ever confirmed. 
+
+My father told me that once the hospital shut down, he was going to take the corkboard down, but then he noticed articles mentioning the dark figures. 
+
+Within days of the hospital shutting down, rumors began to spread about dark figures appearing in the woods near the hospital. Some articles mentioned people seeing beings of pure darkness whenever something bad happened.  Most just considered them bullshit, but not my dad.
+
+I remember him showing me the newspaper of the first sighting; this family camping in the woods got run off because they spotted the dark figures, and they just stared at them. My dad went to bed after showing it to me, but I remember staying up and just asking myself,
+
+“Why? Why is he charting this?” So I re-read the article, trying to figure out why these rumors of dark figures had dug themselves so deeply into my dad’s brain.
+
+Then, I saw it. The youngest son of the family told reporters that he thought one of the dark figures looked like a boy with a bowl cut and that when it started to approach the family, they ran and called the police. As I sat there with the newspaper clipping in my hand, I looked at the desk beneath the board and saw the framed photo of my older brother, with his big baby-blue eyes, childlike grin, and a bowl cut. 
+
+I took over once the old man passed- I don’t know why. We rarely spoke about the board after he explained it, but every once in a while, when I came over, I would see new articles; the ones where the dark figures just stared were always marked with blue pins, and the others were marked with red. 
+
+Some of the red ones involved people trying to break into the asylum and being run off by the dark figures, but others were more unfortunate. People who saw the dark figures might have assumed they were just ethereal beings there to observe their wrongdoings, and they paid the price. 
+
+One article that always stood out to me was the group of kids who set out to set a fire in the woods at night. The only kid who made it back out of the woods alive was the one who stayed behind to lookout; he gave an account of how the shadow people grabbed the kids and pulled them deeper into the woods. His article mentioned how at night he thinks he can still hear his friends screaming for help. The police searched the area and found nothing. 
+
+I looked at the board and took the last sip of my coffee. A couple of months ago, I tried to shift away from searching, to move on with my life in a way my father never did, but every time I tried to stop I would get an urge to look through the paper, like it was calling for me. 
+
+Lately, I've noticed that at night my mind wanders to those woods. I would think of the abandoned psychiatric hospital, and it began to haunt my dreams. What’s in there? Why is this happening? 
+
+There have been more sightings in the past 2 months than I had seen since taking over, and I knew it was their way of getting my attention. Once that thought crept into my head, it haunted me; it was all I could think about. I had to end this the only way I knew how.
+
+I left the house that I inherited from my dad and drove to the other side of town where the woods were. As I left, I hesitated before starting my car; my mind shifted to my dad. I hope that whatever I find in the woods lets his mind rest. I had to do this, not just for me, but for him. 
+
+I parked across the street and got my flashlight out. The thought of entering the forest with its endless trees and the dark, cold air had already made the hair on my skin start to stand, and my stomach was in knots. Everything in my body was telling me not to go in, to turn back, but I thought of my old man once again and swallowed the fear in my throat. It was time to get answers. 
+
+I entered the dark woods with nothing but my flashlight out. I knew the route to the hospital by heart at this point, but I kept a copy of the map in my back pocket just in case. As I made my way through the darkness with nothing but the sound of leaves and twigs crunching at my feet, I began to feel like I was being watched. 
+
+I pointed my flashlight behind me, expecting to see one of the dark figures, but saw nothing. I repeated this 4 or 5 times before I gave up, just accepting the overwhelming feeling of being watched by something behind me as I made my way down the trail to the hospital. 
+
+Every time an animal scurried along the path or on either side of the forest, I jumped. I couldn’t help it, by this point I was a nervous wreck. With each crunching step I took toward the hospital, a new thought popped into my head that I hadn’t considered before I left. 
+
+What if I get lost?
+
+What if I come across a bear? 
+
+What if I was wrong about this?
+
+My flashlight started to fade as I got closer, but I knew I had to keep walking. I felt that if I stopped, I was dead, so I continued on with nothing but the occasional moonlight guiding my way. I kept shaking my flashlight, and to my surprise it did turn on a couple of times, but it felt like the closer I got to the asylum, the less it was working. 
+
+I'd changed the batteries the night before, so there was no way it couldn’t work. Eventually, I had to stop; the pitch-black of the night was too much. 
+
+I looked up at the sky, hoping for the comfort of moonlight, but I couldn’t see through the darkness from the evergreens. 
+
+It feels like I’m being swallowed by the woods.
+
+I looked back down at the lifeless flashlight in my hands, giving it one final smack out of frustration, and a quick beam came from the light, illuminating a shadowy figure right in front of me. It was as if I was looking at a living silhouette with no traits noticeable besides it’s pure white eyes.
+
+It made me jump back, and as I did, my foot caught a thick root, and I fell back, hitting my head hard on the ground. 
+
+Everything went hazy, and I was struggling to regain consciousness while processing what I just saw. 
+
+Small, shadow, white eyes, 
+
+Small, like a kid 
+
+Wait, did he have a bowl cut?
+
+Was that Jeremy? 
+
+I don’t know how long I had lain there, but as I was still trying to process what had happened, I began to hear footsteps crunching the dead ground as they approached me. I began to panic, but my arms and legs felt heavy. As I was scrambling on the ground looking for my flashlight, I heard the crunching of dead leaves getting closer and closer.
+
+Finally, I found it, flicked it on, and pointed it in the direction of the thing approaching me. I saw something standing above me that I had never even considered I would come across on this trip. 
+
+A young woman, by the look of her face, wearing a black skull cap with blonde hair peeking out. She put her hand in front of her face, 
+
+'Dude, can you turn that thing off?’ 
+
+I turned off my flashlight, and she extended her hand towards me. I grabbed it, and she helped me to my feet; her strength was surprising. 
+
+“Thank you. What are you doing out here?” I asked, the ground beneath me still feeling shaky. 
+
+“I can ask you the same thing. Why were you on the ground just now, stranger?” 
+
+I froze, unsure what to say. 
+
+Do I tell her the truth, or should I just make something up? 
+
+“Listen, these woods. They hold a dark secret.”
+
+“The figures in the woods?” 
+
+I was taken aback. 
+
+“Let me ask you something: do you feel like they were calling to you?”
+
+She said, her fierce blue eyes looking into mine. 
+
+“Yeah- I’m going to the psychiatric hospital. I know I’ll see them there.”
+
+I saw the confident look on her face soften into something more understanding, and she continued. 
+
+“I know what you mean. Let’s go together.” 
+
+“My name’s Aaron, by the way.”
+
+“Christine.” 
+
+As we made our way to the hospital, we exchanged stories of how she knew about the people in the woods. She told me that her family was in charge of the farm that worked with the hospital. That her father was the farmer in charge of overseeing the patients who worked on the farm as part of their therapy. 
+
+She got quiet after that before continuing,
+
+“You know what my father did, right?” 
+
+I had heard the rumors. I guess they were true. I just shook my head, and she looked down at the ground in shame. 
+
+“He was a sick man. He did unspeakable things to those people. Tell me- did he ever hurt someone you knew?” 
+
+“Yeah. Yeah, my brother, I think my dad thought that your dad killed him.” 
+
+It was dark, but from where she was standing, I could see the moonlight reflect off a tear that began to roll down her cheek. She brushed it off and kept going. 
+
+“It’s just up ahead.” 
+
+I followed her as she led me down the dirt path until we got to a large barred metal gate that had the words “ Psychiatric Hospital” at the top, and underneath it was a sign that said “Permanently Closed”. 
+
+The entrance gate was closed, and a large chain wrapped around it. 
+
+“I guess this is it,” I said. Then Christine pushed past me and opened the gate with a key. 
+
+“Where did you get that?”
+
+She just stared at me for a second and said, 
+
+“The things we inherit from our folks. This is the back entrance.” 
+
+I didn’t know what to think at that point, but I watched as she walked up the dirt path and stopped in front of the large hospital, finally in view. 
+
+She stopped before the entrance, and I got to look at the large abandoned building. It was bigger than it seemed in all the pictures I had seen, but was in much worse condition. It looked almost like a school, with floors upon floors of barred windows that I couldn’t tell were meant to keep people in or out. 
+
+“Look over there,” she said in a monotone voice, pointing toward the ground. I shone my light and saw that she was pointing towards a headstone. As I got closer, I realized it wasn’t just 1 or 2; it was an entire graveyard. 
+
+“My dad told me that was where they put the people who died, and their families forgot about them. I always wondered if that’s why he did what he did- because he thought no one would notice that they were gone.”
+
+I began to sense that something was wrong with Christine. Even though I didn’t know her well, I could tell she was acting Stoic. I knew that it pained her to come here. 
+
+I started to back away; I didn’t care about getting the answers anymore. I started to turn back, and she stopped me before I could make my escape. 
+
+“I know they were calling to you like they were calling to me. We have to go inside and end this once and for all. For our families.” 
+
+I tried to process what she was saying, but before I knew it, she was unlocking the hospital's front door. 
+
+“Hey, wait up!” I screamed, hoping to slow her down, but she just went inside with no hesitation, the big hospital doors slamming behind her. 
+
+End what?
+
+Was all that rang through my head. I stared at the entrance to the hospital, then back at the dirt path that led to the woods. 
+
+I can go back now and just forget about this. 
+
+I swallowed the lump in my throat and knew what I had to do. I headed inside the hospital. The large doors slammed shut behind me.
+
+When I got in, I turned on the light and saw the inside had been ransacked, with no sign of Christine. 
+
+“Chris!” I yelled down the hall, and the only thing that responded was my own echo, bouncing from room to room across the abandoned floor.
+
+I kept walking down the hall, grateful my flashlight was working again, and looked into each room as I went. Most were ransacked and empty; hell, most didn’t even have doors. Some rooms, however, still held traces of what the old living arrangements were: small rooms with cheap beds and nothing else. Even in its current state, I could only imagine how fucking awful it must have been to live in this place at its best. 
+
+As I made my way down the hall, that sense of me being watched began again. This time, when I looked behind me, I expected to see nothing like in the woods, but down the hall another dark figure stood motionless, staring at me. 
+
+I was frozen in fear, unsure what to do next, when the figure started to spring toward me. My body started to move on it’s own as I ran down the hall away from the figure, frantically looking for a place to hide or getaway. I turned the corner and saw a door that said “Stairway to floor 2”. And without thinking I pushed the door open and ran up the concrete steps.
+
+ 
+
+When I opened the door to floor 2 I was met with a giant sign that said “Treatment rooms.” and ran down the hall trying to open every door I could, until one finally opened. I flung myself inside and tried to find something to barricade the door, when suddenly I realized I wasn’t alone in the room. 
+
+At the corner of the room, sitting on an old beat up couch was Christine. 
+
+“Christine- are you?” 
+
+“I don’t think they’re evil. I want you to know that.” Christine said as she put her head in her hands. 
+
+“It’s been so bad lately. I haven’t been able to concentrate on anything- every time I closed my eyes it brought me here. Is that what it was like for you?” 
+
+“Yeah, I guess so. Chris you’re not making sense. Why didn’t you wait for me before?” 
+
+I got closer to Christine and before I could reach out and touch her shoulder a loud bang erupted from the other side of the door, making both of us jump. Christine stood to her feet.
+
+“I think they just want vengeance. They got my dad, they got my brothers. I don’t think they’re going to hurt you though.” She said, putting a hand on my cheek as tears began to roll down her face. 
+
+Another pound at the door startled me to the point I couldn’t move, but she moved closer to the door. 
+
+“Your brother, tell me. Which one is he?” 
+
+She stood at the door just staring at the hande before reaching her hand out and grabbing it. 
+
+“Don’t open that!” 
+
+“They aren’t after you. I think they called you here to see you. Maybe they just wanted to see someone they considered good or something. I guess I wasn’t so lucky.” 
+
+She began to open the door. 
+
+“The small one with the bowl cut. That was my older brother- I had never seen him until today.” It was the only thing I could say that I think could make her stop. 
+
+Another loud bang and I jumped back, Christine remained motionless. 
+
+She looked back at me and with tears running down her cheeks she said
+
+“I’m so sorry” before opening the door, stepping outside and closing it behind her. 
+
+As soon as she left the room I was expecting to hear screaming that would haunt me for the rest of my life, but I heard nothing. After the moment of anticipation passed  I flung the door open myself and looked down the hallway expecting to see her being dragged down the hall by the dark figures, but I saw nothing.
+
+I exited the hospital, and walked out of the woods. The feeling that I was being watched was gone. I got home and called the police. 
+
+They came by to question me and asked me the usual questions as to why I broke into the hospital and who the girl was. I gave them statements and they said they were going to do an investigation, but I never heard back from them. 
+
+A couple weeks later I was drinking my morning coffee and as I was checking the paper I saw a missing person ad that showed a smiling picture of the woman I met in the woods. I clipped it out and put it on the board, this time placing it directly where the hospital was on the map with a red pin. I won’t be updating the board anymore after this. 
+
+If you’re reading this, please stay away from that old psychiatric hospital in the woods.
+
+Stay away from the Dark Figures in the woods. 
+
+
+
