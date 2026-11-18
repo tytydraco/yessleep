@@ -186,4 +186,4 @@ The whole reason is that a documentary is coming, I don't know when, and the per
 
 She dyed it blonde, the same shade as the woman in the white dress.
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/1xwks2m/i_ran_the_federal_task_force_on_the_woodburn/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/1xzetrj/i_ran_the_federal_task_force_on_the_woodburn/)
