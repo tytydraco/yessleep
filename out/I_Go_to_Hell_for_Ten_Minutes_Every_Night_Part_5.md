@@ -217,3 +217,5 @@ And then they just left. We haven’t been attacked and Sarah seems fine. She’
 And that’s what we did, because we were long overdue. I spent the night snuggled up to Maia and there were no dreams.
 
 That’s good enough for now.
+
+[**\[Part 6\]**](https://www.reddit.com/r/nosleep/comments/1xzcxtl/i_go_to_hell_for_ten_minutes_every_night_part_6/)

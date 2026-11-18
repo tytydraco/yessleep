@@ -99,3 +99,5 @@ I just wonder sometimes, is all. What if we *were* in a relationship, but it for
 It was mostly just that bit about it feeling weird because it was his first time trying to get to know me again. I barely thought about it when he said it because I was so overwhelmed by everything, but it was odd enough for me to remember it all this time later. Like yeah, of course it would feel weird, but why say specifically that it was his first time trying to get to know me again?
 
 [<<](https://www.reddit.com/r/nosleep/comments/1xy7ao6/if_someone_says_you_were_lovers_in_a_past_life/)
+
+EDIT: Is anyone else having trouble seeing the comments on this post? I keep refreshing them but I just get a blank screen saying “HTTP 666 Causality Error.”
