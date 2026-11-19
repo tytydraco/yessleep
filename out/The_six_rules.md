@@ -1,0 +1,455 @@
+I started working the night shift at a café about a month ago. It's a small place squeezed between a laundromat and a bookstore. The café is open twenty-four hours, most people don't seem to know that. After midnight, we mostly get truckers, people coming home from work, and the occasional group of students looking for somewhere to study.
+
+The job wasn't difficult. Make coffee, heat up pastries, wipe down the counters and keep everything clean. There wasn't much else to do during the night.
+
+The owner was a woman named Maria. On my first night, she showed me around the café and went through a list of rules. She didn't give me anything written down or ask me to sign anything. She just told me what I needed to know while I followed her around.
+
+"One. No music after midnight. 
+
+Two. If someone comes in and orders a black coffee with no sugar, and doesn't say anything else, don't make it. Tell them we're closed. 
+
+Three. At exactly 3:33 AM, check the back door. Make sure it's locked, but don't open it. Just check. 
+
+Four. Don't sit in the window booth. 
+
+Five. If the phone rings after two in the morning, don't answer it. 
+
+Six. Don't ask about the previous night shift worker."
+
+I was staring at her when she finished.
+
+"That's all?"
+
+"That's all."
+
+I laughed because I really thought she was joking. She didn't laugh.
+
+I asked why I wasn't allowed to sit in the window booth. Maria shrugged and went back to checking the coffee machine.
+
+"Just follow them", Maria said.
+
+It was a strange way to run a café, but the pay was good. Better than anywhere else I'd applied, and I needed the money. I figured everyone had their little habits, and there was no point making a fuss over a few strange rules.
+
+The first few nights were pretty uneventful. I made coffee for a trucker, heat up a muffin for a student, and spend most of my shift cleaning things that were already clean. At 3:33, I checked the back door. It was always locked. The phone never rang, and I stayed away from the window booth.
+
+Nothing happened.
+
+I noticed the cameras on my second night. There were three of them: one above the counter, another near the entrance and one in the back hallway. They were old, the sort that recorded onto VHS tapes.
+
+I asked Maria if they were still working.
+
+"They don't work," she said.
+
+"All three?"
+
+"Not for years."
+
+There was still a VHS recorder in the back room, along with a cabinet full of tapes. I thought it was a little weird that she didn't throw any of it away, but it wasn't my business. Maybe she just never got around to it.
+
+Looking back, there were probably a few more things I should have asked about.
+
+Anyway, that was before the man in the grey coat started coming in.
+
+The first time I saw him was around one in the morning. He was wearing a grey coat that looked at least two sizes too big for him. He didn't look really frightening. Just tired. Not the sort of tired you get after a long day, either. There was something about his face that made him look as though he hadn't had a proper night's sleep in years.
+
+He came up to the counter.
+
+"Black coffee. No sugar."
+
+I waited for him to add something else, but he didn't.
+
+I remembered the second rule and told him we were closed.
+
+He looked at me for a moment, nodded, and walked over to the window booth.
+
+I didn't know what I was supposed to do. I'd told him we were closed, but I guess that didn't stopped him from sitting down. He didn't order anything else or try to get my attention. He just sat there looking out of the window.
+
+After a while, I went into the back room. Sounds ridiculous, but I didn't feel comfortable being out there with him. I sat on a crate and waited for a bit. I didn't hear the entrance bell again, so I couldn't tell whether he'd left.
+
+When Maria came in the morning, I mentioned him.
+
+She didn't seem particularly interested.
+
+"What did he order?"
+
+"Black coffee. No sugar."
+
+"And you didn't make it?"
+
+"No. I remembered the rule."
+
+"Good."
+
+She went over to the window booth and looked at the table.
+
+There was nobody there.
+
+"Did he leave?" I asked.
+
+Maria started wiping down the table.
+
+"He wasn't here."
+
+I looked at her, waiting for her to explain.
+
+"What do you mean? I saw him."
+
+She didn't say anything else. I think she meant he left before she arrived, although I still found the way she'd said it strange. I was tired and didn't feel like getting into an argument over a customer who had already gone.
+
+The man came back the following night.
+
+Same coat. Same order.
+
+I told him we were closed, and he went straight to the booth again. I waited a few minutes before going into the back room.
+
+It happened several nights in a row. Eventually, I started getting used to him. I caught myself looking at the clock around one in the morning, wondering if he will show up.
+
+On the sixth night, he spoke to me while I was wiping down the counter.
+
+"You should keep the receipts."
+
+I looked up.
+
+"Sorry?"
+
+"The receipts. You should keep them. They might ask for them again."
+
+He was still looking out of the window.
+
+"Who would?"
+
+He didn't answer.
+
+I went back to cleaning. I figured he was confused or maybe thought I was someone else. There were plenty of strange people who came into the café at night, and I didn't feel like having a conversation with all of them.
+
+When I looked over again, the booth was empty.
+
+There wasn't a cup on the table, either.
+
+He came back the next night.
+
+"You used to work at a diner, didn't you?"
+
+I stopped what I was doing.
+
+"How do you know that?"
+
+He gave a small smile.
+
+"You always put the sugar packets in the wrong place."
+
+I looked down at the counter. I was arranging the sugar packets in little rows, something I'd done at my previous job without even thinking about it.
+
+"Do I know you?"
+
+He looked out of the window.
+
+"Not anymore."
+
+I didn't know what to think. I went into the back room, and when I came out, he was gone.
+
+The next night, he asked about my mother.
+
+Not how she was doing or anything like that. He simply looked at me and asked:
+
+"Is she still taking the blue ones?"
+
+My mother had been ill for a long time and took several different medications. One of them came in a blue packet. I hadn't told anyone at the café about her.
+
+I didn't answer him.
+
+I went into the back room and stayed there until morning.
+
+When I told Maria the next day, she listened without interrupting. Then she asked me to repeat exactly what he'd said.
+
+"He asked about my mother. He knew she was sick."
+
+Maria looked uncomfortable.
+
+"Don't talk to him."
+
+"I'm not talking to him. He's the one talking to me."
+
+"Then don't answer him."
+
+"How does he know these things?"
+
+She didn't respond straight away. Instead, she started putting things away behind the counter.
+
+"People tell strangers more than they realise."
+
+"I haven't told him anything."
+
+She stopped and looked at me.
+
+"That's what you said last time."
+
+I asked her what she meant by that, but she turned away and told me I should get some sleep before my next shift.
+
+I was starting to get tired of being told to sleep every time I asked a question.
+
+That night, I decided I won't hide in the back room anymore. I would stay behind the counter and ignore him. If he wanted to sit in that booth all night, so be it. I wasn't going to keep running away from some man in a coat.
+
+He arrived just after one.
+
+I didn't look at him or say anything. I carried on cleaning the coffee machine.
+
+A bit later, I heard the bell above the entrance.
+
+I looked towards the door, but I hadn't actually seen him leave.
+
+When I checked the booth, there was something on the table.
+
+It was a photograph.
+
+The picture was old and faded. It showed a man standing outside the café, smiling at whoever had taken the picture. He looked younger, and he was wearing a blue coat.
+
+I recognised him immediately.
+
+It was the man in the grey coat.
+
+I turned the photograph over.
+
+There was a sentence written on the back.
+
+You said you'd remember this time.
+
+I read it a few times before I realised what was bothering me.
+
+The handwriting was mine.
+
+It sounds ridiculous, but I knew it was mine. I have a particular way of writing certain letters. The writing on the back of that photograph looked exactly like mine.
+
+I couldn't remember writing it.
+
+I couldn't even remember seeing the photograph before.
+
+I took it home with me.
+
+The next morning, I showed it to Maria.
+
+She looked at it for a long time without saying anything.
+
+"Where did you get this?"
+
+"It was on the table."
+
+She turned it over, read the writing and put it face down on the counter.
+
+"That's Daniel."
+
+"Who?"
+
+"The previous night shift worker."
+
+I looked at the photograph again.
+
+"Why?"
+
+"He disappeared three years ago."
+
+I waited for her to explain, but she didn't.
+
+"What do you mean, disappeared?"
+
+"One night he finished his shift and never came back."
+
+"Did you report him missing?"
+
+"Yes."
+
+"Then why didn't you tell me about him?"
+
+Maria rubbed her forehead.
+
+"Because you weren't supposed to ask."
+
+By then, I was getting frustrated.
+
+"Maria, I keep seeing a man who apparently doesn't exist, and now you're telling me he used to work here. What exactly am I supposed to think?"
+
+She looked at me for a while.
+
+Then she spoke quietly.
+
+"No one has been sitting in that booth for three years."
+
+I didn't believe her. I saw him. I heard him speak. I watched him sit there night after night.
+
+But there was something I couldn't explain.
+
+I had never actually seen him leave.
+
+Every time I went into the back room, I assumed he'd gone when I heard the bell. But the more I thought about it, the less certain I became that I'd ever heard it. I couldn't remember hearing the bell when he left. Not once.
+
+I started wondering whether I'd actually seen him leave at all, or whether I'd just assumed he was gone whenever I came back out.
+
+That evening, I went to the café earlier than usual. I wanted to check the cameras for myself.
+
+Maria had said they didn't work, but the recorder was still in the back room. I opened the cabinet and found several tapes. Most of them had old dates written on the labels. One was dated from the previous week.
+
+I put it into the machine.
+
+The picture was grainy and black and white. The timestamp showed 1:47 AM.
+
+I watched myself standing behind the counter, wiping something down. After a while, I looked towards the window booth and walked out of view.
+
+A few minutes passed.
+
+Then I came back.
+
+I was carrying a coffee pot.
+
+I poured coffee into a cup, placed it on the counter and looked towards the booth. After standing there for a moment, I picked up the cup and walked out of frame again.
+
+I rewound the tape and watched it again.
+
+There was nobody else in the café.
+
+No man in a grey coat. No customer. Just me.
+
+I watched it a third time, thinking I'd missed something the first two times.
+
+I didn't. 
+
+But then I noticed something I hadn't paid attention to before.
+
+Just before walking away from the counter, I looked directly at the camera.
+
+I was smiling.
+
+I don't know why that bothered me so much. Maybe because I didn't remember smiling that night. I certainly didn't remember feeling happy. I looked tired, but there was something else in my expression that I couldn't put my finger on what.
+
+I stopped the tape.
+
+I sat there for a while, trying to remember what had happened that night. Nothing came back. I couldn't remember making the coffee, carrying the cup or going anywhere near the booth.
+
+I started feeling sick.
+
+Then I heard the bell above the entrance.
+
+I turned around.
+
+The man in the grey coat was standing at the counter.
+
+I had no idea how long he'd been there.
+
+"Black coffee. No sugar."
+
+I didn't move.
+
+He looked at me.
+
+"You watched the tape."
+
+I said nothing.
+
+"You saw yourself."
+
+It took me a moment to find my voice.
+
+"Who are you?"
+
+He looked almost disappointed.
+
+"You know who I am."
+
+"You're Daniel."
+
+He smiled.
+
+"That's what they told you."
+
+My hands were starting to sweat.
+
+"You're not on the tape."
+
+"Are you sure?"
+
+"I watched it. There was nobody there."
+
+He glanced towards the back room.
+
+"Then who made the coffee?"
+
+I couldn't answer.
+
+"You did," he said. "You always do."
+
+I stepped backwards.
+
+"Why don't I remember?"
+
+He watched me for a few seconds.
+
+"Ask Maria."
+
+"Why do you keep coming here?"
+
+He looked towards the window booth.
+
+"Because you keep coming back."
+
+I didn't understand what he meant.
+
+He turned towards the entrance. Before leaving, he stopped and looked over his shoulder.
+
+"Check the back door tonight."
+
+"I always check it."
+
+"I know."
+
+He paused.
+
+"At 3:33."
+
+Then he left.
+
+I didn't stay until morning. I grabbed my bag and walked out. I didn't even bother telling Maria I was quitting.
+
+I found another job at a diner across town. It's busier, noisier and the pay isn't nowhere near as good, but at least I don't have to follow a list of strange rules.
+
+For the first few nights, I didn't sleep very well.
+
+I kept thinking about the photograph and the tape. I also couldn't stop thinking about what Maria had said. That's what you said last time.
+
+I tried calling the café once. The phone rang for a while before someone answered. I hung up without saying anything. I don't know why. I just couldn't bring myself to speak.
+
+I haven't called again.
+
+I still check the time at 3:33 AM.
+
+Every night.
+
+Sometimes I wake up just before it. Other times, I open my eyes and it's already 3:33. I wait until the minute changes before going back to sleep.
+
+I thought I'd eventually stop doing it, but I haven't.
+
+Last night, I woke up at exactly 3:33.
+
+I looked at the clock.
+
+Then I got out of bed and checked my back door.
+
+I don't know why I did it. I knew I was home. I knew I wasn't working at the café anymore. But I still got up and checked the lock.
+
+It was locked.
+
+I checked it again.
+
+When I turned around, I noticed a piece of paper on the kitchen table.
+
+I hadn't seen it there before.
+
+I picked it up.
+
+The handwriting looked familiar.
+
+Not similar to mine.
+
+Mine.
+
+There was only one sentence.
+
+Rule seven. Don't check the door anymore.
