@@ -76,7 +76,7 @@ I could now see her: my daughter. It was her face, her beautiful green eyes and 
 
 “I love you. I don’t care about anything else,” I said.
 
-“LIAR!” she yelled again, her mouth distorting with the roar.
+“LIAR!” she hollered, her mouth distorting with the roar.
 
 She threw herself off the bed and stormed off, slamming my bedroom door behind her. Seconds later, I heard another door slam shut on the other side of the house.
 

@@ -1,0 +1,103 @@
+“I basically know all the moves you’re going to make at this point,” Clark said. “It’s not really fair.”
+
+We’ve been dating for several months now. That night, we were playing chess in his kitchen as his cat Tammy swirled around beneath the table. He kind of did know me, the bastard, he’d deftly parried every opening and advance I’d made and was always ahead by the mid-game.
+
+“Don’t patronize me,” I grumbled, staring at the board. I was in a corner with only a few avenues left to try. On the wall, the clock ticked. Clark had a clock in every room of his place, even the bathroom. They were all set to slightly different times, which bothered me. Even his watch ticked if the room was quiet enough, but thankfully he always took it off before bed.
+
+“Time,” Clark said, flipping the little plastic hourglass he’d taken from some board game.
+
+“Whatever,” I said, moving a piece at random, pretty sure I was going to lose but not conceding yet. *Never kill yourself,* I thought.
+
+Since we’d started playing, he’s been a real stickler for the hourglass. I don’t blame him really, since without it I’ll pore over all my possible moves for too long, but what slightly irritates me is how fast he always moves, like he knows what I’ll do next. He’s a gentleman when he wins, at least.
+
+I guess we’d been dating for so long, according to him, that he kind of does know everything I’ll do. It’s a weird feeling, like I’ll get self conscious if I’m making a joke and worry that he’s heard it before in the exact cadence and I feel like a little bit of an idiot, but he always laughs. And I guess the nice part about that is that he knows exactly what makes me laugh.
+
+“That’s a new one,” Clark said, still staring at the board.
+
+I stopped scratching Tammy’s head to realized he hadn’t made a move yet, and the hourglass had just dropped its last few grains.
+
+“Time,” I said, moving to flip it. But Clark’s hand was suddenly, lightly, on mine, and I didn’t touch the hourglass.
+
+“Hold on,” he said, glaring at the board.
+
+Maybe it was easier for me, since I’d been the one seeing it from my point of view, but I could tell immediately how he could capitalize on the random move I’d just made. But he didn’t see it.
+
+“Okay, let’s try this,” he said, moving one of his pieces into a position that looked terrible. His hand left mine to flip the hourglass himself.
+
+Clark exhaled through his nose and shook his head as I studied the board.
+
+“Man, that was such a weird move you made.”
+
+We kept playing, and somehow, I was able to eke out a victory.
+
+“Oh, my god,” I said, stretching in my chair. “Never kill yourself.”
+
+“Good game,” Clark said, putting the pieces away. “Man, that was such a strange move.”
+
+“Yeah?” I said. “It was basically completely random. I just got lucky.”
+
+“It just really threw me off,” he continued. “So strange.” Then he looked up at me, and his expression softened. “Amor vincit omnia,” Clark said, and smiled his lopsided grin. “Your feminine wiles got the better of me.”
+
+“Yeah, right,” I said, and kissed him. “I gotta feed Mila tonight before I sleep,” I said. It was late, and work wasn’t letting me call off for my birthday tomorrow.
+
+“Same time tomorrow?” I asked, getting my things. 
+
+“Maybe a little earlier,” Clark said. “I’ve got something special planned. And trust me, I know you’re going to like it.”
+
+That one did give me butterflies. I hadn’t even told him when my birthday was, but of course he already knew. I know I said this in the last update but it’s such a crazy cool feeling, knowing that someone who loves you deeply knows exactly what you like and how to make you feel happy. I just knew Clark was going to make my birthday a really good one, and he didn’t disappoint.
+
+
+
+He picked me up after I got home from work and showered (he really doesn’t like me driving, he said he has a paranoia about car accidents) and we went to a park downtown to walk around for a while.
+
+“This was where our first second date was,” Clark said. “We walked around here after getting lunch once, and almost got caught in the rain.”
+
+The sunset glittered off the river.
+
+“Right there, by that bench,” he said, pointing, “that was where you kissed me for the first time.”
+
+Not for the first time, I wondered about that first me, the past-future-life one. I’d never had to make the decision of whether or when to kiss Clark, because he’d known the perfect time and place on our second date (which had been in a different park). When he’d kissed me then, it felt like the perfect culmination of the date. I wondered too whether she’d wished he had just kissed her.
+
+I thought about kissing him there again, but it didn’t feel right. Is it weird to be jealous of yourself?
+
+We kept walking, making alternating left and right turns as the path forked and meandered through the trees. I was absently tracking them as we curved back towards the car, and was only slightly childishly peeved when Clark interrupted the left-right sequence with two right turns and then a left at the end. The park really had been beautiful though, especially at this hour with the sunset and the leaves falling around us. It was something I didn’t realize I needed after a long day at work under the fluorescent lights.
+
+“I hope you’ve worked up an appetite,” Clark said as we got in the car. “We’ve got three courses tonight.”
+
+I didn’t have the heart to tell him that I’d skipped lunch and barely had breakfast, and that I was glad the noises of the wind and the water had masked my growling stomach.
+
+He drove us to a restaurant I’d always been wanting to try, but never had the nerve or the financial comfort to follow through on. The host ushered us through the dozen people waiting at the door to a candlelit reserved booth in the corner.
+
+Clark ordered everything for me, even the wine.
+
+“I never drink red, though,” I said.
+
+“Trust me,” he said. “You’ll love it with the main course.”
+
+And he was right. Everything was cooked and seasoned to perfection - the meat just the way I liked it, the bread just the right level of crunchy and soft, and the simple bottle of wine on the side was ideal. Aside from the fact that I’d had to work, it was a perfect birthday.
+
+“I love you,” I said to him quietly. The words felt unfamiliar in my mouth, thick and sluggish to come out, or maybe it was the wine, but I felt like I needed to say them to him for the first time, then and there.
+
+It was really bad timing. Clark had just flagged down a waiter and was telling him to bring the check.
+
+“I love you,” I said again to him, louder. I wondered how many times he’d heard me say it before.
+
+He looked back at me and smiled. “I love you too,” he said. His hand found mine on the table.
+
+
+
+“I had planned for dessert somewhere else,” Clark said, as we were strolling back out of the restaurant, “but I think you’re probably pretty tired, so we can head home now.”
+
+“I could go for dessert,” I said, resting my head on his shoulder and thinking about that chess move I’d made. I should try to be more spontaneous.
+
+“You sure?” Clark said, visibly surprised. “It’s a little ways away. I’m...actually not sure if it’ll be open at this hour, now that I think about it. I’ll have to check...”
+
+“It’s fine,” I said mildly, second-guessing myself as he started pulling out his phone. “To be honest, I just want to sleep.”
+
+“That’s okay too,” Clark said, slipping his phone back into his pocket.
+
+He drove me back to my place. We spoke little on the way, and just listened to music. He’d made a playlist of songs I’d liked in high school. I’d forgotten that I even listened to some of them. Between the afterglow of the red wine and the wash of the guitars through the speakers, I felt myself slipping away, like a child in the back seat of a car, under the streetlights. I really do love him, and to known and loved by him.
+
+I still need to ask him about how he knows all this, and what made him want to do it all over again? We’ve still never had that conversation, and I can sense it’s a difficult topic for him, but I really need to know. I’d hardly admit it to myself, but that suspense is also keeping me very invested in him. Something tells me I’ll find out soon enough.
+
+[<<](https://www.reddit.com/r/nosleep/comments/1xz29r4/my_boyfriend_knows_me_from_another_life_part_1/)
