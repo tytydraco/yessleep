@@ -116,7 +116,7 @@ It moved closer.
 
 It was starting to get aggressive. The words kept repeating and repeating.
 
-*"your fault your fault your fault* ***YOUR FAULT***\*"\*
+*"your fault your fault your fault* ***YOUR FAULT”***
 
 The shadow was now yelling in my mind with a voice unlike anything I had ever heard. It sounded glitched and impossibly deep. My insides screamed at me and with every ounce of strength I could possibly muster, I finally moved a single inch of my head.
 

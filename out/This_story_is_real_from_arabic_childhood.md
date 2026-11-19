@@ -1,0 +1,151 @@
+The Toys at the Bottom of the Window
+
+My childhood nightmare... or something else?
+
+My name is Mohammed, and this happened when I was around 3–4 years old.
+
+When I was little, my parents used to buy me toys. I loved them, and they were practically my friends.
+
+When I turned four, my parents bought me an iPad. Naturally, I became obsessed with it. I gradually stopped playing with my toys, and eventually, I started throwing them out of my bedroom window, one by one, until I had gotten rid of almost all of them.
+
+Now, here's something you need to understand about our old house.
+
+My bedroom was shared with my siblings. There was a window, but it didn't face the outside world. Instead, it overlooked a narrow, enclosed space inside the building.
+
+The space was roughly 1.25 × 1.25 meters, surrounded by walls with windows belonging to different parts of the building. There was red soil at the bottom, about 3.5 meters below our window.
+
+All the windows had metal bars because falling into that space could be dangerous.
+
+Anyway, after throwing away all my toys, I eventually forgot about them.
+
+Until one day, my iPad stopped being the center of my attention.
+
+My phone had fallen into my bowl of soup and stopped working.
+
+I suddenly missed my old toys.
+
+I remembered throwing them out of the window, so I looked down into that narrow space, expecting to see them buried under dirt by now.
+
+But they were still there.
+
+They looked almost exactly as I remembered them.
+
+However, there were also some toys I didn't recognize.
+
+I wondered if other children in the building had thrown their toys down there, or if I had simply forgotten owning some of them.
+
+I couldn't retrieve them because the window had metal bars, and the ground was too far below.
+
+I eventually went to bed.
+
+But then something strange happened.
+
+I heard someone calling my name.
+
+" Mohammed..."
+
+The voice was coming from below the window.
+
+It was clear. It sounded like an actual person standing down there, calling for me.
+
+I didn't recognize the voice.
+
+At first, I tried to ignore it. I even convinced myself that someone was probably calling another Mohammed in the building.
+
+But there was a problem.
+
+My family was the only family that had ever lived in that building.
+
+I couldn't sleep.
+
+Eventually, I decided I was going to get my toys back, even though it was nighttime.
+
+The enclosed space was completely dark. I could barely see anything down there.
+
+I approached the window and started trying to break or bend the metal bars with my hands.
+
+Then I noticed something.
+
+There was a black figure standing at the bottom.
+
+I couldn't make out what it was.
+
+Suddenly, it turned on a flashlight.
+
+It was a woman wearing a black niqab.
+
+For a moment, I thought it was my mother.
+
+But then her niqab began to tear.
+
+And what I saw underneath wasn't my mother.
+
+Her face looked like Death Worm, a monster from a game I used to love. It had the appearance of a giant worm, with a mouth full of teeth.
+
+I was terrified.
+
+Somehow, I fell through the window bars.
+
+I closed my eyes, expecting to hit the ground.
+
+But when I opened them...
+
+I wasn't in that enclosed space anymore.
+
+I was standing in the middle of the street outside our house.
+
+It was nighttime.
+
+The street was completely empty.
+
+No people. No cars. Nothing.
+
+There was only one streetlight illuminating a small part of the road.
+
+I screamed.
+
+I tried to run back home, but my legs wouldn't move.
+
+Then I heard something.
+
+A distant noise, almost like an airplane engine or an extremely powerful gust of wind.
+
+It was getting closer.
+
+And louder.
+
+And louder.
+
+Until it became unbearable.
+
+Then...
+
+I woke up.
+
+I was absolutely terrified.
+
+The noise had stopped completely.
+
+Even now, I can't remember clearly falling asleep that night. I only remember trying to sleep, failing, and eventually deciding to retrieve my toys.
+
+I also can't explain why I remember the experience so vividly.
+
+Was it all just a nightmare?
+
+Did I hear someone calling my name while I was half asleep?
+
+Was the woman simply something my childhood imagination created?
+
+Or did my brain somehow combine real memories with a dream?
+
+I don't know.
+
+But there's one detail I still find strange.
+
+I never forgot that night.
+
+And sometimes, when I remember those toys lying in the red dirt...
+
+I wonder what those unfamiliar toys were doing down there.
+
+I still don't know whether I dreamed the whole thing, or whether some parts of it actually happened.

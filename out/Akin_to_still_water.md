@@ -1,0 +1,103 @@
+I am a paranormal investigator, well more of an urban explorer. I've been obsessed with old, decaying, decrepit abandoned places since 2 decades ago. There's a certain vibe to such places - places that are abandoned, left to decay; they have a certain stangnancy to them, something that is akin to still water. Mysterious, dangerous, and full of leftover energy. 
+
+I was 12 years old when I first broke into a decrepit mansion 2 streets over, and I am obsessed with the paranormal ever since. I've always had the passion to chase the unknown, and unknowable, and that fire never quenched. Now I'm 33 years old, still breaking into places no one wants to associate themselves with - places that give off energies that will make a decent enough medium cream in their pants. I specifically search for such locations. Locations devoid of graffiti - locations so remote, weird, and dangerous that even graffiti isn't there. And before you ask why do I do it, it's simple. I love the thrill of it, and I want to find a legible proof of something existing beyond our human plane. I want to see my belief turn into a truth. 
+
+So when an abandoned hotel 74 km away came into my line of sight, I naturally checked it's past. Not much is known about the history of that place, except 3 things: 
+
+1. The place was shut down within 2 years from opening. 
+
+2. It had a great success which was brief.
+
+3. All stories lead to one thing. Some incident that happened within 6 months of the hotel's opening. 
+
+I couldn't find anything more about the place, and nothing at all about the incident, so I did the only logical thing I could think of. I called my buddy who's in for any exciting side quest - a true adventurer, packed my camera bag with all the necessary items I would need, shoved a few protein bars down my pockets, and drove out to the hotel the next night. 
+
+Hotel Paradise East. We stood infront of a 6 storied behemoth, long abandoned, and left to rot. It's been atleast 50 years since a logical human stepped into this building, and nature has taken it's course, breaking down the hotel slowly, eating it away - a rigger mortis of sorts. Grasping the corpse of a short lived business venture of some poor fellow, my buddy and I got inside from a broken stained glass window panel. 
+
+When the light from our torches revealed the insides of the structure, it was just boring. Millions of cobwebs, thick layers of dust, and decaying objects everywhere. I took my camera, whose battery was fully charged, and started recording. From half full glasses of water, to receipts, paperwork, and couches with stains, everything was left behind. We couldn't come up with any valid theories though. The kitchen, the hotel restaurant, they were like that too. Literal leftovers of food, dishes in the midst of being cooked, cutlery everywhere, dishes in the sink, literal fruit juices were left behind as if people suddenly seized existing. 
+
+My buddy who had a steadily raised brow since the beginning. 
+
+"There's something in this hotel that shouldn't be here, and I can't place it" 
+
+I looked towards him, and he was trying hard to understand what's wrong.
+
+"What do you think it is" 
+
+"I don't know, but it's deeply wrong" 
+
+"Isn't that what we are here for?" 
+
+"Yeah, but I'm irritated cuz I cannot place it" 
+
+As we reached the first room on the first floor, I checked the battery percentage, and it hasn't dropped below 90%. Losing battery really quickly is a sign of paranormal activity. No such indication from the battery in this site. 
+
+As we walked all rooms, each room told a different story. A couple who left behind used condoms, someone puked their food on the sheets, there were children's toys in one room, handcuffs and a pistol in another. 
+
+"What do you think happened here?" Buddy asked. "It's strange that all of their shit is left behind" 
+
+"Maybe they couldn't bother cleaning up the place?" 
+
+"This is not normal man, everything is left behind, literally everything" 
+
+"It's almost like a movie set"
+
+"+1" 
+
+We sat on a couch on one of the particularly neat rooms, and I checked the battery percentage, which read 88%. 
+
+"No activity as per the cam" I said. "None since we started these side quests" 
+
+"Maybe whatever you are chasing doesn't exist" 
+
+"We haven't *found* proof, that doesn't deny it's existence"
+
+"Optimistic motherfucker" 
+
+I smiled and ended the recording. 
+
+" Let's see if the camera caught anything weird" 
+
+" Yeah" and I clicked the button. 
+
+No video. 
+
+On God, no video. 
+
+Dumbfounded as fuck. 
+
+"You were recording right" now buddy's brow reached the top of his forehead. 
+
+" I literally ended it right infront of you" 
+
+" How many minutes of footage?" 
+
+"23 minutes" 
+
+" Check deleted folder" 
+
+So I did. 
+
+Nothing. 
+
+On mother of god, nothing. 
+
+" Maybe the camera is glitching" my optimism never ends. " Let's go out this room and check" 
+
+When we went outside. 2 things were noticed by us: 
+
+1. Earlier, buddy ate a protein bar I brought, threw the wrapper near the previous room. It wasn't there. I recorded him throwing it down, and footage isn't there either. 
+
+2. Since we humans are so accustomed to it, I couldn't place it immediately. As realisation hit me, I turned towards buddy as he did the same. What buddy was calling *something wrong,* is the mechanical hum of a generator. There's no power supply here. 
+
+And then every machine in the corpse roared back to life. Every cobweb disappeared, every half drank glass became empty, and from the room where we saw used condoms, loud, passionate moaning began. 
+
+People. People in every room. People in the elevators. Servers. Concierges. Chefs. Reception staff. Jazz musicians. Cacophony of a thousand noises. The hotel brimming with life. A black moss. Seeping from the walls, spreading through the floor. The moss is pulsing. The hotel has a soul. The hotel is alive. It's forcing the souls inside it to stay stagnant, like still water. It consumes anything inside it's structure. It looked me in the eye. Ancient, stagnant, full of repulsion towards intrusion. The hotel spoke in an uncharted language. An expression full of hatred towards change. It wanted the stillness. Whatever the hotel was built upon, or built with, it wanted to keep the residents all for itself. 
+
+What happened next was a blur. But I understood one thing. If there's no graffiti in the location you found, there could be two possibilities as to why that is the case. 
+
+Either no one dared go there. *Or the place doesn't want any graffiti.* When I woke up, I was 30 km away from the hotel. My camera wasn't there. Buddy wasn't there. It's been 3 months since. Police are looking for buddy, I was questioned and released after they couldn't prove me guilty. His family hates me now. They are still handing out flyers that report him missing. 
+
+I know the deeper truth. Something I can never tell them. Buddy is gone. The hotel ended his existence. Whatever ancient lies there, was awakened by the hotel's cacophony. And now the hotel's cacophony became the stagnancy the ancientness owns. No intruder is allowed. No intruder can come out. I don't know why I'm the exception. Ancient things want to keep things the way they like it. Sometimes it's stagnancy akin to still water. The wrapper, and buddy both were thrown out, to a place we can't find yet. Maybe I am still here for a greater purpose. 
+
+I won't die before I prove the existence of things beyond us. I'll bring buddy back. 

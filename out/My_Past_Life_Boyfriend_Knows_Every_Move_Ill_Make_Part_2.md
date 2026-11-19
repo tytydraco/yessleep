@@ -1,3 +1,5 @@
+[<<](https://www.reddit.com/r/nosleep/comments/1xz29r4/my_boyfriend_knows_me_from_another_life_part_1/)
+
 “I basically know all the moves you’re going to make at this point,” Clark said. “It’s not really fair.”
 
 We’ve been dating for several months now. That night, we were playing chess in his kitchen as his cat Tammy swirled around beneath the table. He kind of did know me, the bastard, he’d deftly parried every opening and advance I’d made and was always ahead by the mid-game.
@@ -46,8 +48,6 @@ We kept playing, and somehow, I was able to eke out a victory.
 
 That one did give me butterflies. I hadn’t even told him when my birthday was, but of course he already knew. I know I said this in the last update but it’s such a crazy cool feeling, knowing that someone who loves you deeply knows exactly what you like and how to make you feel happy. I just knew Clark was going to make my birthday a really good one, and he didn’t disappoint.
 
-
-
 He picked me up after I got home from work and showered (he really doesn’t like me driving, he said he has a paranoia about car accidents) and we went to a park downtown to walk around for a while.
 
 “This was where our first second date was,” Clark said. “We walked around here after getting lunch once, and almost got caught in the rain.”
@@ -84,8 +84,6 @@ It was really bad timing. Clark had just flagged down a waiter and was telling h
 
 He looked back at me and smiled. “I love you too,” he said. His hand found mine on the table.
 
-
-
 “I had planned for dessert somewhere else,” Clark said, as we were strolling back out of the restaurant, “but I think you’re probably pretty tired, so we can head home now.”
 
 “I could go for dessert,” I said, resting my head on his shoulder and thinking about that chess move I’d made. I should try to be more spontaneous.
@@ -99,5 +97,3 @@ He looked back at me and smiled. “I love you too,” he said. His hand found m
 He drove me back to my place. We spoke little on the way, and just listened to music. He’d made a playlist of songs I’d liked in high school. I’d forgotten that I even listened to some of them. Between the afterglow of the red wine and the wash of the guitars through the speakers, I felt myself slipping away, like a child in the back seat of a car, under the streetlights. I really do love him, and to known and loved by him.
 
 I still need to ask him about how he knows all this, and what made him want to do it all over again? We’ve still never had that conversation, and I can sense it’s a difficult topic for him, but I really need to know. I’d hardly admit it to myself, but that suspense is also keeping me very invested in him. Something tells me I’ll find out soon enough.
-
-[<<](https://www.reddit.com/r/nosleep/comments/1xz29r4/my_boyfriend_knows_me_from_another_life_part_1/)
