@@ -1,0 +1,109 @@
+I don’t know if this invades anyone's privacy or whatever, but it has been eight years since my high school days, and I’m going to change other people's names, so I figure no one will recognize them.
+
+Even if someone does, it doesn’t matter. I’d be more than happy to cause a little trouble in her personal life, just like she once did to mine. Besides, her life is always so glamorous that no one would ever associate anything terrible with her, and she’s completely used to that. It’s really annoying.
+
+That’s why I think our relationship can only count as "classmates." True friends don't feel jealousy toward each other. Friends are supposed to help and look out for one another. Just as Jesus said, "Greater love has no one than this: to lay down one’s life for one’s friends." She was neither generous nor forgiving, she even ruined my favorite jacket. She wouldn't lay down her life for me, so we aren't friends.
+
+Sorry, I always get sidetracked. Miss Brown said that if I broke this habit, she’d give my essays an "A." I never got an A on an essay.
+
+Anyway, I should just get to the point.
+
+Eleanor was a total bitch. I knew it from the very first day she transferred in. She stood at the podium, chewing gum, and didn't even wait for Miss Brown to finish introducing her, she picked up a piece of chalk and writing her name on the blackboard.
+
+"I’m Eleanor. E-L-E-A-N-O-R. Not Elinor."
+
+Then she scanned the classroom, locked onto the empty seat next to me, and walked over—and just like that, my high school life was officially over.
+
+The second person I hated most was Kevin, a fat guy who was full of crap. If it hadn't been for that stupid cold, he would have been sitting next to me that day. Then Eleanor wouldn't have walked over, wouldn't have targeted me, and wouldn't have treated me like her little sidekick.
+
+But Kevin was soon released from my hate list; he brought me some homemade muffins. Now I understand why he weighed 210 pounds.
+
+Where was I? Right, Eleanor.
+
+As much as I hate to admit it, she really was gorgeous. Blonde hair, blue eyes, and a perfect hot body. At first, I thought she was cool, too. So I willingly ran errands for her. By the time I realized what was happening, I had already become Eleanor’s universally recognized sidekick.
+
+Once your image is cemented in high school, you rarely get a chance to change it. People would say, Look, there’s Eleanor’s lackey. Her? Why does Eleanor hang out with that girl? She looks so average. I thought so too, though a flower always needs green leaves to set off its beauty. Ha, that’s true enough.
+
+That’s right, I even lost my own name. My new names were "Eleanor’s sidekick," "that girl," and "weirdo." Aside from me, Eleanor didn't have any other close friends, so I suppose she didn't quite count as a "Queen Bee." In the movies, a Queen Bee needs at least two minions, and she only had me. If I had to make a comparison, I’d rather liken her to a butterfly, so that I could get promoted from a green leaf to a flower. When a butterfly and a flower appear together, people only ever look at the butterfly; the flower is just a place for her to rest.
+
+To maintain her image, Eleanor called me her "bestie," even though we both knew that wasn't true. Wherever she went, I had to tag along—because we were "besties". 
+
+So when the first time she started melting, we were together in the woods at two in the morning. 
+
+Eleanor’s mind was clearly still stuck on the party. She had drunk way too much tequila and was completely wasted, almost collapsing onto me like a puddle of mud. I wanted to call a cab back, but both of our phones were dead, and Eleanor insisted she knew a shortcut.
+
+I made the mistake of trusting a drunk. We went around in circles in the forest, with Eleanor constantly walking toward any source of light. She was acting so silly while drunk. At least, that’s what I thought at the time. Until we reached a clearing, and Eleanor stopped as if preparing to welcome something, asked me to hand her my jacket, and draped it over herself.
+
+Immediately after, her entire body began to sink. I mean her flesh and blood literally melted, held together only by her skin, drooping down like a water-filled balloon being lifted from the top. The skin on her face pulled downward, clinging tightly to her skull; her upper body became terrifyingly skeletal, while her lower half looked as though it were about to burst, her soft, collapsed flesh pooling onto the ground. My jacket served as a convenient little rug so she wouldn't get dirt on herself.
+
+"...what are you doing?"
+
+Eleanor remained standing in place. Her eyeballs had vanished, leaving only two empty sockets on her face, though I could tell she was probably rolling her eyes.
+
+"It’s just a jacket, don't be so stingy."
+
+I felt like I was going to throw up, but I didn't. Through Eleanor’s nostrils, I could see her two rows of teeth snapping open and shut. Her lips had slid all the way down to her chest, reminding me of that Ghostface mask. I had never known human skin could be so elastic. I have tons of stretch marks on my thighs, so I always assumed everyone’s skin tore apart when they gained weight rapidly. 
+
+Apparently, Eleanor didn't belong to one of those. She probably wouldn't even get stretch marks when she got pregnant in the future. How lucky.
+
+Even as we spoke, Eleanor was expanding. Her liquefied flesh reformed into intestines, a stomach, a liver, and a heart, filling out her deflated skin once again. She looked fuller, plumper, and... better.
+
+Yes, she looked better—positively radiant, in fact. There wasn't a trace of drunkenness left in her; her hair gleamed, and her skin was as white and tender as snow. Her eyes were a moist, glistening blue, like two small pools of lake water. I stared dumbfounded as the final patch of skin grew back over the tip of her nose, like the last dab of frosting smoothed onto a bare cake.
+
+"What are you?"
+
+Eleanor shot me a fierce glare, then picked my jacket up off the ground and tossed it at me. I expected to smell blood, or some other bizarre smell. In fact, the only thing wrong with the jacket was that it felt damp.
+
+"Wait—"
+
+"Do you really have to harp on this?"
+
+She rolled her eyes again; this time I saw it clearly. Eleanor turned to walk away, only for me to grab a fistful of her hair. Did she drag me into the woods in the middle of the night just to make me watch a low-budget slasher flick? Did she think she could just brush me off after everything that had just happened? No, absolutely not. I had had enough of Eleanor bossing me around. 
+
+Rage clouded my mind, driving me to reach out and yank her hair. Eleanor was stronger than me, but she was overconfident, assuming I would always let her push me around. She had almost zero guard up against me.
+
+"Let go! You bitch!"
+
+Eleanor let out a shriek and quickly began wrestling with me. We were evenly matched, and I sank my teeth hard into her wrist. She really was as soft as cake; my teeth effortlessly hit her wrist bone. Eleanor instinctively jerked her hand back, leaving a large chunk of flesh in my mouth, her stark white bone gleaming brightly under the moonlight. 
+
+Without a second’s hesitation, she cupped the back of my head and kissed me. I felt a sharp sting as Eleanor’s fingernails scratched my face. Just as she tried to pry my teeth apart with her tongue, I swallowed the chunk of meat, then opened my mouth to show her my empty cavity.
+
+Eleanor slapped me across the face, and I blacked out. When I woke up, I was staring at a yellow ceiling. Mom was downstairs making breakfast, and I was lying in my own bed.
+
+Ten minutes until wake up time.
+
+I had really just had a terrible, terrible nightmare.
+
+I dreamed that Eleanor called me out to a bar late at night, got us lost in the forest, melted into a puddle of blood before growing back, became gorgeous, and that I pulled her hair and ate a piece of her flesh. That flesh was as soft as cake, yet reeked of a foul stench as I chewed it. I felt like I was going to throw up, but I didn't. Because it was only a nightmare.
+
+In eight minutes, my alarm would go off.
+
+I sat up in bed, rubbed my face hard, and let out a deep breath. Suddenly, the side of my neck itched—probably a loose thread on my pajamas. I reached inside my collar to pull out the annoying thread. My mom always buys clearance items; the last pink t-shirt she bought bled dye so badly that after gym class, my sweat literally turned pink. The pajamas she bought this time were actually really comfortable—she said she spent 42 dollars on them. Who knew the problem would be at the collar, with way too many loose threads.
+
+This thread was longer and finer than I expected, taking me more time to pull out than I’d anticipated. I opened my fingers, and a single strand of shimmering blonde hair rested in my palm.
+
+I knew for a fact it wasn't a dream. I had no idea how I made it home and changed into my pajamas without my parents noticing. When I arrived at school full of unease, Miss Brown announced that Eleanor had transferred away.
+
+She left just as abruptly as she had arrived. In her absence, I found myself missing her more and more each day. I tried to find a way to contact her, but was surprised to discover that no one in the class knew Eleanor’s social media accounts.
+
+Kevin said I was acting like a lost dog. I blew up at him, and he had to promise to buy me soda for an entire month. I pretended to be furious at Kevin’s remark, though inside I felt nothing at all. I thought to myself that he had no idea what had happened between us.
+
+Still, Kevin’s words woke me up. Eleanor and I had nothing to do with each other anymore; I shouldn't be losing my mind over someone like her. That was just stupid.
+
+After graduation, I threw away that strand of blonde hair and threw myself wholeheartedly into college and my career. I worked hard and nearly forgot all about Eleanor. I stayed single, terrified that if I kissed someone, I might bite his tongue off, or that he might suddenly turn into a water-filled balloon. I’d pop him, go to prison, get out, and end up with nothing. That was what could happen, and I refused to let it.
+
+Also, I’m a vegetarian now.Kevin and I still keep in touch. He successfully lost 50 pounds and got himself a sweet, lovely girlfriend. Just last month, I attended Kevin’s wedding. Kevin had drunk way too much beer; his cheeks were flushed red, and he kept rambling nonsense. His wife looked at me apologetically, so I volunteered to help walk him to the car. If he were still at his high school weight, I definitely wouldn't have done that.
+
+He said, "Hey, did you know that caterpillars and butterflies are actually two completely different creatures? Did you know your immune system doesn't even recognize your own eyes?" Kevin works at a biotech company now. I said, "Yeah, maybe so, and maybe I can build a UFO, too." Truthfully, I didn't know a thing about it. When I got home, as if possessed, I opened my computer and searched "caterpillar butterfly."
+
+I had always thought those soft-bodied little critters simply grew wings inside their cocoons. In reality, they completely liquefy into a puddle of fluid inside the cocoon, and then regrow an entirely new set of organs belonging to a butterfly.
+
+Sounds familiar, doesn't it?
+
+I finally found Eleanor’s social media account—of course, she doesn't go by that name anymore. She looks beautiful, or rather, delicious. Her blonde hair shimmers, her skin is as white and creamy as frosting, and her eyes look like a pair of gem candies.
+
+I didn't send her a direct message, because I have no reason to contact her.
+
+I hate Eleanor. She ruined my life, turning me into a potential psychopath with a single meltdown, treating my feelings like something cheap. Why does she still get to live such a wonderful life, leaving me completely behind? It should be an eye for an eye, a tooth for a tooth. Yet she hasn't faced a shred of punishment, and that isn't fair.
+
+I am still a vegetarian—at least until I decide to start contacting her again.

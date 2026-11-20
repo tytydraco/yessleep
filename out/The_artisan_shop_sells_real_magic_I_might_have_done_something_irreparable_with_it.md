@@ -1,0 +1,121 @@
+I first entered the shop just before 10 p.m.
+
+I'd forgotten it was my mother's birthday the next day, and this was the only store still open that might have something resembling a thoughtful gift I could get while she was still at work.
+
+I immediately flinched as the little jingle of the bell as the front door pushed against it was drowned out by a deep, cavernous scream. Out of the corner of my eye, I caught sight of the creature: an opaque mass of blackness, twitching and shaking as it growled.
+
+I turned toward it and threw my fists up, only for heavy percussion to drown out the snarl and make me realize how dumb I was: the figure was nothing more than a woman clad in a black sweater, with the hood pulled over her head. She was doing what some could call a dance to what some could call music.
+
+“Hey,” I yelled over the cacophony. I was doing my best to avoid startling her, but she kept on throwing herself around to the beat.
+
+I walked up to her counter at the other end of the store and repeated my greeting.
+
+She shot her index finger in the air without pausing for a second.
+
+We stood there for about 10 seconds as the deafening instruments thumped at my eardrums.
+
+As soon as the riff ended, she pressed the pause button on her phone and threw her hood off her head, doing both with her left hand, as her right hand was tightly wrapped around a bright red vape pen.
+
+The cashier was a young woman, about my age, probably working in a shit hole until she got her degree, just like me. She had shoulder-length, raven-black hair cut into a bob that tried its best to hide the tattoos crawling up her neck and onto her cheeks. The ink formed esoteric patterns. I’m no art expert, so I’d call it needlessly complex tribal, but I’m sure there’s a better name for it.
+
+But as soon as she glanced away from her phone and up to me, I lost myself in her steely gray eyes: they shone like a knife’s edge in the dimly lit interior.
+
+“Sorry about that, bro,” she said. “That part fucks way too much. How may I help you?”
+
+“I’m sorry too,” I replied. “I know how frustrating it is to get a customer just before close.”
+
+She waved her free hand in the air.
+
+“Door’s unlocked; shelves gotta be stocked,” she said, forcing husky tone in her voice. “That’s what my grandma would say.”
+
+I smiled at her and she returned the favor, parting her blackened lips to reveal two rows of yellowish, slightly crooked teeth. The normalcy of her grin was a bit reassuring.
+
+“I’m a bit ashamed to admit it,” I started, “but it’s my mother’s birthday in a couple of hours and I kinda forgot, what with finals week coming up and everything.”
+
+“Ha,” she snorted, “I’d say to phone the old bitch for once and call it a day, but I’m guessing you like your mom. You’ve come to the right place: middle-aged women go crazy for our homemade stuff.”
+
+She pushed through the swinging door and waved at me to follow her as she strode into an aisle comprised of rows and rows of dinnerware of all types, colors and patterns.
+
+“I’m all out of floral patterns, but moms kill for white and blue speckled stuff, so just go with that.” Her sharp stare gave me a once-over. “No offense, bro, but you look like you’re broke as shit, so I would just get a fruit bowl or a big piece like that instead of a full set.”
+
+“I’ll take a full set,” I blurted out in a show of defiance.
+
+“Glad to see someone else who gets that people who say ‘it’s the thought that counts’ are bullshitting. I like you, bro, so I’ll hook you up with a little something.”
+
+She lodged her vape between her lips so both of her hands were free to grab a set of plates off the shelf and carry it back with her to the counter. After carefully laying them down on the wooden surface, she gestured at me to wait there a few seconds and vanished behind a black curtain that presumably led to the backroom.
+
+Moments later, she reappeared with a small blue jewelry box in her hand.
+
+“Normally we sell those, but I’m giving you the hot guy discount: buy a classic, get a bit of magic.”
+
+She opened the box, revealing a sizeable blue stone forming the centerpiece of a black macramé necklace.
+
+“We call that a Third Eye,” she explained. “It’ll awaken senses you didn’t even know you had. It’s real great for studying or when you really want to feel the shawty you brought back home.”
+
+She snapped the box shut theatrically.
+
+“But I wouldn’t wear it outside the comfort of your own home,” she cautioned. “There’s some things out there that are best left unknown.”
+
+I paid my dues, thanked her for the gift, and left. I wasn’t about to refuse a free necklace just because I didn’t believe in her stupid occult shit.
+
+ 
+
+My mom worked overnight, so it was easy to hide the big cardboard box under my bed.
+
+I might not have been a believer, but I’m nothing if not curious, so I put on the necklace. You’ll have to believe me when I say I immediately felt the difference. The air on my skin, the dull colors of my room, the creaking floorboards in the neighboring apartment—everything felt so sharp now.
+
+I opened one of my notebooks and read a page. The words rang in my skull, drowning out everything else. At that point, I could still believe it was just a placebo, but I studied until 5 a.m., hoping to get the best out of this sensation before it got away from me. I fell asleep on my desk, as an exhaustion I never perceived caught up to me.
+
+ 
+
+I was woken a couple of hours later by the sound of a door shutting in the living room.
+
+I stood up and yelled a greeting as I made my way out of my room. As soon as I crossed the threshold, a sharp scream escaped my mouth.
+
+My mom jumped and turned toward me, her eyes filled with worry. The thing on her back followed her movement. On my mother’s back was a man, a bag of bones barely covered by skin. He clung to my mother with all four of his limbs and rested his head on her shoulder. His white eyes were glazed over and devoid of focus.
+
+“What’s wrong, honey?” my mom asked.
+
+“Nothing,” I mumbled. “I almost tripped, sorry.”
+
+I couldn't look away from the man and my mom noticed. When she threw a glance over her shoulder, her nose grazed the creature's skin. She turned back toward me and scratched the tip of her nose.
+
+“Seriously,” she insisted, “what’s wrong?”
+
+I reached up to my neck and dragged the trinket over my head. As soon as I let the necklace fall to the ground, the man’s form blurred. But I could swear, as he dissolved, his head moved, leaning toward me.
+
+Even then, I could imagine his mass, forcing my mother into the hunched posture she so often bore after a long shift.
+
+I mumbled some stupid excuses she had to accept, explained the necklace was something I'd bought for myself and gave her the gift, to which she reacted as if it was the greatest thing she had ever seen, as she always did. The morning went great, but I couldn’t stop thinking about that thing. Maybe if I let myself see it again, maybe I could help my mother.
+
+ 
+
+Before doing anything brash, however, I went back to the store with the necklace safely tucked away in its box. The same cashier had her feet up on the counter, still wearing a black sweater.
+
+“Bro, what’s up?” she greeted me, vapor leaking from her mouth and nose.
+
+“What the fuck did you sell me?” I asked.
+
+“Alright,” she sighed. “What did you see?”
+
+“There was this… thing on my mom’s back. A zombie or something.”
+
+“It’s just a shell, bro. Probably,” she said as if it were the most casual conversation she had ever entertained. “What’s your mom do for a living?”
+
+“She’s a paramedic.”
+
+“Ha,” she chuckled. “Yeah, that’ll do it. Bad news is a dude died during her last shift. Good news is shells are harmless: they fade out on their own and, in the meantime, they don’t do much except drain you a bit.”
+
+“There’s nothing we can do about it?”
+
+“Nah, bro,” she countered. “In fact, you must do nothing. Shells might be just poor bastards clinging to the living like a desperate ex, but they’re still spirits: acknowledging them can make them stronger.”
+
+“HOW THE FUCK DO YOU NOT ACKNOWLEDGE A CREEPY FUCKER ON YOUR MOTHER’S BACK?!” I exploded.
+
+“Oh,” she uttered. “Yeah, look, bro, it’s probably still fine. Just stop thinking about it right now and you’re good, I think.”
+
+I stormed out.
+
+It’s been two days.
+
+Today, my mom asked me if I could run errands for her so she could stay in bed and recover a bit.

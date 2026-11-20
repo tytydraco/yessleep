@@ -354,4 +354,4 @@ I nodded and stepped away from her to enter the room. She was right; even the be
 
 They had her.
 
-  
+[**\[Part 7\]**](https://www.reddit.com/r/nosleep/comments/1y11i9s/i_go_to_hell_for_ten_minutes_every_night_part_7/)
