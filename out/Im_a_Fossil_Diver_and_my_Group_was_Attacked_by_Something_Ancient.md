@@ -334,4 +334,4 @@ That thing looked ancient, unlike anything I've ever seen while diving.
 
 It seemed to enjoy picking us off one by one, pulling four innocent people down into the depths never to be seen again.
 
-I know you probably wont believe me, but please no matter how much you may want some megalodon teeth, it isn’t worth it.  Because whatever that thing is, I know it still hunts those waters.
+I know you probably wont believe me, but please no matter how much you may want some megalodon teeth, it isn’t worth it.  Because whatever that thing is, I know it still hunts those [waters.](https://www.reddit.com/r/R_S_Anthony_Writing/)

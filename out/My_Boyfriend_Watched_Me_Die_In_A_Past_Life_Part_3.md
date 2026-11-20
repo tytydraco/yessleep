@@ -1,0 +1,99 @@
+[<<](https://www.reddit.com/r/nosleep/comments/1xzybk8/my_past_life_boyfriend_knows_every_move_ill_make/)
+
+My boyfriend and I had a fight the other day. It was the first real one we’ve had ever, at least in my version of the relationship. In his, he said we’d had our disagreements, but this time around had been better. Until now, anyway.
+
+It was honestly really stupid and I don’t even remember how it started. I mean obviously I know, I was gonna go out to a girls’ night with a few friends but he didn’t want me driving. I told him I was gonna take my car and have one drink and I’d be back home, like usual, but he was acting really strange about it. It finally came to a boiling point when he hid my car keys, and I’m not trying to be super controlling, but I felt like that was too much. I’ve since apologized to him but I did raise my voice a little bit about it.
+
+“What the hell is your problem?” I said, throwing the jacket he’d left on the couch aside to look for my keys. Clark watched me from where he stood by the front door. He’d hidden them before I’d even started getting ready for the last-minute hang tonight, like he had a sixth sense for my incoming texts.
+
+“Just let me drive you,” he said. “I don’t know why you’re choosing this hill to die on.”
+
+“It’s my car,” I said. “I can drive it myself. I don’t know why you have this thing about me not driving anywhere.”
+
+“I don’t know why you have this thing about you driving everywhere,” he said. “Look, we can just go together, I’ll say hi to them and drop you off.”
+
+“It’s fine. I don’t need you saying hi to my friends.” Like I needed his approval to see them, for Clark to scope out the area because he couldn’t stand to see me with other people besides him even for an evening.
+
+“Look, I’m gonna just walk there,” I called, leaving from the back door. “It’s a twenty minute walk, and maybe I’ll have some long thoughts about some things.”
+
+My car sat dark in my duplex’s driveway as I strode past it. Clark caught up to me and took my arm.
+
+“What?” I said, trying to shake him off. “What is it? Because I hope you’re about to give me my car keys back now.”
+
+“Look, I didn’t want to make a big deal out of it,” he said, face downcast, “but this is trauma related. It’s about the past life thing.”
+
+I stared at Clark. He was still holding my arm. His grip faltered.
+
+“I just...”
+
+He sighed and sat down on the curb.
+
+“I just have all this trauma left from losing you the first time, I think. It makes me too worried about you sometimes.”
+
+He looked up at me with an unreadable expression. The streetlight overhead and behind him carved deep shadows into his face. All I could see was a glimmer of an eye.
+
+“Is that what happened?” I said quietly. “I was in a car?”
+
+“It was dark,” he said. “I mean, I don’t really remember.”
+
+“Were you there?”
+
+He didn’t say anything for a moment.
+
+“It’s all kind of blurry,” he said slowly. “I think I watched it happen, but what I remember most is the pain of losing you. I didn’t want to be without you again. Sorry. It’s just really hard for me to talk about right now.”
+
+“That’s why you get worried when I drive anywhere,” I said.
+
+Clark stood and pulled me into an embrace.
+
+“I can’t let you go again,” he said into my neck.
+
+I breathed him in and listened to the crickets in the distance. My car sat still in the driveway, hunched in the darkness outside the streetlight like something waiting just inside the mouth of a cave. I felt afraid looking at it, for reasons I couldn’t quite grasp in the moment.
+
+“You can drive me,” I said, and felt him relax. “I’ll get a ride home if it ends up going too late. Okay?”
+
+I stepped away from him, holding his hands, still looking into the cavernous darkness of his eye sockets.
+
+“Okay,” he said, and tilted his head so I could see his smile and the twinkle in his eye. “Let’s get going. You’re gonna be late.”
+
+We talked and made up as I got my things and we got in his car. I apologized to him for snapping at him and we both promised to do better and be more aware of the other person’s trauma. A healthy relationship in action! I feel like communication is so much easier when the other person knows you so well. Like he knew all the possible things I’d say before I said them.
+
+“Do you remember anything else from last time?” I asked as Clark pulled out of the driveway. “Or is it just me?”
+
+“It’s just you,” Clark said. “It’s always just been you. I wish I’d been able to remember the stock market, or sports games to bet on, or something, but I guess that’s outside the terms of the deal.”
+
+“The deal?” I asked. “Was there actually a deal?”
+
+“Oh, no, not actually,” he said, switching the song on the stereo. “I meant more like, in the metaphorical sense. Of a deal. I just spent so much time, you know, wishing things had been different, going to sleep thinking that I’d do anything for one more chance with you, or just the ability to do it all over again. And then one day, I woke up, and it was just...like that. I was back before we’d met.”
+
+“Would you do it again,” I said, “knowing that the same thing might happen? Maybe you can’t dodge fate.”
+
+“Maybe it’s just a question of persistence,” Clark said, looking at the road. “You try for hard and long enough, you can bend history to what you want it to be. It’s about having the right mindset.”
+
+Something about what he’d said in that conversation was making it stick in my head, something weird, but I think I was also feeling too heated and maybe looking for things to fight about with him. But that entire conversation, from me running out the back door to him driving me to the party, is really vivid in my head still, like my mind wants me to remember it. I’m just writing it down here mostly to look back at it later and see if there’s anything that jumps out at me.
+
+That was the extent of the fight, though. Aside from that, things have been really good for the last few months. We’re actually thinking of moving in together when my lease is up. We’ve had conversations about it where Clark has mentioned things he remembered that caused a little bit of friction, things that I didn’t even know I was doing, and I promised I’d stop doing them.
+
+Really, the only problem at this point is that our Mila (my cat) and Tammy (his cat) *hate* each other. Like, hissing and growling and arching their backs at each other hate. Clark said we’d been able to make it work with our cats before, but my feeling is, if we know we’re gonna be able to make it work, why rush it at all, you know? Why put our cats through that shock if we could ease them into it and take all the time we need?
+
+I was relaying all this to one of my friends at the girls’ night, minus the past life part. I trusted her for a lot of things, since her teenage years had been a bit rougher than mine. She was a regular at food banks and protests.
+
+“Don’t rush it,” she said, shaking her head. “And make sure you really know who he is.”
+
+“I’ve seen his place,” I protested. “I know he’s not a slob or anything.”
+
+“I’m just saying. A switch flips with some men after you’ve been living with them for a while,” she said. “They imprint on you or whatever. Then they start thinking you’re their mommy.”
+
+“He’s different,” I said, with the giant secret of our past life love hovering in the air behind me. “He’s real. You wouldn’t get it, but he is.”
+
+“If you say so,” she said.
+
+Then my other friend grabbed my arm and it was time to dance.
+
+Later, I passed by my friend again as I was leaving the bathroom. She was holding a glass of wine and yelling into some man’s ear over the music about how to act at protests.
+
+“The key to opsec,” she was saying, “is to assume your shit’s already compromised.” She noticed me, and smiled and raised her drink before turning back to the man. “Which it is.”
+
+I thought about Clark’s sixth sense for my texts, and the chess move.
+
+When I got home, I changed my phone passcode to something completely random. Maybe I was overreacting, but it made me feel safer. I was probably just being paranoid, though.

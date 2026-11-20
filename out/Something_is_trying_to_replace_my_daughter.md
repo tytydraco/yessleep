@@ -190,7 +190,7 @@ I dropped my pen and stretched my shoulders over the backrest, jittery but satis
 
 No sign of Alice. 
 
-I crept to our bedroom and checked on her. She was lying on her side, frizzy brown curls spilling out from beneath our wool comforter, motionless. A pang of debilitating panic gripped me like a heart attack. Felt like I was on the verge of collapsing, but then I noticed the faint expansion of her belly, pushing out, pulling in. She was breathing. She was alive. She was still here with me. The relief was overwhelming. Then, for the briefest moment, as I tracked the delicate movements of her vacant abdomen, something broke through, a heaviness so vast that it terrified me; my chest ached and my throat tightened and my eyes grew warm and 
+I crept to our bedroom and checked on her. She was lying on her side, frizzy brown curls spilling out from beneath our wool comforter, motionless. A pang of debilitating panic gripped me like a heart attack. Felt like I was about to pass out, but then I noticed the faint expansion of her belly, pushing out, pulling in. She was breathing. She was alive. She was still here with me. The relief was overwhelming. Then, for the briefest moment, as I tracked the delicate movements of her vacant abdomen, something broke through, a heaviness so vast that it terrified me; my chest ached and my throat tightened and my eyes grew warm and 
 
 I suppressed it. 
 
@@ -436,7 +436,7 @@ That was its invitation. 
 
 The thing masquerading as Lila invaded me. 
 
-Movement ripped my attention from Alice. A number of slender, black hairs wavered in the air above the plate, sprouting from the pie like worms from a cartoon apple. Their motion was unearthly, almost aquatic in its grace; anemone tentacles swaying silently on the ocean floor. They were already inside me. Christ, I could feel them. The hairs. Snagging between my teeth, suffocating my palate, climbing down my throat.  I frantically scraped my fingernails against my tongue and my gums, but to no avail. I thrashed like a wounded animal, lashing arms, kicking feet. Chair legs screeched against the floor. Alice lingered in the periphery, unfazed, disturbingly statuesque. The blackness around her eyes seemed to crackle and pulse. 
+Movement ripped my attention from Alice. A number of slender, black hairs wavered in the air above the plate, sprouting from the pie like worms from a cartoon apple. Their motion was otherworldly, almost aquatic in its grace; anemone tentacles swaying silently on the ocean floor. They were already inside me. Christ, I could feel them. The hairs. Snagging between my teeth, suffocating my palate, climbing down my throat.  I frantically scraped my fingernails against my tongue and my gums, but to no avail. I thrashed like a wounded animal, lashing arms, kicking feet. Chair legs screeched against the floor. Alice lingered in the periphery, unfazed, disturbingly statuesque. The blackness around her eyes seemed to crackle and pulse. 
 
 I felt sudden weightlessness. 
 
