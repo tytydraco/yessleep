@@ -1,7 +1,5 @@
 PART 1: [https://www.reddit.com/r/nosleep/comments/1xukzq8/my\_brother\_lives\_in\_a\_house\_right\_next\_to\_a\_cell/](https://www.reddit.com/r/nosleep/comments/1xukzq8/my_brother_lives_in_a_house_right_next_to_a_cell/)
 
-
-
 “How much longer are they expecting us to stay here?” Issac spat groggily, as he woke from his sleep.
 
  
@@ -227,3 +225,9 @@ I look outside despite what the alert told us to do, and I stare at the light em
  
 
 There are more. More “cell towers”, in groups of three, in the same position the others are in. Emanating the same light the others are. Spread out all over the field. And a large, pulsating shadow passes over them, with the shadows of tendril-like-appendages trailing behind.
+
+  
+PART 3:
+
+  
+[https://www.reddit.com/r/nosleep/comments/1y0jfwu/my\_brother\_lives\_in\_a\_house\_right\_next\_to\_a\_cell/](https://www.reddit.com/r/nosleep/comments/1y0jfwu/my_brother_lives_in_a_house_right_next_to_a_cell/)

@@ -417,3 +417,4 @@ We were lost.
 
 ***End of Part Three***
 
+[Part Four](https://www.reddit.com/r/nosleep/comments/1y0k4gb/i_was_one_of_the_missing_appalachian_hikers_part/)
