@@ -1,4 +1,4 @@
-Part I
+[**Part I**](https://www.reddit.com/r/nosleep/comments/1xy9s9b/i_took_a_dogsitting_job_it_went_from_weird_to/) / [Part II](https://www.reddit.com/r/nosleep/comments/1y1mrw6/i_took_a_dogsitting_job_it_went_from_weird_to/)
 
 **Job Opportunity** 
 

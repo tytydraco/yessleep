@@ -1,0 +1,153 @@
+I’d been in the box two hours and nine minutes when I posted the last part. At two hours and forty, the panel opened. Not the way it does when Furuya checks the seam, with a little knock first. It just opened, and there was Mr. Sone crouched in front of me with his glasses swinging on their cord.
+
+
+
+“Ah,” he said. “You must be so stiff.”
+
+
+
+I should explain what my face did, because I’ve been thinking about it. It smiled. Nine years of hotel residencies. A stranger opens a door on you and your face puts on the smile before you can stop it.
+
+
+
+He had brought a folding stool. He set it next to the hole, patted it, and waited. I unfolded myself in the order I always do, left hip first, and sat on a stool in front of the head of a Yakuza family with my phone still in my hand. He didn’t look at the phone. He handed me a paper cup of tea. It was hot and it was good, and I hated that it was good.
+
+
+
+The room wasn’t the basement. I hadn’t noticed that, which tells you something about the quality of the work. It was a tatami room, an old one, with a hanging scroll and an alcove with a vase in it. The box had been built under the alcove floor. I’d been looking up through a seam under a flower arrangement for two hours.
+
+
+
+“Furuya says you never complain about the knees,” Sone said.
+
+
+
+“Furuya has never heard me say a word.”
+
+
+
+“Yes. He’s very attentive.” He smiled at me like I’d done something clever. “I wanted to thank you for the other night. In the furnace room. You were very still. Most people are not.”
+
+
+
+I said something. I don’t know what. Probably thank you. I apologized to him once and I’m not sure for what.
+
+
+
+Then he rolled up his left sleeve, slowly, so I could watch it happen, the way you’d show a child a card trick.
+
+
+
+The hag was there. Same green, same wart, same little hat. The nails ran down his forearm in long curls. I’d have sworn they were longer than last time, but I only got a pencil-width of view last time, so don’t hold me to it.
+
+
+
+“Yours is Busan, I think,” he said. “The linework on the nails. Lovely. Nobody does nails like that anymore.”
+
+
+
+I have never told anyone where I got mine. I told you. That’s it.
+
+
+
+I said, “It’s just ink.”
+
+
+
+“Of course,” said Mr. Sone. “Most of them are.”
+
+
+
+He let that sit for a while. A bell rang somewhere in the house, one note, and he glanced toward it the way a man glances at a train schedule.
+
+
+
+“I’d like to ask you for a favor,” he said. “A very small one. You may say no.”
+
+
+
+I have never in my life been in a position where I could say no, and he knows that, and he knows I know that. That’s the whole manners of it. They ask politely because politeness is cheaper than force and costs nobody anything.
+
+
+
+“The gentleman from the other night,” he said. “Mr. Arai. He’s well, I want you to know that. He asked me to tell you he’s grateful for your discretion.”
+
+
+
+I did not say anything. I don’t think I could have.
+
+
+
+“He travels badly, though. In his current arrangement. He needs a place to rest where nothing will touch him, and I’ve been told the compartment you’ve been testing is the only one in Kansai where nothing does.” He tilted his head. “We simply need to know that the seam will hold with two.”
+
+
+
+Two.
+
+
+
+I’d like to tell you I argued. I looked at the box. I looked at the towel Furuya had left, folded in a neat square, and I thought about the measurement on that slip of paper, 41 by 58 by 112. Mine. Exactly mine. A box built for one person.
+
+
+
+Mr. Sone patted my hand. “Take as long as you need,” he said, and left me with the tea.
+
+
+
+I took four minutes. Then I got back in.
+
+
+
+I’m typing this from inside it now.
+
+
+
+They didn’t use the panel I’d been using. Furuya had built another one into the back wall of the box, and I never saw it because it never needed to be opened until tonight. The wall slid. Cold air came in, and that smell, bleach and hot pennies.
+
+
+
+Four of them came in carrying something between them on a flat board, and they were as careful as movers with a piano. I won’t describe how it looked in the light. You’ve read the first post. I’ll only say that none of the layers had moved. Not one. They’d been walked through a house and carried down a step and not a single hand’s-width had changed.
+
+
+
+They slid him into the box with me.
+
+
+
+There isn’t room for that. I want you to know I did the math, I always do, and the math says it can’t work. It’s working. The layers hang in the dark in front of my face and beside my knees and above my head, and they don’t touch me, and they don’t touch each other. The cold comes off them in slices. If I breathe out he moves, just slightly, like paper in a draft.
+
+
+
+The wall slid shut. Somebody outside tapped twice. Contract’s started. I think I’m supposed to just stay here until it ends.
+
+
+
+The eyes are in the middle of the arrangement, about eight inches from mine. They’re brown. Bloodshot, a little wet. They found me about ten minutes ago and they haven’t left.
+
+
+
+I tried to look at something else. I tried the ceiling, which is a layer of him. I tried the floor, which is a layer of him. I tried my knees and the towel and the little green light on my phone. He just waited. Whatever’s left of his mouth is somewhere to my left, and a minute ago it made a sound I recognized from the first night.
+
+
+
+“Thank you.”
+
+
+
+Same voice. Polite, a little tired.
+
+
+
+Then he said something else, and I don’t have a way to type this that doesn’t look like I made it up.
+
+
+
+He said Hako. And then he said the name I was born with. My actual name, the one on a passport I haven’t used since Macau. The one I didn’t give Furuya, or Sone, or the man who built the first box, or you.
+
+
+
+My ribs are itching. The left side. Slowly, in time with something.
+
+
+
+I’ll post when I can.
