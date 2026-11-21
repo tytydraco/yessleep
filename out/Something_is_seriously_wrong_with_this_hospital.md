@@ -1,79 +1,121 @@
-UPDATE 
+I’m not sure how much time I have. Our hospital computers don’t really let us get on “off limits” websites but I don’t know what’s happening and I need someone to know.
 
-I woke up.
+I’m a nurse. I work at a hospital on the critical care floor. If you know anything about the medical field, critical care patients are some of the most important. They really cannot do anything without us and need constant care. I love my patients, I love what I do. But tonight… something happened. 
 
-Again.
+I was at the nurses station with my coworker Liz. We had 3 new admissions and it was only us on staff for the night. It was about 2AM. We are both charting in silence. But that’s when I heard it. Something outside sounded like it exploded. I nearly jumped out of my skin. Liz and I stared at each other, faces white as sheets of paper. 
 
-At.
+“What was that!?” Liz whispered. 
 
-My.
+“I don’t know. I don’t hear any monitors going off.” I said, checking the telemetry screen. 
 
-Desk.
+Just as we both stood up to check the 4 huge windows that look out to the town in front of the hospital every single alarm in the hospital exploded. 
 
-I sat up, checked the clock, 4AM.
+It sounded like the entire hospital was a symphony of beeps, screams, and sirens. 
 
-what the hell is going on here? Am I losing my mind? Why have a blacked out twice, seen something horrible, and awoken back at my desk with the time not moving?
+Liz and I shoved our hands over our ears trying to cut the sound. I staggered back to the desk and tried to grab the phone but that’s when everything went black. 
 
-Liz is no where to be seen. Her stethoscope is gone, she must be checking on a patient. I stood up, stretched, and decided to walk to the window. Just to, I don’t know you guys, reset my mind? I’m getting really freaked out.
+The lights were out. 
 
-As I’m walking to the window I hear a call bell go off. I started heading to the room when I stopped cold. The call bell stopped and I couldn’t tell where it came from.
+Panic covered me, We have patients who rely on these machines and now, we have no power. 
 
-I started to feel a bit dizzy. Was it about to happen again?
+Liz and I began running down the hallway. It’s a smaller hospital so we had 6 patients in total. 3 for me, 3 for Liz. We frantically ran into the rooms and both of us were in shock. 
 
-No. You know what I’m going to stay up and moving. If I sit down I’ll fall asleep again and have another creepy dream.
+Every machine was running, perfectly. It seemed like Liz and I were the only ones hearing these alarms and staggering around in the dark. 
 
-I walk to my desk and decide to do another vital check on my patients monitors in their rooms. As I walk back over to my desk I notice something. Liz’s stethoscope is at her spot. It was gone just 2 minutes ago. she would have had to pass by me to get to her desk and drop that stethoscope off.
+I ran to the hallway in fear. 
 
-Whatever.
+“Liz!? Where are you?!” I screamed
 
-Moving. Moving. Moving. Stay moving Julie.
+I heard Liz feeling down the hallway trying to get to me. 
 
-As I walk to the patient in room 6 I notice the time is now 4:15AM. Thank God. The clock is moving. I’m okay. I’m not losing my mind. Just sleep deprived.
+“Jules, something is wrong.” She said as she reached me and grabbed my hand. 
 
-As I walk into room 6, it’s a lot colder than it usually is. I check the thermostat and it reads 56°.
+“We have to get to the phone.” I screamed, trying to cut my voice over the alarms going off. 
 
-What the hell? I know the patients don’t need to be in complete heat but this is outrageous. I would never set the thermostat at this.
+I felt my way to the nurses station and grabbed my cell phone. 
 
-I walk over to the bed where my female patient is laying. Her vitals look great. She’s sleeping silently. Chest rising and falling in perfect rhythm. I shiver and hug myself. Got to get that thermostat off.
+I dialed 911 and there was no connection. Not that the phone was down, it was something else. The phone wouldn’t allow me to dial 911. 
 
-As I turn to walk towards the wall on the east side of the room a warm hand grabs my wrist. I nearly jump out of my skin.
+Something did not want us getting help. 
 
-My patient is now awake. Staring at me with eyes as big as the moon.
+That’s when we heard the “ding” of the elevator. We both looked at each other through the darkness. Something was coming up from the morgue. 
 
-“Miss are you well? What do you need?” I ask, trying to hide the shaking in my voice and trying to not be obvious that I am trying to rip my arm out of her hand.
+It’s midnight, our doctor in the morgue does not work nights. 
 
-“He’s watching you. He knows what you have seen. He won’t let you leave.” She growls out to me.
+Whatever was in that elevator was banging on the walls. Our floor started to shake. 
 
-“Ma’am you are having a dream. It’s me, Julie. Your nurse.”
+Liz started to cry. I couldn’t move. I kept my eyes locked on what I saw outside. 
 
-“Julie James. Julie James. Julie James.”
+The city was covered in smoke. Every building was in flames. 
 
-She just kept repeating my name, getting louder and louder.
+There were no trees any more. No grass. Just ash. 
 
-I felt like I was suffocating. I couldn’t get her to let me go.
+The elevator reached our floor and the doors opened.
 
-“Please, let me go ma’am. I’ll get a doctor from downstairs for you.”
+Bracing myself for whatever would come. I closed my eyes. But nothing happened. Nothing left the elevator. 
 
-“Julie James. He sees you. Julie James. He sees you.”
+The walls and the door were covered in blood. And you could just see fist prints in the metal. something was in there. I know what I heard. 
 
-I ripped my hand out of her grasp and ran into the hallway. Realizing I left the thermostat freezing. I was horrified to go back inside but I needed to take care of her.
+My ears started ringing. I was sure I was about to pass out. I couldn’t make sense of what was happening. Why was the world on fire. Why were all the alarms going off but no one was leaving the hospital. It was like this was only happening on our floor. And what was protecting the machines? 
 
-I slowly rounded the corner and the room was… warm. My patient was asleep soundly in her bed, as if she never woke up. The thermostat was set to 71°.
+“Jules”
 
-“What is happening to me?” I asked out loud. I felt tears begin to swell in my eyes. Am I losing my mind?
+“Jules”
 
-I walked back into the hallway, the clock on the wall now stuck on 4:15AM.
+I could faintly hear someone calling my name. 
 
-My wrist was still hurting and my heart was only now getting into a normal rhythm again.
+I couldn’t speak. I couldn’t move. 
 
-That’s when the ringing in my ears started again. And I hit the floor.
+“Julie!”
 
-When I opened my eyes again, I’m at my desk. It’s 4AM. Liz is beside me on her phone. The floor is silent.
+“Julie!” 
 
-When I look down at my arms, I notice it.
+Something started shaking me back and forth. I glanced back at the windows just as an exposure erupted in the parking garage. 
 
-A hand mark bruise on my wrist. Now deep purple in color.
+“Julie James!” 
 
-I do not know what’s happening now. Am I stuck in a loop? What do I do? Will I ever leave this hospital?
+My eyes snapped open. 
 
-I’m going to try and get some charting done so I can stay awake. Maybe that clock will finally move.
+It’s not possible. 
+
+I was at the nurses station. Lights on. Elevator normal. Liz calm beside me with her eyes wide, staring at me. 
+
+How long had I been out? Did I pass out? Why is everything normal? Why isn’t Liz more panicked?
+
+“Liz. We have to call 911. if the phones are back on we can reach them.” i said frantically. 
+
+She looked at me like I had 5 heads.
+
+“Jules. Nothing was wrong. You passed out.” She said reaching to hold my hand. 
+
+“You have been out for 2 hours.” 
+
+2 HOURS!? What happened to me? How was I out for that long without waking up? What was that dream? What the hell is wrong with this place?
+
+“Liz. The power was out. There were so many alarms. There were fires and explosions. Something was in the elevator.” 
+
+She looked at me with care in her eyes, “it was a dream, Julie. It had to be. Nothing has happened, other than you passing out.” 
+
+I stood to my feet. That similar ringing back in my eyes now. Maybe it was a dream. Maybe I just fell asleep? I don’t usually fall asleep at work. But maybe? I hadn’t had dinner that day. 
+
+I looked at the clock and it was 4AM. I had been out for 2 hours. Whatever, I think I need to get something to eat. Maybe a cup of coffee to finish my shift, get home, and rest. 
+
+“Liz, I’m so sorry. I think my blood sugar must have dropped.”
+
+“Take a break. The patients are asleep. the next checks aren’t for another 45 minutes.” 
+
+I staggered over to the elevator. checking outside the window the entire time i waited for it to reach our floor. 
+
+That’s when I noticed, it was coming from the morgue. 
+
+“It was a dream. Relax.” I told myself. 
+
+The elevator door opened. I stepped inside. I pressed the “L” button to get to the lobby so I could make my way to the employee lounge. 
+
+As the doors closed, my throat went dry. 
+
+There were fist indentions. 
+
+Blood covered the door. 
+
+The last thing I remember hearing was the “ding” of the elevator, before it all went black again.

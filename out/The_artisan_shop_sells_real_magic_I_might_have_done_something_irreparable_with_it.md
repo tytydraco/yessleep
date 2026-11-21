@@ -108,7 +108,7 @@ Before doing anything brash, however, I went back to the store with the necklace
 
 “There’s nothing we can do about it?”
 
-“Nah, bro,” she countered. “In fact, you must do nothing. Shells might be just poor bastards clinging to the living like a desperate ex, but they’re still spirits: acknowledging them can make them stronger.”
+“Nah, bro,” she countered. “In fact, you must do nothing. Shells might be just poor bastards clinging to the living like a desperate ex, but they’re still spirits: acknowledging them can make them stronger. So they're exactly like a des—”
 
 “HOW THE FUCK DO YOU NOT ACKNOWLEDGE A CREEPY FUCKER ON YOUR MOTHER’S BACK?!” I exploded.
 

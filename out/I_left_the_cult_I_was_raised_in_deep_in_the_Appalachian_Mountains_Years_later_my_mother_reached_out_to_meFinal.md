@@ -1,0 +1,205 @@
+[\[Part 1\]](https://www.reddit.com/r/nosleep/s/CmazYqP7SC)
+
+Hello everyone. Thank you all so much for the support and for listening to my recount of events. I have kept so much of this inside for so long, and it means the world to me that you're willing to hear me out and believe me. Alright, I won’t keep you waiting too long.
+
+The night of the intrusion I sat at the edge of my bed. My brain was swimming with so many thoughts.
+
+“Who is my Father?” My mouth still formed awkwardly around the new word.
+
+Isabelle sat by the window freshening up, a bucket and bloodied rag at her side.
+
+“The male who sired you is of no relevance to your life,” Isabelle said coldly.
+
+“So then, I do have one? I have a Father?” My lips puckered at the confirmation.
+
+“Yes, yes, and no. This matter is complicated and would be better discussed when you are older.” Once clean she stood from her chair and went to her bedside. She blew out the oil lamp, before climbing into bed.
+
+“So then that’s why no one here looks like me? Does Mother look like me?” I would not let her dismiss this. I wanted to know more.
+
+“Mother looks like all of us. The parts that matter anyway.” Her agitation was beginning to heighten as she rested on her back. Normally, I would have backed down, but I wasn’t done yet.
+
+“I want to see her. I want to ask her about my Father.” I needed to know more.
+
+“Malik, you are not to meet Mother until your eighteenth year. We have discussed this.” She was trying to shut me down.
+
+“I want to see her now!” I slammed my hand down on my nightstand.
+
+“Malik!” Her head snapped towards me, a flame of indignation lighting her eyes.
+
+I remained silent. My skin prickled with nerves. I can count on one hand the number of times Isabelle has raised her voice to me.
+
+“…I wished to wait, but I believe Sophie should begin her studies as a Priestess. It is time she began focusing on her true duties. You have also begun to lose sight of your duties. You will no longer conduct your work in pairs.” Isabelle sighed feigning disappointment at the notion.
+
+“Wait, what? But Isabelle, that's not fair. She’s my friend.” I wanted to cry, but I stopped myself. Isabelle detested weakness.
+
+“You are above that. Your duties are more pressing as are hers. Now go to bed.” It was settled and I was helpless.
+
+The next day I tried to speak with Sophie, but Isabelle had already gotten to her. They had the mangled corpse of Mason in a wheelbarrow. A swarm of flies danced around his twisted husk, clinging to the thick, dribbling trails of blood that threatened to spill over the cart’s rim. I stared into the open pits where his eyes once sat remembering how much rage and hatred once filled them. Together they paraded it into the mine shaft.
+
+I tried to conduct my chores normally, but I had been waiting all day to speak with Sophie. It was evening when I finally caught her. But she looked different somehow. Even wiser than before. She barely gave me the chance to speak.
+
+“We can’t talk, Malik. Mother doesn’t want me filling up your head with strange ideas.”
+
+“What? Who told you that?” I scoffed.
+
+“She did. You know, Mother. Now, I best get going. I’ll see you around, okay?” I could tell by the way she looked at me that she had no intention of seeing me anywhere.
+
+“Yeah, okay.” I stifled my tears. Just as soon as I got a friend I lost her.
+
+But I still had hope. I held hope for Sophie for a long time. That was until I saw what this place had done to her.
+
+One night, Carrie had attempted to escape. She had been stowing away supplies out in the woods and had even gone so far as to take from the pantry while a Priestess was distracted. She had told Sophie she intended to leave together, but Sophie wasn’t going with her. She went straight to Isabelle.
+
+Carrie was strung up from a wooden banister in the center of the chapel. They had stripped her of all her clothes and gagged her mouth with a dirty rag. Her wrists were raw from the hemp that scraped against her supple, thin skin. She writhed weakly body glistened with sweat and was littered with blooms of violet bruising from the punishments the Priestess had certainly delivered throughout the day. It was evening now and around this time we were usually eating, but Isabelle held a sermon there instead. The topic for the night was Gratitude.
+
+“Who protects us?” Isabelle’s voice rang clear and true.
+
+“Mother!” We answered with conviction.
+
+“Who provides for us?” She paced back and forth, steps measured with intention.
+
+“Mother!” We called.
+
+“And when you take from us, who do you take from?” Isabelle stopped pacing and stood under Carrie as she dangled limply above.
+
+“Mother!!!” Our statement was definitive.
+
+“You see Mothers kindness can be mistaken for weakness. Her generosity may be mistaken for foolishness, but we must not allow that misconception to stand. For we were hand-selected to defend her.” Isabelle looked over the crowd and I watched as her eyes settled on Sophie.
+
+“Yes!” It was a unanimous chorus from all, but one.  
+Isabelle raised a hand and turned. An accusatory finger trained on Carrie. We grew quiet then, a thick silence settling in.
+
+“Thief. This woman, this rat, has been stealing. She intended not only to take our food and our supplies, but she attempted to take one of us…”
+
+They groaned and hissed as though hurt by the mere notion, but I remained quiet. My eyes focused on Sophie. She was trembling.
+
+“A priestess! She intended to rob Mother of a voice! She wished to silence her!” Isabelle’s eyes were wide, piercing. Judging.
+
+Their screams were almost deafening. Some even wept.
+
+“We are the lucky few with a sacred duty. We are the lucky few who interpret the word from the source and deliver it to all of you. She wished to snipe her from right under our noses and venture off to the outside. She wanted to take a piece of Mother. And so now we will take a piece of her.”
+
+From within her sleeve, she withdrew a blade. Sophie’s trembling grew more noticeable then and Isabelle’s gaze never left her.
+
+“Come, Sister.” Isabelle held out her free hand to Sophie and she took it. Carrie's movements grew stronger then, her eyes more indignant than afraid.  
+Sophie was hesitant as she looked between the two, but I knew what choice she would make. Isabelle knew too.
+
+“She must repay her debts. She must repay all she took and all she ate. Right?” Isabelle’s head craned slowly to the side. Like an owl measuring a mouse.  
+“…Yes. She must repay it.” Sophie murmured.  
+“Louder.” Isabelle pushed.
+
+“She must repay it!” Sophie spat.
+
+In a single swift motion, Isabelle cut the gag, catching the side of Carrie's mouth in the crossfire. She wailed, her blood spilling down her chin, but Isabelle shushed her.
+
+“Is that how you wish to be remembered?” She jeered.
+
+Carrie's breaths came quickly. The rise and fall of her chest were akin to a rodent caught in a snare and when she looked at Sophie her eyes brimmed over with trail after trail of tears. Her eyes seemed to plead then.
+
+“Mommy loves you, baby. I’m so sorry I brought you here. Mommy’s so, so, so sorry.” Carrie sobbed, dangling like a broken ornament.
+
+But Sophie didn’t look at her. Instead, she looked down at her feet. Vacant eyes searching for something they would never find.
+
+“You are not my Mother.”
+
+Before Carrie could utter another word Isabelle drove the knife through her chest. The chapel rumbled to life with the sister’s howls. Carrie yowled in anguish, but it was cut short as Isabelle bled her with a slice across her throat. Carrie sputtered blood, coughing and jerking. Her final words were incomprehensible as she slowly succumbed to her wounds.
+
+Isabelle made light work as she carved into her chest, the sharpened blade gliding through her flesh with ease. Once she finally made her way into her chest cavity, she carefully retrieved her prize. Isabelle gripped Carrie’s still, bleeding heart and raised it in triumph. Sophie kept her head down making a great effort not to look, but Isabelle took her by her hair and forced it into her line of sight.
+
+“Eat of her and, if Mother be merciful, may she live on in you,” Isabelle growled, commanding rather than asking.
+
+Sophie closed her eyes, inhaling a deep breath before sinking her teeth into the crimson meat. She sobbed as she devoured, crying in fear that soon boiled to rage. But she ate and she ate until she was done. Then she bellowed out a deep, primal roar and all the other sisters joined her. Then, Isabelle split Carrie straight down the middle. Her intestines fell forward out of her body draping to the ground. Isabelle peered around at all the women before stepping aside to fully expose her corpse.
+
+“Eat.”
+
+The reaction to her command was instantaneous. They rose from their seats and rushed forward hungrily. The messy sounds of their feasting soon filled the chapel.
+
+That night, I skipped supper.
+
+Sophie was never quite the same after that and neither was I. Even so, seasons came and went as the wheel of time turned, and before I knew it my eighteenth year had come. It was a grand affair. Isabelle even had runners traverse into outsider territory to harvest decorations and a cake in my honor. After supper, Isabelle spent the evening preparing me. She bathed me, trimmed my hair, and washed my feet all whilst crying silent tears. It was unnerving, but my mind was occupied. My time had come to seek an audience with Mother and I had so many questions to ask that I considered writing them down. I was dressed in fine robes. They had been hand-stitched and embroidered by Priestesses for years in preparation for this very moment. My eyes danced over the details, each one created to represent the milestones of my growth.
+
+Once all preparations had been made, we headed off towards the entrance to the old mine. Sophie and another Priestess stood watch. We had barely spoken since she had taken her new role, but she met my eyes then. I couldn’t discern what I saw in them, but I was certain she had meant to say something. Regardless, the pair parted for us, allowing me through. My steps were unsure as we ventured inside.
+
+The cavern was humid and surprisingly warm. The stone inside was smooth and ringed with mineral deposits. I was tempted to reach my hand out and trail it along the wall, but when I reached out I could have sworn I was met with a radiating heat. We traveled further down and I wasn’t sure when it would end. It was dark and I couldn’t see anything. Isabelle was my only guide and she moved with unmatched certainty. I was growing impatient. I was just about to ask her how much longer we had until I saw something. It was a glimmer off in the distance, but that wasn’t all. I could hear something. A steady rhythmic thump. As we drew closer I saw dancing lights, sweep across the floor from the clearing up ahead. It was hard to describe, but they illuminated our walkway in a vibrant array of hues. It was beautiful. My pace quickened and before I knew it I was bolting through the threshold into a wide, expansive domed cavern. The lights were coming from everywhere, but as I focused more and more on what I was seeing the more I realized just how much I wanted to turn back around. Just how much I wanted to unsee.
+
+Wall to wall was covered in glimmering, pulsing flesh. It bloomed and breathed. From each opening, a glimmering light escaped illuminating the space, before winking closed to take the light with it. The place reeked of life, of something fleshy and animalic. The musk was all-encompassing.
+
+“What…what is this?” My voice trembled in terror.
+
+“That is *Mother*.” Isabelle’s words radiated with reverence.
+
+This was not what I had expected. You see when I pictured Mother I imagined a woman. A beautiful woman with a warm, wise smile. A kind smile. Not a pulsating, throbbing maw.
+
+“You know, I used to be a missionary. I traveled far and wide spreading the good word of a holy Father. A false God. One afternoon, I found myself in a quiet little town and I went door to door as any good little messenger would. Many cast me away, uncaring and apathetic to the gospel, but one man answered and was even so kind as to let me into his home. But he was not truly kind, Malik. He was a wolf in sheep’s clothing. You see I traveled alone and he knew that. He even knew how far I was from home, because I was so stupid and trusting and had told him. Unknowingly, I had traveled into a beast’s den. A sacrificial lamb for him to do with as he pleased. That man drugged me over tea and the next time I awoke I was in the forest. This forest. He played with me in these very woods. I ran and screamed and no one heard me and he hunted me over and over until he was tired.” She held up her arms displaying deep scars around her wrist, “He strung me up by a tree. He cut off my clothes and exposed my belly and he was going to gut me and watch me bleed. I prayed to that false God. I prayed for him to save me and do you know what he did, Malik?”
+
+I was quiet, eyes still focused on the flesh that breathed around us.
+
+“He left me unanswered, but Mother answered. She came and she saved me. A lone doe stepped out from the woods. He tried to shoo her off, but this deer was different. She too was a missionary and her message was meant for me. Her head split open and from it came red tendrils of reckoning that destroyed him righteously. I was so very afraid. She stepped closer, her ribbons of viscera cutting me down and just when I thought she might hurt me she bowed to me. I was confused, but she was patient and in time as I looked into the light that danced within her I understood, so I took that man and I dragged him up the mountain with her as my guide and she led me right here where we stand now. Mother was much smaller then, emaciated and hungry, so I fed her. I fed her for a long time and I fed her an assortment of things. Deer, rabbit, squirrels, hikers, you name it. And in time she grew and when she grew she could now feed me. Feed us.”
+
+The adjacent wall pulsed and throbbed. From one of its many openings, it pushed out a misshapen, speckled fawn. It bleated pitifully, eyes barely open. Isabelle took the babe cradling it as she shushed it. Then her hand snaked around its throat as she callously snapped its neck. She looked at me with more glee than I’d seen from her in my entire years of living.
+
+“In time she sought out others and they came slowly, but soon our numbers doubled then tripled. As some women came, so did men who sought after them and those men became fodder for Mother to feed. But one day we fed her a man and she made something we had yet to see from her. She made something so beautiful. She made you.” She fed the dead fawn back into the same dribbling maw that had birthed it.
+
+“Me?” I croaked.
+
+“Yes, Malik. You.” Isabelle wiped joyful tears from her eyes.
+
+“So then. I’m the only one born of her?” My mouth watered with the threat of vomit.
+
+“Yes, and that is why you are so special, but do not be mistaken. Though we are not of her flesh we are flesh to be utilized by her. She is the creator. She is the provider. This land is her back and upon it she bears a fertile garden of protection. She is the land and when we tend to it we tend to her. Do you understand Malik? Now it is your time to truly take care of her. Your role, your purpose dwarfs that of a Priestess’s duties. Malik, you get to help her create more perfect beings.” She shook her hands with jubilation.
+
+“You’re gonna feed me to her?” I whimpered and Isabelle chuckled as if the notion was childish.
+
+“No, of course not. You will understand. She will help you understand. You will get to know her in ways we cannot and she won’t hurt you. She would never hurt you.” She caressed my cheek, the sticky membrane still coating her hand.
+
+The flesh rippled and Isabelle looked to it, nodding in agreement to something.
+
+“I shall take my leave now. Do not fret. I will return for you at dawn. Don’t make that face. You’ve wanted this for so long. Ask your questions and receive your answers. Goodnight, Malik.” Isabelle turned and left me then. Alone with her, with it.
+
+I stared all around me trying to make out where she begins or ends. I stepped closer, listening. The ever-present metronome of an organ working filled my ears. A fleshy fold trembled before me and bloomed open and I couldn’t help but peer inside. I was entranced, lured in by her and I could hear her. The room felt so hot then. I couldn’t slip out of my robes fast enough. Closer. I needed to get closer. I pressed myself against her and I listened and I could feel myself sinking in. Well, not all of me, just a very distinct part of me. As we melded together I was encompassed by overbearing sensations. She smelled like something earthy and green. Like petrichor and vetiver, but underneath was the aroma of something meaty and pungent. A smell I can only describe as life itself. I could feel small, insignificant bodies crawling on and in me. I could feel the roots as they stretched and grew. I could hear the birds and the critters as they called into the night. Everything, I felt everything. She poured everything into me before sucking it all back for herself and once I was empty I collapsed to the floor, my vision fading to black as I passed out.
+
+Someone was shoving me and when I came to I was greeted by an erratic Sophie. She was covered in blood.
+
+“Hurry, they will soon feel what I’ve done. We must leave now.” She held an oil lamp in one hand and a hand axe in the other. My heart skipped a beat as I realized what she must have meant.
+
+“What did you do? Oh Mother, what did you do?” I looked at her horrified, “Did you do this for me?”
+
+“For you? I did this for me, for Ma. I just needed a time when that awful woman’s mind would be too busy with her own thoughts to go trifling in mine. Now do you want to leave or would you rather die here as this thing’s boy-toy having never seen the outside?” She sneered and for a moment I considered it. I hadn’t thought about the outside in a long time and after this I wondered if it could hold up to the experience of Mother. Perhaps, it could even surpass it. These thoughts displeased *her*.
+
+A larger orifice started to undulate and throb, threatening to push out something new.
+
+Sophie’s face grew pale. She chucked the lantern in its direction and it burst. The flesh yelped as flames spread across it. She grabbed my hand and the look in her eyes told me everything I needed to know.
+
+*Run.*
+
+I sprinted after her, gripping her hand tight as she guided me through the dark damp canal. A plume of flames lit up behind us and something bellowed out angrily. I could hear its heavy steps as it pursued us through the void. I stumbled and almost fell many times, but Sophie held me and dragged me out into the light of the moon. We made it out and I was immediately met with the corpse of a dead Priestess that lay limp at the entrance, the front of her face hacked and caved in from murderous blows.
+
+Sophie yanked an oil lamp from the front of the mine. She hurled it at the sisters' sleeping quarters and I watched in awe as the dry brittle wood lit up in flames. As the shack was engulfed, I could hear the waking sisters begin to scream.
+
+Isabelle stepped out from our shack gripping a rusted pickaxe. Hatred painted her face as she made her way to Sophie.
+
+“Foul Sister slayer!” She lunged at the girl, but Sophie was ready. She held up her axe, blocking the assault.
+
+They dug their heels in, wrestling for dominance when the newborn beast burst from the mine. It lunged for Sophie, but she shoved Isabelle forward to intercept. It dove into Isabelle, crooked fangs sinking into her shoulder and she wailed, but the creature didn’t seem to care who or what it tore into as it ripped her apart. The sound of the sisters burning and wailing crossed with Isabelle’s and that awful buzzing was back. Just when I thought I might pass out, one voice rang true.
+
+“Run! Run Malik! Get the fuck out of here!” Sophie commanded me and I listened. I ran. As I heard that creature finally take hold of her I ran. As the vines and leaves tried to grab me I ran. As I heard that awful creature, my sibling? Child? chasing after me I ran. I ran until I met a cliff and tumbled down the side of the mountain and hit pavement. Bright, white lights shone onto me and a loud horn rang out. The vehicle, a Freightliner I would later learn, came to a full stop just before it could turn me into a streak on the earth. A heavy-set man stepped out yelling obscenities at me.
+
+“Kid are you trying to get yourself killed? What the hell are you doing out here?”
+
+“Please! Please, take me anywhere but here, please just anywhere but here!” I begged and surprisingly he had listened. As we drove off I stared at the plume of smoke that rose from the mountains I had once called a home. The trucker had tried to ask me where I was coming from and where I had been and I answered him as honestly as I could. His response to my story was that he knew of a rehab program that could help me get clean. That if I fixed myself up I could make something of myself and learn how to be a functioning member of society. He didn’t believe me and knowing all that I know now I can’t really say that I blame him.  
+   
+Regardless, he was incredibly kind and I owe that man my life. He gave me some spare clothes and a bottle of water. Dropped me off at the nearest rest stop some hours away and ever since then I’ve been on the road. I have spent my life as a nomad traveling and drifting seeing as much of the real world as I could. I steered clear of mountains, but nature still called to me. It was a part of me after all. I'm drawn to it like a moth to a flame.
+
+I’ve been able to work some jobs under the table and even saved up to get myself a van. She’s a fixer-upper, but she’s mine. As for my love life, it's touch and go figuratively and literally speaking. I have found that I don’t really like sticking with one person. You see when people like you they tend to start asking questions and frankly, I don’t have it in me to fabricate or give the answers. Once, I did try to tell someone the truth about my upbringing; needless to say, it didn’t go over well.
+
+However, I had been seeing someone long-term recently. It was unconventional. We didn’t use labels and we allowed ourselves to be free as we traveled around. This had been going on for some months and frankly I enjoyed her presence. I liked her. She didn’t wear me down for answers. She’d just let me be and in turn I’d let her be. To this day I don’t know where she’s from and I doubt that I even have her real name, but that doesn’t matter because it doesn’t change who she was to me or how much she meant. To me, she was known as Shiloh.
+
+Shiloh was a gorgeous woman and as free as a bird in the sky. Admittedly, she reminded me a lot of Sophie. Pathetic I know, but our connection was different. It felt like something innate and spiritual. We both shared a love for the natural world and sought adventure together in it. We loved to go hiking and had a tendency to partake in other extracurriculars as we ventured through greater, more profound woods. One day we had set off for a national park and had made our way deep within the path of a less popular trail. We’d set down our gear, disrobed, and let nature take its course. Once she was atop me, my eyes were focused on the bounce of her chest and honestly not much else mattered in the moment. But then she stopped. I was about to ask her why she had, then I felt something brush against my leg. When we looked down, a vine had somehow fallen onto her. Except it hadn’t fallen. With lightning speed, it coiled around her leg and yanked her from me.
+
+I lurched forward trying to get after her and she fought against it kicking and screaming, but it wouldn’t let up. Soon other vines had latched onto her and her lower half was practically swallowed up by the tangled mess of foliage. I looked up ahead trying to figure out who or what snared her. Then I saw it. It was a cave. No, a mine shaft. My blood ran cold. Once it had her at the entrance the vines snaked their way all around her. She screamed and writhed as they made their way into any and every orifice they could. Bloody tears leaked from the corners of her eyes and the sounds of her bones snapping and cracking in and out of place will forever haunt me. I tried ripping them off of her, but there was no use. She could fight no longer and within minutes she went limp, but then she began to move as if resurrected by some unseeable force. The vines held her up, crucified by flora that had dug its way into and through her palms, and through a hoarse, guttural voice she spoke.
+
+“*Come…Home…*” And just as fast as it had grabbed her it snatched her down into that tunnel never to be seen again.
+
+Like a coward, I ran. I ran until I was back at my van and began to drive. I just kept driving. Away from the forest. Away from wherever her influence could linger. I’m in some city now. I’ve been here for weeks working some odd jobs. I found out about one of these Internet cafes and found out about this site. I was hoping to find any others who might have experienced something similar. Because I don’t know what to do. I keep wondering if I should go back or if I ever should have left in the first place. I just don’t know.
+
+But I do know that I’m not quite ready to reconcile with my *Mother*.

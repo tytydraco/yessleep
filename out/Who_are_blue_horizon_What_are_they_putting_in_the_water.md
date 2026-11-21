@@ -1,0 +1,311 @@
+I need to get this out. Something isn't right. I've been back in my hometown for 3 months now. I thought people were acting strangely, but I was too strung out to pay much attention at first. A wellness company has opened a base here, and they're fucking with the water. I don't know if they're poisoning people... or changing them... making them better or just... less like people. I need to know if anyone has heard of them before and knows what the fuck is going on. 
+
+I've kept a journal since coming home to chart my recovery. Maybe someone can read it and help me find some answers... who the fuck are the blue Horizon Project? 
+
+\*\*\*\*
+
+God, grant me the serenity to accept the things I cannot change, the courage to change the things I can, and the wisdom to know the difference. 
+
+I was 6 weeks clean when I moved back to my hometown. 
+
+I'd had no choice. Having lost 4 stone and in kidney failure, my mother had finally visited me in hospital, and vowed to cut the money off I didn't come home. I could either die here, strung out and desperate, or get clean and die later, on my own terms.
+
+I walked along the pier, my bones aching, the sea air whipping around my stiff shoulders and sending pangs of hunger through my stomach.
+
+It was strange, being back here. Retracing my childhood steps, unhappy memories flooding back as I walked. The girls from my class who had viciously mocked my awkwardness, honing in on my large feet and fluffy moustache. The boys, whose interest in me felt unnatural and made me hot with shame. And that first night.
+
+Laura, the older girl who had befriended me, ushering me into the pub toilet. 
+
+"Put your head down." 
+
+My drunken protestations, her dismissal. The faint smell of ammonia in my nose as she pushed a rolled up note into my hand. 
+
+"Just sniff it. It's good stuff."
+
+I remembered the taxi driver who had picked up 15 year old me that night. I froze, breathing in a shuddered gasp as I recalled his worried expression, fending off my gurning, slurring advances. The images swarmed my vision and I squeezed my fists tight, digging my nails into my palms.
+
+"No. No no no." 
+
+I closed my eyes and held my breath, waiting for it to pass. When I opened them, I was stood in front of the sea pool. An ancient structure, formed over millenia by the erosion of the waves. It was a familiar haunt of my past self. 
+
+In front of me was a sign I hadn't seen before. 
+
+THE BLUE HORIZON PROJECT 
+
+Coming soon: a new immersion experience.
+
+Bathing will resume when the medium has stabilised. Please bear with us as we prepare the waters! 
+
+Scaffolding and plywood obscured the pool from view. A low hum emanated from inside. I leaned in, pressing my ear against the panel. The low vibrations buzzed through my jaw. I watched as a foamy substance bubbled out from a crack in the wood, like frogspawn. 
+
+This town was dead. It had been dead for years, long before my addiction had carried me away. Who would want to build something new here?
+
+I turned and walked back towards the beach.
+
+\*\*\*\*
+
+I closed the door behind me, shaking off my jacket. I heard my mother approaching as I slipped off my shoes. 
+
+"How was your walk?" 
+
+I looked up into her tight face. Her arms were folded, body closed off and cold.
+
+"Fine. I went to the sea pool."
+
+"You're clean?" 
+
+I pressed my tongue against my teeth. 
+
+"Yes. I just went for a walk." 
+
+She sniffed, eyeing me suspiciously. 
+
+"Dinner's in the kitchen." 
+
+I followed her, grateful for the warmth and the smell of good food.
+
+"The sea pool is closed." I said, sitting down.
+
+"Yes. Some new project. Councillor Frome has something to do with it. Don't forget your meeting in the morning."
+
+"Yes, 10:30, at St Michael's. I'll be there. What kind of investment project?"
+
+"Remember, you've got an appointment with Dr Patel at 2. Don't be late."
+
+"Yeah, I know. I won't. What are they doing with the sea pool?"
+
+"Oh I don't know Jess. Trying to bring back the tourists or something. I've had enough on my mind without worrying about what the bloody council is doing. Anyway, the place could use some cleaning up. Get rid of that scum down at Laguna Court, stop them ruining more lives."
+
+I didn't press. I didn't want to go down that road with her. I needed things to stay calm.
+
+I sipped my tea. There was a strange, metallic aftertaste. We ate our meal in silence, rain pattering lightly against the window outside. 
+
+\*\*\*\*
+
+The air in the church hall was heavy with moisture from wet coats and reheated food. The small windows above me were cloudy with the breath of many. I watched a droplet snake its way down and disappear into the cracked white frame. I looked around at the battered old room, the words of a pledge coming back to me like a summoned ghost.
+
+I promise to do my best...to serve the Queen and my community...
+
+"Jess, do you have anything to share?" 
+
+I looked up, startled. Curtis looked back at me earnestly, legs crossed.
+
+"Um... no, not really."
+
+"First meeting back?"
+
+"Yep." 
+
+The tattoos on his face wrinkled as he gave me an encouraging smile. I hated him for it. Curtis Jones was the most notorious smackhead this town had ever seen. Ten years ago he had caved in Jimmy Keane's skull over a rock of crack in front of Laguna Court. It had taken four policemen to subdue him, screaming maniacally, slick with the other man's blood.
+
+Now, Curtis ran the local drug and alcohol centre. He had a weekly column in the paper espousing the virtues of abstinence. He was reformed. 
+
+But Jimmy would never be reformed. He was back in his mother's house in a vegetative state. Jimmy would never leave this place.
+
+"Well, we can catch up next time Jess. Alice has a share for us, Alice? When you're ready, mate." 
+
+I sat in silence for the rest of the meeting, coffee growing cold in my hand, listening to the self-pity and the war stories and staring at the dirty parquet.
+
+I loitered near the literature table at the close of the meeting, waiting for my chip. Curtis handed it over, fingers lingering on mine for a moment. 
+
+"Jess?" 
+
+"Curtis." 
+
+"How are you doing? Your Mum called me." 
+
+"Did she."
+
+"Yeah. She's worried about you."
+
+"I'm here, aren't I?"
+
+"Do you have a sponsor yet?" 
+
+"For fuck's sake Curtis, I've just come back. Can you give me 5 minutes to breathe?" 
+
+"I know, I know. Look, your Mum's just going to ask you about it when you get home anyway, so why not just take Alice's number? She's already said she would sponsor you. You don't even have to ring her yet, but you can save yourself a headache and put your Mum's mind at rest too. Deal?" 
+
+I rolled my eyes. "Whatever." 
+
+He smiled that patronising smile again, and handed me a card with my chip. I looked at it. 
+
+ALICE BECK 
+
+Hydrotherapy Facilitator 
+
+07700 900482 
+
+I looked up at him. 
+
+"Not really anonymous, is it?"
+
+He laughed. "Yeah, I know. She was in a rush, just handed it to me. It stays in here, right?" 
+
+"Whatever. Not like I've got anyone to tell."
+
+\*\*\*\*
+
+I sat in Dr Patel's office, taking in the lilac walls and carefully placed box of tissues next to the leaflets for the rape crisis centre. Dr Patel sat in front of me, watching me mildly, fingertips pressed together in front of her face. The hard plastic of the chair sent a deep itch through my freezing buttocks. I shifted my weight.
+
+"So, Jess. How are things today?"
+
+"Fine." I lied. I stared down at my hands, picking at a shred of skin on my finger.
+
+"You've been to a meeting?" 
+
+"Yep. This morning." 
+
+"Did you find it helpful?"
+
+"I'm still a bit numb."
+
+"That's understandable. How are things at home? Are you settling back in with your mother?"
+
+I pressed my lips together. 
+
+"It's fine." 
+
+"You're not finding it stressful being back? Triggering?"
+
+"No." I lied. 
+
+"And is the methadone sufficiently managing your symptoms?"
+
+I clenched my jaw. The foul green liquid did nothing but keep me on the precipice, barely holding back the rigors.
+
+ "Not really." 
+
+"Well, there's room to titrate the dose. Let's increase it today, to make you more comfortable. That should give you some space to handle the other things."
+
+I nodded but didn't reply.
+
+I twisted in my chair. The corner of my mouth spasmed.
+
+"I'm not sleeping well." 
+
+\*\*\*\*
+
+I walked along the high street, head down against the wind. Cracked and dirty slabs repeated beneath my feet, blurring together as my mind wandered. Flashes of painful memories swam in my mind and I grunted, squeezing my eyes shut.
+
+I collided against something, hard. My hands flew out to grasp the edge of the door that had just opened in front of me, and I pulled myself back upright, blinking against the pain in my head.
+
+"Jess?" 
+
+I looked up, humiliated.
+
+"Laura?" 
+
+She was different. The once scarred, dull face was now clear and smooth. The suspicious eyes seemed lighter, calmer. Her clothes, which had always been cheap and slightly grimy, were now well fitting and clean. Even the smell of her, that familiar chemical musk that all of us shared, had gone. In its place was nothing at all. 
+
+"Yeah! I didn't know you were back! How are you? You must have walked into the door just as I opened it!" 
+
+My hand rose to my forehead, which was beginning to throb. I felt my face grow hot. 
+
+"Yeah, sorry, in my own world."
+
+She looked at me up and down, appraising me. A half smile touched her lips. 
+
+"You still getting on it?"
+
+"Uh, no actually. Not for a while now." 
+
+"Oh well. Never mind then."
+
+"What?"
+
+"My fella gets some lovely stuff in now. Much better than before." 
+
+Something inside me pulled, wanting. 
+
+"You should come and see us one night. Have a bit of fun." 
+
+"Uh, maybe. I need to get back now, anyway." 
+
+"You look like shit Jess. You want to get off that dirty shit. You should come round. I could help you."
+
+Laura's idea of help was giving me crack at 15, and moving me in to her shitty bedsit, bait for the stream of men who darkened her door with their little plastic baggies. I did not want to go back there, not now. But the pull was magnetic.
+
+"I'm good, honestly. I better be going." I hurried forwards, willing myself not to look back, not to follow Laura behind that door. 
+
+"Come to the waters Jess! See you soon!"
+
+I fought against the noise in my head, the powerful voice that told me I could just have one hit, that I deserved it, that I could handle it. That no one would find out.
+
+I turned around, but Laura was gone. Relief and frustration hit me at once, and I exhaled, shuddering. A gust of wind whipped past my face, flapping the corner of a poster taped to the wall beside me. 
+
+YOU DON'T HAVE TO SUFFER ANY MORE. 
+
+The Blue Horizon Project
+
+Exclusive wellbeing trial for selected local residents begins this week 
+
+Come to the waters. Let them heal you. 
+
+I stared at the sign, mouth dry. 
+
+\*\*\*\*
+
+The front door closed behind me with a click. I watched my hand shake as I pulled it away from the handle.
+
+"Everything all right?" My mother appeared from the kitchen. Her eyes darted all over me, searching for danger. "You look pale." 
+
+"I ran into Laura." For some reason, I didn't feel like lying. 
+
+"You didn't do anything did you?" The scanning eyes grew faster. 
+
+"No. Just came straight back here. Was a bit of a shock, though. She looked different."
+
+"She's not different,  Jess. She will never change."
+
+"I didn't get the impression she had. She just looked... better." 
+
+"Stay well clear."
+
+"I was planning to."
+
+She peered intensely at me for a moment, then seemed to relax.
+
+"Come in, dinner's in the kitchen."
+
+We ate in silence again, both content, for now, in the knowledge that I was still clean. It was becoming easier, being here with her. 
+
+"I saw another sign for that Blue Horizon thing. Like the one at the pool." 
+
+"Oh yeah?"
+
+"Yeah. Something about exclusive access for residents?" 
+
+"Yeah. I heard Elaine talking about it yesterday at the butcher's. It's some wellness retreat I think, load of airy fairy nonsense. No idea why Peter Frome is involved. Doesn't seem like his bag at all." 
+
+"What do you mean, wellness?" 
+
+"Well, Elaine said they discovered something about the water a couple of years ago. Some mineral or something that you don't get everywhere. So, one of these spa or health companies or whatever they are, came down to extract it and start selling it back to us at a premium. Bloody ridiculous. I've been swimming in that pool since I was 3 years old. Now it looks like I'll be swimming in it stinking of lavender and paying for cucumber water while I'm at it!"
+
+I laughed, and her face softened. 
+
+"You should organise a protest."
+
+"Yeah, make a sign and storm down in my old bikini. That'll scare them off!"
+
+We laughed together then, easy in each other's company. The night was warm and sweet.
+
+Outside, rivulets of liquid trickled the wrong way along the window.
+
+\*\*\*\*
+
+In my room, the warmth and calm dissipated. I sat up in bed, playing over and over my encounter with Laura in my head, my stomach churning. 
+
+"I can help you... Come to the waters Jess..."
+
+I'd never seen her like that before. She looked... normal. Not sick or strung out like she always had been when we were living together. But underneath, she was the same. It was in the nasty, predatory smile. The way she tried to get me to follow her behind the door. She had something I needed, and she wanted me back on the hook. 
+
+My phone vibrated and interrupted my thoughts. I looked down: 
+
+Hey Jess, it's Alice :) Curtis thought I should reach out, drop me a line when you're ready to talk x
+
+I stared at the screen, anger rising in my chest. Who the fuck did Curtis think he was? My fucking babysitter? 
+
+I threw my phone in disgust. Fists clenched, I paced around my tiny room, willing myself to calm down. I needed to sleep tonight. I couldn't sit here with this all night. I ripped open my bedside drawer and popped out a zopiclone from its foil. I cracked it between my molars, relishing the bitter chemical taste. 
+
+\*\*\*\*\*

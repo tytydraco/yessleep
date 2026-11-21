@@ -1,0 +1,141 @@
+Amber and I started seeing each other about six months ago. We matched on a dating app, met up at a bar and just did that casual thing for while. Well, I pretended it was just a casual thing. Truth is, as soon as we’d started talking on the app, I stopped messaging anyone else. She was so easy to talk to, it was like nothing I’d ever experienced. There was no awkwardness, no confusion, no mixed signals. 
+
+
+
+Then we met in person and she was more beautiful than her pictures. Freckles that seemed to blossom on her face, hair that was a little messy, but like on purpose. And her smile. She didn’t even have to move her lips; she can smile at me with her eyes in this way that just does things to me. So, yeah. I pretended it was a casual thing, nothing serious, just hanging out, meeting up, all that stuff. But really I had never fallen so hard for someone. 
+
+
+
+At first we’d meet up at the weekend, then maybe after work once or twice. Before long, we were seeing each other most days. She had less understanding roommates so if we spent the night together it was usually at my place. Then, without either of us really mentioning it, she was staying there all the time. 
+
+
+
+I’d never lived with a girlfriend before, so it was an adjustment. Suddenly there were a lot more supplies in my bathroom, like strawberry scented shampoo. I found out she didn’t actually have all those freckles, she would add some every morning so her face looked more symmetrical. It would take her like an hour. 
+
+
+
+“You know, I think you look beautiful without needing to do that.” I said to her one morning after maybe a month of this.
+
+
+
+“Cool.” She’d responded, totally deadpan and continued applying her makeup. She’s like that. Doesn’t  argue. If she disagrees with you she’ll just go monosyllabic until you change the subject. It’s surprisingly effective, if annoying. 
+
+
+
+Without a doubt, though, my favourite part of living with her was that every night, without fail, she would drape herself across me. Like, head on my chest, hand on my cheek, body lying across me. It was like the world’s hottest weighted blanket. She wouldn’t do it when we lay down, it was something that happened during the night. I’d wake up from the pressure to find her lying there, snoring softly. 
+
+
+
+Then, about a week ago, things started go wrong. I'd never tried to move Amber off of me before because there hadn’t been a need. But, I woke up desperate for a pee and she was lying on me. I tried to gently roll her back to her side of the bed but she wouldn’t budge. This is a girl I’ve hoisted over my shoulder on more than one occasion, but I just could not move her an inch.
+
+
+
+“Babe.” I said gently. Nothing. “Babe.” I tried again, giving her shoulder a little nudge. She made a noise like she was listening. “I need to pee.”
+
+
+
+“So, pee” She said, sounding groggy. I tried to move again, figuring she’d let me get up, but no. 
+
+
+
+“You gotta let me move.” I said, unable to suppress a smile.
+
+
+
+“No, just piss yourself.” She said and I burst out laughing. Her head whipped round to stare up at me. She didn’t look half-asleep; she looked angry. “Don’t laugh at me.”
+
+
+
+“No, I wasn’t. Just, what you said, was funny.” I stammered.
+
+
+
+“I wasn’t joking.” She said coldly. “Piss yourself. Now.” There was something about her voice. I can’t explain it. It was like her words crawled across my skin and stabbed into my urethra like needles until I lost control of my bladder. I felt the warmth spread along my groin and down my legs, quickly turning cold and uncomfortable. Suddenly, Amber wasn’t facing me anymore and I could hear her snoring gently. I closed my eyes but knew I wouldn’t be getting back to sleep. I don’t know how long I lay like that in the grim wetness before Amber stirred again. 
+
+
+
+“Baby, wake up. You’ve, uh, you had an accident.” Amber said, shaking me gently. She sounded so sympathetic as if she hadn’t been the cause of it. I got up and didn’t say much as we stripped the bed. Unfortunately, the mattress and comforter were also damp. Amber asked if I was ok and, somewhat incredulous at the question, I explained what had happened. She didn’t say anything as I repeated it, but the look she gave me was enough. Even as I was saying it, it seemed obvious I was describing a weird nightmare. She pulled me into a hug and we slept on the couch watching old Rocky and Bullwinkle cartoons. 
+
+
+
+The next day it seemed so stupid. Especially the decision to sleep on the couch. As a teenager that might have worked, but now it just left my back aching and my neck sore. Amber and I chatted and joked over breakfast before we both left for the day. We didn’t mention the previous night. Work was hectic and further served to push the weirdness from the forefront of my mind. That evening we ended up preoccupied with other activites that kept any memory of the previous night far away. We collapsed into bed sweaty and exhausted and I passed out almost immediately. 
+
+
+
+I woke up a couple hours later to find Amber once again lying across me. I breathed in the smell of her shampoo. Just before sleep took me fully, she adjusted her head and I realised she wasn’t asleep as her eyes met mine. 
+
+
+
+“Hey, you.” I tried to say, but I couldn’t speak, couldn’t move. She grabbed my now limp hand and pulled it to her face, running it across her cheeks. She kissed my fingertips, starting at my little finger and moving along. It was a pleasurable sensation and though I wasn’t in control of my body, I felt perfectly safe with her caring for me. Then she put my index finger in her mouth and sucked gently, her tongue caressing it as she did. She pulled my finger away and there was a bit of tension as it slid out. Finally, it was just my fingertip in her mouth and she parted her lips slightly, as though she wanted me to see. As she bit down hard on my nail and thrashed her head side to side until she ripped it free of my finger.
+
+
+
+The pain was unimaginable and I wanted to scream, but I couldn’t. I still wasn’t in control of my body. It felt like I was vibrating as I tried desperately to do something, anything. She spat my nail onto my chest and moved on to my middle finger, which she began moving toward her mouth which was now stained with my blood. She cupped my face with her free hand and smiled at me so lovingly with teeth coated red.
+
+
+
+“It’s all ok, baby. It’s just a nightmare. You’re ok.” She cooed at me just before biting down on the nail of my middle finger and ripping that one off too. I tried to scream again and this time a noise came. It was distant, but there. I focused on the sound, on the proof I still had some control. I yelled as loud as I could and slowly the sound drew closer until I could tell it was coming from my lungs. I yanked my hand free and shoved her hard; she yelped and tumbled off the end of the bed. I sat there gasping and cradling my hand. 
+
+
+
+“What the actual fuck, Todd?” Amber asked as she stood up, massaging her shoulder. 
+
+
+
+“You fucking bit me.” Even as the words were leaving my mouth I saw the problem. Her face was clean. I looked down at my hand, at the two fingers that throbbed agonisingly with every heartbeat. They were fine. “You were...” I trailed off, I couldn’t make sense of it. 
+
+
+
+“Yeah, I think I’m gonna go sleep at my place tonight.” Amber grabbed the items of her clothes that I had eagerly helped her take off earlier. It was deathly silent as she got dressed, my breathing loud in my ears. She opened the door and looked at me, as if she expected something. She wanted me to object, to beg her to stay and tell her I was sorry and explain what I was thinking. But I couldn’t do that. My fingers still burned despite seeming ok and though it wasn’t there now, I couldn’t look at her face without seeing it dripping with my blood. So, I said nothing. And she left. 
+
+
+
+I didn’t sleep the rest of that night, couldn’t. I just stared dumbly at the door she’d slammed on her way out until the sun came up. As I showered I got a sharp pain in the sole of my foot. The water around my feet was red and when I moved my foot the pain remained. Carefully, I stepped out of the shower to find a fingernail embedded in my foot. Not a broken part of a nail, but the whole nail. Another was stuck in the plughole.  
+
+
+
+I didn’t get much done at work that day. And though i spent the day exhausted, when I fell into bed I found my body reluctant to sleep. Maybe it was Amber. Or, her absence. I’d gotten so used to sleeping beside her that now lying in bed alone felt alien, even as the thought of sleeping beside her made my skin itch. The warmth of another person, both physical and spiritual, now missing. The pillow still smelled faintly of strawberry; traces of her perfume clung to the sheets. Enough that I couldn’t fully shut her from my mind. 
+
+
+
+I don’t remember if I dreamed. If I did it was of her. Of us. When I awoke in the middle of the night to find her lying across me it was the most normal thing in the world. I kissed the crown of her head and breathed her in. Her hand started tracing circles on my thigh and I drifted into a peaceful sleep. 
+
+
+
+I awoke later in a frenzied panic, the sky outside still black. By then I was alone again. I grabbed my bat and looked around. Nothing, of course there was nothing. The front door was locked and bolted, my windows were all shut and locked. I picked up my phone. There was a message from Amber. 
+
+
+
+*I missed sleeping next to you*
+
+
+
+ I heaved. Had to rush to the kitchen sink for fear of throwing up. I left the apartment, didn’t even bother getting dressed just hopped into my car wearing nothing but underwear. Two hours is a long time to drive without stopping when your nerves are frayed and any movement in the corner of your eye makes you twitch. Didn’t even know where I was going, just that I needed to get away. I narrowly avoided t-boning some trucker when I missed a stop sign. He blared his horn and I swerved to avoid him. My car left the road and I tried to brake, but the verge had other ideas. My whole body shook as if something had grabbed the car and tossed it. Everything outside was spinning and then all at once it wasn’t.
+
+
+
+I faded in and out of consciousness. The world was the wrong way round and I was being pulled to the roof of my car. Lights shone. Someone spoke to me, but I couldn’t understand the words let alone reply to them. Then they were kneeling by my head, talking to someone, a hand cautiously reaching toward me. They pressed their head to my chest and I could smell strawberry shampoo. They were gone and I was alone again. Red and blue lights flashed from somewhere outside. More people were talking to me. They started to move me and it felt like a siren went off at the base of my skull. I screamed and then felt nothing.
+
+
+
+When I next awoke, it was in a hospital bed. I couldn’t see out of one eye and the only thing I could feel was the sensation of the blood circling my veins and arteries. Curled up and asleep in the chair to my right was Amber. I glanced around for the call button; it was on the table left of me. I tried to reach for it and found my arm unresponsive. 
+
+
+
+“They had to amputate it.” Amber whispered in my ear. My whole body tensed and I stifled a sob. “Don’t worry baby, I’m here.” She clambered onto the bed next to me, perching her body on the narrow space I wasn’t occupying. She placed a hand on my crotch and her head on my chest. She giggled as she felt my heart rate spike.
+
+
+
+Thankfully it was enough to trigger a check-in from a nurse. Amber slid off the bed, looking abashed. The nurse gave her a dour look, which before long she fixed me with too.
+
+
+
+“Boy needs his rest.” She said, more like a mother than a nurse. “If you two can’t keep your hands to yourselves, then I’ll have to separate you. Go on, now. You can see him again in the morning.” I could have cried I was so grateful. Amber blew me a kiss and skittered out of the room past the nurse. The nurse stared at me disapprovingly for a minute longer before she shook her head and left me alone. 
+
+
+
+I need to get out of here, but they said I’m not in a state to be discharged yet. I’ve asked the doctors and the nurses to not let Amber in. I’ve even said it to the porter who cleans the room. It doesn’t help. 
+
+
+
+Every night, without fail, I wake up to find her head on my chest. 
