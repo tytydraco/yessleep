@@ -1,0 +1,423 @@
+I've worked as a remote Spanish-English interpreter for four years. Most of my calls are boring. Insurance questions, medical appointments, customer service complaints. Occasionally someone cries. Occasionally someone screams at me because they don't understand that I'm just translating.
+
+Last night was the first time I've ever deliberately mistranslated someone.
+
+I think it's the only reason I'm alive.
+
+I work from home, usually from 6 PM to 2 AM. The company provides a headset and a browser-based calling platform. When a business needs an interpreter, I get connected to a three-way call. I listen to one person, repeat what they say in the other language, and vice versa.
+
+The rule is simple: interpret everything accurately. Don't add anything. Don't leave anything out.
+
+The call came through at 1:37 AM.
+
+It was a residential emergency maintenance line. A man named Daniel was answering calls for an apartment management company, and a Spanish-speaking woman needed help.
+
+Daniel explained that she'd reported a problem with her bathroom.
+
+I introduced myself in Spanish.
+
+The woman immediately asked, "Are you at home?"
+
+I assumed she was confused about who I was, so I explained that I was an interpreter assisting with her call.
+
+"No," she said. "I understand. Are YOU at home?"
+
+I told her yes.
+
+She made a small noise. Not quite a gasp.
+
+Then she said, very quietly, "Please don't tell him that."
+
+I thought she meant Daniel.
+
+Before I could ask, he interrupted.
+
+"Can you ask her if there's active water coming through the ceiling?"
+
+I translated his question.
+
+The woman didn't answer for several seconds.
+
+Then she said, "There's a man standing in my bathroom."
+
+I repeated that in English.
+
+Daniel asked whether she wanted him to call the police.
+
+I translated.
+
+"No. He's standing in the wrong place."
+
+I hesitated.
+
+"What do you mean?"
+
+"He's standing in my bathroom, but I can hear his feet in another room."
+
+I translated that too.
+
+And from somewhere behind me, I heard a floorboard creak.
+
+My apartment is small. One bedroom, a living room connected to the kitchen, and a short hallway between them. The building is old, and the floor makes noises when the temperature changes.
+
+I didn't think much of it.
+
+Daniel was asking whether the man had broken into her apartment.
+
+I translated.
+
+The woman started crying.
+
+"Please stop repeating what I say."
+
+I was about to explain that translating was literally my job when she continued.
+
+"He doesn't understand Spanish. He can only hear you."
+
+Another creak.
+
+This one came from the hallway.
+
+I turned around.
+
+My bedroom door was open about six inches. I'd left it that way because the cat had been sleeping on my bed.
+
+I don't have a cat anymore. She died in August, and I still leave the door open out of habit.
+
+I remember that detail because I was looking directly at the bedroom door when the woman said:
+
+"He learns where people are by listening to someone describe them."
+
+I didn't translate it.
+
+Daniel asked if we were still there.
+
+The woman was breathing hard.
+
+Then she said, "Please tell him I don't need help anymore."
+
+I translated exactly that.
+
+Daniel sounded relieved. He asked whether she wanted to cancel the maintenance request.
+
+I repeated his question.
+
+"No," she whispered. "Tell him I'm outside. Tell him I left the apartment."
+
+I looked toward my hallway.
+
+Something moved behind the bedroom door.
+
+It was just a sliver of movement, like someone had shifted their weight.
+
+I told Daniel the caller had left her apartment.
+
+The woman made a choking noise.
+
+From my bedroom, I heard three slow footsteps.
+
+I stopped breathing.
+
+I could see the hallway clearly from my desk. There was no one in it.
+
+But something was walking across my bedroom floor.
+
+Daniel said he would close the ticket and wished the caller a good night.
+
+Before I could translate, the woman said something that made my hands go completely cold.
+
+"He's learning your apartment now."
+
+Then, in perfect English, using my own voice, something inside my bedroom said:
+
+"He's learning your apartment now."
+
+I slammed my laptop shut.
+
+The headset cable caught under the lid and pulled the laptop halfway off my desk.
+
+I grabbed my phone and ran into the kitchen.
+
+I don't know why I didn't run straight outside. My front door is at the end of the hallway, directly opposite the bedroom.
+
+Whatever was in there would've been between me and the exit.
+
+So I stood in the kitchen, holding my phone, listening.
+
+The apartment was silent.
+
+Then I heard my own voice again.
+
+Not shouting. Not threatening.
+
+Just speaking in the same neutral, professional tone I use at work.
+
+"Can you please confirm your apartment number?"
+
+I hadn't said those words during the call.
+
+But I'd said them hundreds of times at work.
+
+A second voice answered from inside my bedroom.
+
+The woman's voice.
+
+In Spanish.
+
+"No se lo digas."
+
+Don't tell him.
+
+I nearly dropped my phone.
+
+There were two people speaking in my bedroom now.
+
+One sounded exactly like me.
+
+The other sounded exactly like the woman I'd been interpreting for.
+
+I called 911.
+
+While the dispatcher was asking for my address, I heard the bedroom door open.
+
+A soft scraping sound moved along the hallway wall.
+
+I turned my head just enough to see it.
+
+There was a hand resting against the wall near my bedroom.
+
+It was pale, with fingers much too long for the size of the palm.
+
+The fingers were spread against the paint like someone was feeling their way through a dark room.
+
+Then another hand appeared above it.
+
+And another.
+
+Three hands, at different heights, all feeling along the wall.
+
+I couldn't see what they were attached to.
+
+The dispatcher kept asking me questions. I was trying to answer, but my mouth wasn't working properly.
+
+Then the thing spoke again.
+
+"Please speak slowly and clearly."
+
+My voice.
+
+The hands stopped moving.
+
+I understood something then.
+
+It wasn't just repeating things I'd said.
+
+It was practicing.
+
+It had started with the short phrases I'd translated. Now it was pulling sentences from somewhere else, sentences I'd used on other calls.
+
+Maybe it had been listening to me for longer than that one conversation.
+
+I backed toward the kitchen window.
+
+It overlooks a narrow strip of grass between my building and the parking lot. I'm on the ground floor. The window is about four feet above the grass.
+
+I told the dispatcher there was someone inside my apartment and that I was trying to get out through the window.
+
+As I said it, all three hands moved at once.
+
+They pulled themselves farther into the hallway.
+
+Something narrow and pale appeared between them.
+
+For a second I thought it was an elbow.
+
+Then it turned toward me.
+
+It was a face.
+
+Not a complete face. More like a face that hadn't been finished.
+
+There were two dark indentations where eyes should've been, a narrow opening for a mouth, and absolutely no nose.
+
+The mouth moved.
+
+My voice came out.
+
+"I'm trying to get out through the window."
+
+It had heard me tell the dispatcher.
+
+I screamed and shoved the window open.
+
+The kitchen window sticks in cold weather. I had to put both hands against the frame and push.
+
+Behind me, the thing started moving quickly.
+
+I heard its hands slapping against the hallway wall.
+
+Then against the kitchen cabinets.
+
+I climbed onto the counter, shoved my legs through the window, and dropped onto the grass.
+
+I landed badly and twisted my ankle.
+
+Something grabbed the back of my shirt.
+
+I felt fingers bunching the fabric between my shoulder blades.
+
+I pulled forward as hard as I could.
+
+The shirt tore almost completely down the back.
+
+I fell onto my hands and knees, scrambled up, and ran toward the parking lot.
+
+I didn't look back until I reached the street.
+
+The kitchen window was still open.
+
+A face was pressed against the screen.
+
+My face.
+
+Not the unfinished one I'd seen in the hallway.
+
+Mine.
+
+It even had the little scar under my chin from when I fell off a bike as a kid.
+
+Its mouth was moving.
+
+I couldn't hear what it was saying.
+
+But I recognized the shape of the words.
+
+It was introducing itself.
+
+Just like I had at the beginning of the call.
+
+***
+
+The police came. They searched the apartment and found nobody.
+
+There were scratches on the kitchen cabinets and some damage to the window screen. They assumed an intruder had fled before they arrived.
+
+One officer asked whether I'd been drinking.
+
+I showed him the tear in my shirt.
+
+He stopped asking.
+
+I stayed with my sister that night.
+
+Yesterday morning I contacted my supervisor and asked whether the company could retrieve the recording of my last call.
+
+She said she'd look into it.
+
+About two hours later, she called back.
+
+She sounded annoyed.
+
+Apparently the maintenance company had complained that an interpreter disconnected during an active call.
+
+I explained that I'd experienced an emergency at home.
+
+She said something I haven't been able to stop thinking about.
+
+According to their records, the original caller had been disconnected less than a minute after I joined.
+
+The maintenance employee remained on the line for another six minutes.
+
+I told her that wasn't possible.
+
+I'd spent at least ten minutes interpreting for the woman.
+
+My supervisor said there was only one customer on the call after the first minute.
+
+Daniel.
+
+He had been asking whether I could hear him.
+
+And I had apparently continued speaking Spanish and English to myself until the connection dropped.
+
+She asked if I was feeling okay.
+
+I told her I needed some time off.
+
+***
+
+I'm back in my apartment now.
+
+My sister helped me check every room. We replaced the kitchen window screen and moved my desk so I can see the hallway without turning around.
+
+I still don't know who the woman was.
+
+I don't know if she was real, or whether the thing used her voice to get me to talk.
+
+But I've remembered something else about that call.
+
+When she first asked if I was at home, she sounded frightened.
+
+When she asked me not to translate, she sounded desperate.
+
+And when I told Daniel that she'd left her apartment, I heard her make that choking noise.
+
+At the time I thought she was crying.
+
+I've spent most of today replaying the moment in my head.
+
+I don't think she was crying.
+
+I think she was trying to stop herself from screaming.
+
+Because when I said she'd left the apartment, something started walking in my bedroom.
+
+And when I described my own escape to the 911 dispatcher, it came straight toward the kitchen window.
+
+I think I understand what it was doing now.
+
+It wasn't learning English so it could communicate with me.
+
+It was learning how to find me.
+
+About twenty minutes ago, I received an email from the interpretation platform.
+
+They're reviewing my account because of the abandoned call.
+
+The message included a reminder that interpreters are required to identify themselves at the beginning of every session.
+
+I was reading it when I heard a voice outside my front door.
+
+A woman's voice, speaking Spanish.
+
+She said she was sorry about what happened.
+
+She said she'd been trying to warn me.
+
+I didn't answer.
+
+She knocked once.
+
+Then she said, in English, with my voice:
+
+"Hello, my name is Anna, and I'll be your Spanish interpreter today."
+
+That's my name.
+
+It's also exactly what I said when I answered the call.
+
+I'm sitting on the kitchen floor with my keys in my hand. The police are on their way.
+
+Whoever is outside has stopped knocking.
+
+But a few seconds ago, I heard a second voice coming from the other side of the door.
+
+A man's voice this time.
+
+He asked, in Spanish, whether I could please open the door.
+
+And the woman answered him.
+
+In my voice.
+
+"Of course. I'd be happy to help."

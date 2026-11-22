@@ -1,0 +1,35 @@
+I’m shaking so badly as I type this I can barely hit the right keys. Idek if this is the right sub for this, or if I should be calling the police or checking myself into a psych ward. I just need someone to tell me I’m not losing my mind.
+
+For context, I (22F) live completely alone in a small house that I own outright. No landlord, no maintenance guy with a spare key, no roommates, no partner, no pets.
+
+I work from home and I’m pretty introverted, so I rarely have guests. If I do see friends, we go out. I get funny about having people over because I'm a bit of a clean freak. 
+
+What I'm trying to get at is that nobody has been inside my house in months, and nobody, other than myself, has been in my bedroom at all, ever. 
+
+I’ve been feeling really anxious and paranoid in the past few months, and I’ve honestly been worried that the isolation is finally getting to me and making me go crazy, like agoraphobia or something. I was actually planning to book a doctor's appointment this week to talk about it.
+
+Then I woke up about half an hr ago.
+
+I rolled over to grab my phone off the nightstand, and my hand brushed against something hard and sharp on the sheet next to my pillow.
+
+At first, I thought it was a bit of dried pasta??? or a pebble I’d somehow tracked into my bed or something. 
+
+I picked it up and it was a fucking tooth!! 
+
+It’s off-white, very yellowed and almost browney, with long roots still attached. I want to puke just thinking about it.
+
+I ran to the bathroom and immediately checked my own mouth in the mirror with my phone's flashlight. All my teeth are there. Every single one. Plus, my teeth don't look like that. 
+
+This is an adult human tooth, and it was lying right next to my head while I was asleep.
+
+I am currently sitting in my car in a store parking lot down the road because I couldn't stay in my house for another second. My front and back doors were both locked from the inside when I left. The windows were all latched. The house is tiny. There is NOWHERE for a person to hide. 
+
+I feel sick. How the hell does a tooth get into my locked house and bedroom?? Could I have somehow picked it up outside and carried it into bed on my clothes? But I showered before going into my room and put my clothes in the laundry basket. I check my bed every night before I get into it because I am terrified of spiders, and I swear there was nothing there. 
+
+I'm just freaking out at the idea that someone put it there while i was sleeping! 
+
+Please, tell me there’s a logical explanation for this, because I feel like I’m going insane. If I’m not imagining things, then someone must be getting into my house while I sleep.
+
+Please give me advice. Idk what to do and im scared to go back to my house. 
+
+I can post a picture of the tooth if people want to see it, but for now any advice is massively appreciated.
