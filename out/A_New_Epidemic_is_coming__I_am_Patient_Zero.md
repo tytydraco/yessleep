@@ -1,4 +1,4 @@
-It's been about two months since I contracted it and just over a month since I noticed the worsening symptoms.  I only started self-isolating two months ago.  I only wish I had taken better precautions, for my roommates’ sakes.  
+It's been about two months since I contracted it and just over a month since I noticed the worsening symptoms.  I only wish I had taken better precautions, for my roommates’ sakes.  
 
 My name is Allen, and my roommates are John and Brendan.  I am patient zero, or so I believe, if this continues spiraling the way it has.  But I’ll gather my thoughts and start from the beginning.  
 
