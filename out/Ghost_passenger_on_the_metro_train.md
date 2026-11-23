@@ -1,0 +1,47 @@
+I am a metro driver in Berlin and last week something inexplainable happened to me.   
+I remember it was a Friday about 12am, my shift was coming to an end. I was the last train on the line (U1, which ended at Nollendorfplatz at that time), as there are technical breaks between 12am and 4am on weekdays. 
+
+On the last stop, everybody got out of the train as usual. I closed the doors and proceeded to drive out of the station, towards the siding inside the tunnel. I parked the train and now here is something you need to understand about access to the drivers cab: 
+
+The model of the train I was driving, was an A3L92 (you can look it up). It has 4 carts, which are separated from each other. The drivers cabin is directly only accessible from the left side (if you stand outside) and if you'd want to get to it from the right side, you'd have to enter the  passengers compartment first and then open the drivers cabin door from the inside.
+
+  
+Alright, so, I parked the train, applied the handbrake, deactivated the electric brake, put the reverser into the neutral position, basically the usual stuff you do when you park the train. 
+
+What remained to do was:  
+Checking the train for any occupants who didn't exit the train at the final station, if applicable report any lost items, check for any damage, return to the driver cabin, make an entry in the train logbook, contact the dispatcher, shut the train off completely, and to leave.
+
+Instead of a big platform outside, there small steel platform to stand on was on the right side by the way. After all it was a siding track for employees only. 
+
+I began with the tasks. I activated door release on the right side, to be able to leave the train, entered the passengers cabin and exited through the right side, after checking the first cart. I made my way through the entire train. There were no passengers, abandoned/lost items or damage. I made sure to close all the doors behind me when entering a cart, to not let the warm air escape into the tunnel and also because I felt safer like this. After checking everything, I returned to the front, entered the cabin and filled out the logbook and other paper work. 
+
+The last thing which remained was to shut off to notify the dispatcher and to shut off the train entirely. That's also what I did.   
+I called the dispatcher, hung up after completing the report, turned off the lights and the main switch. After turning off the lights it obviously became very dark. The only thing barely illuminating anything inside, was the dim tunnel light. 
+
+  
+I put on my jacket, grabbed my backpack and opened the cabin door towards the passengers compartment, entered it, locked the cabin door behind me, and turned towards the exit doors.
+
+I pressed the button to open them, and that's when I saw something in the corner of my eyes. To my right, I thought I saw something like a silhouette sitting on one of the seats, about 5m away. The seats are not facing forwards or backwards but are arranged sideways.
+
+My heart literally sank into my belly. It was beyond scary to see someone inside a parked train in a tunnel where no people are supposed to be.   
+I slowly grabbed my flashlight, and observed the guy, while standing in the door frame between train and platform. Once I got my flashlight out, I turned it on. And there it was. A person in long, not bad looking clothes and a black North Face jacket sitting there, motionless. Hands in their pockets, head down. 
+
+For the first seconds I didn't say anything. It was so scary and weird for me, especially because they remained perfectly motionless.   
+I checked the entire train just minutes ago and made sure that no one was inside. And yet someone sat there. I spoke up saying "Sir, Hello?" (The person looked like a guy). They remained motionless. Just sitting, not reacting to anything. I spoke up again, saying "Sir, what are you doing here? You're not supposed to be here, leave the train."   
+The person still didn't move. I stood there and thought what I should do next. I weighed the options of either confronting the person or calling someone.   
+But since my flashlight was big and heavy, and I have a rather wide build, definitely wider than that person, I decided to slowly approach the it. I shined my light at them the entire time and said for the last time that they need to leave. Still, no response. I stepped even closer, so that the guy was about 1,5m away from me.
+
+  
+We don't really touch people with our hands, we usually just kick their foot softly. I was so close, and about to do it, but suddenly I heard a hard, single knock behind me. I spun around quickly to see absolutely nobody. I immediately turned back and the person in front of me was suddenly gone. The other 2 doors of the cart were closed. There was no way that this guy or whatever it was just vanished into thin air.   
+I didn't believe my eyes.   
+  
+I quickly looked around the rest of the cabin, shining the my flashlight in hopes of finding whoever it was hiding. But to no avail. The person was gone as if it was erased from the universe within less than half a second. 
+
+There was no way they ran past me because they would've brushed against me. The space between seats is too narrow, and second, I would've heard them running out of the train and over the steel platform. I stood in the cabin for a minute, not knowing what to do. 
+
+I thought crossed my mind, that perhaps I've hallucinated all of this, because I was very tired and didn't sleep well after all. But I never had any hallucinations.   
+After a minute, I decided to just leave and not tell anybody. I didn't want anyone to think that I might have some hallucinations or be some kind of superstitious freak.
+
+ I closed the door behind me and left. Then walked in a brisk speed across the platform and went home. 
+
+Till this day I didn't know what on earth I saw that day. 

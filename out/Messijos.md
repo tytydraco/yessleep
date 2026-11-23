@@ -1,0 +1,277 @@
+I've been working at Messijo's as the executive chef for 8 months now and I just quit. No 2 weeks notice, no goodbye. I just walked out. Being an executive chef at a small restaurant is stressful, 14 hour shifts, 20 day stints and "Executive" sounds fancy, but little respect. Glorified line cook but with all of the responsibilities. 
+
+I could have handled all of that if things didn't start changing. That's the gentle way of putting it. 
+
+Messijo's is a small gastro pub, family owned, longest standing eatery in the tri-state area. The menu is as small as the restaurant and the kitchen even smaller. So small in fact that 10 years back when tapas became all the craze, the menu changed to match and the owner remodeled. Not to make the kitchen bigger, no, he used the basement storage space to add walk-in coolers. One for beer and one for the kitchen. They were massive. It was so odd to imagine. How did a crew get such large pieces down a concrete staircase to assemble the coolers. The kitchen cooler was the largest. It stored all the food and housed a walk-in freezer inside of it.
+
+ 
+
+Work was routine. Food ordering, scheduling, menu creation and of course, cooking. The team were standard kitchen jerks, we'd bust balls, smoked, drank. You grew to love them. We'd cook, clean up, go home and, back ten hours later. Restaurant life. When you're in an environment so much everything becomes second nature. Your brain is on auto pilot. You pretty much live there, working 65hrs a week. That's why when things start to change, it's startlingly noticeable.
+
+ 
+
+I went to the basement to get food from the walk-in. A couple of odds and ends to complete some prep work. I did my light jog down the staircase and swung the door open. I felt a small electric shock go through my body crossing over the threshold. I stepped into complete darkness. At that time, I wasn't scared but confused. To my knowledge there aren't light switches for downstairs and the lights are always on so... broken bulbs? I took one more step in and audibly said "Uhhhh" and flick. The lights came on. I raised my eyebrow, and continued to the cooler, grabbed whatever bullshit I needed and ran back upstairs. Later that evening I talked to my boss about it.
+
+"Hey I was downstairs earlier and all the lights were out, but then after a second they turned back on. Is that normal?"
+
+"Not really, we used to have motion sensor lights back in '05, they were cheap and stopped working after a couple of years and now they act up when the bulbs are close to the end of their lives." He said still click clacking on his laptop.
+
+"Oh ok, heard. For a second I thought I was working too many 14's"
+
+"No you're good, I'll call someone to take a look and change the bulbs"
+
+ 
+
+I thought that was the end of it.
+
+ 
+
+Over the next few weeks, it was business as usual. Sometimes the lights would be out when I went into the basement but eventually would turn back on. I figured the owner was too cheap to pay for replacements. "Don't fix what ain't broken" I didn't let it get to me. What did get to me were little surprises I'd get every time I'd travel to that stupid basement. When I'd be walking down  the staircase I'd hear the unmistakable sound of the basement door closing. Not too unusual, maybe someone had just ran down. But I'd missed them? By a second? Every time? Not only that but when I'd reach the nob and swing the door open, complete darkness again. Yes, the lights were finicky but if anyone took more than 3 steps in the darkness the lights would turn on. They wouldn't time out that quickly. It would happen so frequently I started getting irritated.
+
+If I was walking down the stairs and heard the door slam I'd yell "Stop it! I'm not made of doors, stop slamming my shit." Kind of a coping mechanism for me. One day, I stopped being irritated and got scared. I made it almost to the bottom of the staircase when I saw it. The door was open. Not wide open but ajar. Maybe 2 or 3 inches. And inside of the door, nothing. Complete darkness again. Or at least that's what I saw at first. The more I stared into the murky darkness, the black swirled and swayed lightly. A dance of darkness, a memorizing promenade that I could not tear my eyes away from. I wasn't trapped but I was transfixed. 
+
+ Slam!
+
+The swirling colors stopped and the door slammed so suddenly I fell back on the concrete steps. The pain climbed from my tail bone up my shoulders. I gritted my teeth to hold back a yell. I gave myself a second and grabbed onto the rail, slowly standing as the pain clung to me like static. I made it up the stairs exhausted. Straightened myself out to walk to the kitchen.
+
+ 
+
+"Is boss man still here?" I croaked, trying my best to not let the team see me in pain.
+
+"No he just left like 15 minutes ago."
+
+"Dammit, ok go downstairs and bring the steaks up for me, I'm tired of going back and forth."
+
+"Hmm, Yeah I remember my first job." I snapped my head to the line cook.
+
+"Shut the fuck up and go get the steaks." I yelled, I didn't mean to but the pain was too much and I wasn't in the mood. Everyone straightened up.
+
+"Yes chef." He scampered out of the kitchen. 
+
+ 
+
+I slept terribly that night, and the next few. Wanting to toss and turn but unable because of the pain. When I'd sleep I'd see the same swirling blackness I saw in the doorway. But the more I saw the less it was black nothingness. It was more smokey purples and deep blues. Again dancing in front of me, I wanted to reach out and try to capture it in my hands. When I did, I'd recoil from the harsh cold it possessed. 
+
+The next morning I found myself in the owner’s office again. This was becoming a routine.
+
+“Jess you look terrible.” He said standing to greet me.
+
+“Yeah I haven’t been sleeping well, look I…”
+
+“Here can you hand these out to the staff please.” He cut me off and handed me a pile of sealed envelopes with the staffs name’s on each.” I perked up.
+
+“Are these the holiday bonuses we talked about? Everyone has been looking forward to this.”
+
+“Ha! No, W2’s. It’s about to be tax season.” I rolled my eyes at how hard he laughed. Cheapskate. I flipped through the stack of envelopes and found my name. Pulled it and stuffed it in my pocket, I saw a name I didn’t recognize.
+
+“Who’s Elizabeth Delly? Front of house?” I squinted my eyes reading the name.
+
+“Huh? Oh her,” he shook his head disapprovingly. “She was the executive chef before you. She had some cool menu ideas but started wanting more and more time off. Didn’t want to stay until close anymore. I told her, ‘you signed up for this, what did you expect?’ Guess she couldn’t take it, just up and quit one day. No notice, no conversation just gone. At least she finished her shift though.”
+
+“Did you call her to see what happened?”
+
+“I did a few times, she ghosted me. And I don’t get on my knees for anyone. It is what it is.” He turned back to typing on his laptop. I put the W2 on the wire shelf nestled between a stack of promotional coasters and old menus and turned to hand the rest out.
+
+I was having an average day. Creating menu specials for the weekend, vendor meet ups and about to do the food order. I was walking through the kitchen with my clipboard when I saw my prep cook struggling. He’s great at what he does but we all have a bad habit of taking on too many tasks at once without thinking about time and more importantly space.
+
+“Hey bro your station is trashed. Clean this shit up.” I gave him a smile. “For real though, get organized and I’ll bring the steaks to the freezer, I’m headed down to do the order anyways. Do you need anything brought up?”
+
+“Thank you chef, can I get 10 tomatoes?”
+
+“Hell no,” I slapped a hand on his shoulder, “I got you.” I snagged the pan of steaks off the table and left the kitchen. I smiled as I walked through the dining room and to the basement door, you always had to have the face on when you’re “On stage” as the owner would call it. I stepped onto the cement stairs case and dread started creeping up my legs. It felt like hundreds of spiders were on the inside of my checkered pants and were gathering in my stomach to nest. I’m not sure why I felt this way, it was a normal day, nothing strange was happening so what was nagging at me.
+
+I crept down the stairs. Rested the steak pan between my hip and left and hand used my right to yank the door open. Once again, I stepped into darkness. One, two, three, four, five, finally the lights clicked on. The shadows moved away from the light like a black wave retreating back into the ocean. Moving through the walk-in I entered the freezer.
+
+Immediately irritated I sighed. The freezer was in complete disarray. Cases left open, labels facing backwards, like things not being grouped together. I slammed the pan of steaks on a case of something and began shifting things around. “You lazy fuc…” I jumped out of my skin as the loud clattering of metal on metal pieced the frozen air as the steak pan fell to the floor. “Cool”
+
+I walked over and picked up the upside down pan, I shook my head at the small pyramid of steak that lay beneath it. One by on I put them back in the pan. Some were wet, really wet. I turned one over in my hand and the cellophane was dripping with blood. I threw it in the pan, picked up a few in each and, they were dripping too. Dammit, I whispered. The next few I tried to pick up were so drenched in blood they started to stick to the freezer floor. I had to peel them off like a sticker.
+
+I put those in the pan and as I did my eye shot down to the pan, some liquid absorbed my hand. Blood. A lot of blood. The pan was overflowing with it. No, literally the blood kept rising until it spilled over the top.
+
+“What the hell is going on!” I stood to my knees unsure of what to do. I picked up the now slippery red pan. Blood cascaded onto my chef coat. The copper smell made me gag. Rushing to the door I slipped and landed on my knee. The door cracked open and my prep stood before me with a curious look on his face. “Help me” I pleaded.
+
+“what’s going on?”
+
+“Quick take this out. We need a hot mop bucket before the blood freezes to the floor.” I shoved the pan and him and wobbly stood up.
+
+“What blood? Did you cut yourself on something?” He peaked behind me.
+
+“The steaks spilled and there’s blood everywhere, I don’t know how.” I turned and there was absolutely no trace anywhere. I looked at my chef coat gripping it. White. I looked at him and he was still looking around trying to find the blood. “Blood was coming from the steaks. A lot of it.” He stared. “Fumbling for words, “Did you let them rest in the perforated pan before wrapping them?”
+
+“No, I was just trying to get it done.” He gave me a what the fuck look.
+
+“Well, next time do the shit right. Put the steaks away and organize the freezer. It’s a complete train wreck in here.” I was grasping at straws. I walked out of there trying to stand tall in my completely out of pocket outburst.
+
+Back in the kitchen I left the team know I’d be stepping out to the store quick to grab some herbs we’ve run out of and assured them I’d be back in time for dinner service. I went to the owner’s office. I had no intention of telling him about my episode. Or any of my episodes for that matter. Peaked my head in and he was gone. Perfect. I stepped in and grabbed Elizabeth’s W2 enveloped and walked out.
+
+Once I was in my car I pulled out my phone and searched her address. “Dang, half hour. I’ve got time, just a quick hello and drop off the W2.” I didn’t know what I was doing. Trying to find comfort? Maybe advice? On what? Psychotic breaks? I just needed something, Solid. What did that mean? Like something I could reach out and grab. Messijoe’s was not some kind of… supernatural vortex. It was an old, normal restaurant.
+
+Knock, knock, knock. I stood on a red painted wooden porch taking in my surroundings. Nothing bizarre or significate, It was a regular house. Two stories, leaf green, with a skinny tree in the front yard. Normal neighborhood. Hardly the stuff of nightmares.
+
+“Can I help you?” I jumped slightly and turned back around, woman with wavy hair wrangled into a bun, oversized tie-dyed sweatshirt and jeans stood in the doorway.
+
+“Uh yes, sorry to bother you.” I looked at her through her thick glasses that made her eyes look twice as big. “Are you Elizabeth Delly?”
+
+“Are you serving me papers?”
+
+“What? No, I work and Messijo’s and…”
+
+“I am not paying that cheapskate for the thermometer. It broke, I never got a new one. I didn’t steal it.”
+
+“No, I have your W2, I just came to drop it off.” My mind was trying to process what she was saying and remember why I was there.”
+
+“Oh,” she reached for the envelop, “Thanks.” As she grabbed the envelop, she was trying to simultaneously close the door.”
+
+“Were you the executive chef?” I slightly yelled.
+
+“Yeah I was for a while.” She kept the door open a crack.
+
+“Nice, I’m the new chef, well not brand new I’ve been there almost a year now but I think I’m getting the hang of it. Challenging right?” She raised an eyebrow at me and opened the door a few inches more.
+
+“Did you need something?”
+
+“No. Well I was wondering if you wanted to talk?” She starred. “…About chef life. At Messijo’s.” Worry and annoyance flashed on her face.
+
+“Come in.”
+
+Elizabeth poured two mugs of hot water and tossed me a box of assorted tea bags. I reached over the kitchen counter grabbing them and going through them quickly.
+
+“Thank you Elizabeth, I might not have any. I still have the dinner rush to get through and the tea might make me sleepy.” I said looking for a plain herbal tea.
+
+“You can call me Dragon.” Smoke came out of her mouth. She had lit a cigarette.
+
+“What?”
+
+“Everyone calls me Dragon. It’s a nickname I picked up in the kitchen years ago.”
+
+“Why Dragon?” I found a tea bag and dipped it in the steaming water.
+
+“First it was Liz, then Lizard. And I think one day I was out smoking with the dishwasher, he was high and said  my clouds of smoke made me look like a dragon. Since then, that’s just want people call me.” She took another long drag. Things were quiet for a few seconds. “So what did you want?”
+
+“I uhh…” I held my mug up to my lips still not quite sure what I was going to say. I looked around the kitchen, small, dirty and duct tape? Duct tape wrapping the whole top half of the refrigerator. “Was working at Messijo’s stressful for you?”
+
+“That’s a stupid question. All kitchens are stressful. Chef life is stressful. But that’s the gig.” She shrugged her shoulders. “You know it when you sign up for it.”
+
+“Then why’d you quit?” She starred at me putting out her cigarette on a saucer plate.
+
+“Because sometimes you need freedom.” She shook her head and smiled “Have you ever felt trapped in what you do? You feel like you’re stuck, 60 -80hrs a week in the same environment, prep, dinner rush, special events. You try to be innovative and come up with something new but if it doesn’t fit the budget you get shut down. Hey who’s the chef here, right?” Another long drag, when did she even light this one? “But the reality is we aren’t trapped. We go home at the end of each shift. Decompress, start over the next day. And we have options. We always do. That’s the perks of being a Chef, we don’t have to be stuck.”
+
+Dragon turned her head towards the refrigerator, I piece of tape was starting to slink off. Dragon jump over there and slapped it back on. Pulled a roll of duct tape out of a junk drawer and ripped off a long piece.
+
+“Have you ever felt stuck. Truly trapped? Nowhere to go, you just have to sit in it?”
+
+Just then my phone buzzed. A text message from my lead line cook. “Are you coming back tonight? We have a 30 top a 6pm”
+
+“Shit, I have to get back, thank you for the tea Dragon.” She nodded with the cigarette in her mouth and shoed me away.
+
+ 
+
+I can’t explain why I stayed. The next few weeks I kept thinking about Dragon feeling trapped here. I didn’t think I was trapped or stuck. The money was great, all my bills were paid and I had a good team. But then my last night came at Messijo’s. Dinner rush around 6pm, and lasted until 8 or 8:30. Everyone started cleaning and wrapping things up. 
+
+“Alright everyone, when you finish up you can go, I’m going to go do the order.” I said waving my clip board around.
+
+“Heard Chef.” The line cooks echoed back. 
+
+I walked to the big wooden door that led to the concrete staircase. Took a deep breath and swung the door open. The stairwell was normal. Dirty steps, the smell of damp concrete and old cardboard boxes hung in the cool air. I moved slowly down the steps and at the bottom, the door to the basement was closed like it was meant to be. I still held my breath; I wasn’t confident what I would find on the other side. Opening the door and stepped into pitch black, but as I took my second step the lights clicked on.
+
+The breath I was holding escaped my lungs in a hurry. “Okay” I whispered, “Let’s get this done so we can get the fuck outta here.” 
+
+Dry storage first. I checked things off quickly, barely glancing at my clip board. I tried to listen beyond the scratching of my pen to make sure if anyone or anything snuck up on me, I wouldn’t be completely caught off guard. Rice. Linguine. Crushed tomatoes. Mayo. Need.
+
+Ok, beer cooler. I was about to walk out of the dry storage area and the lights clicked off.
+
+“No.”
+
+I stepped into the large echoing space. “No, stop it” I said a little louder and waved my clipboard hand around. The familiar click of the light sounded but closely followed by faint pops. The lights came back on but a few of the bulbs blew. 
+
+“That seems like the openers problem. Oh wait, I’m the opener. Dammit! I don’t have time for this.” I creaked the Beer Cooler door open leaving the dim light behind. But for a split second, I could have sworn it went black behind me again. 
+
+“Focus up, finish so we can finally go home.” I started counting kegs. Bottles. Lemons. Limes need. Cherries.
+
+I stepped back into the dimming light and over to the employee lockers to grab my coat. Kitchen cooler and freezer were next. The cold air brushed my face as I started scribbling quickly. Russet potatoes, buttermilk, cheddar cheese. “Good, we’re good.”
+
+The freezer always takes my breath away. Not in the sense that it’s some beauty to behold, but the sharp bitter air literally chokes me for a split second if I rush in too fast. I cough and catch my breath. 
+
+Lobster, ribeyes, seabass, fries need, waffles. I was checking off product one by one, moving my way through the maze of frozen boxes, my steps sounding like tap shoes on the metal floor. As I turned to leave the icy cabin I must have knocked over a tower of new york strip cases. Funny, I don’t remember coming in contact with the boxes but there they lay sprinkled all over the floor. I sighed angrily kicking the closest case. I hurried to pick them all up, grabbing the rock hard steaks burned my fingers.
+
+“Okay, finally” I pushed on the freezer door. Didn’t budge. Pushed again, nothing. I didn’t panic, I’ve been in tones of freezers. Ever modern freezer has a release knob so no one can be accidentally locked in. I pressed the knob with my freezing hand and pushed the door with my shoulder. Nothing. Pressed again and push. Nothing. Anxiety tickled the insides of my ears and then crawled in my throat. This time instead of pushing I turned the knob like a door handle, pressed in and pushed with my shoulder.
+
+“Come on.” Push. “Come on.” Push. “Come on!” Push. Nothing. Now I started to panic, fear tore into my chest, and I started throwing my full weight at the door. “What the fuck, open. Open you piece of shit!” After about the dozens of attempts I heard a cracking noise. I got excited. I threw myself at the door more and the cracking  grew louder and faster. Why wasn’t the door moving? I tried the knob again, turning it quickly until it completely fell off the door. “No no no no.” I clambered to pick it up. As I did, I found the source of the cracking noise.
+
+It was ice. The seam of the freezer door was somehow being sealed with ice, ice being created so fast it was making a light cracking noise. I stepped back and surveyed the whole door. All the edges were sealed with ice.  I pulled out my phone, no service, of course I’m stuck in a freezer in a basement. I snapped a picture of the ice and I texted everyone at work. I didn’t have service but even for a split second if it came back the message would be sent to someone.
+
+I continued to try to break down the door, but it seemed the more I kicked the thicker the ice got. My hands hurt. They hurt so bad from the cold, any time I touched something they’d sting. Stung so bad it almost felt hot. Finally, I stopped trying and stood still to save my strength and put my hands inside the body of my coat.
+
+I walked around the freezer at least 100 times, trying to find the kill switch for the compressor to stop the cold air from blowing. But no luck. My toes were numb and my ears burned. I sat on a box of tilapia.
+
+“Fuck!” What do you do? I’ve never been in a situation like this. How do you remain calm? Not panic, not die? I didn’t cry, I was afraid of my tears freezing. I started walking in circles again. I walked, and walked. I jumped a little to keep the blood flowing, I even sang a little until my voice became sore. I walked until I tripped over my own frozen shoes. I laid on the floor, ready to give up.
+
+“No, we aren’t dying on this dirty freezer floor. We’re dying on the porter house steaks.” I wiggled my arms back into the coat sleeves, scraped myself off the floor and plopped on a bed of steaks. I closed my eyes, The small warmth from my lids felt good. I enjoyed it. “Open them, they’ll fuse together.” I blinked open and gazed upon the frozen maze. I closed them again, just 5 more seconds. Open. I was ready to accept my fate. I was freezing, tired, and mad. Why was this happening? Damn Messijo’s.
+
+My angry thoughts were cut short by another. From what I could see a cloud of white mist was coming from the back of the freezer and enveloping everything in its path. I could hear the back compressor working overtime to kill me.  
+
+ 
+
+“C-c-cold?”
+
+I shot up to my feet. I looked around wildly.
+
+“Who’s there? Help me! Help!”
+
+“Cold?” whatever was speaking I couldn’t see it.
+
+“Where are you? Please help me. Please, I’m trapped.” My tongue burned with every breath I took in. I couldn’t see anyone, I walked forward. Nothing, The mist from the compressor was thick and white, swirling about. The white mist started to form together, until it created a pillowy mass. It looked like a thick white cloud. One you could grasp. I stared at it, watched the nothingness swim around in itself . I was hypnotized until it spoke again.
+
+“C-c-cold?”
+
+“What the fuck?” I stepped back. But never took my eyes away. “How is this happening? What is this?” I cloud grew taller but kept its same width. I couldn’t comprehend what I was seeing. I still don’t understand.
+
+“Cold?”
+
+“What the… cold. Trapped in cold.” I didn’t know what I was doing, why was I trying to communicate with this thing? Was I already dying? Why am I seeing this.
+
+“Warm?” The cloud thing started extending its swirls toward me. It’s white fluffy cotton like swirls. My arm lifted by its self and before I knew it my fingers were caressing the dense cloud. It was in fact warm. And not just warm, it was the type of warm that gives you chills. Have you ever taken your favorite blanket out of the dryer in the middle of winter and felt it’s hot embrace all over your body? You wrap yourself in it and let it cover every inch of you. It was exactly like that. The warmth of the cloud brought me to my knees. And just like that winter blanket I rubbed my face on it.
+
+“Warm?” It was so good.
+
+“Fuuuuuuck!” I could feel my teeth rip the skin off my chapped lips, I couldn't hold back the ecstasy. “Yes, warm.” 
+
+My pleasure was interrupted by something that was actually warm. And… wet? I blinked my eyes open, my face was wet. I wiped it with the back of my hand. Blood. I looked at my cotton cloud, still white but now had a swirl of red diving into it. Sharp needles made of what I think were ice were stuck in my cheek. I fell backwards but that didn’t break the connection. I grabbed the ice needles and pulled hard. My skin tore, tears wanted to form but froze immediately.
+
+“No!” I yanked again and ripped the needles out. I threw them and heard them shatter in the distance. I ran to the freezer door, my adrenaline in full effect. I sat on the ground and started kicking the door. No movement but I could hear the ice cracking. Ice fell as I stood. I forced a case of something onto the door like a battering ram. I heard the hiss of the cloud. No longer white. I could still see my blood streak swirling but that cloud turned a dark purple and blue. Only more hit and finally. The door opened, not fully but enough that I scraped through.
+
+I ran through the cooler and pushed open the door. I stumbled into my nightmare again. Complete darkness. I was blinded. 
+
+“Cold?”
+
+“Get away!” I couldn’t focus my eyes, I couldn’t see the creature. I could still hear the hissing and my face was bleeding, running down my neck and reaching the collar of my chef coat. My back hit the wall. I felt more warm, fresh tears running down my face.
+
+“Help me!”
+
+I fell on my back and hit the concrete hard. A light washed over me.
+
+“Oh shit, are you good?” I peaked an eye open, Gage the bartender was standing over me. 
+
+“I’m sorry chef, you good?” He grabbed my arm and yanked me to my feet.
+
+“What…. Did you hear me screaming? I’ve been down here for hours!” I scared him, I was crying, blood everywhere. 
+
+“I was just going to get some beers from the cooler? I opened the door and you fell out. I thought you left forever ago with the team.” I looked around, I was in the stairwell. I starred at Gage, what do I say?
+
+“You good?”
+
+I turned and limped up the stairs. What actually just happened? I was trapped in there for hours. Blood and tears covered the back of my hand as I wiped my face, trying to look less disheveled as I reentered the restaurant.  when I reached the office everyone was gone except our regular bar flies that usually shut us down. I found scratch paper and wrote “I quit!”
+
+A couple days later I was at home, trying to keep myself busy. Mindless tv playing while I whipped something up in the kitchen. Soy salmon pasta, one of my favorite dishes from Messijoe’s. My phone started to buzz on the countertop, I checked and didn’t recognize the number. I picked up hoping it was a job calling from one of the dozen applications I put in.
+
+“Hello?”
+
+“Hey Jess, it’s me Dragon.” I got a lump in my throat and my ears burned hot.
+
+“Dragon. How did you get this number?” I tried to steady my voice
+
+“I got a call from Messijo’s today, asking if I wanted to come back as Executive Chef. They said you quit suddenly.” She chuckled. “I asked for your number to check on you.”
+
+“I… quit. Yeah, so what, it wasn’t for me.” I know I sounded childish. I didn’t want Dragon to know what happened and I defiantly didn’t want her going back and telling everyone I had some sort of mental break down in the freezer.
+
+“No I get it, I’ve been there before.” I could hear her take a drag of her cigarette. “So tell me, are you still cold?”

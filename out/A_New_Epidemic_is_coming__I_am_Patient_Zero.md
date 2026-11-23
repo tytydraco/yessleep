@@ -1,0 +1,219 @@
+It's been about two months since I contracted it and just over a month since I noticed the worsening symptoms.  I only started self-isolating two months ago.  I only wish I had taken better precautions, for my roommates’ sakes.  
+
+My name is Allen, and my roommates are John and Brendan.  I am patient zero, or so I believe, if this continues spiraling the way it has.  But I’ll gather my thoughts and start from the beginning.  
+
+Two months ago, I took the subway after a late night out.  The early-morning air was sobering as I made my way down to the station.  The platform was obscenely silent, as if a funeral procession had just moved through.  I slumped on the nearest bench and waited, scrolling through my phone and cringing at the countless delirious texts to dozens of distant friends and exes.  
+
+One message was from John: “Yo, you missed movie night.  Punishment: Stop by the 7-Eleven and pick up some snacks and vapes.  I’m out.”    
+“Thaaats what I forgot about…”  I mumbled, hoisting myself from the bench.  
+
+This simple action was all it took to lead me here.  
+
+As I straightened myself, my intoxicated brain was suffocated by a rush.  I saw stars for a moment before I toppled over, blacking out completely.  
+
+I blinked back into existence with a splitting headache and a screaming shin.  With a groan, I crawled to a beam and supported myself upright.  Sitting on the filthy platform, I collected myself.  Blood was leaking from my forehead, and my shin must have smacked against the bench’s metal appendage.  Pulling my pant leg up, I stared into a gash the size of a quarter.  Crimson rushed from it in healthy pulses.  Sucking in air, I glanced at my phone, noting that I had been passed out for at least two hours.  
+
+Cursing myself, and pathetically John as well, as if it was his fault I had been drunk, I opened my phone and texted back: “On it.”  
+
+I gave myself a moment to catch my breath when I noticed the blood pool where I had initially been lying.  It was on the edge of the platform, dripping down in rhythmic drops.  I was incredibly lucky I did not fall onto the tracks.  However, something else caught my eye.  Squinting, I peered closer to the platform’s edge and noticed a trail. 
+
+Not of my blood spilling over, but something… viscous and green.  As if a living conglomerate of snot and mucus had slugged up from the rails below.  Following the path of bile, it soon disappeared into my small puddle of blood.  
+
+Nauseous and paranoid, I shuffled to my feet, flinching as a searing pain shot through my shin.  I waddled back to the bench, seeing now the sharp metal leg that had sliced me, hints of red dried to its rusted brown.  
+
+Shooting a glance at the small, crusted pool I had lain in, I made my way down the platform, eager to put distance between myself and the looming anxiety hovering over me.  Each step brought a sharper discomfort up my leg.  Finally, I reached a new section with a fresh bench, sat down, and rolled up my pant leg to examine my injury.  
+
+Since I had last seen it, it had scabbed over.  A new anxiety quickly vandalized my relief.  The scab was almost engorged, and its crimson coat was crusted in green.  With a wavering finger, I pressed it.  A sickening, juicy squish released a trickle of obscene liquid from the wound.  The sensation was like pressing down on a rotted sponge soaked in bile and gore.  
+
+I gagged.  My hangover increased all possible horrors in my mind.  Taking a breath, I carefully rose to my feet, making sure I didn't repeat the mistake that led to my initial blackout.  Pacing around the platform, I calmed my nerves and searched my phone for infection remedies.  The train came as I made a note to buy disinfectant at the 7-Eleven.
+
+With vapes and medical supplies thrown in a bag, I exited the convenience store, eager to get home. By the time I entered my apartment, it was nearly dawn.  Locking the door behind me, I marched to the couch, throwing the bag of essentials onto a pillow.  Taking a drag from a disposable vape meant for my roommate, I began dressing my gash.  After dousing it with a waterfall of alcohol, through clenched teeth, I applied the salve before wrapping it with gauze.  With a snip, I used my newly bought scissors to cut the bandage.  
+
+I thought the immense stinging meant the disinfectant was working, despite the clot of tumourous gore remaining.  It bulged through the gauze like a bone protruding from a botched operation.  
+
+The morning sun was beginning to peek through the living room curtains; night was officially stifled.  
+
+The ray’s warmth assisted in calming my nerves, as I took a final inhale of vaporized nicotine.  I strolled into my room, stripped off my shirt, and put the scissors and leftover disinfectant in my adjacent bathroom’s medicine pantry.  I returned to the living room and keeled over onto the couch, using my coat as a blanket.  I flicked the TV on just as exhaustion overruled my lingering worries.  
+
+I woke up near noon to John pulling the vape from my clenched hand.  Before I had the chance to say ‘good morning’, he took a drag, exhaled the cloud of candy-flavored sin, and whined: “I was waiting on this all night.  Where the hell did you go?”  
+
+Groaning as recollections flooded my sleep-deprived brain, I mumbled: “Just some bars with Kandice.  I must have done something stupid because I remember being alone all the way to the stati-”  I jolted upright on the couch, threw my coat off, and examined my wrapped leg.    
+The gauze, stained a sickly, pale, pus-green, was now soaked through.  John’s eyes went wide, and he gagged, “What the hell happened to your shin, dude!”    
+
+“Shut up, shut up,”  I blurted as I peeled off layers of fabric, panic exploding through me.  Holding my shin up, I gazed in disgusted horror.  
+
+The gash was closed, but the scab had enlarged and looked ill, glistening with putrid phlegm that had soaked the gauze.  It felt tight around my flesh, like a giant tick latched onto tissue, rather than a closed wound.  The skin around the cut was beet-red, irritated, and dry.  
+
+“You HAVE to get that looked at, man. That is super infected,”  John said, pulling his phone out. “My mom is a nurse.  I bet she knows who to go to.”    
+“No, it's fine, there’s a minute clinic down the road.  I’ll just go there.” I replied, hobbling off the couch and carefully slipping my pants back over the festering gash.  
+
+“Don’t tell Brendan about this,”  I turned to John, “I don’t need his germaphobe ass freaking out about rabies or some shit.”    
+“Yeah, yeah, no problem.  He’s staying at his girlfriend's for the weekend anyway.”  He took another drag.  
+
+With that, I marched out of the complex.  The clinic was crowded and uncomfortably stale, with nauseating fluorescent lights.  By the time I was brought into the monotone examining room, my infection had leaked through my pants.  The doctor stared at my wound as I peeled the soaked, stinking pant leg off my skin, revealing the spuddy, dripping scab.  
+
+“Well, it's definitely infected.”  She said matter-of-factly.  “You said it was from a metal bench leg? Have you received your tetanus shot in the last ten years?”  
+“Yeah, like three years ago, I think.”  
+“And how long did you go without dressing the cut?”    
+I explained the embarrassing tale of the previous night.  However, I felt compelled to retract the detail of the green trail I saw.  As paranoid as I was about it, I felt there was no way to explain it without the doctor thinking I had vomited on myself and forgotten.  
+
+She leaned back in her chair. “Well, I’ll prescribe some antibiotics and a couple extra disinfectants for that cut.  I’ma re-bandage it here for you before you go.  I’ll show you how to dress it after cleaning.”  
+
+I left the clinic feeling relief.  My burden had been lightened, and I was certain I was out of the woods.  The weekend came and went.  John stayed in with me, which helped pass the time.  It also helped me be disciplined about redressing my wound.  My nerves were taut, but calm.  I was still convinced the medicine would kick in any day now.  As if one morning I would wake up, unwrap my leg and see a perfectly clean, closed cut, barely visible.  
+
+Yet, every morning was the same.  My bandages would be soaked through, oozing with phlegm.  I would unwrap them, revealing an engorged pus sac, its membrane of coagulated blood flaking off like red dandruff.  With shaking fingers, I would hastily wrap it in fresh gauze before washing down my daily antibiotics.  
+
+Before I knew it, weeks had passed, and my prescription had run dry.  Yet, my wound remained active.  In fact, it had grown larger and more painful.  The skin around it was tight, tearing and constantly irritated, with a burrowing itchiness.  I began to have feverish nights, waking up in hallucinogenic fits, dripping in a cold sweat.  
+
+John had tried his best to cover for me, but Brendan discovered soon enough that I was ill with something.  “Hey, Allen,”  He yelled from the other side of my bedroom door.  “How long have you been sick?  I need to know how long I have been exposed.”  
+
+His shrill voice irked me. To be fair, I was already miserable. “It's just a bad infection, Brendan. You’ll be fine!” I yelled back.  Silence soon followed, allowing me to return to the comfort of my dark room.  My curtains hid the daylight, and my TV lulled me back into exhaustion.  I shrank back into my blankets, hoping the fever would dissipate before my shift.  I already had to call out several days, and I knew I was losing my manager’s good graces.
+
+However, my fever had returned, extending its assault on me.  With every readjustment in bed, I felt the bulge on my shin squish and jiggle, like a water balloon filled with bloated, rotted organs.    
+“Yo, Allen,”  John yelled from the living room, “I brought you more water bottles and that chicken soup my mom recommended.  I’ll leave it out here for ya.”    
+“Thanks, man,”  I said, throwing the blankets off.  Then, the first wave hit me.
+
+As I stood, I was shaken hard by an eruption of bile boiling up my throat.  I sprinted to my bathroom as a sea of vomit exploded from my mouth.  The tile floor was slick with stomach acid by the time I had shoved my head into the toilet.  I knelt like a penitent monk before an icon as a continuous flood poured from my emptying insides.  
+
+Gagging and spitting, I prayed for the worst to be over as I raised my tear-stained eyes from the porcelain bowl.  In my haste, I had missed the light switch.  I sat in agony in the dark bathroom, waiting with bated breath for another influx of dry heaving.  Sighing, I rose on quaking legs and flicked the switch, eager to wash my face, until I saw what the light revealed.
+
+A hoarse gasp escaped my shredded throat as I gazed at the bathroom floor.  My eyes followed a trail of steaming vomit to the brim of the toilet, where a living, squirming pile of translucent, catarrh-soaked larvae writhed in apparent agony.  Crawling over one another, they clicked and squealed, desperately fighting for some life-saving object I could not comprehend.  Tiny appendages became weapons, digging and clawing at one another.  The room echoed with sickening, wet pops as the tiny war continued.  
+
+I slammed the bathroom door behind me.  It took a while to calm down.  Hyperventilating, I sat in my bed, eyes wide and blurry.  Rocking back and forth, I convinced myself the infestation couldn't have come from within me, but rather that it already existed on the dark room’s floor before I entered.  I simply didn’t see it in the dark.  That had to be it.  
+
+I stared at my leg for hours, its infection mocking me with its vitality, almost pulsing on my shin.  My stomach ached.  Sore and tender from the violent release.  
+
+Yet my insides felt full.  Almost swelling.  
+
+I sent the following message to my roommates’ group chat: “Very sick.  Please get medicine, but don’t leave the apartment after today.  Not sure it's contagious.  But might be.”  
+
+John replied: “Damn, you ok in there? I can stop at CVS on the way back from work?”  
+Brendan shot a text almost instantly: “Wtf, bro, what do you have?  I heard you gagging from the living room.”    
+I ignored Brendan and sent: “Yes, more disinfectant.  And masks for you guys.  Also, a bucket for me, please.  Toilet is ruined.”    
+Minutes later, John sent, “You didn’t use that vape, did you?”
+
+The day went in a haze of fear.  I lay in bed, staring at the bathroom door, while keeping my infected leg out from under the covers.  A sudden knock at my door jolted me back to the present.  “Hey, Allen, you need to explain these texts, dude.”  I heard Brendan’s shaky voice.  “You got the flu or something? I thought you said you just had an infection?”
+
+Even if my throat was not shredded, I don’t think I would have had the strength to explain to the door my current circumstance.  My silence was met with another, more forceful knock. “Dude, don’t be a dick.  What the hell did you come down with?  Do I need to stay at Jess’ place this week?”    
+I don’t know why, but I bolted upright and yelled, “No! Don’t leave the apartment!”  I tasted fresh blood coating my gullet. I flinched and rubbed my neck, uncertain why I reacted so hostile.  
+“Well, Jesus, man, if you say so.  But only if you stay in there.”  
+
+It came to me once Brendan left, while I stared at the boil and pictured the maggots writhing in their death clot.  It heaved, softly.  As if expelling something into me.  I felt something swelling inside.  This wasn’t an infection.  It was a virus.  Something was using me as a host.  Something was birthing inside me.  
+
+John dropped off some meds outside my room.  Eventually, I drugged myself to sleep that night.  Escaping the terror I felt with a handful of pills I had leftover from some friend or party, along with the arrangement of random vitamins and flu medication John brought.  As I drifted off, I promised myself I would slip out tomorrow before my friends awoke and drive myself to the hospital.  Enough was enough, and I couldn’t risk exposing them any further.
+
+I’m not sure it would have helped, but it doesn’t matter.  I was too late anyway.
+
+I awoke to an intensifying fever.  Gasping for air, I came to with a deathly dry mouth and a soaked bed.  All my moisture had been completely externalized.  The sickly, sour smell made me choke as I flung the sheets off me.  Even in the dim light, I saw the blankets were not only wet, but oozing, leaving thick, mucusy strings dangling from them like stalactites.  The confusion only enhanced my feverish delirium.  I found myself nearly sobbing from self-pity as I unwrapped the nearly liquefied bandages.  
+
+A moan of anguished defeat escaped my scarred throat when I saw it.  
+
+The gash was completely encased in a bloated blanket of bubbling boils, forming and popping like a geyser.  Each pop oozed a vile liquid that dripped in a thick, viscous stream onto the bed.  The flesh around it was tainted a pale, veiny blue.  It was so taut it was peeling and tearing.  That's when I noticed the first new development.  I stifled a whimper.    
+
+Within the thin pockets of torn skin that traveled up most of my leg, little dark spheres protruded, glistening in the faint moonlight.  I retched as I followed the sparse trail of egg-like pimples that crusted and sprouted from my cracked barrier.  Their translucent shells revealed silhouettes of clustering cells, expanding and forming into something alive and moving.  
+
+Then it flooded me.  A violent, burning itch seared up my leg.  Almost against my will, I began viciously scratching.  No relief came; instead, the itch seemed to burrow deeper, as if it were encasing my bones.  The sensation of millions of termites biting and burrowing into my skeleton drove me mad, and I began to peel at the craters of bubbling sprouts.  
+
+Deep, bleeding cuts brought short moments of relief, but this was dashed when I witnessed each scratch shed the bulbous tumors from my leg onto the floor, popping as they landed.  Each pop released a half-formed larva, the same I had vomited up.  They wiggled and squirmed in a pool of steaming phlegm, crying out in a high-pitched whistle that pierced my ears.  
+
+I lost all sense of composure and began to howl as I stomped and squished the pellets of living goo, coating my bare feet in hot ooze.  Chunks of decimated larva clung like dead flies to the viscous liquid, some still thrashing, trying to dig into my heel.  
+
+I sprinted into the bathroom, avoiding the toilet, and turned on the shower.  Tearing off my clothes, I leapt into the steaming hot water, scrubbing my leg and lower half violently.  My bloodied shin and the now bulbous tumor protruding from it flared in pain from the hot water, like exposed nerve endings.  Clenching my jaw, I bared my teeth, determined to scrub the last of the eggs from my tearing skin.  
+
+As if in protest, the sagging sac of sin began to quake.  Gripping the side of the shower, I froze, waiting, begging, for the tremor to pass.   
+
+Instead, the second new development emerged.  I almost slipped as my leg involuntarily shot up, out of the steaming water.  I gazed in horror at my calf, as the apparatus controlling it began to heave, like a lung, shooting a new pain up my limb as it grew expansively.  
+
+Gripping my thigh, I forced it under the falling water.  It fought back.  The bulb of rot expanded and retracted, as if trying to eject itself from its host.  Hope fueled my determination, and I corralled my leg, turned up the shower’s heat, and positioned myself in the tub to ensure it remained under the flowing, nearly boiling water.  
+
+It did not like this.  With a thrashing tear, the scabbed, catarrh-coated boil was now a dried, engorged raisin.  I saw the opportunity, and I steeled myself for the discomfort to come.  Gritting my teeth, I wrapped my hands around the goiter and began to tear at it.  I gasped in pain as I peeled mere centimeters at a time.
+
+Then, it began to convulse.  Bubbling pores released a new coat of slick pus as it attempted to slip from my grasp.  Rearranging my grip, I resumed.  With each inch won, a fresh tier of pain was revealed.  It was no longer that of a welt being torn.  It felt as if an immense tooth had grown from my shin, and I was tearing it up by its roots.  Roots that burrowed deep into the muscle, anchoring themselves to my very bones.  
+
+With a final yell, I ripped the Goliath papules from my skin’s surface.  My relief was shattered at what it unveiled. 
+
+I held it before me, in outstretched hands.  The womb-like sac pulsated in my mucus-covered hands, while I traced its dangling, thick, green cable of translucent biology, still plugged into my gaping, gangrenous gash.  
+
+Screaming, I threw it against the shower wall.  With a moist thud, it stuck before oozing downward.  The cord tremored.  It was taut, almost pulling my leg toward the tumor slipping down the wall.  Scrambling out of the tub, I crawled toward my bathroom cabinet, desperate to reach the scissors within.  
+
+My leg remained docked to the monstrosity behind me.  Reaching the sink, my eyes caught the toilet in my peripheral vision.  I nearly bashed my head into the sink when I jumped at the sight.  Encrusted around the brim, a melted graveyard of conjoined larvae.  Countless legs and squealing mouths wriggled as this blob of green phlegm tried to pull itself free from its porcelain anchor.  
+
+Turning away, I heaved myself upright, reaching over the sink to the medicine cabinet.  I knew what I needed would be in there.  I threw it open and grabbed the scissors tucked behind the disinfectant.  Twisting myself back onto the tile floor, I eyed the convulsing, twitching blob of scum as it slowly slid out of sight into the tub.  Bracing myself, I clasped the slick umbilical cord protruding from my shin and began to saw.  
+
+   The first slice penetrated the thick exterior, spraying steaming sewage across my face and floor.  The smell of burning rubber and rotted intestines filled my nostrils.  The cable pulsed violently in protest, but I held on and continued the gruelling task.  
+
+The pain was unbearable.  It was as if a collection of dull needles were piercing and digging into bloodied gums, searching for the roots they were meant to penetrate.  Sweat blurred my vision, and my shaking hands could hardly hold the petite blades as I sawed and sawed at the thrashing, living wire.  
+
+Suddenly, about halfway through, it began to throb.  Strong waves erupted through it, up the cable from the terrible source of infection still hidden from my sight behind the tub’s porcelain wall.  
+
+Then I saw it, through the semi-translucent pipe.  A thick, cement-like viscous substance ran up the tube, toward my wound where the anchored cable rested.  Fresh fear powered my sawing.  Deeper and deeper I cut, now over halfway through the cord.  Soon, panic took over, and I threw the frail scissors and desperately tore at the tube with my bare hands.  
+
+My fingers dug and tore, just as the mysterious cocktail flooded over them.  With a final gasp, I shredded the cord, disconnecting myself from the lard of gore sitting in my tub.  
+
+A muffled cry echoed from the cord, like a goat bleating within a cave.  It twitched as it gushed the excess fluid onto the tile floor.  The neon slime steamed, its hot stink filling the room with the odor of dead fish caked in waste.  
+
+Huddling against the sink, I reached for the disinfectant, pouring the entire bottle over the gash that now encroached beyond my shin.  Remnants of the grotesque sewage caked my tub.  Unsure if some of it had seeped into me, I prayed I was fast enough.
+
+Exhausted, I tumbled into the corner of the room, leg outstretched.  My eyes remained fixed on the wound as it bled.  Clean red leaked from it.  I waited.  A final prayer passed from my lips.  A prayer unanswered.  
+
+A nearly undetectable trace of green appeared in the blood flow.  I was too late.  It had seeped in.  I clutched my head, fear paralyzing me as I waited for yet another new horror to emerge from within me.  
+
+A loud knock at my bedroom door shook me to life.  
+
+“Hey!”  I heard John yell, “What the hell is going on in there, man?”  I looked at my wristwatch. It was three in the morning.    
+“Sorry, just slipped in the shower!”  I replied, my voice hoarse and unconvincing.    
+“You sound awful, dude.  Unlock the door, man; you need to go to the hospital or something.  That minute clinic quack did shit all to help you.”  I could hear the door handle shake as John harassed it from the other side.  
+
+Glancing back at my leg, I saw the bleeding had ceased.  I gagged as I realized it was not blood clotting that had stopped it.  A new sprout of gleaming, oily eggs laced along the open cut.  More than sprouting, they were erupting, not just from my slash, but up and up and up my leg, almost to my waistline now.  
+
+I jumped to my feet, holding in a scream.  Another shake of the bedroom door.  “Allen, open the door already, this is crazy!”
+
+Before I could protest, a thunderous, moist pop exploded through the atmosphere.  My stunned silence was quickly interrupted by a meek whimper reverberating from the tub.  
+
+Turning to the porcelain coffin, I hesitantly approached the noise on trembling limbs.  Peering over the tub wall, I froze aghast.  
+
+The sac had burst.  A blast of ooze had caked the tub’s interior.  The familiar odor of rot and synthetic decay assaulted my nose.  But it was the steaming contents of the once pregnant tumor that I stared at as it lay writhing, exposed, filling the tub.  
+
+Coarse, toad-like flesh glistened in a dense coat of fresh mucus.  A fat, stumpy tail wiggled uselessly as two rows of six malformed legs waved their multitude of round, human-like, pus-filled, gnarled toes.  Its elongated torso was hardly distinguishable from its tail, with only two immense, hand-like protrusions below its extensive neck separating them.  I traced the long throat up and up, at last reaching the thing’s head.  
+
+It lay resting upright against the inner wall.  Then, I locked eyes with its face.  A scream stuck in my slashed throat.  My nightmare had reached its zenith, entombed in that face.  
+
+It was… mine.  Wholly mine.  A perfect replica jutting from the encircling gangrenous, moist tissue of its giant, larval body.  Its… my eyes were closed, with an expression of total peace across its features.  I stood motionless over it.  My mind went blank.  All hope, anxiety, everything, had been numbed.  
+
+Its eyes fluttered open as John broke the lock and burst into the adjoining bedroom. 
+
+He charged in, turning toward me as I stood in the open bathroom doorway.  I didn’t have the strength or will to stop him.  He grabbed me, eyes wide with terror as he examined my torn leg and the parade of brimming boils poking from my flesh.  
+
+The whimpering soon drew his attention to the tub.  
+
+A blur of gagging and loud questions filled my ears.  My numbed state provided little for him, but he dragged me from the room nonetheless. 
+
+I remember being pulled through the apartment, John desperate to take me to the hospital.  Brendan must have finally woken up, too.  The memory of his horrified face as we passed him in the kitchen will stay with me till the day I die.  Before John could coax me out the door, Brendan ran over to us, questions catching in his throat, when a squish under his bare foot froze him in place and shifted his gaze to the trail of eggs that I had just shed through the complex.  
+
+With a moan of despair, he lifted his foot.  
+
+The last memory I have of Brendan was that final moment before John closed the door behind us:  The coat of hot goo dripping from his foot, and a fresh larva burrowing into his heel.  
+
+His wailing filled the corridor, trailing a panicked John.  By the time we exited the building, I began to vomit.  The spew of burning bile splashed on the ground, revealing a fresh batch of larvae.  It came up in waves, more and more.  Before I went into shock, John had straddled me in the back seat of his sedan, after desperately wiping off what babies had spilled onto him, and tore through the parking lot.  
+
+I’ve been quarantined for a couple of days.  John came to visit a couple of times.  Until he was brought in here with me.  He had begun showing signs of fever, and his throat was in torturous pain.  A doctor at the hospital examined him on a whim.  They found eggs growing in the back of his mouth.  Further examination followed.  Down, down his esophagus they went.  That was the last I heard on John’s condition.  
+
+The doctors seem just as unsure as I was when this first started.  It's gotten worse since I was locked up here.  The eggs are sprouting everywhere now.  Twice a day, I am injected with some poison or other to kill them.  They keep coming anyway.  Bigger eggs.  Bigger larva.  
+
+My flesh doesn’t have time to heal.  Each wound becomes a festering breeding ground.  The nerves in my legs have been reduced to a pulpy puddle of melted tissue, geizering new eggs every day.  My torso will soon follow.  Already, I see the pockets of splintering skin across my chest housing petite bulbs, all jiggling with life.  
+
+My fevers are intensifying.  The virus seems to thrive in the intense body heat.  Nothing will stop it from consuming me whole.  A viable host, soon to be melted into sustenance for its offspring planted inside of me.  
+
+They won’t tell me what's happening to John.  My guilt is unbearable.  I pray a cure or treatment will be developed in time for him.  I know it is too late for me; my time will be up soon.  
+
+Wherever this embodiment of sin originated, I should have jumped off the apartment building after the first signs.  I am sorry I didn’t.  I write this all down now, because I know I won’t be lucid for long.  I wish I could say that John and I are the first and last victims of the outbreak.  But instead, I must warn you, the public.  
+
+When John came down with this plague, we informed the doctors about our roommate.  I am sorry to say, but when the authorities went to our apartment, he was no longer there.  Apparently, he was last seen at a subway station.  I beg God that he didn’t go to his girlfriend’s place.  But either way, it is too late.  The damage has been done.  They still have not found him.  
+
+But that is the least of my fears.  I informed them of the… larva in the tub.  The doctors still don’t believe my description.  
+
+They never found it.  All they discovered were remnants of what they described as shed skin, like that of a snake littering the bathroom floor.  My room was ransacked, too, from how they described it.  
+
+Clothes, scattered and stained with mucus.  I suppose only I understood the implications.  
+
+Please stay away from the subway stations and stay indoors.  If you see a crazed man encrusted in popping eggs, or worse, if you see something that looks like me, please avoid them at all costs.  A new epidemic is coming, and I was patient zero.
