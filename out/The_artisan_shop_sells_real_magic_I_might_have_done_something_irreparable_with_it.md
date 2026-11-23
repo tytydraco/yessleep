@@ -119,3 +119,5 @@ I stormed out.
 It’s been two days.
 
 Today, my mom asked me if I could run errands for her so she could stay in bed and recover a bit.
+
+[UPDATE](https://www.reddit.com/r/nosleep/comments/1y3kmy1/final_update_the_artisan_shop_sells_real_magic_i/)

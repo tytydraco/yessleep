@@ -1,0 +1,33 @@
+This is the scariest thing that has ever happened to me. I probably would have forgotten about it if my coworker hadn't brought up a similar experience they had with what they called the "Yooper Stare".
+
+Two friends and I were driving north to Oscoda. For those of you who don't know Oscoda is a tourist town with beautiful cliffside trails that have staircases that take you till you're only a few inches above the Au Sable River. Despite the fact that an impromptu trip had us going in the off season,  we all had fun till our stomachs growled.
+
+There wasn't anything to eat, at least anything we wanted to eat until we came across a Big Boy. I haven't been to a BigBoy in years and I haven't been again since, but this place was plain, it was exactly as you would expect. Red booths alongside the windows, the sad little empty salad bar, the smell of grease, and a sign that said seat yourself. So we sat ourselves, I skimmed through the menu when my friends started to whisper among themselves
+
+"Trading secrets?" I said.
+
+They looked me dead in the eyes but I hadn't yet realized what they had said. "Is everything—"
+
+"Look around," In a hushed whisper "Be casual."
+
+I looked around as casually I could, I had never seen any restaurant as packed as this lone Bigboy. At least thirty plus people, and each one of them was staring directly at us. The staff and the customer all as if frozen in place. They didn't twitch. I freaked out and turned my head all the way around and entrance - also the only exit - was an older man in tattered clothes with lips that hung unaturally low to the sides. Their eyes solely locked on me. I turned around and felt his eyes burning a hole through my skull.
+
+"I said be casual," Katy hissed.
+
+"This is fucking weird," I said.
+
+My other friend, Jordan, slid a butter knife under the table.
+
+"What are you gonna do with that?"
+
+He didn't answer.
+
+"We should leave."
+
+We got up from the table and the entire restaurant leaned in as if they were all about to break into a dead sprint. I froze. Afraid to breathe. Any second they could rush at us. I would have stayed like that indefinitely if Katy didn't pull my arm. 
+
+At the entrance, the older man stood at the entrance not not quite blocking it but still in the way. The sagging corners of his lip curved up so swiftly that it was like no muscles moved at all. No one else smiled. We walked around him, I half expected him to grab at us but he didn't move. He watched us from the corner of his eye.
+
+We wasted no name and bum rushed for the car and we pulled out of the parking lot. Now I know I shouldn't have looked back but I did. 30 different people pressed their face against the glass, grinning ear to ear.
+
+I haven't been back since
