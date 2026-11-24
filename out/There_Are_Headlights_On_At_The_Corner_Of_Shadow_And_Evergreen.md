@@ -1,0 +1,392 @@
+The other night, at a small house party, I was in the midst of what our friends jokingly refer to as my ‘backwoods tales’ when something I said seemed to catch my wife the wrong way. She shot me a look, the kind where your vision clears and you truly see something for the first time. In the reflections of her eyes I saw myself as a stranger and, reading her mind, I quickly changed the topic.  
+	
+
+Later that night, on our way home as the engine hummed and the rickety axel of our shared rusting van clunked over the potholes, I asked if I had said anything wrong. This time she gave me an expression of disbelief and I found myself frustrated more than anything else.  
+	
+
+“Do you really not think anything you said was weird?” Honestly, I didn’t. Sure, perhaps my memories were embellished, polished to a perfect sheen under eyes that looked through rose tinted glasses, but that didn’t mean that I was being anything less than truthful when I spoke about them.  
+	
+
+“Not really, but how about instead of me asking a billion questions, getting into an argument, and going to bed mad at each other we skip to the end and you just tell me what’s wrong.” That was a whole different fight, she hated being chided and I hated playing the guessing game.  
+
+
+We were always at impasses but this one felt different. She was anxious, her foot tapping in her thrifted heels and her hands kept coming down to smooth invisible wrinkles in her dress. It was a nervous habit from her younger years, chewing her thumb when a test was coming up and fidgeting when she was too afraid to speak her mind. I knew all her warning signs from nearly a decade together and figured that the best thing I could do was wait.  
+
+
+When we got home she showered and watched an entire documentary in silence. It was a coping mechanism, a way to decelerate the rampaging thoughts and stressors that were too much for someone so fragile. My wife was strong in the important ways, in the way she loved, the way she went to work even while sick, the way she took care of her parents even when she was falling apart. 
+
+But when it came to voicing her needs, her worries and fears, she was suddenly a nun committed to the vow of silence. And so I waited, for hours just holding her hands while she stared blankly at the television until finally she spoke.  
+
+
+“Mason, I think you should write down that story you told me and just look at it. Read it once, twice, hell, read it three times if you need. But I want you to promise that you’ll sit down, write it all out and really, really think about it okay?” She didn’t offer any more of an explanation but she did finally look at me.  
+
+
+Her dark brown eyes were so full of helplessness, that deep aching kind that made your face pucker and your insides twist. It was the kind that made you want to make a promise, to anything or to anyone, just so you could take away the feeling. I nodded to her and she turned away from me and I knew that our conversation was over until I did what she asked. Our townhome was small but I had managed to convince her to let me have the second bedroom as an office of sorts.  
+
+
+And so, here I am, writing everything I had said down, just like she asked me too.  
+
+
+My childhood home was nestled in the suburbs of a small New England town where the woods were dark with history and the air was alive with cicadas. The river flowed through its center, wild and full of abandoned bikes and old fishing poles. It was a small place where your neighbor knew your entire family's history and your teacher was most likely related to you. Downtown was a gas station that doubled as a restaurant and everything was within walking distance.  
+
+
+To a kid, it was like an endless jungle gym. The trees were as tall as mountains and their limbs always seemed to be the perfect height for climbing. A small pond sat just at the outskirts, placid and full of peepers and fireflies and late night swimmers. The buildings were all weathered bricks, aging murals depicting the joy of smoking and the wonders of an oil change fading like a worn memory. The areas where people lived stretched out from the town center like spiraling arms, curling in on themselves until they became a cul de sac at the end.   
+
+
+My friends and I lived on two intersecting streets, Shadow and Evergreen, and were never more than ten feet from each other at any given time. We treated our bikes like cars, maintaining them, showing them off to the other neighborhood kids, and racing them up and down the cracked pavement.  There was something so quintessential about the way we lived, long summer days being kicked out of the house until the street lights went on and long winter nights where the entire world lost its coloring and became an endless landscape of black and white.   
+
+
+Our little group was made up of four boys. We had all met in elementary school, bonding over our shared loves of trading card games and science fiction movies. Every other day was a sleep over at someone else’s house and this would go on until I moved away. We were the big kids on the block and it was a badge we wore with pride.  
+
+
+Logan was sort of our de facto leader in the sense that he was the only one of us who could ever come up with consistent ideas of what to do and was undeniably the most mature. He didn’t have the biggest house or the most money but he had a backyard that reached deep into the forest and a trampoline that had only broken twice. He was short for his age with these buggy green eyes and an oval shaped head that never seemed to sit right with his hair and body. I’d never seen him wear anything other than animal themed t-shirts and gym shorts but it didn’t matter. He was kind and friendly and never made you the butt of the joke, a rare type of friend when you’re twelve.  
+
+
+Chris was second in command, but only because he had met Logan a year before me. He was scrawny and soft spoken with buzzed blonde hair and these deep sad eyes, the kind where you were sure that there was something much deeper going on with him than you would ever know. He was a passive type, but was always quick with the joke and would mock you relentlessly the second he found something out. He was the type of boy who would be silent when you got picked on, would join but then check in with you later when nobody was around. Much like Logan he seemed comfortable in clothes that didn’t require any thought and did everything he could not to stand out.   
+
+
+Other than me, there was Robby, he was sort of the adopted puppy of the group. He hadn’t grown up with us, rather we had met him at the start of fifth grade when, after being late to school one too many times, we had been forced to join a sport. We had picked track, all of us liking the idea of racing each other all afternoon and had met Robby after being put into a group together. Even when he was a kid he seemed too young, his round face and large bright blue eyes always making us wonder just how old he really was. He was a softhearted boy, one who enjoyed his solitude and the company of animals more than people. More often than not we’d have to go find him and drag him out. He’d always be in a tank top and bathing suit, his dark thick hair and too big clothes swallowing his entire body whole.  
+
+
+Around the middle of June, the 16th actually, and I remember it because a new game for my gameboy was coming out that night, my father had agreed to let me and my cousin stand outside the store until midnight when it was released. My mother had never allowed me to stay up past nine except for on the weekends, and so for a middle school boy it was the most exciting thing to ever happen.  
+
+
+From June to mid August, the school that we all went to ran a summer camp program. In the morning you would hang out at the school, playing in the baseball fields and hiding from the scorching heat in the tunnels of the playgrounds. Then, in the afternoon, we would all be shuttled to the local pool where we would spend hours perfecting our flips and various tricks until the bus would bring us back in the evening. Afterwards, we would choose one of our houses to convene at, picking up snacks with whatever pocket change we could scrounge and watching movies late into the night.  
+
+
+“It’s Mason’s turn tonight, we’ve been at my place the last three days and my mom makes me wake up extra early to clean up after you guys. It sucks and I’m done for the week.” Chris was always the first to complain about having to do anything that involved work, but he was right, we had abused the small mobile home he lived in and far overstayed our welcome there.  
+
+
+“Can’t do my place, the triplets are having their friends over. I’m not even allowed back inside tonight.” Logan had a younger set of siblings, two girls and a boy, who shared everything in a way that was decidedly eerie.   
+
+
+“My place is a no go too guys.” Robby never offered much explanation as to the things he said. Everything had a sort of finality to it and none of us ever tried to argue.  
+
+
+“No way guys, me and my cousin are getting the new fighting game coming out tonight remember? And he doesn’t have enough room in the car for all of us, I was gonna meet up with you all later.” Everyone had rolled their eyes in annoyance, I always had a way of getting out of hosting. My place wasn’t exactly the best for it between a neurotic mother who had a heavy hand when it came to pouring wine and a father who preferred playing drums over talking.   
+
+
+“What about the fort?” We had all looked at each other then in a mix of nervous excitement and unease.  
+
+
+The fort was more of a collection of pulleys, levers and sticks than it was the hideout we had always dreamed of. We had been building it for three summers by that point, painstakingly searching the woods for the perfect pieces to assemble what we had hoped would become a sprawling compound complete with working kitchen, bathroom, heated bedrooms and multiple game rooms. So far it consisted of a shack that barely supported itself and a couple of hand carved spears that we used to ward off the more aggressive squirrels in the area.  
+
+
+“I dunno guys, you know how my mom feels about us being out in the woods after dark.” Logan was always the voice of reason and was more than willing to make himself the adult in the room that we all so desperately needed.  
+
+
+“Plus we haven’t even put a floor down, we’d have to sleep on the ground. Remember when Nick at school passed out in the grass and all those ants got in his underwear?” We all laughed and I figured that was the end of it.  
+
+
+But then Robby spoke up.  
+
+
+“Let’s do it.” He had sounded so determined and his expression had been strange, a combination of a hard grimace and hesitant worry that didn’t belong on such a young face.  
+
+
+“Are you sure? Isn’t your dad like, the strictest guy on planet earth? How’s he going to feel about you sleeping outside?” I had said it as more of a joke than anything, trying to break the tension and get us away from the subject. Robby hadn’t even looked at me, just shrugged his shoulders and answered me in a voice as cool as a morning lake.  
+
+
+“Who’s gonna tell him?”  
+
+
+If I’m being honest, we were all thrilled by this new nonchalant version of our friend. He was like a star out of an old action movie and even though we teased him relentlessly, shoving him and mocking his cool guy persona, the look on his face never changed. That fierce wrinkle in his brow and the tightening of his cheeks as if he were ready for a fight.   
+
+
+Camp flew by, messy games of capture the flag and our endless debates about the stats of our trading cards carried us all the way to sunset. When we got back from the pool the sky was split open with rich hues of purple and orange. It was like shattered glass with light peaking through the cracks. But what I remember most isn’t the horizon, but how many people were waiting at the school.  
+
+
+Our town is small and as anyone who lives in one can tell you, abnormally safe. Everyone was always looking out their windows, keeping an eye on everyone. If even one person did something slightly out of the ordinary there would be a news story about it the next day. Everyone our age walked everywhere no matter what time it was and it was actually a rarity for parents to do something like pick their kids up from anywhere.  
+
+
+Yet as we walked down the stairs, wet towels and backpacks in hand, a long line of cars greeted us. Even the counselors were surprised, the older college students looking at each other in what I’m now sure must have been worry. At that age though, all I was concerned about was how long it was going to take to maneuver through them and get back to the main street to get home.  
+
+
+“Alright, so remember. I’m staying at Chris’s, Mason is staying mine, Chris is staying at Robby’s and Robby is staying Mason’s. Got it?” Logan’s lie was a bit elaborate, but when it came to making a plan we always fell in line and after a nod and quick secret handshake we went our separate ways.   
+
+
+When I got home, twilight had just begun, the stars overhead were always so bright and it’s only now, so many years later, that I realize just how much I took the clear night for granted. My mother had already gone to bed, a half finished bottle resting next to an overcooked box of macaroni that was no doubt both for myself and my father. I checked downstairs and found the basement was empty, which meant my dad had taken his instruments out to play a show. The house was quiet and dark and the silence always made me uneasy, it was like I was waiting for something to happen but I never knew what.  
+
+
+I sat outside on the porch for a good few hours, the warm humid air sticking to me and drenching my clean shirt. My cousin pulled up around ten, his beaten up fire bird hissing and spewing sparks from the metal hitting asphalt. Aidan and I were separated by four full years, but when you're our respective ages that may as well have been a lifetime. He was interested in music to rip your guts out and which girls didn’t have a ride and try as I might I could never quite figure out how to talk about those things.  
+
+
+“You ready?” He was in a foul mood when he picked me up, no doubt frustrated that he had been blackmailed with gas money from my aunt in return for taking me.  
+
+
+“Yeah, let’s go.” We drove in silence to the strip mall a town over, the only place that had any sense of modernity in the sticks of where we lived. “Cool music.”  
+
+
+“Yup.”  
+
+
+“Did you see the new line up of shows on Adult Swim last night?”  
+
+
+“Yeah.”  
+
+
+“Maybe Friday we can watch that new one? I think it’s got pirates in it or something.”  
+
+
+“Can’t.”  
+
+
+I tried to hide my disappointment and hurt the only way a child can, by just being quiet. Aidan was at that unfortunate part of his life where hanging out with your younger cousin just didn’t hold any appeal. Instead I focused on the road, counting the landmarks that I had long since memorized and trying to calculate in my head how many more minutes it would be until we arrived.  
+
+
+The moment we got there, I immediately knew something was wrong. Events of any sort were extremely rare where I lived and so, even if people didn’t understand or participate, they always showed up. The local game store had publicized the release with the promise of an outdoor barbeque, fully furnished with a DJ from the local radio station coming out as well. To most people, it probably wasn’t even worth the trip but to me it was like being at the biggest music festival in the world.  
+
+
+As we drove into the large parking lot however, none of it was there. There was no slow roasting meats or big booming speakers. In fact, there wasn’t anything at all. The stores were all closed, even their lights were shut off and there wasn’t a person in sight in any direction. I hopped out of the car and ran to the glass door, staring in disbelief at the closed sign that greeted me.  
+
+
+“You sure you got the date right?” Aidan sounded annoyed, as if he was the one being inconvenienced by everything.  
+
+
+“Yeah dude of course, it says it right here, see?” I produced a five times folded piece of paper that my dad had given me complete with the address, amount of money I still had to pay, and most importantly, the time it was occurring.  
+
+
+“Huh, weird. Well, let’s check around I guess.” He at least sounded somewhat apologetic and I trailed after him, sulking and doing my best not to cry and embarrass myself further.  
+
+
+We walked under the cement awning, my eyes tracing every crack I saw as I attempted to calm myself down. When I felt that I had a strong enough hold of my emotions, I began inspecting the businesses as well. All of them were dark, their shutters drawn and doors locked. It wasn’t as though things stayed open very late in the towns near mine, but what was strange was that even the lights had been shut off. Everywhere we checked was pitch black, as though they had been closed permanently.   
+
+
+“What the hell?” My cousin's voice floated over to me and I realized he had gotten a good deal ahead of me.  
+
+
+I caught up to him and found him standing in front of the largest store in the plaza, a clothing store where everyone did their back to school shopping. There was a bulletin board where local organizations and even bands could post whatever they wanted. Most of it was usually town hall meetings and shows that my dad was somehow involved in. But one flyer seemed to catch Aidan’s eye and he plucked it from the tack that held it down and showed it to me.  
+
+
+It was a picture of a boy who couldn’t have been older than I was.   
+
+
+I snatched the paper from him and studied it intensively. The printing was cheap and the image was distorted by the choppy black and white ink. Still, there was something familiar about him, like I had maybe seen him before. Our school only had a few hundred people and everyone who lived within twenty miles went to it. The odds that I had bumped into him before were high and I racked my brain trying to place his face in my memories.  
+
+
+“Do you know him?” I shook my head, chewing on my lip as I thought as hard as I could.  
+
+
+“No, well, I don’t know, maybe? He looks like he goes to my school but I can’t tell, this picture sucks.” Aidan nodded and gently took the sheet back, studying it as though somehow he could will the identity to appear to him.  
+
+
+Then, his eyes grew wide.  
+
+
+“It says he’s missing.” I felt a cold stone plummet into my stomach, my limbs felt leaden and my throat felt like I had swallowed glass.  
+
+
+Even back then, abduction was a danger that was at the forefront of everyone’s mind. I couldn’t count on both hands the number of stranger danger seminars me and my friends had been subjected to. We had spent many of them whispering crude jokes to each other and asking ridiculous and insulting questions in hopes of prolonging the assemblies to avoid class. In that moment however, I wished with everything that I had that I had paid more attention to anything helpful they may have offered.  
+
+
+“M-Missing? So, does it say who he is? Or for how long or anything?” Aidan shook his head slowly, scanning what little information was provided over and over again.  
+
+
+“No, just says to contact the police for more information. He’s a kid, I’m guessing they don’t wanna just plaster his name everywhere just in case there’s even more weirdos.” The idea that there may have been others sent a chill down my spine and for the first time I felt every hair stand on end. “Hang on.”  
+
+
+He took off in a jog back towards the game store and I sprinted to catch up. At the door he stopped and nodded as though he had proven some point. With a triumphant finger he pointed at a sign that we had somehow previously missed.  
+
+
+*Closed by order of the Barrington Police Department*  
+
+
+“Well, now we know why nobody’s here. They must want this entire place on lockdown.” It didn’t make any sense to me, what did a gross old strip mall have to do with someone disappearing?  
+
+
+“What? But why here, why tonight of all nights?” I didn’t want to wail like I did, to complain and make something so tragic about myself, but it was so difficult. I had been looking forward to that night for almost a month and when you’re so young that may as well be a lifetime.  
+
+
+“Because he probably went missing around here, that’s why.” Everything felt different after he said that.  
+
+
+The wind no longer felt like a comforting push, but instead like heated razors cutting at my skin. Every click and sound of an insect felt like a sinister creature lurking just beneath the brush. Suddenly the parking lot was too vast and empty, its dark corners hiding terrors that I couldn’t comprehend. I couldn’t be sure if he was right about the reason, but the fact remained that someone was missing and it was possible that we were at the scene of the crime.  
+
+
+“Can we go home now?” I tried to make my voice sound as flat and disinterested as I could but Aidan saw through me.  
+
+
+“Why, scared?” He knew I was and poked and prodded at me until I swatted him away.  
+
+
+“No! I just, I’m supposed to meet my friends tonight. I’m already late.” It wasn’t technically a lie, it also wasn’t exactly the truth either, but Aidan bought it enough to relent and bring me back.  
+
+
+As we drove away I remember doing everything in my power not to look over my shoulder, scared that something might be looking back at me.  
+
+
+Looking back and writing this all down, it’s obvious as to why all those parents had shown up. Many of those kids had probably been like me, excited and preparing to spend a late night outside of a game store. Their parents must have done some research and come across the same poster my cousin did and, worried their children would meet the same fate, told everyone they knew about it. My mother had surely received a phone call at work which she had ignored and everyone grabbed their kids and went home feeling somewhat better about themselves. But at that point, I just never put two and two together, to me it was simply the universe conspiring to ruin my weekend.   
+
+
+The ride home was short, the lack of traffic, which my cousin now attributed to the missing boy, had cleared the roads and every light seemed to be green. He dropped me back at my front door despite my protests, reminding me that his deal was to bring me to the store and back, nothing else. No matter how much I pleaded, begged and threatened for him to bring me to my friends house he would not relent and so, in the end, I hopped out and watched him speed off, praying that he would take a corner too fast and crash into a wall.  
+
+
+The walk to Logan’s was a relatively quick one, our streets intersected at a crossroads of sorts. From my place, it was a straight walk and then a left, simple enough, yet with everything I had learned that night the task seemed so daunting. I crept down the block, my hands jammed as deep inside my pockets as they would go. Most of the lights in the neighborhood houses had dimmed or shut off completely as midnight approached and the silence of the suburbs was cut through only by the occasional howling of a local dog.  
+
+
+I saw the signs at the corner, Shadow and Evergreen and felt my heart rate increase. There was something so nerve racking about reaching my destination, as if there was something waiting for me there. I got to the corner and stood there a moment, my mothers shrill voice pounding in my head as she shouted over and over to always look both ways. Blackness stretched eternally in every direction, an opaque void that swallowed the world and slowly marched its way towards me.  
+Taking a deep breath, I steeled my nerves, clenched my jaw and made a mad dash for the other side. Every step felt like another mile and I found myself winded for the first time in my young life. Still I pressed on, one foot in front of the other, the curb growing closer with every short stride I could muster. My sneakers echoed like gun shots and I forced myself to go faster and faster until –  
+
+
+A pair of headlights illuminated me in their pale yellow glow.  
+
+
+I froze, captured by the harsh glare of the lights. I hadn’t even heard a car approach, no rumble of an engine or the squelch of rubber tires against the tar. In fact, there was no sound at all, no hum of the insects or distant call of a television. The entire block was suspended in sleep, deaf to everything that was happening. I squinted and tried to make out a license plate, the color of the car, anything discerning but the suddenness that the lights had been turned on had left me nearly blind.  
+The sound of a closing car door recaptured my attention and I stood up straight. In hindsight, I probably should have been far more afraid than I was. But at that moment, all I was thinking was that it was a neighbor of ours wondering what I was doing out so late. They’d call my mother and I’d be grounded until the end of time and that to me was far more terrifying than anything else I could imagine.   
+
+
+The sound of footsteps was light and soft, as if the person walking had been measuring the amount of weight in each stride. Their form came to a stop before the headlights and cast a long shadow across myself and the homes behind me. It was like a dark projection on an endless movie screen. I couldn’t tell who or what they were, they were neither tall nor short, thin nor heavy. In fact, there was nothing really discerning about them at all. They were just there, occupying space in an indefinable way.   
+
+
+I held my breath, back then thinking that if I didn’t move they couldn’t see me. But then, as if realizing my plan, they began to laugh. It sounded unnatural, like someone learning to make the noise for the first time. It was choked and mocking, somewhere between the sound of a can being ripped open and a pig being gutted. I remember shivering despite the cool summer night, every hair on my body rising as though I had been shocked.  
+
+
+“Um, hello?” I had spoken first and I can’t really be sure what compelled me to do so. Maybe I thought I could talk my way out of being scared. “I – Is that you Mr. Nassau?”  
+
+
+“O – O – Oh – Oh – Oh!” It was like a bird call and some terrible groan blended together, I could see their body shake and tremble, head turned towards the sky with their mouth hanging and it looked like a snake trying to swallow an animal whole.   
+
+
+I tried again.  
+
+
+“Do you live around here? I’m sorry if I walked across your lawn or something. I’m just on my way to my friend's house.” And suddenly it was quiet again, and in a voice so quiet I almost wasn’t sure I’d heard correctly they finally spoke a full sentence.  
+
+
+“To Logan’s house?”   
+
+
+I should have run then, should have torn down Evergreen and hopped the fence at the Reilly’s house that was just low enough to clear in one jump and made my way to the school's baseball field that I knew better than my own room. I could have hid in the dug out under the bench where some older kids had made a pit to hide their drugs. But I didn’t, none of the warning flags that are instilled in you as you grow up had been planted for me yet.  
+
+
+So instead, I just answered.  
+
+
+“Yeah, Logan’s house. We’re having a sleepover tonight, are you his friend?” A younger me was put at ease at the fact that this stranger knew him. I remember relaxing in that moment and thinking this must have been just one of the people living a block over that Logan would sometimes go to hang out with.   
+
+
+“Best friends.” I remember the smack of the lips and the way that the word ‘best’ seemed to have trouble leaving his mouth. I remember the two of us shared a laugh at the odd way they spoke and I felt for all the world that nothing was truly wrong.   
+
+
+“Oh cool, well I guess that means I’ll see you around right?” This is the part that always confuses me and I honestly can’t be sure if I’m remembering it correctly.  
+
+
+They started to answer, but as they did, the horn of the car started blaring. It wasn’t an alarm because it was so irregular in the intervals. It was like someone was slamming on it over and over. But from my view, the person in front of the headlights was the only one there. My eyes at that point had adjusted enough to see the windshield but I couldn’t make out any silhouettes. I’m not entirely sure where the sound was coming from but I know it made the person angry, as if they had been interrupted.   
+
+
+“I’ll be around.” Even back then, the answer struck me as odd. Why not just tell me when the next time they were getting together with Logan was? Or why not ask to come with me and hang out? “You should go, it’s already late.”  
+
+
+“Oh right, well thanks. Um, good night.” I felt suddenly awkward in my own body, like I wasn’t sure how to talk to anyone anymore.  
+
+
+“Tell Logan, I can’t wait to play again.” The voice was high as it had said it and I remember thinking that it sounded like they had somehow inhaled helium before speaking to me again.  
+
+
+I walked without looking back, desperately trying to ignore the weird feeling that I now know to be dread that had settled into my stomach. Every time I made my way over this way I had a habit of counting things, the lines in the pavement, the amount of fence posts in each yard. But this time I couldn’t focus on a thing, all I could think about was the strange feeling of being watched and the fact that, despite being almost a block away at that point, the headlights still hadn’t been turned off.   
+
+
+When I got to the house it was already almost past midnight and I had to slip by the front door and his parents window to get to the backyard. Our fort was in the woods a little far out from the backyard and I didn’t want to risk waking his mother up and incurring her wrath. Thankfully the back gate had been left unlocked and I figured I had Robby to thank for that as the other two would have loved to see me scrambling over the tall fence to get to them.  
+
+
+It’s hard to explain the woods of New England to someone who has never seen them. There’s something unknowable to them, trees that have been around hundreds of years with their spindly branches and thick leaves. Every direction is like a path that leads to nowhere and though the ground isn’t full of spiders or snakes like other places it always feels like something’s about to grab you. I hadn’t brought a flashlight but thankfully a small light glowed in the distance, calling me towards it.  
+
+
+The fort was more of a haphazard collection of sticks than anything else and it offered little shelter. Over the summer though we had dragged several battery powered lights and even a small television to play games on out to it. To us it was like Neverland, a paradise free of adults where we could do anything and everything we wanted. I could hear my friends before I saw them and I rushed to the small blanket entrance to get away from the dark.  
+
+
+“Dude, there you are. What took you so long I thought you were gonna be here a while ago.” Logan was tucked into the corner in his sleeping bag, pressed against the only solid wall while his eyes were glued to whatever it was they were playing.  
+
+
+“Yeah man, did you get the game? Where’s it at?” Chris had already started poking and prodding at my bag, sniffing like a dog until I shoved him away.  
+
+
+“Everything alright?” Robby looked at me with concern, he was always the only one out of all of us that ever seemed to show genuine concern. But we were kids, and boys at that, being worried about each other was always secondary to seeing how much harassment we could take before storming off.   
+
+
+“Yeah, I just ran into someone on the way here. It was kinda weird, you know?” I unspooled my own sleeping bag and sidled up next to Robby, the only person I could be sure wouldn’t draw something on my face in the dead of night.  
+
+
+“Oh yeah, who?” Logan had lost another round of whatever fighting game of the week he had bought and now finally turned to look at me.  
+
+
+“I dunno, he said he was a friend of yours. Actually, he said he was your best friend.” I felt hurt then, the kind of betrayal that you can only feel at an age where a title like ‘best friend’ means more to you than anything else in the world. It was petty, and I think even back then I knew it was but I couldn’t help it.  
+
+
+“Ooo, someone’s in trouble.” Chris had mockingly pushed him and Logan had shoved him back with a confused scowl.  
+
+
+“Best friend? Who is this dude?” I felt better that he seemed to genuinely not know who I was talking about and I shrugged it off as if I had never cared in the first place.  
+
+
+“Not sure, they were in a car or, I guess not in but like, in front of it. I couldn’t really tell who they were because they were standing in front of the headlights if that makes sense” Robby had looked at me uneasily, he always got this scrunch his eyebrows when he was worried and we’d tease him relentlessly that he looked like an old basset hound.  
+
+
+“I dunno anyone who drives a car except my parents. Maybe they were talking about a different Logan.” He went back to his game, already uninterested in my story. Chris however, could never let things go.  
+
+
+“Maybe it’s your secret boyfriend.” At that Logan leapt at him, grabbing him into a headlock and shaking the foundation of the fort.  
+
+
+“Shut up Chris, maybe he’s your boyfriend!” They laughed as they wrestled and Robby and I joined in, dogpiling our friend and threatening to suffocate him if he didn’t apologize.  
+
+
+“Alright, alright I give, I give!” We let up and through his bright red face and tears he put on a brave grin. “Maybe it was a girlfriend then?”  
+
+
+“I don’t really know, their voice didn’t sound like a boy or a girl to me.” Robby, wheezing and searching for his inhaler, still managed to look confused as he puffed away at it.  
+
+
+“What, you couldn’t tell?” I shook my head, catching my own breath as I zipped myself into my bag.  
+
+
+“Nah, they were kinda weird though and they seemed like maybe they were an older kid? I dunno, but they said something strange.” Chris had set himself up by the entrance, the punishment that we had all agreed on when losing a test of strength.  
+
+
+“Oh yeah, what’s that?” Logan had begun fidgeting with the television, attempting to change the input to put a movie on.  
+
+
+“He said ‘tell Logan I can’t wait to play again.”  
+
+
+For a moment we were all silent, and then both Chris and Robby erupted into laughter. They pointed and shouted, accusing him of having an entire secret life that nobody knew about. But I didn’t join them, my focus was entirely on my friend who, at that moment, had gone so pale that he looked like living moonlight. Every ounce of color had drained from his skin, his hand shook so badly that he dropped the television cables and his teeth began to chatter like he had been plunged in ice water. He didn’t look at me or anyone but I could see his pupils had shrunken to pin pricks.  
+
+
+It was the first time in my entire life I had ever seen him scared of something.  
+
+
+“I freaking knew it! You got a whole other guy on the side! Do you two snuggle up and watch romance movies together?” Chris mimicked a couple making out, crossing his arms over his face and making raucous smooching noises.  
+
+
+“Dude, if you like guys just say so, you’re still our friend none of that will ever change.” Robby was clearly trying to be kind but even he couldn’t stop snickering.  
+
+
+“I knew I caught you staring when we were changing for gym. Come on dude if you wanted to see the goods you could have just asked.” That started a whole new round of laughter, but Logan remained frozen in time, eyes unblinking.  
+
+
+“Hey, dude, are you alright?” He didn’t answer, instead he turned on his side, tucked himself into his sleeping bag and curled in on himself.  
+
+
+Robby and Chris relaxed at that point, clearly realizing that whatever was going on was serious. We might have all messed with each other as much as we could, but when it came down to it we did genuinely care for the other. The pair sat down and I remember being surprised that Chris could look so abashed as he rubbed the back of his neck. Robby looked ashamed, most likely realizing that he had gotten too carried away.  
+
+
+“I’m going to bed.” Logan’s voice had been flat then, like a placid lake or an undisturbed desert. There was no tone, no inflection, just words.  
+
+
+“Hey man, come on we were just –” But Chris never got to finish.  
+
+
+“I DON’T WANT TO PLAY.”  
+
+
+He had screamed at the top of his lungs then and I had thought to myself, this was a night of many firsts. Logan never yelled, he got excited and angry at times but he never raised his voice ever. It was one of the things that made him such a good leader, he always seemed in control. But now all I could see was a young boy, just like us, who was scared and hurt and more than anything, lost.  
+I wish I could say that we had done everything in our power to press him for answers. That we had sat with him all night, comforting him and getting to the bottom of his outburst. But all we did was look at each other uncomfortably and slink into our respective corners. We didn’t speak for the rest of the night and when the sun came up we made a silent vow never to discuss what had happened again. Logan seemed to have regained himself and even offered to buy us all donuts at the place down the street so as far as we were concerned nothing had ever been wrong with him in the first place.   
+
+
+Two months later I moved, my mother had gotten a high paying job and a new boyfriend and my father had moved to a small apartment complex that was almost too depressing to visit. I gave my friends my phone number but they never bothered to call. We saw each other in school of course but the magic of living next to each other had gone and we slowly faded into strangers.   
+Logan transferred that year as well, a teacher said he had been accepted into a charter school that specialized in computer science but I heard other kids say that his parents had committed him somewhere. I can’t really be sure and to be honest I never bothered reaching out to him again. Even as I’m writing all of this down I don’t feel any particular way about anything that happened. My wife seems to think this is some earth shattering event, that what transpired was traumatic and strange but I’m not sure I agree. Friends come and go and little kids meet strangers in cars all the time.  
+
+
+Right?
+
