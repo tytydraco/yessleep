@@ -1,0 +1,671 @@
+I grew up in a village in the Brazilian countryside that you've almost certainly never heard of. I'm not going to tell you its name because it's an extremely small place, and I still have people there who remember my family. If you've ever been to the rural parts of Brazil, you'll probably know the sort of village I'm talking about. A church, a few shops, dirt roads, and houses where people left their doors unlocked because everyone knew everyone else.
+
+Until I was sixteen, I'd never traveled more than a hundred kilometers from home. We didn't have much money, but I had a wonderful childhood. At least that's how I've always remembered it. I spent most of my afternoons playing football with my cousins, catching insects, or swimming in a little river outside the village. My grandmother was forever shouting at us to wash our hands or stop bringing muddy shoes into the house, and my mother used to complain that I went through more clothes than all my siblings combined.
+
+But the thing I remember most vividly is my grandfather's mango tree.
+
+It stood in the middle of his backyard, and it was enormous. Three grown men could barely have wrapped their arms around its trunk. My grandfather claimed it was over a hundred years old, although I'm not sure how he could have known that. According to him, the tree had already been there when his father bought the property, sometime in the 1930s.
+
+Its branches extended over almost the entire backyard, providing shade from the unbearable Brazilian heat. It was practically a second living room. My grandfather had put a large wooden table underneath it, along with several plastic chairs and two hammocks. There was even a little brick barbecue built beside the trunk, although my grandmother complained that the smoke would eventually kill the tree.
+
+Everything happened beneath that tree. Birthdays, Christmas celebrations, barbecues, arguments, even funeral gatherings. If you wanted to find someone in our family on a Sunday afternoon, that was where you went. I remember the smell of charcoal, my grandmother carrying enormous plates of food outside, and the sound of my uncles arguing about football. The children would climb the lower branches or throw mangoes at each other until someone got hurt.
+
+And I remember my grandfather.
+
+He was a large, heavyset man with a thick white mustache and an enormous belly. He almost never wore a shirt, and his skin was dark and leathery from spending so much time outdoors. He had a particular way of sitting, leaning back in a white plastic chair with his legs spread apart and one arm resting on his stomach. He was always drinking beer and smoking cigarettes. I genuinely cannot remember a single afternoon when he wasn't sitting beneath that tree with a beer bottle beside him.
+
+He didn't talk much, but he enjoyed having the family around. Sometimes he'd call one of us over and give us a few coins to buy candy from the shop down the road. If someone brought him a cold beer without being asked, he'd usually reward them with a little extra money. He was particularly generous with his grandchildren, and I remember being very fond of him. In fact, when I was little, I used to tell my mother that I wanted to be just like Grandpa when I grew up.
+
+When I was sixteen, I left the village to attend a technical school in a larger city. Eventually I went to university, and at twenty-two I moved to the US.
+
+That was in the early nineties, and keeping in touch with my family wasn't easy. International telephone calls were expensive, and the internet wasn't something ordinary people in rural Brazil had access to. I was also desperately poor. I worked in restaurants, warehouses, and construction sites while trying to finish my education, and there were months when I barely had enough money to pay rent.
+
+I spoke to my parents about once a month, sometimes less. For years, those calls were the only connection I had to home. My mother would tell me about the weather, the neighbors, who'd gotten married, and which of my cousins had found jobs. I enjoyed hearing those little things. They made me feel like I hadn't completely abandoned the place where I'd grown up.
+
+Unfortunately, the news became progressively worse.
+
+My grandmother was the first to die.
+
+She developed dementia in her late seventies, and her condition deteriorated very quickly. My mother told me she'd become frightened of ordinary things. She sometimes refused to enter certain rooms, and she'd occasionally wake up screaming that there was someone in the house. Once, she locked herself in the bathroom for nearly an entire day because she was convinced somebody was waiting for her outside.
+
+One night, she wandered away while everyone was asleep. They found her the following morning in an irrigation ditch outside the village. She'd apparently fallen into the concrete channel and couldn't climb out. There were deep scratches along the walls where she'd tried to pull herself up, and she'd badly injured both legs. The water was shallow, but she'd been lying in it for hours, unable to stand, with her face barely above the surface.
+
+She was still alive when they found her. My mother said she'd torn several fingernails off trying to climb out and had scraped the skin from her knees and elbows. She died two days later at the hospital.
+
+During her final hours, Grandma reportedly kept begging the nurses not to let someone into her room. She'd become agitated whenever a man approached her bed, and she repeatedly asked whether the back door was locked.
+
+We assumed it was the dementia.
+
+My cousin Paulo died the following year.
+
+He was twenty-six and had contracted HIV. By the time he was diagnosed, the infection had already progressed to AIDS, and he was suffering from several serious complications. He'd apparently been ill for months but refused to tell anyone. When his parents eventually took him to the hospital, he was severely underweight and could barely walk.
+
+The family tried visiting, but he became hysterical whenever someone approached his bed. He told his mother he didn't want anyone from the village seeing him, and he specifically asked that my grandfather not be told where he was. My aunt assumed he was ashamed of his diagnosis. People in our village weren't particularly understanding about those things back then.
+
+He died a few weeks later.
+
+Then my uncle Dimas was killed in an accident at the sawmill where he'd worked for nearly thirty years. He'd developed a serious drinking problem, and according to the men who worked with him, he'd arrived intoxicated that morning. His clothing became caught in one of the machines, pulling him into the mechanism before anyone could stop it. They had to dismantle part of the equipment to recover his body.
+
+A few years later, my father died when his truck left the road and struck a concrete drainage structure. The police found several empty beer cans inside the vehicle. He'd apparently been driving far too fast, and the impact crushed the front of the truck almost completely.
+
+And then there was Helena, my older sister
+
+A child disappeared from a neighboring village, and someone claimed to have seen Helena walking with him shortly before he vanished. Within hours, rumors were circulating that she'd kidnapped and murdered the boy. By the following morning, people were repeating stories about her that I'd never heard before. Apparently, she'd always been unstable. She'd caused problems for her family. She'd made terrible accusations against respected people in the village.
+
+A group of men dragged her from her home and beat her in the street. Several people watched. Someone recorded part of it on a cellphone, and the video circulated for weeks afterward. I never watched it, but Lúcia told me that the men had used pieces of wood and a metal pipe. Helena was still alive when the ambulance arrived, although she'd suffered catastrophic head injuries. She died before reaching the hospital.
+
+Three months later, the missing child was found alive in another state. His father had taken him during a custody dispute.
+
+I remember getting the call while I was at work. I went into the bathroom and cried for nearly an hour before my supervisor came looking for me. Helena and I had been close when we were children, although we'd gradually lost touch after I moved away. She used to help me with my homework and defend me whenever the older boys picked on me. I hadn't spoken to her in almost a year when she died.
+
+I couldn't afford to return for her funeral.
+
+In fact, I hadn't attended any of the funerals.
+
+By the time my mother died a few years later, I had become almost accustomed to receiving terrible news over the telephone. She'd been struggling with depression and alcohol since my father's death, and my younger sister Lúcia found her unconscious at home one morning. There were empty bottles beside her bed and several days' worth of medication still sitting on the kitchen counter.
+
+I sometimes wondered whether our family was cursed. Not literally, of course, but it seemed extraordinary that so many people could die in such horrible circumstances within a relatively short period. Whenever I mentioned this to Lúcia, she'd become uncomfortable and change the subject. Eventually, I stopped bringing it up.
+
+By then, the only people left were Lúcia and my grandfather.
+
+Lúcia had moved to another Brazilian city years earlier and rarely returned to our village. My grandfather, however, had never left his house. As far as anyone knew, he was still sitting beneath his mango tree, drinking beer and smoking cigarettes.
+
+I used to joke that he'd outlive us all.
+
+I wasn't entirely wrong.
+
+By then, my own life had improved considerably. I'd met a wonderful woman named Sarah, and we'd had a daughter, Emily. She wasn't planned, and those first few years were financially difficult, but eventually I found a stable engineering job in California.
+
+I became an American citizen, started earning decent money, and finally had something resembling the life I'd imagined when I first left Brazil. We lived in a small apartment, and money was still occasionally tight, but we were happy. Sarah worked in healthcare, I enjoyed my job, and Emily was growing up healthy and curious about everything.
+
+Emily was the best thing that had ever happened to me.
+
+She had dark, curly hair, her mother's blue eyes, and a habit of asking questions that I couldn't possibly answer. She loved animals, drawing, and spending time outdoors. When she was younger, I'd take her to the park almost every weekend, where we'd play hide-and-seek until she got tired.
+
+Her favorite game involved me pretending to be some ridiculous monster hunting her through the playground. She'd hide behind a tree or a bench while I deliberately walked past, announcing that I couldn't possibly find her. Eventually, she'd jump out laughing, and I'd chase her around until one of us collapsed. Sometimes she'd beg me to play one more round when it was already getting dark, and I'd agree because I enjoyed those afternoons as much as she did.
+
+I also used to tell her stories about Brazil. She was fascinated by the idea that I'd grown up without computers, video games, or even a television in my bedroom. I told her about swimming in rivers, climbing trees, and spending entire afternoons outdoors with my cousins. She especially liked hearing about my grandfather's mango tree and how all the children would gather beneath it. She was the only person in my daily life that I could speak Portuguese with.
+
+Once, she asked whether I'd ever take her there.
+
+I promised I would.
+
+Around the time I turned thirty-five, Lúcia and I started communicating more regularly. Internet access had become practical for both of us, and we exchanged emails, photographs, and occasional video calls. It was wonderful to reconnect with her after so many years, although we generally avoided discussing the deaths in our family.
+
+Then Sarah received an excellent job offer in New Jersey.
+
+We'd been saving money for a house, and the new position would allow us to buy something significantly nicer than we could afford in California. We wanted somewhere quiet, ideally with a large backyard and some woodland nearby. Emily was eight by then, and we thought having her own garden would be wonderful for her.
+
+Sarah and Emily moved east first while I remained in California to finish an important project. Sarah handled the house hunting, sending me photographs and descriptions of each property she visited. We'd talk on the phone every evening, comparing prices and discussing whether a particular house needed too much work.
+
+It was during this period that Lúcia called to tell me our grandfather had died.
+
+He was ninety-three.
+
+Apparently, he'd gone to sleep one afternoon and simply never woken up. There had been no illness or suffering. He'd died peacefully in his own bed, and the doctor believed his heart had simply stopped during the night.
+
+The whole village attended his funeral.
+
+Lúcia said people had been incredibly kind, sharing stories about how much Grandpa had helped their families over the years. Some described him as one of the most generous men they'd ever known. One elderly woman had apparently cried so much during the service that she'd needed to be taken outside.
+
+I felt guilty because I didn't cry.
+
+I hadn't seen him in more than twenty years, and although I'd loved him as a child, I barely knew the man he'd become. I told myself that perhaps I'd simply become accustomed to losing people.
+
+A couple of weeks later, Sarah found a house we both loved.
+
+It was a beautiful two-story property about forty minutes from her new workplace, with three bedrooms, a finished basement, and a large backyard overlooking a wooded area. The owners were an elderly couple moving to Florida. The house was well maintained, the neighborhood was excellent, and the price was within our budget.
+
+We bought it.
+
+Six weeks later, I flew to New Jersey to join my family.
+
+I remember arriving in the late afternoon. Emily ran down the driveway when she saw the taxi and practically knocked me over. Sarah showed me around while Emily kept interrupting to point out things she'd discovered, including a little storage space beneath the stairs that she was convinced would make an excellent hiding place.
+
+The kitchen was considerably larger than it had looked in the photographs, and Emily was very proud of having her own bedroom. I remember standing in the living room, looking at the fireplace and the large windows overlooking the backyard, and feeling that we'd finally made it.
+
+Then Sarah opened the back door.
+
+And I saw the tree.
+
+I stopped so abruptly that she turned around to ask what was wrong.
+
+There was an enormous tree growing in the backyard, perhaps twenty meters from the house. Its branches extended over most of the lawn, casting a wide shadow across the grass. The trunk was unusually thick, and two enormous branches separated a few meters above the ground.
+
+It looked exactly like my grandfather's mango tree.
+
+I'm aware of how ridiculous that sounds, particularly considering that mango trees don't normally survive New Jersey winters. But the resemblance was extraordinary. It wasn't merely the size or the general shape. The trunk leaned slightly to one side, and there was even a long, pale scar running vertically down the bark.
+
+My grandfather's mango tree had a scar like that. It had been struck by lightning when I was a child.
+
+I walked around the trunk several times, examining the branches and roots. Sarah found the whole thing amusing. She said she'd known I'd appreciate having a large tree in the backyard, although she hadn't expected such a reaction.
+
+I told her that mango trees were tropical and shouldn't be growing outdoors in New Jersey, certainly not at that size. She said the previous owners had called it a magnolia, but I insisted they were mistaken. I'd grown up around mango trees. I knew what one looked like, and I was certain I recognized this one.
+
+That evening, I called Lúcia and told her about it. She laughed and asked me to send a picture, which I did. She agreed that it looked remarkably similar, although she admitted she couldn't remember the details of Grandpa's tree very clearly.
+
+I asked whether she had any old photographs of the backyard. She didn't.
+
+Neither of us had owned cameras when we were children, and the few family photographs we still possessed were mostly taken indoors. I asked her to contact someone in the village who might be able to take a photograph.
+
+A few days later, she called with disappointing news.
+
+There had been a fire shortly after Grandpa's death. A neighboring house had caught fire, and the flames had spread to the branches of the mango tree. Most of its canopy had burned, and the remaining trunk had eventually been cut down.
+
+Lúcia had asked several people for photographs, but nobody she contacted had anything useful. One neighbor had an old picture of a barbecue, but the tree was mostly obscured by people standing in front of the camera.
+
+I was disappointed, but there wasn't much we could do.
+
+For the first few weeks, the resemblance was simply an interesting coincidence. I'd sit beneath the tree in the evening, drinking a beer and remembering the family gatherings of my childhood. Sometimes Emily would join me, and I'd tell her stories about my cousins or explain the games we used to play.
+
+Then I began noticing strange things.
+
+The first was the smell of cigarettes.
+
+It happened mostly in the late afternoon. I'd be sitting outside or working in the yard when I'd catch a faint odor of stale tobacco. It was a very particular smell, almost exactly like my grandfather's cigarettes. I assumed one of the neighbors smoked outdoors. There were houses behind the property, and the smell could easily have traveled through the trees.
+
+But sometimes I'd smell it inside the house too, particularly near the kitchen door.
+
+Another time, I was standing at the kitchen sink when I thought I heard someone dragging a plastic chair across the patio. The sound was so familiar that I turned around expecting to see my grandfather sitting outside.
+
+Of course, there was nobody there.
+
+I went outside and found a folding chair Sarah had left beside the barbecue. The wind had knocked it against the concrete. I laughed at myself and went back inside, although I remember checking the backyard several more times that evening.
+
+Once, while taking out the garbage after dark, I glanced toward the tree and could have sworn someone was sitting beneath it. There was a large, pale shape in the shadows, roughly where my grandfather used to keep his chair. I stood there for several seconds, trying to make out what I was seeing, before turning on the outside light.
+
+It was a white garden chair with a bag of potting soil leaning against it.
+
+I didn't mention these incidents to Sarah. They were trivial, easily explained things, and I was embarrassed by how much they unsettled me.
+
+The strangest thing was that I began feeling uncomfortable whenever I looked at the tree. Sometimes I'd experience a sudden wave of anger or disgust, even on otherwise pleasant days. Other times, I'd feel terribly sad, almost like I was about to cry, although I couldn't have explained why.
+
+I assumed it had something to do with grief. Nearly everyone I'd grown up with was dead. Perhaps seeing something so similar to my childhood home was bringing back emotions I hadn't dealt with properly. That explanation seemed reasonable.
+
+Then Emily found the hollow.
+
+We were playing hide-and-seek one Saturday afternoon. I'd counted to thirty and was walking around the yard pretending not to know where she'd hidden. I found her crouching behind the tree, examining something near its base.
+
+"Daddy, look at this!"
+
+Two enormous roots curved outward from the trunk, forming a narrow hollow between them. It was partly concealed by another root that crossed over the opening, and from most angles you wouldn't have noticed it was there.
+
+Emily crawled inside before I could say anything.
+
+She sat there with her knees against her chest, grinning at me.
+
+"Look! I fit!"
+
+I felt an immediate, overwhelming need to get her out.
+
+I told her to come back. She laughed and said I couldn't catch her, which was the sort of thing she always said when we were playing.
+
+But I wasn't playing anymore.
+
+"Emily, get out of there. Now."
+
+She looked surprised by my tone but obeyed. I took her inside and told her never to crawl beneath the roots again. She complained that it was a perfect hiding place, and I found myself becoming inexplicably angry with her.
+
+I didn't shout, but I came close.
+
+Later that evening, while lying in bed, I remembered something.
+
+There had been a hollow beneath my grandfather's mango tree.
+
+I'd completely forgotten about it. It wasn't exactly a cave, just a small space between two large roots on the side facing away from the house. You had to crawl to reach the back of it, and there was barely enough room to sit upright.
+
+I remembered sitting inside it when I was little, with my knees pulled against my chest. I remembered the smell of damp soil and the rough bark pressing against my back.
+
+And I remembered being afraid.
+
+I didn't remember what had frightened me, but I knew it had something to do with my grandfather.
+
+I lay awake for most of the night trying to understand why.
+
+Over the following months, more memories began surfacing. They weren't particularly coherent. I'd suddenly remember the sound of a beer bottle touching concrete, or my grandfather calling me over while the rest of the family was having lunch. Sometimes I'd remember his hand closing around my wrist, and the memory would make me feel so uncomfortable that I'd have to stop whatever I was doing.
+
+I started having trouble sleeping. There were nights when I'd wake up sweating after dreaming about the backyard in Brazil, although I could rarely remember what the dream had been about.
+
+I also became increasingly irritable.
+
+Sarah noticed first. She asked whether I was having problems at work, and I told her I was simply stressed. But it wasn't work. I'd be perfectly fine one moment, then suddenly become furious over something insignificant. Dishes left in the sink, the television being too loud, Emily interrupting me while I was reading.
+
+I started avoiding the backyard, although I developed an almost compulsive habit of checking the tree through the kitchen window. Sometimes I'd stand there for several minutes without realizing what I was doing.
+
+Sarah caught me doing it one evening and asked what I was looking at.
+
+I told her I thought I'd seen an animal outside.
+
+She looked through the window and saw nothing.
+
+Neither did I.
+
+The first memory I couldn't dismiss came while I was at work.
+
+A coworker had returned from a cigarette break and walked past my desk. The smell of tobacco hit me, and suddenly I remembered being about eight years old, standing behind my grandfather's mango tree.
+
+He was holding my wrist.
+
+I remembered crying and trying to pull away.
+
+I remembered him telling me to shut up and stop making a fuss because everyone would be angry with me.
+
+Then I was back at my desk, staring at my computer.
+
+My hands were shaking so badly that I could barely use the keyboard. I went to the bathroom and vomited.
+
+That evening, I called Lúcia.
+
+I asked her whether she remembered me being afraid of Grandpa.
+
+There was a long silence.
+
+Then she asked why I wanted to know.
+
+I told her about the hollow and the memories. She started crying, which frightened me more than anything she'd said.
+
+I remember becoming impatient with her. I kept asking what was wrong, but she wouldn't answer directly.
+
+Finally, she told me that when we were children, Grandpa had a habit of calling certain grandchildren over to sit with him. Usually the younger ones.
+
+She said people knew there was something wrong.
+
+Not everyone, perhaps, and certainly not all the details. But people noticed when children came back crying, or refused to sit near him, or suddenly stopped visiting altogether.
+
+I asked why nobody had done anything.
+
+Lúcia said our grandfather was a respected man. He owned property, employed people from the village, and had helped several relatives financially. Nobody wanted to accuse him of something that would destroy the family, and the few people who tried were quickly reminded of everything they stood to lose.
+
+I asked whether our parents knew.
+
+She said yes.
+
+Then she told me something about Helena.
+
+Apparently, my older sister had tried to report him when she was a teenager. Our parents convinced her not to, and over the years she became increasingly angry with the family. When she started talking about it publicly, people began spreading rumors that she was unstable and vindictive.
+
+Lúcia told me that by the time the boy disappeared, half the village had already decided Helena was a liar. She said some of the people who attacked her were the same people who'd spent years defending our grandfather.
+
+I sat there for a long time without speaking.
+
+Then I asked what Grandpa had done to us.
+
+Lúcia didn't answer immediately.
+
+When she finally spoke, her voice was very quiet.
+
+"You really don't remember?"
+
+I told her I didn't.
+
+She said she'd always assumed I did.
+
+She reminded me that I'd stopped visiting Grandpa's house when I was about fourteen. Apparently, there had been an argument between him and Helena, and afterward I refused to go back. My parents had been furious, but I'd become so distressed whenever they mentioned visiting that they eventually stopped taking me.
+
+I didn't remember any of that.
+
+I remembered going to school, playing football, and preparing to move away when I was sixteen, but I couldn't remember visiting my grandfather during those final two years.
+
+Lúcia asked whether I wanted her to tell me more.
+
+I said no.
+
+We ended the call.
+
+I spent the rest of that evening sitting alone in the kitchen. At some point, Sarah came downstairs and asked whether everything was all right. I told her I'd received some upsetting news from Brazil and didn't want to talk about it.
+
+That night, I remembered enough.
+
+I remembered the hollow, the smell of cigarettes, and the sound of my cousins playing on the other side of the trunk. I remembered being told to keep quiet.
+
+There were other things I remembered too, although I don't particularly want to write them down.
+
+I didn't go to work for the next three days.
+
+After that, things deteriorated rather quickly.
+
+I started drinking more in the evenings because it was the only reliable way I could fall asleep. I'd become angry without any apparent reason, sometimes so suddenly that Sarah would stop talking halfway through a sentence.
+
+I was particularly short-tempered with Emily.
+
+She'd always been affectionate, the kind of child who ran to hug me whenever I came home. Now she'd watch my face before asking a question, and if I seemed irritated, she'd quietly leave the room.
+
+I noticed, of course.
+
+I simply didn't know what to do about it.
+
+Sometimes I'd apologize and promise to be more patient. We'd have a perfectly pleasant afternoon together, perhaps watch a movie or go out for ice cream, and I'd convince myself that things were getting better.
+
+Then something insignificant would happen, and I'd lose my temper again.
+
+One evening, Emily accidentally knocked over a glass of water onto some paperwork I'd brought home. I shouted at her, and when she started crying, I became even angrier. Sarah came into the room and told me to leave her alone.
+
+We argued for nearly an hour after Emily went to bed.
+
+Sarah said she was worried about me. She knew something had happened, although I still hadn't told her about the conversation with Lúcia.
+
+She wanted me to see a therapist.
+
+I refused.
+
+I told her I could handle my own problems.
+
+Sarah asked whether I realized Emily was becoming afraid of me.
+
+I told her that was ridiculous. I'd never hit our daughter, and I had no intention of doing so.
+
+She said she knew.
+
+Then she asked whether I thought Emily understood the difference between being shouted at and being hurt.
+
+I remember telling Sarah to stop treating me like some kind of monster.
+
+She slept in the guest bedroom that night.
+
+Things continued like that for several months. Some days were perfectly normal, while others were miserable. Sarah and I barely spoke unless necessary, and Emily became increasingly quiet whenever I was around.
+
+Another night, I woke up convinced that someone had been standing outside our bedroom window. I spent nearly half an hour checking the yard with a flashlight before Sarah finally convinced me to come back inside.
+
+I began to understand why people believe in haunted houses.
+
+There were moments when I genuinely felt that something from my childhood had followed me across the ocean. Something I couldn't see, but which had somehow found its way into my new home.
+
+Sometimes I'd stand at the kitchen window, looking at the tree, and feel an irrational urge to cut it down.
+
+Other times, I'd want to sit beneath it and cry.
+
+I never did either.
+
+The last evening I spent with my daughter was a Thursday.
+
+Sarah was away overnight for work, and I'd promised to make dinner and watch a movie with Emily. I'd already been drinking more than I should have that week, and I remember stopping at a liquor store on my way home.
+
+I came home later than expected. I'd had a difficult day at the office, and a problem with one of our projects had kept me there until nearly eight.
+
+When I walked into the living room, I found Emily sitting on the floor surrounded by sheets of paper and paint.
+
+She'd been making something for me.
+
+I remember that much.
+
+It was a drawing of our house, with the backyard and a large tree. She'd used so much green paint for the leaves that the paper had become wet and started curling at the edges.
+
+There was paint on the coffee table and several spots on the carpet.
+
+I was already irritated, and I'd had a couple of drinks before coming into the room. I told her she'd made a mess, and she said she'd clean it. I told her she shouldn't have been using paint in the living room.
+
+She apologized.
+
+Then, while trying to pick up the containers, she knocked over a cup of blue paint.
+
+It spilled across the carpet.
+
+I completely lost my temper.
+
+I shouted at her for being careless. I told her I worked all day and didn't deserve to come home to a ruined living room. She started crying, which made me angrier. I told her to stop, and when she tried to explain that she'd been making the picture for me, I interrupted her.
+
+At some point, I grabbed her wrist and pulled her to her feet.
+
+I remember how small her wrist felt in my hand.
+
+She tried to pull away, and I tightened my grip.
+
+"Shut up, Emily. Just shut up for once."
+
+She was crying harder now, struggling to get the words out between breaths. She kept saying she was sorry, and I kept telling her to be quiet. I remember leaning down until my face was close to hers and telling her to stop making such a fuss over nothing.
+
+Then she stopped crying.
+
+Not gradually.
+
+She just stopped.
+
+She stood there with her mouth slightly open, trying to control her breathing, and looked at me with an expression I hadn't seen before.
+
+I let go of her wrist.
+
+She ran upstairs.
+
+I stayed in the living room, staring at the spilled paint. I was shaking with anger, although I couldn't have told you what I was angry about anymore.
+
+I cleaned the carpet, threw away some of the ruined paper, and poured myself another drink.
+
+About half an hour later, I went upstairs.
+
+Emily's bedroom door was closed.
+
+I knocked and opened it slightly.
+
+She was lying in bed, facing the wall.
+
+I told her I was sorry for shouting.
+
+She didn't answer.
+
+I asked whether she wanted to come downstairs and watch the movie.
+
+She shook her head.
+
+I told her I loved her.
+
+She didn't say anything.
+
+I became irritated again, although I tried not to show it. I told her we could discuss it in the morning and closed the door.
+
+I went downstairs, put on the television, and had another drink.
+
+Later that night, I heard footsteps upstairs.
+
+Emily was apparently out of bed.
+
+I called for her to go to sleep.
+
+A few minutes later, I heard another noise. I remember looking at the clock and becoming annoyed because it was almost midnight.
+
+I shouted up the stairs that if she didn't settle down, I'd come upstairs myself.
+
+The house became quiet.
+
+I finished my drink and watched television for a while longer. At some point, I must have fallen asleep on the couch.
+
+I woke up around six the following morning with a terrible headache.
+
+The television was still on, and my mouth tasted awful. I'd slept in an uncomfortable position, and my neck hurt when I tried to sit up. There was an empty bottle on the coffee table and another one on the floor beside the couch.
+
+I went into the kitchen, drank some water, and made coffee.
+
+For a few minutes, I stood by the counter trying to remember whether I'd set my alarm. I was running late for work, and I knew I'd have to get Emily ready quickly if we were going to make it to school on time.
+
+I went upstairs and knocked on her bedroom door.
+
+"Emily, time to get up."
+
+There was no answer.
+
+I opened the door.
+
+Her bed was empty.
+
+I assumed she was in the bathroom, but the bathroom was empty too. I checked the other bedroom and the little storage space beneath the stairs where she sometimes liked to play.
+
+Nothing.
+
+I called her name.
+
+There was no answer.
+
+I went back into the kitchen, thinking perhaps she'd gotten up early and made herself breakfast. Sometimes she'd do that on weekends, although she'd never done it before school.
+
+The kitchen was empty.
+
+I checked the living room again, then the basement.
+
+By then, I was beginning to worry.
+
+I called her name more loudly and walked through the house, opening closets and looking behind furniture. I even checked the garage, although I couldn't imagine why she'd be in there.
+
+I went upstairs again.
+
+Her bed was still empty, obviously, but I stood there for a while looking around the room.
+
+I noticed that her blanket was lying on the floor beside the bed. Her favorite stuffed rabbit was sitting on the pillow.
+
+I called Sarah.
+
+She didn't answer.
+
+I called again.
+
+Then I started looking through the house more carefully.
+
+I checked behind the curtains, beneath the beds, and inside every closet. I opened the basement storage cupboards, even though they were too small for Emily to fit inside.
+
+I remember becoming increasingly angry as I searched.
+
+I thought she might be hiding from me because of the previous evening. Perhaps she was trying to punish me, or perhaps she'd decided it would be funny to make me look for her.
+
+I shouted that this wasn't a game and that she needed to come out immediately.
+
+There was no response.
+
+I went outside.
+
+The morning was warm and humid, and the grass was still damp from the rain during the night. I walked around the house, calling Emily's name. I checked behind the garage, along the fence, and near the shed.
+
+Nothing.
+
+I went back inside and called Sarah again.
+
+This time she answered.
+
+I asked whether Emily had called her.
+
+She said no.
+
+I asked whether she knew where Emily might be.
+
+Sarah wanted to know what was happening.
+
+I told her I couldn't find our daughter.
+
+She immediately became frightened and started asking questions. Had I checked her room? Had I checked the basement? Was the front door locked?
+
+I told her I'd looked everywhere.
+
+She said she was coming home.
+
+Then she told me to call the police.
+
+I hung up.
+
+I stood in the kitchen for a while, holding my phone.
+
+I remember looking through the window at the backyard.
+
+The mango tree was standing in the middle of the lawn, its enormous branches casting a shadow over the wet grass.
+
+For some reason, looking at it made my stomach tighten.
+
+It wasn't the usual uncomfortable feeling I'd been having for months.
+
+It was much worse.
+
+I suddenly remembered Emily sitting between the roots, laughing and telling me she'd found a secret hiding place.
+
+I remembered how angry I'd become when she refused to come out.
+
+And then I remembered something from my own childhood.
+
+I must have been seven or eight.
+
+My grandfather had been shouting my name from beneath the mango tree, and I'd crawled into the hollow behind the trunk.
+
+I remembered pressing myself as far back as I could, pulling my knees against my chest, and trying to breathe quietly.
+
+I remembered hearing his footsteps nearby.
+
+Then I remembered him walking away.
+
+I'd stayed there for a long time afterward, afraid to come out in case he was still looking for me.
+
+I don't know why that memory came back so clearly at that particular moment.
+
+I put my phone down and went outside.
+
+I walked across the wet grass toward the tree.
+
+My heart was beating so hard that I could feel it in my throat. I kept telling myself that Emily couldn't possibly be inside the hollow. I'd forbidden her from going there, and she'd always been a sensible child.
+
+But I knew.
+
+Even before I reached the trunk, some part of me knew.
+
+I walked around to the far side.
+
+The hollow was almost completely concealed by the roots. There were wet leaves scattered around the entrance, and the soil was dark from the previous night's rain.
+
+I crouched down.
+
+At first, I couldn't see anything.
+
+Then my eyes adjusted to the darkness.
+
+Emily was inside.
+
+She'd crawled farther back than I'd realized was possible, into a narrow space where the roots curved toward one another.
+
+Her knees were pulled tightly against her chest, and one arm was trapped beneath her body. Her cheek was pressed against the bark, and her head was turned at an unnatural angle.
+
+I called her name.
+
+She didn't move.
+
+I reached inside and touched her ankle.
+
+Her skin was cold.
+
+I tried to pull her toward me, but her body was wedged so tightly between the roots that I couldn't move her. I reached farther inside, scraping my arms against the bark, and touched her shoulder.
+
+It was stiff.
+
+I remember telling her to wake up.
+
+I remember pulling harder, even though I could see that her neck was bent against one of the roots.
+
+Then I noticed her hands.
+
+Her fingers were curled against the soil, and several of her fingernails were broken. There were little scratches in the dirt and bark around her face, as though she'd been trying to push herself backward.
+
+I kept pulling until one of her arms came free.
+
+Her hand fell against mine.
+
+There were bruises around her wrist.
+
+Five small, dark marks, exactly where my fingers had been the night before.
+
+And suddenly I remembered what I'd said to her.
+
+I remembered holding her wrist, leaning down until my face was close to hers, and telling her to shut up.
+
+To stop crying.
+
+To stop making a fuss.
+
+I remembered the way she'd gone completely silent.
+
+I looked at my daughter, curled up in that little hollow, and understood why I hadn't heard her during the night.
+
+She'd been hiding from me.
+
+Even when she got stuck, even when she couldn't breathe properly, she must have been afraid that I'd hear her and come looking.
+
+I put my hand against her cheek and tried to turn her face toward me.
+
+Her mouth was slightly open, and there was dirt between her teeth.
+
+I called her name again.
+
+Very quietly.
+
+I didn't want to frighten her.
