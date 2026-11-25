@@ -1,0 +1,30 @@
+A while back I posted my encounter with the spirit of a priest or clergyman near the Pierdres Blancas lighthouse. I have a story that is not mine but my dad’s. This is his story,  told to me to turn into writing, and edited by him, enjoy…
+
+“I lived in Huntington Beach California in the 1960s, and spent all my childhood there on a small property with an orchard in the backyard, with a few miles of wilderness and sand dunes behind it. Mine and my little sisters bedroom faced the backyard, as did my parents bedroom. My pa had a rule growing up that we were not to open the shutters at night, claiming it was to keep us safe from burglars and kidnappers. But when I turned 9, I had reached a rebellious age. My sister Moira (who was 6 at the time) and I had heard at school that there was meant to be a meteor shower over the weekend. I told Moira we would open our window to watch it when the time was right, and that we shouldn’t tell our dad.
+
+The meteor shower was set to be at about 1 am, so I had set my alarm for that time on my wristwatch I had gotten for Christmas. My sister and I slept and woke to my alarm at just the right time. I thought of my dad’s rule of never unlatching the shutters last sunset. I had never disobeyed my dad that way in my life. He had been so strict about this rule that it had never crossed my mind to disobey it. But nonetheless, I slowly unlatched them. I’ll never forget the creak of them, groaning like an old woman’s echoing cry. I was so afraid the sound would wake my pa, who woke to any closing door or creaking bed, but to my surprise, it didn’t. I looked into the black of our backyard, the moon up so high I could see the whole orchard lit by the night sky. It was beautiful.
+
+We had had a windy season that left our window quite dirty. I had wanted the best view we could get, so I took the risk and fully opened my window. My sister begged me not to, thinking of how we would get in worse trouble for opening the window than we would for just opening the shutters, but I didn’t care. My whole class would be talking about the meteor shower come Monday, so I opened it.
+
+The meteor shower had started. Beautiful little streaks across the sky. I had never seen anything like it. We sat and enjoyed the view for a few minutes until the last of the meteors fizzled out. I took a deep breath and looked away from the night sky to my sister who, to my surprise, was not looking at the sky. She was looking into the darkness of the orchard. She had a look on her face I had only seen her have when ma was cross with her.
+
+“What’s the matter with you Moira?” I asked annoyed.  
+“Were you even watching the meteors. I risked my hide for you to see them, I can’t beli-“  
+“Be quiet Tim”, she cut me off, tears filling her eyes.  
+“Don’t tell me to be quiet!” - I raised my voice.  
+“Please look” she said, slowly lifting her small finger up and over the window sill.
+
+My head spun on my neck, my eyes darting over the orchard until I saw it. A man standing just past the tree line, in the shadows. He wore a dark leather coat and held a bag in his other hand. He was smiling at us, and waving a chilling, slow wave. I slammed the window shut and slammed the shutters and latched them. I grabbed my sister and stuffed her under the blankets of my bed, I prayed to God to protect us, and if we were to die to make it quick. I prayed our parents would be safe as well.
+
+We cried ourselves to sleep. There was nothing in our backyard but trees and hills and then ocean, what would become a national ecological reserve. Total emptiness. I was convinced that the man, with his dark eyes and bone chilling smile, was a monster. A demon. And I told my sister just that, that we had escaped a demon. We woke the next day and did not talk about we saw. In fact we didn’t tell anyone what we had seen until years later, when mama had a news paper out on the table.
+
+For years mama and pa had told us to be careful, always walk home together, never go to the playground alone and of course, always keep the shutters locked at night.  
+I never knew why until that day I saw mamas newspaper, when I was 16 years old. The picture was of a man, named Mack Rey Edward’s. The name still sends chills down my spine. Edward’s had turned himself into police, confessing to the murder of at least 6 children in the last decade, and that the guilt had torn him up so bad he couldn’t do his work running the long grader for the state transportation company. I grabbed the paper from the table and took it to my sister.
+
+All I had to do was set it in front of her, and she knew exactly what she was looking at. Her eyes shot up to me with the same fear from the night of the meteor shower. She got up from her chair and hugged me, something she never did, and thanked me for protecting her that night, but Im sure Edward’s had the both of us in mind, us being smaller kids for our ages. I am positive that it was Edward’s that night, lurking in the orchard. There is no doubt. It would have been the perfect murder, grabbing us from our window and killing us in the woods right behind our house, fleeing into the darkness of the preserve. We came to our dad that same day, and confessed to what we had done without his knowledge all those years earlier. He put his head down and closed his eyes, his shoulders slumping. Then, he took the both of us in his arms and told us how much he loved us, and that there was nothing to do about it now. Edward’s would be in prison for the rest of his life.
+
+I believe my sister and I, who were 9 and 6 at the time, were almost some of the first victims of Mack Edward’s, the most prolific child serial killer of LA county. I will never forget his face, and I praise the Lord Jesus everyday that my prayers were answered. The other victims, confirmed and unconfirmed are in my thoughts often, as my name was almost right along theirs. The lives they would have led were priceless. Kids, listen to your parents. They love you, and know more than you, whether you like it or not. Listen. It might save your life.”  
+.  
+.  
+.  
+.

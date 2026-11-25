@@ -22,4 +22,4 @@ Well, typing all of this achieved my intended purpose, but now I'm not sure how 
 
 "That's not a wood scratch." We asked her how she knew that. She said she had fallen out of a tree just earlier that year. We compared scars and she was right. The ones from her arms were jagged and patchy. Mine was a singular slash up my calf. There wasn't anything in the lake that could make a cut like that, as far as we knew.
 
-Strange memory. The scar is gone now. Fully healed over from the years since. But this was fun nonetheless. I think I'll write up more, as the memories come back to me. Thanks for reading this far if ya did!
+Strange memory. The scar is gone now. Fully healed over from the years since. But this was fun nonetheless. I think I'll write up more, as the memories come back to me. [Thanks for reading this far if ya did](https://www.reddit.com/r/nosleep/comments/1y4l9nf/did_anyone_else_go_to_this_camp_update/)!

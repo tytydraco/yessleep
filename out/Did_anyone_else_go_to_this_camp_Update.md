@@ -1,0 +1,19 @@
+[I couldn't find those pictures](https://www.reddit.com/r/nosleep/comments/1y21hsg/did_anyone_else_go_to_this_camp/), but I'm sure they're somewhere. Probably in one of my mom's photo albums. Either way, I figured I'd talk about the first week of camp. Getting there and getting settled. Some of it is fuzzy, but I'm sure (like last time) more memories will resurface the more I think about it. 
+
+So, we all took a bus there. A couple of girl scout troops, including mine of course. So I knew a few people already, but most were completely new faces. I remember the drive was long, most of us probably fell asleep. Nothing super eventful there. I think we went upstate, towards the mountain range, but how far I'm not sure. 
+
+When we got there though, it was so exciting! We all filed off the bus, grabbing our bags and whatnot, and were greeted by the main counselors. Each cabin had its own counselor but these two were like related to the owners or something. They might have even *been* the owners, they were pretty old, but I'm not sure. We didn't see them much, so I remember them the less. Not gonna lie. But the cabin counselors were the best!
+
+As grown as I am now, I'm sure a lot of them were playing up the enthusiasm for us kids but it did seem like they enjoyed being there. They all had nicknames, we weren't "allowed" to know their real names. It wasn't a strong rule, but still pretty insisted on. The counselor for my cabin was called Red. She was chill. Like that's how she introduced herself; the "chill" counselor. Again they were definitely playing up the enthusiasm. 
+
+The other ones I don't really remember either. I think the name of the counselor in charge of the cabin across from mine was called Orange or Peach or something like that. The cabins were set up in pairs, connected by this big porch area. Each cabin was five or six girls. Some had bunk beds and some didn't from what I can remember. Ours definitely did because I slept on the bottom bunk.
+
+We got put in our cabin groups, and went to set up in our cabins. Oh man I just remembered, I definitely had my actual diary with me at the time. If I could find that, it would help this out so much. Anyway, I got to know my cabin mates. The first few days were just that, getting use to sleeping in cabins cause this was a first for most of us. By the end of the week we had a relay race. Like a team building exercise.
+
+Man I really thought I still had that diary. I might have to go through the attic next time I visit my folks. Anyway, the relay race was a whole day affair. I did the sprinting part. My cabin mates did some of an obstacle course and another girl did this spelling portion. It was a lot, but it was fun. The winner got to choose what we had for breakfast during the first Sunday service. My team didn't win, but oh well.
+
+Okay let me see, the service was more or less uneventful. First time we met the boy scouts. Some of them were very loud. Like there was this group in the back, that's right, they kept making fun of my cabin mate. We tried telling a counselor but she didn't think it was a big deal. And we were too nervous to tell the boy scout counselor about it. Even after the service and breakfast, they kept making fun of my friend. I, and our other cabin mates, had to step in.
+
+Oh my god he punched me. How did I forget that? We all started fighting. The counselors never broke us up, it just ended. I guess when we got it out of our systems? The boy scouts just left with their group and we went to our cabin. Did the nurse even check on us?
+
+I think that's enough for now. I'm gonna go back to looking for that diary, and those pictures. I definitely remember taking pictures. I had a wind up camera, it took so long when I wanted to take one. Okay ya, I'll be back with more later.
