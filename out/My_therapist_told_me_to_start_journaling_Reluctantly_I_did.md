@@ -1,0 +1,149 @@
+January 5th, 2026: 2:33AM
+
+I can’t sleep, so I guess I’ll write in here. As my New Year's resolution to my beautiful, loving girlfriend I have started going to therapy. I even went to my first appointment on the 1st, hungover as fuck. Why I booked it for 9am I couldn’t tell you. It made her happy. And that makes me happy. I’ve only been dating her for a few months, but they’ve been the best few months I could ask for. She even taught me how to rock climb. I’m not good at it at all, but it’s another thing I do for her, because it makes her happy. Anyways, the first meeting went a little something like this: 
+
+“Hello my name is Dr. Bullshit. I see you’re sad about your childhood. Let me bill your insurance three grand after I pretend to listen to you, and you can be on your way!” 
+
+“Hello, I’m Trevor! I don’t necessarily have another choice, so alright!”   
+Okay no it didn’t. I hate to admit it but I liked it. It was nice to just unload the clip on some poor bastard. You don’t have to feel bad for them because they take all your money. Then you feel bad about that. Anyways, I told her about how my mom left when I was 8. I remember my dad was never the same after that. He tried his best to make me believe he was okay, but I could tell he wasn’t. He never smiled like he used to, never cracked as many jokes or laughed as hard. He was so happy before she was gone, and so was I. Now we exchange a weekly phone call and I visit him on the holidays, but he lives 5 states away and neither of us can make the trip consistently. I wish he lived closer to me though. I’d love to visit more. After I told her that, she said that would explain my avoidant attachment style, which we talked about earlier when I was questioned about my relationship. I talked to her about some more stuff that I don’t want to write down because I’ll cry again, but just know that it was a very good conversation. 
+
+2:38AM
+
+It’s been five minutes and I don’t really know what else to write about. I might just write what’s on TV right now. It’s the news. There was an explosion near the Insane Asylum, or Psychiatric Facility, as they stated on the news. Oh fuck, no way. 20 patients escaped. A couple of them probably already got taken back there, the fat ones, the rest will be caught by sunrise for sure. I’m turning it off. I can't watch the news for too long. Gives me anxiety. I’m probably gonna head to bed now. I need to wake up at 6am for work and I am prettyyy fried. 
+
+January 5th, 2026: 10:43PM 
+
+I need to write in here or else I might go crazy. I’ve been racking my brain about how it could’ve happened but there’s no explanation except for one. Somebody broke into my apartment. This morning I woke up 20 minutes past my alarm. Shit, shower, shave while I woke up. I had no time for music today. Then I had my coffee and breakfast and burst out the door to work. I sped past the “Psychiatric Facility” that had a hole blown into it last night. No psychos roaming around the city or the farmland next to the highway. Just as I thought. I went through a grueling 8 hours of marking emails as read, calling clients, and small talk with co-workers to take the same drive I did in the morning, back to my apartment building. When I arrived, the door to unit 236–my apartment–was ever so slightly cracked open. I hadn’t even noticed until I went to unlock it. 
+
+I screamed into my apartment before opening it up. Stuff like: GET THE FUCK OUT OF MY HOUSE, or, I HAVE A GUN! GET OUT WITH YOUR HANDS UP! My neighbours stared at me weird for that one, and I didn’t get an answer from inside the house. Now listen, I’m a pretty big dude. 6'1, 200lbs. Mind you, I’m not ripped but I workout 3-4 times a week so I’m not all fat either. I just can’t say no to a cookie sometimes. So I decided to cautiously enter my apartment, checking around every corner. I practically swept my whole home like a Rainbow Six Siege map until I was certain nobody was in there. I went out to the balcony and I saw Mrs. Henderson on the porch, smoking her cigarettes as usual. 
+
+“Hello honey,” her voice was sweet and smooth like it, too. It had that Texan grandmother twang to it that most old ladies from the south had. “You seem a little shaken up. Everything alright?” 
+
+“Did you see anybody in my apartment?” My question furrowed her brows. 
+
+“Well I don’t think so. Hell I haven’t been wearing my glasses today but I’d be sure if I seen someone in your apartment. Then again I don’t got a very good look from any sorta angle on my balcony here. At least when the sun's out.” She gave a wink insinuating what I hoped she wasn’t. Don’t get me wrong, she's a sweet lady, but she’s almost 80. There’s no way I’m doing that. She’s tried to set me up with her granddaughter many times who resembles her younger self very closely. I think she forgets that I have a girlfriend, or she doesn’t care. I hope she just has a bad memory. Anyways, I just giggled nervously at her flirting and she continued to rant about her family and tell me stories about her past. I like to let her talk about that stuff, she always gets so happy. 
+
+“Alright Sandy, have a good rest of your day.” 
+
+“Oh I will, darlin’. I hope you find that intruder of yours.” She cackled until I shut the door. Since then I’ve gone to Best Buy and I bought a peephole camera, and an alarm with a motion sensor that will be installed next week. I can’t afford cameras inside yet. Next paycheck definitely. It’s impossible to have a squatter in my apartment, but I need to be sure that if something like this happens again, I know who did it. 
+
+JANUARY 12, 2026: 5:53PM
+
+In my latest session, we talked more about my relationship, because that’s the main reason I’m doing this whole thing anyways. We decided that Penny and I should take 10 minutes every couple of days to tell each other what we appreciate about each other, what we can work on, basically all the shit that obviously matters, but not many actually take the time to do. I’ll have her over tonight after dinner for our first appreciation ritual. Then, I told her about the door thing and all the paranoid security measures I put up. 
+
+“Well I don’t blame you for feeling that way at all.” Her voice reminded me of Sandy which relaxed me. That’s probably why she’s so easy to talk to. She also said that if I ever need to talk to anybody her phone number is open 24/7. Before I could talk more about the possible intruder, our time ran out and I went home. 
+
+7:30PM 
+
+They finally finished installing my alarm. I was nervous they wouldn’t come by before bed. I rounded the house 3 times before Penny came over, locking any doors and windows that hadn’t been already. I’ve been doing it for a couple of days now and I can’t sleep without doing so. Maybe I should tell my therapist next session. Then, I filled the dishwasher, and checked my camera just as I did in my cubicle at the office. Throughout the day I noticed the same hood pass by my door a couple of times, their face angled perfectly out of the shot of my lens. Have I seen that hood before? Maybe it was a neighbour. 
+
+11:00PM
+
+The appreciation ritual went smoothly. Looking into Penny’s eyes while saying that kind of stuff makes it feel so much more real. When you text, it can feel like a throwaway. When you get to say it to somebody, in real life, it feels like love. When life gets busy it’s so easy to base a whole relationship on throwaways. It ends up never being real. I want to do this every day if I’m being honest. I feel so much closer to her. I hope she feels the same. 
+
+We watched \*Ted Lasso\* while sharing a bottle of wine. Holding her in my arms felt so much warmer. She looked up at me with her hand on my chest and asked,   
+
+“When did you get that?” Pointing at the alarm. 
+
+“Oh the guys installing it left literally right before you got here. After I came home with the door left open, I don’t want to take any chances.” 
+
+“Oh. Yeah. Yeah, that makes sense,” She looked down, a sad look spread across her face. “But why didn’t you tell me?” 
+
+“I just didn’t think about it right away you know? This whole thing just has me kind of anxious. I hope you understand. I wasn’t trying to keep anything from you. Really, I wasn’t.” She looked back into my eyes, mine into hers. 
+
+“Okay. I believe you.” Believe me? Seriously? Why is she being like this right now? In the past she’s had a few toxic relationships but this is such a non-problem. Why is she acting so weird about this? “Is it just the code then? To unlock it, I mean.”   
+“Uh, yeah. Just a code.” She looked into my chest, like she was looking for what to say. Then she rested her head, and kissed my neck. 
+
+“Okay. I love you. I hope you feel like you don’t have to hide from me. You can tell me anything, anytime.”
+
+“I love you too. Don’t worry, I never feel like that. I feel safe with you.” Her lips touched mine softly. 
+
+\----------------------------------------------------
+
+ **\*\*THE DAILY CHRONICLE — LOCAL NEWS\*\***
+
+ **\*\*SEARCH CONTINUES FOR REMAINING ESCAPEES FOLLOWING PSYCHIATRIC FACILITY EXPLOSION\*\***
+
+**\*By Staff Reporter | Published January 13, 2026 — 4:15 AM\***
+
+ **\*\*BRIGHTON\*\*** — Local law enforcement and state authorities confirmed Saturday afternoon that three individuals remain at large nearly one week after an intentional explosion breached the perimeter of the Mapleview Psychiatric Facility.
+
+While seventeen of the twenty escaped patients were apprehended within the first forty-eight hours, officials state that active search grids have expanded into surrounding residential neighborhoods. Residents are urged to keep doors and ground-floor windows locked and to report any suspicious activity immediately.
+
+\----------------------------------------------------
+
+January 13, 2026: 6:30AM
+
+There’s seriously some fucked up shit going on right now. I woke up well rested and went about my business. Shit, shower, shave, then onto breakfast. After devouring my famous breakfast “slop” bowl I realized I forgot to empty the dishwasher last night. I reached for the handle and pulled it down. Looking where my hand was, my eyes widened and an involuntary gasp snuck its way out of my mouth. My dirty bowl crashed onto the floor, flying around the room in a million pieces. My feet started to walk themselves backwards. I scanned the room backing into a corner, making sure nobody was here.   
+
+“Hello?!” Seconds felt like hours while I waited for an answer. 
+
+“Hello, honey!” I looked to my right, Mrs. Henderson was on her porch waving, a bright smile etched on her face. I looked at her through the gap of the sliding door. I waved nervously so she didn’t think something was wrong. I should check just to make sure, I thought. 
+
+“I always leave my door open a crack too. Need some airflow in this sardine tin of a home. HA HA.” 
+
+“You’re so right. I’m off to work soon. Have a good day Sandy.” I need to know I’m not going crazy. I made my way through the living room, around my dining table, and back in front of the wide open dishwasher. It was definitely empty. I definitely didn’t empty it. I passed out way too early last night. Did I do the rest of my chores while I slept? Is that a thing? Sleep chore-ing? Who cares, all I care about is who did my dishes and why hadn’t the alarm gone off? I thrust myself towards the new installation and checked the menu. I fell asleep before I could set it. Great. Today I will not forget to set it. Today I will download the app for my alarm. Today I will go to work, and I will not worry, unless that alarm tells me to. 
+
+8:30PM
+
+I was released onto my lunch break when I heard a ping from my phone. The exact ping I didn’t want to hear. Not today. Not after this morning. The screen was in front of my face before I thought about grabbing it. SECURITY ALERT: Living Room Motion Sensor Triggered at 12:32PM. I rushed into my Honda Accord and peeled out of my work parking lot. I only lived 15 minutes away so I knew I’d be back to work in time. I didn’t even park my car properly, just threw the hazards on in front of my building and ran into the elevator. Why did I get on the elevator? I only live on the second floor, surely the stairs would have been faster. The movement of the cart stopped and the doors opened.   
+
+As I approached my door I heard the wailing of my alarm. At least now I know it works well. Mrs. Henderson poked her head out from her door while I fumbled with my keys. Her eyes were wide, she looked nervous. 
+
+“What in the Sam Hell is goin’ on Trevor? You weren’t joking about that intruder huh?” 
+
+“No, not at all. I’m not the type to make a joke like that.” Sandy, why the *fuck*, would I joke about somebody breaking into my home. It’s comments like those that’ll stop you from getting laid. I turned my key in the lock. Just before I heard a click the door swung open, throwing me out of the entrance. 
+
+“Oh lord help me!” Sandy shrieked, the back of her hand resting on her forehead. A figure flashed before my eyes, barreling down the hallway towards the stairs. 
+
+“Hey get back here!” I ran after them, leaving my door wide open. As I sprinted down the hall, I noticed something. That hood. I saw that hood on my camera last week. I knew I wasn’t crazy. I knew I was right. Whoever it was, they looked a lot smaller than I thought. I was going faster than I knew I could move. We practically entered the stairwell at the same time. I was going to catch this fucker. I reached out to pull down the hood. To reveal this mystery once and for all. No more worry. No more fear. I squeezed my hand into a fist, and grabbed nothing. Just before my hand closed, the person leaped over the stairway railing and landed on the bottom step, exploding onto the street. When I made it out the door myself, they were gone. My heart was beating out of my chest. I started to taste blood. My vision blurred. I haven’t jogged since high school, let alone a full sprint. 
+
+Before I knew it, drool hung from my lips as I looked into my breakfast. Well, what was left of it in my stomach. I looked out into the busy street, stomach gargling. The only thing I could think about was catching this fucker. 
+
+When I got back up to my apartment the door was now closed.  I’m sure Sandy must have closed it. I opened it up and saw her sitting on my couch, reading one of her thriller books. 
+
+“Who the hell was that?” She said as I entered the room.   
+“I’m not sure. You shouldn’t have waited in here. There could have been someone else, you know like a team of burglars or something.” 
+
+“Oh don’t you worry. A couple other neighbours came outside after that whole commotion, and they helped me make sure nobody else was in here. We had to tidy up a bit. That son a bitch made a real mess in here. Are you in some sort of trouble, Trevor? Because you know my son is real dangerous, he can help you out.” 
+
+“No, no I’m not in trouble. Some weird stuff has been happening to me lately, that’s all. I’m tired, I’d like to go to bed. Thank you, Sandy.” 
+
+“Well no problem baby. Let me know if you have trouble sleeping tonight though.” She turned her head and flashed a wink while walking out the door, her echoing cackle followed suit. The cops arrived shortly after. 
+
+“We were called by your alarm company.” I broke down the whole day from that point as they went on their way. I knew they probably couldn’t do anything with the information I gave them, but it made me feel a lot more relaxed about the whole thing. The cops knew, and I would be safe.  
+
+January 18, 2026: 4:15 PM 
+
+It’s been 5 days since the chase. Since I threw up everywhere. Since my security kept nothing secure. The cops still haven’t turned up shit. No surprise there. No prints turned up that weren’t mine, Sandy’s, or the two other neighbours that helped “tidy up.” A couple of guys from the Mapleview Psych Hospital came by the building on Thursday asking questions, handing out grainy mugshots, then left. I bet they didn’t even check the hallway cameras. 
+
+Honestly, part of me is starting to wonder if I’m losing my mind again. Nothing weird has happened this Tuesday. No empty dishwasher, no cracked door. No hooded figure passing by my door. I’ve been setting the alarm, every day, every night. I check the app at the grocery store, at work, even at Penny’s house. I feel like a complete psycho. The three-lock lap hasn’t changed either. Maybe whoever it was saw the cops and decided Brighton wasn’t worth the trouble.
+
+Penny came over tonight. She brought over my favourite donuts and a bottle of whiskey. She was so sweet, she barely mentioned the break-in. Only when she caught me staring at the front door, offering a shoulder rub in solidarity. I told her I’m finally starting to calm down about this whole mess. She smiled and said she was proud of me for not letting fear run my life. 
+
+“I’ll never leave you.” She said, kissing the back of my neck, making her way to the front of my face. I turned over and lifted her onto my pelvis. Our night ended gently and passionately. 
+
+January 22, 2026: 10:50PM
+
+Payday hit, so I finally picked up those cameras. Nothing crazy, one for the living room and one for the kitchen. Just enough so I don’t feel blind in my own home. They won’t get here until next week. It’s annoying but whatever. Things have been quiet for over a week now. 
+
+Penny and I had our appreciation talk tonight before she headed out, just under an hour ago. I told her that I appreciate how kind and patient she’s been through this whole thing. I’ve been going crazy and she’s been like an anchor. She got quiet for a moment, looked at me with those big, steady eyes, and told me she’s never going anywhere. No matter how messy things get. 
+
+I’m exhausted. Work has been brutal, my sleep schedule is absolutely wrecked, and I’m still sore from that little chase a week ago. I did my three laps, locked the deadbolt, set the alarm to \*Stay,\* and plugged my phone in on the nightstand. I’m going straight out tonight. 
+
+January 23, 2026: 3:18AM
+
+\*Flash.\*     
+White light cut through my eyelids. I tried to blink it out of my vision but all I could see was stars.   
+
+“What the fuck! Who’s there!” I was so shocked I couldn’t even stand up. I just flailed around like a fish out of water.  I felt a hand quickly brush my chin, then a soft voice from the opposite side. My heart pounded against my ribs. My breath, shallow. 
+
+“Relax Trevor. I just wanted a quick picture.” Then I heard a rustle near the foot of my bed. 
+
+“Listen whoever you are, I don’t know what you want. Just leave me alone!” The light was finally starting to leave my eyes. I looked at the alarm across from me. *Stay.* Just like when I went to bed. How the fuck did somebody get in without the alarm waking me up? I could finally make out a figure in the dark. They looked small, and baggy. Definitely wearing all black, appearing just a shadow in my vision. 
+
+“Why would I ever do that?” The voice was coming closer, its face becoming clear. My forearms shielded my face. I was too scared to discover who’s been terrorizing me all along. That had to be who this was, right?
+
+“You don’t have to hide from me, Trevor.” No fucking way. It all made sense now. The voice, the figure, the smell. Her rosy cheeks and cute smile were so clear all of a sudden.
+
+“I told you I would never leave you.” Penny.

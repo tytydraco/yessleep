@@ -1,0 +1,71 @@
+You know how people say, "I hope the dead stays dead"?
+
+I mean, it makes sense when you’re sitting alone in a dark room, or if you’re the kind of person who’s actually scared of ghosts.
+
+ But have you ever asked that question to someone who just lost a loved one? They’ll never answer, "I hope the dead stays dead."
+
+They’ll always wish for them back. They’ll always hope they come through that door, and it doesn’t matter what they have to do to make it happen. The grief hurts so bad that nothing else even registers. If you even catch a glimpse of a rope, I swear you’re going to grab onto it with both hands.
+
+That’s exactly what I did. My girlfriend of eleven years passed away in a freak accident a week ago. We were high school sweethearts—the one couple everyone thought would never break up. The one couple everyone swore would grow old side by side. That’s how much we loved each other.
+
+I used to pray every single day that we’d get our whole lives together. I would have done anything to make sure that’s how our story ended.
+
+So when I got the call from her mother saying she’d been rushed to the emergency room after an accident just down the road from our place, my heart stopped.
+
+ I thought I was going to pass out right there. The entire drive over, I was just praying to God that she’d be okay.
+
+But the second I walked through those hospital doors and saw the look on everyone’s faces, I already knew.
+
+ My stomach dropped straight through the floor. I couldn’t even move—it felt like my entire body had gone completely numb, like I was watching my whole life collapse in slow motion.
+
+We held her funeral the very next day. The accident was so horrible that a closed casket was the only option. I didn't even get to say one last goodbye to the love of my life.
+
+Every day since then, that’s been the only thought looping in my head—hoping she’d somehow come back, wishing I could get just one more day with her, praying things hadn't happened the way they did. 
+
+Friends kept telling me it would get easier with time, that I needed to accept she was gone and start moving on.
+
+They didn't understand. You don't just move on from eleven years. You don't stop waiting for the front door to unlock at six o'clock. You don't stop listening for footsteps in the hallway.
+
+And you definitely don't turn them away when those footsteps finally come up the porch stairs at three in the morning.
+
+Trust me, I was the happiest guy in the world when she came back three days ago. It was like she’d never left. There wasn't a scratch on her—she looked completely healthy, and her face lit up the second she saw me. I wrapped my arms around her as tight as I could, telling her over and over that I’d never let her go. She just kept smiling. She didn't speak. She didn't say a single word, just stood there smiling at me.
+
+I know it sounds crazy. I know it sounds unreal, and I know anyone else would tell me I should be terrified out of my mind. But you don't understand. She was my entire world. I would take anything over having to lose her again.
+
+That first day back, everything felt completely normal—just the way things had always been. I came downstairs in the morning to find her already in the kitchen cooking breakfast. She looked so happy, wearing that same warm smile. I kissed her forehead and promised her again that I’d never let her go, that she would always stay right by my side.
+
+I went to work, and when I came home that evening, she was there. She was still here. I wasn't losing my mind. This was real—she had actually come back to me.
+
+But things started to change on the second day.
+
+I came downstairs, and she was already at the stove cooking again. She had never been an early bird—it was always me waking up first to make breakfast so we could eat together. Yet here she was for the second morning in a row, standing over the counter with that exact same smile on her face.
+
+Except when I got closer, my stomach turned. One of her arms was twisted completely backward, and dark blood was seeping between her teeth, running down her chin.
+
+I panicked. I rushed over to her, grabbing her by the shoulders, asking what happened—and she didn't say a word. She just kept staring at me with that same unblinking grin.
+
+I didn't go to work that day. I stayed home to watch her, and that’s when I started noticing the pattern. She didn't move from the kitchen for hours. If I walked into the living room, she’d follow me in and sit down, staring straight ahead. Every time I tried to get close with a first-aid kit or a towel to clean her up, she’d step back, refusing to let me touch her wounds. I couldn't take her to the hospital. I couldn't even take her outside—what was I supposed to tell people? That my dead girlfriend walked out of a closed casket?
+
+I spent the whole day begging her to talk to me, trying to get her to sit down and tell me what was wrong, but she never made a sound, and that expression never left her face.
+
+ That night, I tried to get her to come upstairs to bed with me, but she wouldn't budge. The second I gave up and headed up the stairs, she walked straight back into the kitchen. I don't know what was going through my head—maybe I was still in denial—but I somehow convinced myself that if I just went to sleep, everything would be fine by morning.
+
+Then came today.
+
+I walked down the stairs, praying things would look normal again. She was already in the kitchen. Only this time, she wasn't cooking. She wasn't even standing. She was lying on the tile floor in a widening pool of dark blood.
+
+One of her legs was twisted all the way backward at the hip, jagged white bone tearing straight through the skin of her thigh, while the other hung barely attached. Her ribcage looked caved in, rising and falling in shallow, wet clicks, and the side of her face was bruised black and scraped raw.
+
+And she was still smiling. Still looking up at me with that same frozen smile, almost like she couldn't feel any of it.
+
+I didn't know what to do. I just stood there staring at her and broke down crying. What could I do? How was I supposed to save her? Was this something I had done? Did I wish for something so unnatural that whatever heard my prayers brought her back just to torture me like a sick fucking joke—forcing me to watch the accident undo her piece by piece?
+
+My knees gave out, and I instinctively took a step back—and her good hand shot out, clamping tightly around my ankle.
+
+That horrific smile still hadn't left her face, not even for a second. Yet out of both of her eyes, warm tears were spilling down her blood-streaked cheeks.
+
+I know she’s suffering. I know she’s begging me to let it stop. And I know that makes me a selfish, pathetic piece of shit for what I’m about to say—but I don’t care. Even mangled, bleeding, and broken on my kitchen floor, having her here hurts less than losing her. I’m never letting her go.
+
+I’m writing this because I need someone to know the truth about what I’ve done, even if I’ll never have the strength to undo it. So if you ever lose someone you love, and you’re sitting alone in the dark praying for a miracle—please, listen to me. Do not wish for them back. Because if they actually answer, you won't be strong enough to let them go either.
+
+I really hope the dead stays dead.

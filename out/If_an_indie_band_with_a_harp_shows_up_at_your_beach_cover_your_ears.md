@@ -1,0 +1,105 @@
+I own a trailer home and a van. I've also inherited enough money that I don't have to work for a few years. This doesn't make me a millionaire, but I might as well be to my circle of artsy friends. I've helped make at least a dozen shitty arthouse movies and get at least six different garage bands from one cheap venue to the next. I guess this makes me a great patron of the arts, a modern Medici. But if there's a god or patron saint of the arts, Apollo or Saint Catherine, they're not very merciful. I'll drown with the rest of them.
+
+The waves are so loud.
+
+As I write this, at least eight people are in my home, hundreds of miles away. I don't even know half of their names. Friends of friends of friends, one a performance artist, one a sculptor, the others I couldn't tell you. When I get home, I'll have to restock the beer in my fridge.
+
+Home. Waves crash in my ears. I roll my head back, my fingers shaking as I hold my dying phone. The police will be here soon enough, but if I fight hard enough, I might be able to wiggle out of the chain attaching me to the van's hitch.
+
+Home. My head is pounding at the thought. Part of me wants to say my home is a trailer surrounded by red rocks and overturned plastic flamingos, but that part of me is shrinking. Home is deep and salty and warm, lapping over me, pulling me under. Home is inky and black, pouring into my nostrils, filling my lungs, and dropping me to the seafloor. Sirens wail in the distance, the smell of blood thickening in the air.
+
+This all started with my buddy Spade. Spade's a sound mixer. He's poured all his money into his garage, buying the best audio gear and lining his walls with little black squares of ridged foam. I can't tell you how much debt Spade's in, despite all the "loans" I've given him. He's recorded hundreds of songs for little bands, sometimes for money, but just as often for pizza or I.O.U.s. I'd give Spade my kidney if he asked; that's what friendships forged in middle school are like. Thankfully, he hasn't asked.
+
+I wonder if he's gone home yet. I wonder what it's like, what it feels like when it finally pulls you down.
+
+About a week ago, he rolled up to my house, cracked open one of my beers, and shook me around the shoulders. "I'm a genius! I'm going to be rich! I've finally found them!"
+
+This could mean anything. For an audio guy, Spade has recorded some truly awful bands. My favorite of these was one with a triangle as its only instrument. The band had made up a whole new language—the lead singer was a linguistics professor. They sang each song in this new language, with occasional triangle taps in the background. I would've poured glue in my ears before purchasing one of their albums, but Spade was sure he'd found his ticket out. It was not.
+
+I finished my beer before I chose to respond. Beer, I've come to realize, has always been a key part of my decision-making process. "What's the deal with this band?"
+
+His eyes turned glossy. He reached for a beer before I finished closing the fridge. "They're beautiful."
+
+"And?"
+
+"I've never heard anything like it."
+
+"Jesus, Spade. That can't be it."
+
+"I already promised them you'd take them to their next show."
+
+I leaned my head against the fridge. My beer was already drained. "How far?"
+
+"Eight hours. Little beach up in New England."
+
+"Oh, *Jesus.* Can they at least toss me some gas money?"
+
+Spade laughed. "After they play, we're going to be rich, man, *rich*. What the hell do you care about gas money for?"
+
+I took a long, hard look at Spade's crooked nose and stringy blonde hair. He was wearing headphones, new ones, bright yellow. I considered punching him, knocking them off his head. Instead, I leaned against the fridge and dialed for a pizza. It was going to be a long few days.
+
+\*\*\*
+
+I met the band the next day in Spade's garage, about ten hours before their show. Cutting it close, but I'd done worse. The band was called 'The Whirlpoolers,' and Spade told me they were "way into water." I like the ocean just as much as the next guy, but it's a gimmicky theme for a band. It brought to mind 'Mermaid Life' bumper stickers and ancient Facebook memes that said 'I need Vitamin Sea.' You know, bathrooms with jars of shells and a plate of starfish-shaped soaps. That sort of thing. But then I met them, and Spade was right. They *were* beautiful.
+
+The band was made up of two women, tall and slender, with black hair that fell loose to their hips. They were both tan, both dark-eyed, and both wore floor-length white dresses that churned up dust when they walked. One woman sat in a folding chair, a giant harp leaning against her shoulder. It was massive, taller than I was, lacquer black and clearly freshly polished. It, too, was entirely out of place in Spade's garage.
+
+I didn't like looking at the women for too long. My cheeks burned, and I shifted awkwardly from foot to foot. Spade cleared his throat, and I could tell that he, too, was blushing. "Thea and Cass, meet my buddy Robbie. He's good people. You'll like each other."
+
+I wondered how they got that harp into the garage but still needed *me* to drive them to their show. The one without the harp rose and handed me a pair of headphones. The muffs were cheap yellow plastic, with spongy foam inside. Not headphones. *Earmuffs.*
+
+I looked back up at Spade and his new yellow headphones. He nudged me, his eyes huge. "That's part of the show, man. No one's listened to them without hearing protection. Not even me."
+
+He lifted one of the muffs, and I saw an orange earplug sticking out of his ear. Granted, Spade was always loud because he's nearly deaf from years of mosh pits and head-banging against the rail with *no hearing protection*. I'm used to him almost always yelling. So I gratefully slipped on the earmuffs. I liked this gimmick a lot more than the triangle/new language thing.
+
+One of the women smiled at me. Her teeth looked a little too sharp, her dark eyes glittering in the single bulb of Spade's garage. The one with the harp hefted her instrument over her shoulder. I actually stepped back at this. That thing must've easily been over a hundred pounds, but more impressively, it was taller than her. She lifted it like it was hollow.
+
+I'd learn later that they didn't say much. "We don't have much time to waste," one of them said, barely audible through my earmuffs. My skin prickled from her voice. In my mind's eye, I saw a ship being overturned, sailors thrown into the inky water below. I blinked a few times, and the image was gone. Just two smiling women with white teeth that looked a little too sharp.
+
+\*\*\*
+
+As far as eight-hour drives go, this one was pretty good, probably as good as they come. The Whirlpoolers didn't talk much, didn't ask to use the bathroom once, and listened to all my cassettes with rapt attention. Black Sabbath, Metallica, Iron Maiden. I played Iron Maiden's magnum opus (I will probably die, but I will gladly spend my last few minutes arguing about this), Rime of the Ancient Mariner, and watched their faces light up. It reminded me of how I felt when I discovered classic metal. My dad only listened to gospel songs, and my mom would occasionally play Maroon 5 on days she felt particularly rebellious. Spade's CDs were a lifeline in middle school; they saved me from the pop 100s and Kidz Bop. I'd been around musicians for so long I forgot what that felt like, but I saw it in their faces. I liked the Whirlpoolers instantly.
+
+And then we got to the venue.
+
+It was a little oceanfront bar, and I instantly felt sorry for the band. Tomorrow was Thanksgiving. My phone said it was forty-five degrees. Inside, it was kitschy, with plastic jellyfish hanging from the ceiling and paintings studded with seashells; maybe ten people milled around the bar. Thea or Cass, the one with the harp, carried her instrument to the tiny soundstage. The other one brushed against me, her red nails drawing along my neck. My eyes ached from driving, and I was in desperate need of a good drink and a good piss.
+
+"Don't take the muffs off."
+
+There it was again. The image of the sailors hurling themselves off the bows of their ship. I could almost taste the salt water. *Water, water, everywhere and not a drop to drink.* My head throbbed as I watched the Whirlpoolers assemble on the stage. Most of the patrons, almost all of them older than me, gathered around the bar and didn't even look at the band. I almost couldn't watch. I picked a spot on the back wall, tucked away from the rest of the patrons. I stared down at my phone. I liked the women too much to see the inevitable disappointment on their faces.
+
+Then came the first strum of the harp, a soft, delicate note from one of the women.
+
+Every head snapped toward the stage. A beer toppled over and cascaded down the bar, but the bartender didn't move. He was staring at the Whirlpoolers.
+
+I shook my head. This was impossible. It had the energy of, 'and then everyone clapped.' They were good, sure, but *that good?* And then one of the women began to sing, actual lyrics, and I forgot my need for a piss and a drink. My knees turned to jelly, and I slid down against the wall I'd been leaning against.
+
+People began to get up. Bearded men in checkered shirts. Women in orange sweaters with dangly turkey earrings. The singular twenty-something with dyed black hair propped open the emergency exit as the alarm blared. E-err. E-err. I watched the people at the bar file out single-file. One of the Whirlpoolers grabbed the mic, and the other strummed her harp. I stared until the bar was entirely empty.
+
+The woman with the mic walked down from the stage. The plug dragged along the stairs. "Do you want to see?" she asked.
+
+I thought about the sailors again, the smell of salt, and I hobbled up to my feet. Her hand slid along the small of my back, leading me out the emergency exit. Wind hit me as soon as we stepped onto the muddy sand of the beach; the air was frigid, the salt biting my skin. I watched the line of backs, the feet padding in the sand. I watched the first bearded man put his hands together and swan-dive into the water.
+
+There was a gurgle. His legs were jerked under the water as if his body was yanked down by a giant fist. And then, silence. A burst of red in the waves, and bubbles rose to the surface. Another bearded man cuffed his pants, rolled up the sleeves of his plaid shirt, and dived into the shallow waves. I could see his brown hair playing on the water, and then his head being dragged under. A moment of stillness. And then a bright, violent bloom of red, like a rose's petals unfurling.
+
+Red waves churned up the sand, red mist catching on my cheekbones. An arm bobbed up to the surface, the fingers twitching. I snapped to my senses and reached for my phone, but sharp, coffin-shaped nails bit into my wrist. Before I could pull free, one of the Whirlpoolers slid my earmuff away. Her lips brushed the shell of my ear.
+
+"It's time to go home."
+
+Home.
+
+Home is ink-black water. Home is squirming tentacles and silvery fish darting all around. Home is teeth clamped around my arms, yanking me down, down, down.
+
+There came a flash of something, a survival instinct, as I watched a woman with a starfish-shaped purse hurl herself into the waves. My van, with its hitch, was parked up the hill.
+
+I wanted to go home. But home, I understood suddenly, was like heaven. To go home was to die.
+
+My head became hazy. I thought of getting behind the wheel of my van and driving straight into the ocean. Where I belonged. And then I thought of the hitch and the chain in the back, and I knew what I had to do.
+
+Her fingers brushed my arm. I shoved her away and ran, but every step felt wrong. I pushed the thoughts of the ocean away by repeating what I had to do. Get the chain around my waist. Sit down in the sand. Padlock it.
+
+This is where I am now, chained to my van, watching the last of the people from the bar jump in the water. I don't know if the chain will hold. I don't know if I'll make it out of this. And if I do, I don't know what they'll say about me.
+
+I want to go home.
+
+I know you want to go home, too.

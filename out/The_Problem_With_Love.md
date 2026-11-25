@@ -1,0 +1,487 @@
+&#x200B;
+
+Daniel had never understood enthusiasm.
+
+He understood happiness, technically. He knew when people were happy because they smiled, laughed, raised their voices, and did ridiculous things with their hands. He understood excitement because people tended to talk faster when they experienced it.
+
+But he had never understood why.
+
+Why would a grown man spend thousands of dollars travelling across the world to see a crocodile? Why would someone wake up at four in the morning to climb a mountain? Why would a woman cry because she had finally seen snow?
+
+People were strange creatures.
+
+They attached themselves to things. They worshipped them. They gave ordinary objects and experiences extraordinary importance.
+
+And Daniel found it unbearable.
+
+It wasn't jealousy. He didn't want what they had. He simply couldn't stand watching someone feel so much about something so insignificant.
+
+He had discovered, quite accidentally, that there was a way to make it stop.
+
+**1. THE CROCODILE MAN**
+
+His friend Michael had loved crocodiles.
+
+Not in the ordinary sense. Michael didn't simply find them interesting. He collected crocodile figurines, watched documentaries about them, read books about them, and could talk for hours about their evolutionary history.
+
+His apartment was practically a shrine.
+
+There were crocodile photographs on the walls. A crocodile-shaped clock in the kitchen. A collection of books beside his bed.
+
+He even had a tattoo of a crocodile running down his forearm.
+
+Whenever Daniel visited, Michael would find something new to show him.
+
+"Look at this," Michael said one evening, practically bouncing in his chair. "This is insane. They haven't changed much in millions of years. Millions, Daniel! They've survived everything."
+
+Daniel looked at the photograph.
+
+A crocodile lay half-submerged in muddy water, its eyes barely visible above the surface.
+
+"Fascinating," Daniel said.
+
+Michael didn't notice the flatness in his voice.
+
+"One day, I'm going to get close to a wild one. Not behind glass. Properly close. I want to see one in its natural habitat."
+
+Daniel nodded.
+
+He was already thinking about something else.
+
+Three weeks later, Daniel took Michael on a surprise trip.
+
+He told him they were going somewhere special. Michael spent the entire drive guessing where they were going, getting more excited with every passing mile.
+
+When they arrived, Michael looked around in disbelief.
+
+A private crocodile reserve.
+
+He practically ran towards the viewing area.
+
+"Oh, my God."
+
+Daniel watched him.
+
+Michael was smiling in a way Daniel had never seen before. His eyes were wide. His face had become animated. He looked almost childlike.
+
+"Daniel! Look at that one!"
+
+There was a large crocodile lying near the water's edge.
+
+Michael turned towards his friend.
+
+"This is incredible. I can't believe you brought me here."
+
+Daniel smiled.
+
+It was a small, polite smile.
+
+"You're welcome."
+
+What happened next was not an accident.
+
+Daniel had arranged for Michael to get much closer to the animal than visitors were normally permitted. He had also made certain that nobody would be nearby when it happened.
+
+Michael didn't understand what was happening until he was already in the water.
+
+He screamed Daniel's name.
+
+Once.
+
+Then again.
+
+Daniel stood behind the barrier, watching.
+
+Michael's arms thrashed wildly. The water turned violently. The crocodile disappeared beneath the surface with him.
+
+Daniel didn't look away.
+
+He didn't cover his mouth. He didn't panic. He didn't even step backwards.
+
+He watched the water settle.
+
+For a moment, there was nothing.
+
+Then a small bubble surfaced.
+
+Daniel checked his watch.
+
+He had dinner reservations at eight.
+
+On the drive home, he stopped at a petrol station and bought a sandwich.
+
+Michael's apartment was cleared out a few weeks later.
+
+Daniel kept the crocodile tattoo photograph.
+
+Not because it meant anything to him.
+
+He simply liked having a reminder of how happy Michael had been.
+
+**2. THE GIRL WHO LOVED SNOW**
+
+Her name was Emily.
+
+She was obsessed with winter.
+
+She loved snow, ice skating, frozen lakes, snow-covered forests, and the particular silence that came after a heavy snowfall.
+
+She had grown up in a warm climate and had spent most of her childhood dreaming about winter.
+
+Her social media was filled with pictures of snowflakes, frozen waterfalls, and skating rinks.
+
+She once told Daniel that she thought the most beautiful thing in the world was waking up to find everything covered in white.
+
+"Imagine," she said, smiling, "opening your curtains and seeing nothing but snow. No cars. No noise. Just white everywhere."
+
+Daniel remembered that conversation.
+
+A few months later, he arranged a trip to Alaska.
+
+Emily was ecstatic.
+
+She talked about the trip for weeks. She bought a new pair of skates and kept checking the weather forecast.
+
+On the final day, Daniel took her away from the resort.
+
+He said he knew a beautiful place she would love.
+
+The road eventually ended.
+
+Beyond it was a vast, frozen landscape.
+
+Emily stepped out of the vehicle.
+
+"Oh, Daniel."
+
+She turned slowly, taking it all in.
+
+"This is exactly what I imagined."
+
+Daniel stood beside the car.
+
+She walked a little farther, laughing as the snow crunched beneath her boots.
+
+She spread her arms.
+
+"I wish I could stay here forever."
+
+Daniel looked at her.
+
+"Forever?"
+
+She laughed.
+
+"Yes. Forever."
+
+He smiled.
+
+Then he left her there.
+
+By the time Emily understood that something was wrong, the vehicle was already disappearing into the distance.
+
+She called his name.
+
+Daniel didn't turn around.
+
+He drove for a long time before switching on the radio.
+
+**3. THE MAN WHO LOVED THE WILD**
+
+His name was Peter.
+
+Peter loved hiking.
+
+He loved forests, rivers, mountains, and the feeling of being completely disconnected from civilization.
+
+He had once spent three weeks trekking through the Himalayas and described it as the most meaningful experience of his life.
+
+Daniel found that particularly irritating.
+
+"The most meaningful experience of your life?" he had asked.
+
+Peter nodded enthusiastically.
+
+"Absolutely. You feel so small out there. You realize how insignificant everything else is."
+
+Daniel looked at him.
+
+"Do you?"
+
+Peter laughed.
+
+"Yeah. It's incredible."
+
+Daniel invited him on a trip to South America.
+
+Peter was thrilled.
+
+The Amazon rainforest was on his bucket list.
+
+He talked about it constantly during the weeks leading up to the trip. He bought new equipment, studied maps, and watched videos about the wildlife.
+
+Daniel listened.
+
+He was very good at listening.
+
+Peter never returned from the Amazon.
+
+The authorities were told that he had become separated from the group during an excursion.
+
+His disappearance was eventually classified as an accident.
+
+Daniel attended the memorial.
+
+When Peter's sister began crying, Daniel placed a hand on her shoulder.
+
+"He died doing what he loved," he said.
+
+He thought that was a rather beautiful thing to say.
+
+**4. HER**
+
+Daniel met Claire at a dinner party.
+
+She was sitting alone at the end of the table, quietly eating her dessert.
+
+Everyone else was laughing.
+
+Someone was telling a story about a disastrous holiday. Another person was arguing passionately about politics. A woman was showing everyone photographs of her new puppy.
+
+Claire barely reacted to any of it.
+
+She didn't laugh particularly loudly. She didn't interrupt. She didn't seem especially interested in anything.
+
+When someone asked whether she liked travelling, she simply shrugged.
+
+"It's fine."
+
+"Fine? You've been to Italy, haven't you?"
+
+"Yes."
+
+"Didn't you love it?"
+
+"It was nice."
+
+The woman stared at her.
+
+"Just nice?"
+
+Claire smiled politely.
+
+"Yes."
+
+Daniel watched her throughout dinner.
+
+For the first time in his life, he felt comfortable around someone.
+
+There was no excessive laughter. No passionate speeches. No declarations about how something had changed their life.
+
+Claire didn't seem to need anything to be extraordinary.
+
+When he spoke, she listened.
+
+When he made a joke, she smiled.
+
+When everyone else became animated, she remained perfectly composed.
+
+He found himself wanting to see her again.
+
+And then again.
+
+And then every day.
+
+He began looking forward to her messages. He started remembering small things she said. He found himself enjoying her company and liking the absolute poker face an calmness about her so refreshing. 
+
+It was an unfamiliar feeling.
+
+But unlike the things he saw in other people, this didn't irritate him.
+
+He liked it.
+
+And, eventually, he told her so.
+
+Claire looked at him for a long moment.
+
+Then she smiled.
+
+"I like you too, Daniel."
+
+He believed her.
+
+**5. THE HONEYMOON**
+
+They got married in October. 
+
+It was a small wedding. Claire didn't want anything extravagant, and Daniel agreed.
+
+For honeymoon, she said she wanted to go to Virginia.  She said she had never been Roanoke and had heard it was nice there. 
+
+They spent their honeymoon travelling through the countryside, staying in quiet hotels and driving along beautiful country roads.
+
+It was everything Daniel wanted.
+
+No drama.
+
+No unnecessary excitement.
+
+No exhausting declarations about how wonderful life was.
+
+Just the two of them.
+
+On their final night, they were driving along a narrow country road. Fields stretched on either side, and the late afternoon sun cast long shadows across the landscape.
+
+Claire was looking out of the window.
+
+Daniel glanced at her.
+
+"Happy?"
+
+She turned.
+
+"Very."
+
+He smiled.
+
+"You're not particularly expressive, are you?"
+
+She laughed softly.
+
+"Is that a complaint?"
+
+"No."
+
+He returned his eyes to the road.
+
+"It's the I love the most about you."
+
+Claire looked at him.
+
+"What do you mean?"
+
+"You're different. You don't get carried away by things. You don't need everything to be wonderful. You're just... you."
+
+She watched him for a moment.
+
+Then she smiled.
+
+"I used to be like that."
+
+Daniel glanced at her.
+
+"Like what?"
+
+"Like you described. Nothing really excited me. Nothing meant that much to me."
+
+He nodded.
+
+"And now?"
+
+She looked at him.
+
+"Now it's different."
+
+"How?"
+
+Claire reached over and placed her hand on his.
+
+"Now I have something I love more than anything. Trust more than anything."
+
+Daniel smiled.
+
+"What's that?"
+
+She squeezed his hand.
+
+"You."
+
+He looked at her.
+
+She was still smiling.
+
+"I know it sounds ridiculous," she continued. "But I think about you all the time. I miss you when you're in another room. When you leave for work, I wait for you to come home. Sometimes I just sit and look at you when you're sleeping."
+
+Daniel said nothing.
+
+"I've never felt this way about anything before," she said. "I don't think I could live without you."
+
+The car continued along the empty road.
+
+Claire laughed at herself.
+
+"God, listen to me. I'm becoming one of those people."
+
+Daniel's fingers tightened slightly around the steering wheel.
+
+She didn't notice.
+
+"I suppose you've changed me," she said. "I used to think people exaggerated when they said they loved someone this much."
+
+She leaned over and kissed his cheek.
+
+"Now I understand."
+
+Daniel smiled.
+
+For several seconds, neither spoke.
+
+Then Claire looked ahead.
+
+"Where are we going?"
+
+Daniel had taken a turn onto a narrower road.
+
+"Oh, just somewhere."
+
+"Where?"
+
+"A little surprise."
+
+Her face brightened.
+
+"A surprise?"
+
+He nodded.
+
+She laughed.
+
+"Daniel, you know I don't like surprises."
+
+"Don't you?"
+
+"Well, I do when they're from you."
+
+He glanced at her.
+
+There was something almost tender in the way she said it.
+
+The road became rougher. The asphalt gave way to gravel, then to a narrow muddy track bordered by tall trees.
+
+Claire looked around.
+
+"Where exactly are we?"
+
+"Almost there."
+
+She settled back into her seat.
+
+Her eyes were bright. Her cheeks were slightly flushed from the warmth of the car. She was smiling at him with the kind of affection that made her look so serene. 
+
+Daniel turned off the radio.
+
+The silence felt pleasant.
+
+He could hear the tires moving over the wet ground. A bird called somewhere in the trees.
+
+Claire reached for his hand again.
+
+"Daniel?"
+
+"Yes?"
+
+"I really do love you to death."
+
+He looked at her and smiled.
+
+"I know."
