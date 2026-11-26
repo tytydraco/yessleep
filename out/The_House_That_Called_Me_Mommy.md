@@ -1,0 +1,390 @@
+The first time I heard my daughter calling me from outside the house, she was asleep upstairs.  
+It was 11:43 p.m.  
+I remember because I had just checked the time on my phone.  
+My husband was working overnight, and all four of my children were supposed to be asleep. I was downstairs folding laundry when my phone started ringing.  
+The caller ID showed my seven-year-old daughter’s name.  
+I frowned.  
+Her phone was usually charging on her nightstand.  
+I answered.  
+“Baby, why are you calling me? You’re supposed to be asleep.”  
+For a few seconds, there was nothing but static.  
+Then I heard her crying.  
+“Mommy?”  
+I smiled.  
+“What’s wrong, sweetheart?”  
+Her next words made me stop folding.  
+“Mommy, don’t open the front door.”  
+I looked toward the hallway.  
+“What? Why?”  
+Her voice dropped to a whisper.  
+“Because something is pretending to be me.”  
+I sat up straight.  
+“Baby, where are you?”  
+“In my bedroom. I’m hiding in my closet.”  
+My stomach tightened.  
+“Why are you hiding?”  
+She began crying harder.  
+“Because I heard you downstairs. I thought you were getting a drink, but then I heard you talking to someone.”  
+I glanced toward the kitchen.  
+There was nobody there.  
+Then she whispered:  
+“Mommy, I looked through my bedroom door.”  
+A pause.  
+“And I saw you standing in the hallway.”  
+I swallowed.  
+“Sweetheart, I’m downstairs.”  
+“I know.”  
+Her voice cracked.  
+“That’s why I’m scared.”  
+Suddenly, I heard footsteps coming from the hallway.  
+Slow.  
+Heavy.  
+One step at a time.  
+I turned toward the sound.  
+At the end of the hallway stood a little girl wearing my daughter’s pink pajamas.  
+Her hair covered most of her face.  
+I couldn’t move.  
+My phone was still against my ear.  
+Then my daughter whispered:  
+“Mommy?”  
+“Yes, baby?”  
+“Is it standing behind you?”  
+I slowly looked back at the figure.  
+It lifted its head.  
+And smiled.  
+Then, in my daughter’s exact voice, it said:  
+“Mommy, why are you talking on the phone? I’m right here.”  
+My real daughter started screaming through the phone.  
+“RUN, MOMMY! THAT’S NOT ME!”  
+And the thing in the hallway began walking toward me.  
+I ran.  
+I grabbed my keys and rushed toward the front door. My hands were shaking so badly I could barely unlock it.  
+Behind me, I heard little footsteps.  
+“Mommy?”  
+I didn’t turn around.  
+“Mommy, why are you leaving me?”  
+I finally got the door open and stumbled outside.  
+I was standing on the porch when my daughter spoke again.  
+“Mommy, where are you?”  
+“I’m outside, baby. I’m coming to get you.”  
+Silence.  
+Then she whispered:  
+“How did you get outside?”  
+I froze.  
+“What do you mean?”  
+“Mommy…”  
+Her voice began trembling.  
+“You’re still standing in the kitchen.”  
+I slowly looked through the living room window.  
+There I was.  
+Standing in my kitchen.  
+Wearing the exact clothes I had on.  
+Holding my phone.  
+Smiling directly at me.  
+Then my phone buzzed.  
+A text message.  
+From my husband’s number.  
+DON’T GO BACK INSIDE. I’M TRYING TO GET HOME.  
+I immediately called him.  
+He answered on the first ring.  
+“Baby, listen to me carefully. Don’t go inside.”  
+I started crying.  
+“Where are you?”  
+“I’m at work. But something just happened.”  
+“What?”  
+He was quiet for a moment.  
+“I just got a call from our home phone.”  
+I looked toward the house.  
+“What did they say?”  
+He swallowed.  
+“It sounded exactly like you. You said you were home with the kids and needed me to come inside.”  
+I shook my head.  
+“I never called you.”  
+“I know.”  
+Then he said something that made my blood run cold.  
+“The person on the phone said all four kids were asleep.”  
+I stared at the window.  
+My daughter was still crying on the phone.  
+Then my husband whispered:  
+“Baby, I could hear five children laughing in the background.”
+
+I called 911.  
+I told the dispatcher someone was inside my house pretending to be me.  
+She asked me to stay outside until officers arrived.  
+I stood in the yard, watching the windows.  
+Every few seconds, the thing wearing my face appeared somewhere different.  
+First in the kitchen.  
+Then at the bottom of the stairs.  
+Then standing in the living room.  
+It never stopped smiling.  
+Finally, two police officers arrived.  
+They asked me to explain what was happening.  
+I showed them the call from my daughter’s phone.  
+They looked at each other.  
+Then one of them asked me a question.  
+“Ma’am, how many children do you have?”  
+“Four.”  
+He nodded and told me to stay outside while they searched the house.  
+A few minutes later, one officer came back.  
+“We found your children. They’re all upstairs, asleep in their beds.”  
+I almost collapsed with relief.  
+“Did you find anyone else?”  
+“No.”  
+I started crying.  
+“There’s someone in there. I saw it. It looks exactly like me.”  
+The officer didn’t say anything.  
+Instead, he held out a photograph.  
+It was an old family picture.  
+My husband and me.  
+Our four children.  
+And a little girl standing between the two youngest.  
+She looked about six years old.  
+She had my eyes.  
+My husband’s smile.  
+And the same pink pajamas as the thing I’d seen in the hallway.  
+I stared at the picture.  
+“Who is that?”  
+The officer frowned.  
+“That’s what I was hoping you could tell me.”  
+I shook my head.  
+“We’ve never had five children.”  
+He flipped the photograph over.  
+There was writing on the back.  
+In my handwriting.  
+OUR FAMILY. CHRISTMAS 2019.  
+Underneath it was another sentence.  
+PLEASE STOP FORGETTING HER.  
+I dropped the picture.  
+Something strange happened.  
+For just a second, I remembered a little girl sitting on my lap.  
+A little girl with curly brown hair.  
+A little girl who called me Mommy.  
+Then the memory disappeared.  
+My phone buzzed.  
+A new voicemail.  
+No caller ID.  
+I pressed play.  
+A little girl began singing.  
+It was the same lullaby I used to sing to my children when they were babies.  
+Then she stopped.  
+And whispered:  
+“Mommy, you promised you wouldn’t forget me again.”  
+I started shaking.  
+The officer asked if I was okay.  
+I couldn’t answer.  
+Because the voice on the voicemail wasn’t coming from my phone anymore.  
+It was coming from upstairs.  
+From my children’s bedroom.  
+Suddenly, all four of my children began screaming.  
+The officers rushed inside.  
+I followed them.  
+When we reached the bedroom, all four kids were huddled together in the corner.  
+Staring at the closet.  
+My oldest pointed toward it.  
+“Mom, there’s a little girl in there.”  
+The closet door slowly opened.  
+A little girl stepped out.  
+She looked exactly like the one in the photograph.  
+She smiled at me.  
+Then she said:  
+“Mommy, you found me.”  
+I fell to my knees.  
+Because suddenly, I remembered.  
+Her name was Lily.  
+She had been my daughter.  
+My fifth child.  
+And she had died before her seventh birthday.  
+I remembered the hospital.  
+The tiny hand I held.  
+The funeral.  
+The years of trying to forget the pain.  
+But there was something else I remembered, too.  
+The night she died, I had heard her calling for me.  
+And I hadn’t answered.  
+I had been too exhausted.  
+Too overwhelmed.  
+Too late.  
+I had spent years telling myself that I couldn’t have done anything differently.  
+But now she was standing in front of me.  
+Alive.  
+Smiling.  
+Holding out her hand.  
+“Mommy, can we go home now?”  
+I looked at my children.  
+Then at the officers.  
+Something wasn’t right.  
+The officers were no longer standing behind me.  
+My husband wasn’t there.  
+The bedroom had changed.  
+There were five little beds.  
+Five nightlights.  
+Five pairs of shoes lined up against the wall.  
+And five children’s voices whispering:  
+“Mommy’s finally home.”
+
+I reached for Lily’s hand.  
+The moment I touched it, the entire room went dark.  
+I heard my husband’s voice.  
+“Wake up, baby.”  
+Then I heard it again.  
+“Please wake up.”  
+My eyes opened.  
+I was lying in my bed.  
+My husband was beside me, shaking my shoulder.  
+I sat up, gasping for air.  
+He wrapped his arms around me.  
+“Baby, you’re okay. It was just a nightmare.”  
+I looked around.  
+My bedroom.  
+My husband.  
+The house was quiet.  
+I checked the time.  
+11:43 p.m.  
+Exactly the same time the nightmare had started.  
+I laughed nervously.  
+Then I asked the question that had been bothering me.  
+“Where are the kids?”  
+He smiled.  
+“Upstairs. All four of them are asleep.”  
+I nodded.  
+Everything was normal.  
+Until I noticed something on my nightstand.  
+A photograph.  
+The same family picture from my nightmare.  
+My husband.  
+Me.  
+Our four children.  
+And Lily.  
+I picked it up with trembling hands.  
+My husband stopped smiling.  
+“Where did you get that?”  
+I stared at him.  
+“You know who she is?”  
+He looked toward the bedroom door.  
+Then he whispered:  
+“Baby, we’ve talked about this. You promised we wouldn’t bring her up.”  
+My heart began racing.  
+“What do you mean?”  
+He took the photograph from my hand.  
+“She’s been gone for years.”  
+I started crying.  
+“I remember her.”  
+He closed his eyes.  
+Then he said:  
+“That’s impossible.”  
+“Why?”  
+He looked directly at me.  
+“Because Lily was never our daughter.”  
+I couldn’t breathe.  
+He continued.  
+“She was the little girl who lived in this house before we moved in. The previous family lost her, and the mother never recovered. She used to tell everyone that the little girl was still there.”  
+I stared at him.  
+“What?”  
+He nodded.  
+“That’s why we never used the upstairs bedroom at first. You remember? You said you kept hearing a child in there.”  
+I shook my head.  
+I didn’t remember any of that.  
+My husband kissed my forehead.  
+“Go back to sleep. It was just a dream.”  
+He turned off the lamp.  
+I lay there staring at the ceiling.  
+Then I heard something.  
+A tiny voice.  
+Coming from the hallway.  
+“Mommy?”  
+I stopped breathing.  
+My husband was already asleep.  
+The voice came again.  
+“Mommy, I know you’re awake.”  
+I slowly turned toward the bedroom door.  
+It was open just a crack.  
+A little hand appeared around the edge.  
+Then a small face.  
+Lily.  
+She smiled.  
+And whispered:  
+“You remembered me this time.”  
+I pulled the covers over my head.  
+Then I heard my husband’s voice.  
+Except it wasn’t coming from beside me.  
+It was coming from the hallway.  
+“Baby, don’t talk to her.”  
+I slowly pulled the covers down.  
+My husband was still lying beside me.  
+His eyes were closed.  
+His breathing was steady.  
+Then the voice in the hallway spoke again.  
+“Baby, listen to me. Whatever you do, don’t let her touch you.”  
+I looked at the little girl.  
+She was crying now.  
+“Mommy, he’s lying.”  
+My husband’s hand suddenly tightened around mine.  
+Without opening his eyes, he whispered:  
+“She’s the reason we’re all stuck here.”  
+I tried pulling my hand away.  
+He held tighter.  
+Then I noticed something.  
+My husband’s wedding ring was on the wrong hand.  
+I looked at his face.  
+His eyes slowly opened.  
+They were completely black.  
+He smiled.  
+And in a voice that sounded nothing like him, he said:  
+“You weren’t supposed to remember.”  
+The bedroom door slammed shut.  
+The lights flickered.  
+And Lily screamed:  
+“THAT’S NOT DADDY!”  
+I jumped out of bed and ran toward her.  
+She grabbed my hand.  
+The moment she touched me, I remembered everything.  
+Not just Lily.  
+Not just the house.  
+Everything.  
+I remembered that I had never lived here.  
+I remembered that I had never married the man lying in that bed.  
+I remembered that I had died.  
+And I remembered the last thing I had heard before everything went dark.  
+A little girl crying.  
+Calling me Mommy.  
+The little girl who had been standing outside my hospital room.  
+The little girl nobody else could see.  
+Lily looked up at me.  
+“Mommy, you’ve been asleep for a long time.”  
+I began crying.  
+“Where are we?”  
+She squeezed my hand.  
+“Home.”  
+I looked down the hallway.  
+There were five little beds.  
+Five nightlights.  
+Five pairs of shoes.  
+And on the wall hung a photograph.  
+A family picture.  
+A mother.  
+A father.  
+And five children.  
+Except this time, I recognized every face.  
+I was the mother.  
+And I was standing in the picture.  
+Lily smiled.  
+“See, Mommy? We’re all together now.”  
+Then she leaned close to my ear.  
+And whispered:  
+“Now you can stop waking up.”
+
+THE NEXT MORNING  
+Police were called to an abandoned house after neighbors reported hearing children screaming.  
+When officers entered, they found the house completely empty.  
+No furniture.  
+No beds.  
+No toys.  
+Nothing.  
+Except for one photograph sitting on the kitchen table.  
+A family picture.  
+A mother.  
+A father.  
+Five children.  
+And on the back, written in fresh black ink:  
+SHE STILL DOESN’T REMEMBER.  
+TRY AGAIN TOMORROW.

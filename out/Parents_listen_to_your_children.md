@@ -197,3 +197,5 @@ Hello, Mr. [Redacted], this is Officer Torres from the [Redacted] Police departm
 I thanked him and told him where I was and that it would be about a days travel. He said not to worry, just to call him when im in town.
 
 I called Stephanie next and asked her if she'd be able to watch Eli over the weekend. Money's never been a problem and I expressed that with my generous offer towards her. I scheduled an Uber. Now im just waiting for it. No way in Hell am I about to start my car back up. Even if I could peice it back together. God, I look like a methhead out here.
+
+[[Part 2]](https://www.reddit.com/r/nosleep/s/LyzLqaLbey)

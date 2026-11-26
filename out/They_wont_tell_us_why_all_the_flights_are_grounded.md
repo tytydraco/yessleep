@@ -1,0 +1,305 @@
+Airports are not the sort of place you should spend the night. They are places of transit, of in-between. Liminal.
+
+Even while stuck with a flight delayed or a particularly long layover, the airport is merely an annoying stop on your route to somewhere else. The mind has already reached its destination, stressing over all the things it must do—the in-laws to woo, the business conference to prepare, the spouse to reassure that those FaceTimes you cut short were really because you were "tired" from "working hard."
+
+The point is, the mind has already moved on, only occasionally looking back irately at the body that as of yet, lacks the wings to catch up.
+
+An airport is no place to linger.
+
+We learned that the hard way one terrible, terrible night.
+
+# ***
+
+
+
+"Cancelled! What do you mean by *cancelled?*"
+
+The customer service agent flinches at my outburst, finally dropping that sycophantic grin every employee here seems obligated to have. "I–I'm sorry sir, but your flight has been c–cancelled."
+
+The young woman is barely able to get the words out. I might have felt a little bad about that—ashamed even—if I hadn't already been stuck in this hellhole for nine hours.
+
+I feel Elise squeeze my hand in message to ease up, but I brush her off. My fiancé is a gentle soul, but if there's anything I learned in the business world, if you want results, sometimes you have to get your hands dirty.
+
+"Listen, miss..." I look for the agent's name tag, see that she's not even wearing one. Of course. "...just transfer us to the nearest flight. Hell, it can be to a neighboring state at this point. I'd rather drive 6 hours then spend one more minute here. Now make it happen."
+
+"I'm sorry, sir. I should have been clear. All the flights have been cancelled."
+
+I blink. I can see her lips moving, can tell that *something* is coming out of them, but clearly I misheard her. After hours in the Tucson sun, my hair gel must have sweated down into my ears and clogged them right up. "What do you mean by 'all'."
+
+The agent smiles and for the first time, I get the feeling it's genuine. "As I said, *sir,* all planes have been grounded until further notice."
+
+"Now wait a damn minute. What in the world is going on in this place?"
+
+"I'm sorry, sir. The order just came in."
+
+"Benjamin," Elise says softly, but I'm busy at the moment.
+
+"Then when are the flights going to be uncancelled?"
+
+"I'm sorry, sir. I don't know."
+
+"Benjamin..." Elise nudges me. I ignore her.
+
+"Then bring me someone that does!"
+
+"I'm sorry, sir. We—"
+
+"Bennie!"
+
+I glance at Elise who's pointing somewhere off to our left. At a neighboring gate, a red-faced man yells at a gate agent, loudly enough that I can hear that it's about his flight agent. Then I look over to the gate *beyond* that one and see a similar scene. And to my right. And behind me.
+
+Everywhere I turn I see a scene similar to my own interaction with the gate agent, mirrored, multiplied. Confused and angry customers screaming at the stoic airline employees, who bear it all with practiced smiles that don't reach their eyes.
+
+But that's not what Elise is trying to show me. She's pointing to the giant flight display. Our flight, Tucson to St. Louis: cancelled. The flight highlighted in red. And under that, Tucson to Dallas: cancelled. Tucson to Denver: Cancelled. Denver to Tuscon: cancelled. Cancelled cancelled cancelled cancelled. The whole screen is highlighted in eye searing red, the same color as a STOP sign as if the very airport itself is yelling "CANCELLED."
+
+And if that's not subtle enough, the intercom crackles to life. "*Due to a systems-wide malfunction, all flights have been cancelled. All incoming and outbound planes have been grounded until the issue is resolved. We apologize for the inconvenience.*"
+
+Somehow hearing the clipped message, delivered universally through the airports tinny speakers, drives the reality home and everyone seems to deflate, stop harassing the employees, as their minds are suddenly forced to make a change in plans.
+
+I feel stroking my arm through the sweat-drenched sleeve, and Elise puts on a reassuring smile. "Let's find ourselves a seat before they're all taken."
+
+# ***
+
+
+
+Too late.
+
+Somehow every chair in this brutalist sprawl they call an airport is already filled. I know it's the holiday season, but still. Even the barstools at the overpriced burger joints are all taken.
+
+Some people had resigned themselves to the floor, huddled around outlets, the more germ conscious among them laying on coats and towels. To pass the time, some have even lied down for a nap. And it's specifically those fools that are the problem, stretching themselves out across several chairs, preventing anyone else from sitting.
+
+"Hey dingus!" I call out to one such fellow, taking up *four* seats with their prone form contorted through the armrests. "Make some room!"
+
+The figure doesn't move. They're facing the seatback, away from me, with their thick hoodie pulled up. I can't even tell if it's a man or an especially tall woman under those baggy sweats.
+
+"Hey! You hear me?" I call out again. The figure doesn't even twitch. Are they drunk or something?
+
+I'm about to shake them awake when Elise pulls me back. "Bennie! What are you doing? This isn't like you." Her expression is both concerned and a little annoyed, like *I'm* the problem here.
+
+"Are you kidding me?" I say. "This whole trip is a disaster! Your parents are already expecting us—" again, Elise twitches whenever I bring them up "—and at this rate, we might not even make it for Thanksgiving. And then what then? If we're not at your parent's house then where are we staying *tonight*? It's already past nine and all the hotels around here are booked—I checked, and if I'm going to spend the night at the damn airport, then I at least won't be spending it on this dirty ass floor!"
+
+I'm panting for breath by the end of my rant, dripping sweat stinging my eyes. Of all the places to be stuck, it had to be Arizona—possibly the only state in the whole country that's still pushing 80° in November.
+
+I must look a mess right now, and frankly, Elise isn't much better. Her dark curls have frizzed up and her makeup is noticeably piecework from dashing to the ladies' room every half hour, a Sisyphean struggle to salvage her foundation from the heat and sweat. She looks like the bride of Frankenstein. *My bride.* I chuckle, nervously twisting my ring when she still doesn't respond.
+
+After an uncomfortably long moment, she says, "We should talk somewhere quiet."
+
+# ***
+
+
+
+As we tramp our way through the terminal, I realize my earlier comparison is more apt than I gave it credit. The airport really does feel like hell.
+
+The heat for one thing, no longer due to the Arizona sun which set hours ago, but wafting off the seething masses we find ourselves squeezing past. The mass of bodies around us create a miasma of funk and body heat that truly makes for a Dante-esque experience. There's just so many people.
+
+I know that sounds silly—airports are known to be busy, especially around the holidays—but it's never been like this before. Airports are crowded, yes, but those crowds usually *move*. A constant foot traffic. People go in, people leave out. Like ventilation. A window with a cross-breeze.
+
+It's only now, when there's nowhere to go, no flight to catch, that you realize how stifling it can be. So many people, all in the same place, left to stew. Stew in the heat. Stew in their thoughts. Two square acres of steel and glass, stewing. Like the world's biggest pressure cooker.
+
+I can feel it in the air, that...something. Not quite rage but far past mere impatience. I see it in the man yelling at his wife, heedless of their child just feet away bawling her eyes out. I see it in the fist fight starting at the bar to our left, the men's cheeks so flushed from heat you can't even see the blood. TSA is out in full force, but they're barely stemming the tide.
+
+While I was losing my head over some drunk, was this what Elise was seeing? I can't think of anything better than getting the heck away from it all.
+
+After twenty minutes of searching, we end up finding this reprieve near baggage claim, the serpentine carousel currently empty as everyone's luggage is presumably still trapped on the planes. That's probably why the place is deserted. Even the lights here are dimmed, the brightest illumination coming from the moon streaming through the wall-length windows.
+
+We park ourselves within the S-shaped curve of the baggage carousel. Without the usual rattle of luggage, the conveyor's motors whirrs softly. Almost soothing after the madness of the day. I find each eyeblink lasting longer than the last, and Elise looks like she could nod off herself.
+
+If I let her.
+
+"You wanted to talk."
+
+Elise perks up at my voice. "We can wait until tomorrow."
+
+"No, I think it's better to do this now." I butt-scoot closer to her on the thin carpet. "I apologize for how I acted earlier. The heat had me going a little crazy, for a minute there. But this whole fiasco with the planes grounded, that's kind of just the straw that broke the camel's back. Because even before that...I had a feeling you don't want me to meet your parents."
+
+Elise's face is inscrutable. I can't tell whether it's a *yes* or a *no* in the dim lighting.
+
+"I just don't get it! I mean we're engaged now! Don't you want them to see who you're about to marry? Or you think they'll say I'm not good enough?" As I talk, I notice this time that she didn't flinch at the mention of her parents. It was at the word *engaged.*
+
+My heart sinks. "Elise...do you not want to get married?"
+
+"You know I love you, Bennie," she starts. "I've enjoyed every moment that we've spent together." *But?* "But...I don't know if marriage is the right choice for me–us."
+
+"What are you getting at?"
+
+"I mean what I said. I've loved the time we've known each other. And I'm reluctant to change."
+
+"I don't understand. We'll still be together. Nothing will change."
+
+"No. We'll be married."
+
+I blink. Try to make sense of it all. "I mean, isn't that how it's supposed to go? You fall in love, you get married, you have..." *Kids.* Crap, we never really talked about that before.
+
+Elise turns away from me. "Would it be so bad not to be rushing off to some destination all the time? To...I don't know, smell the roses?"
+
+"Are you saying you want to call off the engagement?"
+
+"I don't know. Maybe just the trip. We don't have to see my parents yet. We can stay here."
+
+"Here? In Tucson? But we don't know anyone here."
+
+"Exactly! It would be like an adventure."
+
+"All the hotels are booked."
+
+"The airport offers suits to its platinum members. We can upgrade, have Thanksgiving *here.* We've never done something like that before." Her voice rises in excitement, a sparkle entering her eye. "Oh it will be just like when we first started dating. Remember? We used to go out and do new things all the time. Doesn't that sound so much better than being a boring old married couple. We don't have to be like that. We can have Thanksgiving right here!"
+
+I don't know what to say, with Elise hanging off me like this, eyes so full of hope. Hope leaving them with every second that I don't say *yes.* I hate letting her down, but it's just too much. I can't decide.
+
+"I'll think about it," I say before rolling over so I don't have to see her disappointment.
+
+# ***
+
+
+
+Impossibly, at some point I fell asleep, right on the airport floor. And when I awake, it's to the sound of my own brain rattling inside its skull.
+
+At first, I believe it's a migraine, but getting up from the carousel from which I had rested on abates the vibrations, mercifully enough. Though the noise of it still batters my ear drums. God, why is it so loud? Was it always this loud and I was just too tired to notice?
+
+I notice Elise in similar straights, palm pressed to her forehead, blinking the sleep from her eyes. Then she stops, her gaze hooked onto something behind me.
+
+The baggage carousel isn't so empty anymore. Luggage of all shapes and sizes ride down the conveyor, clattering loudly against the metal. If baggage claim is up and running again, then that must mean the planes are too. Then why are the lights still off?
+
+"I'm going to see what's going on," I tell Elise. "The baggage service desk should be around here somewhere."
+
+I saunter off in the direction of where I *think* I see the desk, a vague outline in the dark. It's even darker than before. Why did they turn off all the lights? Don't tell me they're having power issues too. As it stands, the only illumination comes from the sickly neon of the emergency lights and the icy glow of the full moon.
+
+Cold. I feel cold. I've been sweating my ass off all day and now the sweat has cooled to ice, seeped down through my skin, chilling me to the bone. My breath even seems to fog in the air but no, it's only a trick of the light.
+
+The emergency lights are not worthy of the name, a flickering green that wards off maybe a few feet of gloom before the darkness swallows it, reincorporates it, giving the shadows around me an unearthly texture. That's why at first, I don't even see her.
+
+The customer service agent.
+
+Or so I guess, going by the dusk blue uniform. She stands behind the service desk, posture painfully upright. This one actually does have a nametag, pinned by her left breast, but I can't read the name; not because it's too dark but for the opposite reason, oddly enough. The polished tag is too reflective, like a hi-vis vest caught in headlights. A solid rectangle of ghostly fire.
+
+That's all I can make of the woman as from the shoulders up she tapers off into darkness. Neck, face—all silhouette, interrupted only by a gash of teeth. A crescent smile.
+
+"Excuse me, miss. Can you tell me what's happening?"
+
+No answer. No movement either, actually.
+
+"Do you know what's going on?"
+
+Again, nothing. Only the picture-perfect smile. Too perfect. And *exactly* like a picture, which doesn't have to concern itself with little things like speaking.
+
+Or breathing.
+
+"Miss?"
+
+***Ding!***
+
+I jump back as the intercom suddenly cuts on. "*I'm sorry, sir. I don't understand your question.*" Despite the static, I can tell it's a woman's voice. *But...*
+
+I look back to the service agent and—nope. She hadn't moved a muscle, her teeth show no sign of parting. And yet, the voice on the intercom sounded like it was responding to me. Weird.
+
+I clear my throat. "Let me clarify: when will the planes be able to take off?"
+
+***Ding!***
+
+"*They are already off the ground.*"
+
+The noise gives me another mini heart attack. It sounded closer this time, and I search futilely for it and the voice in the dark before shooting back to the agent in front of me. Still smiling.
+
+"What do you mean by that? Did we miss our flight? Why are the lights off?"
+
+This time I refuse to take my eyes off her. To catch her in the act, if this is some ill-besotted prank. She doesn't respond, of course, doesn't even act like she heard me. Her smile might as well be the moon, floating so unerringly still in the shadow of her face. The silence drags on and on.
+
+"Did you find anything out?" Elise asks from behind me.
+
+I don't turn to look at her, eyes still on the agent. "Not yet. The help here is speaking in riddles."
+
+"If you're not getting anywhere here, then I could really use your help with something." There's a tinge of fear in her voice and my suspicions are confirmed by the sight of her tugging her dress—a habit she falls into when she's nervous.
+
+"Show me." I say, taking her hand as she leads me back to baggage claim.
+
+***Ding!***
+
+"*But sir, you and your wife have already arrived.*"
+
+I look back over my shoulder but already the service desk is gone, lost to the dark.
+
+I hear the carousel long before it becomes visible, the conveyor louder than ever now, positively cacophonous. Probably because of the bona fide *mountains* of luggage clanging on top of it.
+
+Piles of suitcases, heaped up so high their summits are lost in shadow. They look precarious too, like the wrong suitcase pulled will cause the whole structure to collapse in an avalanche. God, had we been sleeping under that? How does it even all fit?
+
+I look to the ends of the carousel, where the bags enter and exit the part of the conveyor accessible to people, but the carousel seems a lot longer than I remember it being. I can't even see the ends, so distant are they.
+
+Perhaps even more baffling than the quantity of luggage is the sheer variety. Besides the more standard boxes, there are ones shaped like pyramids, perfect spheres, one that looks like a double-helix shape. One suitcase looks normal when it first creeps into view, only it keeps going and going, stretching out to an absurd degree. Did someone pack a ladder?
+
+But of course, none of that would explain why Elise is so frightened. No, that would be the suitcase in between the piles. The one shaped like a man.
+
+It's almost exactly like the body bags you'd see in a morgue on one of those NCIS shows. Like the other suitcases, it too rattles on the carousel, but not because of the uneven surface of the conveyor belt. It's moving.
+
+It's moving on its own, like there's someone inside trying to escape. I can hear grunting and pitiful moans escaping from it.
+
+Elise's eyes are wide with fright. "Should...shouldn't we help them?"
+
+*Us?* I search around for anyone else to dump this problem on. No one. This whole area's deserted. Dead as a doornail. Dead as whatever the hell is inside that suitcase *should* be; I don't see any air-holes.
+
+The customer service agent  pops into my mind unbidden. Her frozen smile. Still as a corpse.
+
+I shake my head—to clear the thoughts and in response to Elise's question. "We should call this in. To TSA or something."
+
+"But..." Her eyes follow the moaning suitcase as it gets further and further away, shaking so violently it threatens to fall off the carousel. "What if we don't make it back in time."
+
+"What could we do? Like...um...oh! How could we even open it?" Yeah, that sounds plausible and totally not like I'm wussing out. "We should definitely get help—professional help." Before Elise can answer, I take her by the arm and rush off. Anywhere from this place. Surely the main areas aren't so creepy.
+
+In the gloom, it seems all the distances have elongated. Twisted. We walk for what seems like an eternity without coming across another living soul, an eerie contrast to how it was just a few hours before. What, did everyone board and we just napped through it? The service agent did say that all the planes had taken off already. She also said, *you and your wife have already arrived.*
+
+Not that we're even married. *Maybe never will be,* a bitter part of me says.
+
+I'm still brooding over that when I spot the first beam of light in this abyss of an airport. It's coming from the flight display. Its giant LED screen is still an eye-searing red, but all the flight information has been deleted, except for one narrow blue strip: *BENJAMIN AND ELISE: ARRIVED.*
+
+What the...
+
+"Honey," Elise says, practically hugging my arm now. "I don't want to be here anymore."
+
+"Neither do I. We're leaving."
+
+The exit should be where all the emergency lights lead to, but nothing makes sense in this damn place. We venture closer to the window, to make use of the moonlight, and out of it we see that apparently the planes haven't taken off. They're all still here. *All* of them.
+
+The tarmac. Planes are *everywhere* crammed and slotted into each other so tightly you can barely see the runway beneath. Jammed so tightly some planes have to be tilted at an angle to fit, one wing sliding underneath the belly of its neighbor while the other wing slants off towards the moon. There must be every airplane in the whole country down there, packed onto this one runway.
+
+"Bennie." Elise points to a door in the distance. It reads *Exit.*
+
+We're practically running at this point, a mad dash towards freedom. Our feet slap across the floor like gunshots in the eerie silence as the door gradually gets closer, and closer, and closer.
+
+And closer.
+
+I stop. Elise doesn't notice at first and keeps running. It doesn't matter. Despite her efforts, she's barely moving at all.
+
+Glancing down, I realize that we're on one of those moving sidewalks people use to traverse the terminal faster. I'd ask how we got on one without noticing, but stuff stopped making sense a long time ago.
+
+Eventually, Elise tires out, realization dawns on her face before giving way to terror.
+
+Suddenly, the lights cut on and all around us, the boarding gates swing open revealing an infernal red glow as if from Hell itself.
+
+***Ding!***
+
+*"Mr. and Mrs. Carter, your flight is ready!*
+
+***Ding!***
+
+*"Mr. and Mrs. Carter, your flight is ready!*
+
+***Ding!***
+
+*"Mr. and Mrs. Carter, your flight is ready! Mr.andMrs.CarteryourflightisreadyMr.andMrs.CarteryourflightisreadyMr.andMrs...*
+
+# ***
+
+
+
+So here we are.
+
+Obviously we haven't boarded yet—if boarding our "flight" sounds like a bad idea just from reading this then that doesn't even begin to describe the bone-deep ache in my own gut that if we board that plane, we won't be coming back.
+
+The problem is, we can't leave. We're stuck in some demented Twilight Zone. Elise seems about to lose it because of—
+
+***Ding!***
+
+*"Mr. and Mrs. Carter, your flight is ready!*
+
+—of that. God, we must've been listening to that for days. I can't even think straight anymore.
+
+I really don't want to get on that plane, but at this point, one way trip or not, I'd rather get on it than stay one more second at the [airport](https://www.reddit.com/r/nosleep/comments/1okm804/the_childrens_costumes_are_getting_worse_every/).
