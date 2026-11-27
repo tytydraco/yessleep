@@ -1,0 +1,153 @@
+Ferruccio and I, two psychiatric nurses, walked an old woman out of her farmhouse at dusk. There wasn't a lamp lit in it.
+
+An hour later every lamp was burning, and I went back in alone to see who had lit them.
+
+We had found the old woman in a rocking chair. Now it was empty, and rocking.
+
+The old woman was out in the car with Ferruccio, and as far as the town knew she lived there alone. Inside, another woman stood in a corridor, her back to me. I talked to her all the way down it.
+
+The paper I'd carried up there had one name on it.
+
+I'd worked the morning shift that day, and Ferruccio called at three-thirty. I learned the job standing a step behind him. He's been talking people out of rooms for twenty years. A woman in the hills wouldn't open her door to her doctor, a psychiatrist at the mental health clinic in town. At the doctor's request the mayor had signed an order to bring her in for a psychiatric assessment. That's a job for the clinic's own nurses. But people open doors for Ferruccio, so the doctor had asked for him by name, and Ferruccio had asked for me.
+
+A town police officer drove us up from his station. "The doctor's meeting us at the house," he said. Before he started the car he handed me the order. "You carry it." I folded it in quarters into my jacket. We lost signal on the way up. The track ended at a gate, and a good fifty yards beyond it, in what was left of the light, stood a farmhouse with dead creeper over half its front and not a light showing. The officer stopped short of the gate and cut the engine. No doctor was waiting.
+
+"He'll be late," the officer said. "You go on. A woman's lived in there longer than anybody can remember. Nobody from town goes in. Not without a paper from the town hall." He looked at my jacket.
+
+The rules say the officer comes to the door with us. Ferruccio won't leave a person sitting behind a door, listening to a car in her yard, so the two of us went without him.
+
+The door wasn't locked. Ferruccio knocked as he always does, like a neighbor, said who we were and why, and waited longer than most people can stand. Then he pushed, and the door swung in flat against the wall. The front room had a table, a dresser and a picture on every wall, and an oil lamp on everything flat, none of them lit. The room didn't smell of anything. From the room beyond came a dry tick, slow and even.
+
+It was a rocking chair, going, in the last of the light from a window, with a shawl over the back of it and somebody in it. She didn't turn her head. We went up to the chair, one on each side, and found a small old woman in a coat and a headscarf, hands in her lap, dressed to go out, her shoes a hand's width off the floor.
+
+I asked her name. She asked if it was on my paper and held out a hand for it. I took the order from my jacket, and her other hand closed around my wrist, as if I might put the order back. Then she took it, tilted it to the window and began to read, with the chair still going under her and me bent over its arm, rocking a little with her because she had my wrist. I asked for my hand back, politely. I didn't get it.
+
+"I can read it to you, signora, if the print's small," Ferruccio said.
+
+"I can read," she said, and went on, front and back.
+
+It took her four minutes. I'd been up since five-thirty, and my back hurt. Her shoes never touched the floor in that time, and the chair never slowed. I told myself the floor sloped. Ferruccio watched her hand on my wrist the whole time and let it be. I watched her. Seven years on the ward, and I couldn't find anything wrong with her. The order isn't long. It gives an address, names one person, and says where to take them, which was our emergency room.
+
+"There's only one name," she said. Her thumb rested on the address.
+
+"It's the one we've come for, signora," Ferruccio said. "Is it yours?"
+
+"I've waited a long time for it." She looked up at him. "Would you have read it to me? All of it?"
+
+"Every word," he said. "It's yours."
+
+She let go of my wrist, folded the order along the creases I'd made, and stood. "Then I'll go," she said. "Finally."
+
+She took Ferruccio's arm. She didn't look for a bag or a key, and she crossed the two rooms slowly, with her eyes on the open door the whole way. Behind us the empty chair went on rocking. I listened for it to run down, all the way to the door, and it didn't.
+
+I was the last one out, and I took hold of the door to pull it shut behind us. It came away from the wall with paper on the back of it: a printed notice pasted to the inside, brown as a grocery bag. The top line was two words in heavy type, the same two that head the order I'd carried up there. The Mayor. Under them, a stamp and a year: 1911. The type was the old kind, and I sounded it out half aloud, as I do when I read forms to people.
+
+"The Mayor, as health authority of this town, hereby orders this house closed. The persons dwelling in it—"
+
+In the other room the chair stopped between one tick and the next.
+
+I stood there with my hand on the door, and Ferruccio called my name from the path. I left the door as it was, half shut, and went down the steps after them.
+
+The officer had gotten out and was watching us walk over. He took off his cap as she passed and held the rear door for her. When he was back behind the wheel he tilted his rearview mirror up at the roof. Ferruccio settled her in and came around to me, and I heard his lighter click twice.
+
+The doctor was supposed to see her at the house, and an ambulance was supposed to take her down. With no signal to call either, we waited at the gate and gave the doctor an hour. The moon came up full behind the roof. I was watching the track for headlights, and I don't know when the lantern by the front door was lit. It was burning, and then a window was yellow, and then the one beside it, until the house we had just emptied was lit from end to end.
+
+Ferruccio leaned in at the rear door. "Signora," he said, "who's at home?"
+
+She looked down at the order on her knees and didn't answer.
+
+Somebody had to go and look, and the officer had his eyes on his own knees. Ferruccio couldn't. She had his sleeve in her fist. I said I'd go, and that triage would want her health card. I asked her if she had it, and she lifted the order off her knees. I asked if I could go and look for the card, and she nodded.
+
+"Knock first," Ferruccio said. "And say who you are."
+
+I didn't ask for the officer's flashlight. The lantern by the door was the kind you fill and trim, and somebody had. The door stood half shut, as I'd left it. I knocked, and said who I was. Nobody answered. I pushed it back against the wall and went in.
+
+Every lamp in the front room was burning, and the house smelled of lamp oil now, and hot glass. I looked for her health card in the top drawer of the dresser. There was linen in it, a rosary, and photographs on stiff card, all of it older than I am, and no health card.
+
+The tick was coming from the next room. The chair was going again, with the shawl still over the back of it and nobody in it. I went around it by the wall and through the door to the right of it.
+
+It opened on a corridor the length of the house, with doors down one side and a lit room at the far end. A woman was standing in the middle of it with her back to me.
+
+She was taller than the old woman. Her hair was gray and hung loose down her back, and her dress was black and reached the floor. She was facing the room at the far end, the way you stand at a door you're waiting to see open.
+
+"Signora," I said. "I'm Matteo. I'm a nurse. I was here before, with the other signora. She's in the car and she's all right."
+
+She didn't turn. I walked down the corridor to her, talking as I came so that she'd know where I was, and I stopped an arm's length behind her.
+
+I watched her shoulders to see her breathe. They didn't move. I stayed where I was and waited.
+
+I ran out of things to say. In the quiet she let a breath out, slowly, with a rattle in it. Her shoulders went down with it. I started again and she held her breath for as long as I talked. When I stopped, the rattle came back. Nothing I knew how to say turned her around.
+
+I leaned out to one side, where she'd have to see me. Her hair hung in front of her face, past her mouth.
+
+So I tried the only other words I had for that house.
+
+"The Mayor, as health authority of this town, hereby orders this house closed. The persons dwelling in it."
+
+That was all I had. I waited for the rattle, and it didn't come. I counted a full minute, watching the hair in front of her mouth. Not a strand moved.
+
+I told her I'd fetch my colleague. Then I went back the way I'd come.
+
+My shoes were loud on the flagstones. I listened for the rattle behind me, and for a second pair of shoes, all the way back to the door of the room with the chair, and heard neither.
+
+The woman from the corridor was in the doorway in front of me.
+
+I had left her behind me. She was leaning in, with her face a hand's width from mine, and she was smiling, with every tooth in her head showing. The eyes were wide open, and they were on my mouth. Then the smile went on opening. The lower jaw came down further than a jaw goes, and the breath she had been holding since the corridor came out of her as a scream. I shouted once, as loud as she had, and I ran.
+
+I don't remember getting past her. I remember my own breath, and the chair, still going, and the front door, flat against the wall where I had pushed it. There are four stone steps down from that door, with leaves on them, and I came down them on my hands.
+
+I got up. I looked back once. The door stood open and every lamp was burning, and there was nobody in the doorway. I walked down the path to the car.
+
+The officer's little Fiat was where we'd left it, with the engine running. The old woman sat in the back, behind the empty front seat, with the order flat on her knees, and Ferruccio sat beside her. The empty seat was the only place for me, a forearm's length in front of her. I got in.
+
+"Drive," I said. "There's somebody else in that house."
+
+The officer had the car in gear before I'd finished. "I know," he said.
+
+"Matteo," Ferruccio said, quietly. Then he asked the old woman beside him whether her seat belt was too tight. She shook her head. She was watching the house.
+
+I told the officer the town would have to send somebody up there all the same. He drove. I sat forward the whole way down, so that no part of my back touched the seat.
+
+Where the farm road meets the main one, Ferruccio's phone came back to life. It was the doctor, asking where we were. He had been at his patient's house since four. His patient had let him in after all and made him coffee. He'd done the assessment at her kitchen table: finished, signed, nobody to bring anywhere.
+
+Ferruccio had the doctor read out the address on his copy, and asked the old woman to unfold ours. It was the same road. The doctor's copy said forty-seven. Ours said seventy-four, and seventy-four was where the officer had driven us.
+
+"Signora," Ferruccio said, "what's your name?"
+
+She turned the order around on her knees so he could read it by the light of his phone.
+
+"That's the patient's name," he said. "She's at home with the doctor. What's yours?"
+
+She turned it back and didn't answer. The doctor told him to bring her in if she still wanted to come, and when Ferruccio asked her she nodded.
+
+We were nearly down before she spoke.
+
+"The other one," she said. "Where was she?"
+
+"Standing in the corridor," I said.
+
+The old woman smoothed the order over her knees. "My room's at the far end of the corridor, and she waits till I come out. She never learned to read. I've read her the notice on the front door every evening since it went up. I always stop before the end."
+
+"I said some of it to her," I said. "As far as 'the persons dwelling in it.' I didn't know the rest."
+
+"Are forbidden to leave it. Until further order." The old woman looked at the address on the order, then out the back window at the dark. "She'll want an order of her own, now."
+
+At the emergency room I told the triage nurse where we'd found the old woman, and that the name on the order belonged to someone else. The nurse asked her for her own name. The old woman held out the order.
+
+"It's on the paper," she said.
+
+The nurse put "Unknown" in the name field, gave her a numbered ticket, and showed her where to sit. When her number came up on the screen, she stayed in her seat. I went over and pointed to the ticket she'd tucked under the edge of the order.
+
+"That's yours, signora."
+
+"They haven't called me," she said.
+
+In the end an emergency room doctor came out and asked if she'd come with him. She went. He found nothing to treat and no reason to keep her, and signed her out. A little while later she was back in the same seat.
+
+That night I texted my wife not to wait up and wrote the whole evening down at a table by the vending machines, over a sandwich out of one of them. In my report the woman from the corridor is "a second occupant." Ferruccio read it before I handed it in. The officer wrote his own for the town police.
+
+That was nine days ago. The old woman sits in the public waiting room by the entrance, in nobody's way. Ask her, and she will tell you the date and, politely, that she's waiting to be called. A social worker offered to find her a bed for the night, and she said she'd go as soon as they called her.
+
+Five days ago the officer phoned Ferruccio. He'd driven up as far as the gate, he said. The windows were dark and the front door was shut, and the lantern was gone from its hook beside it. I had left that door flat against the wall and every lamp in the house burning. He didn't go any nearer than that, and as far as I know nobody has.
+
+I go in through the emergency room now, every shift, and on my way across the parking lot I say that notice over to myself, all the way to "until further order," so that I'll have it ready. For the first three days she sat where they had put her, and I thought she was waiting to be called. The day the officer phoned, she moved. She has taken the one seat in the waiting room that faces the doors. When I come in, she looks [behind me.](https://www.reddit.com/u/FireDoor_RN/s/r87YM2JMtY)

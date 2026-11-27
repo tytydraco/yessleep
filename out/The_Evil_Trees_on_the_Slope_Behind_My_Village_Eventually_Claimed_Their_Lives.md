@@ -1,0 +1,99 @@
+In the rural south of China during the 1980s, tailoring was a rare and sought-after trade. My mother was a seamstress renowned for miles around. With my father working in a city hundreds of miles away, the burden of supporting our household fell entirely on her shoulders.
+
+Back then, no major family event could happen without my mother’s needlework. When the Zhang family’s daughter gave birth, my maternal grandmother had to prepare the traditional postpartum gifts—bringing pork, an old hen, and red-dyed eggs, along with stacks of baby clothes and cloth diapers. When the Wang family married off a daughter, full sets of wedding attire had to be sewn for the bride and groom. When the Zhao family got engaged, new outfits were needed for the bride-to-be. Bolts of colorful homespun cloth and Dacron piled high on the cutting table in our main hall, and my mother’s Butterfly-brand sewing machine clattered *da-da-da* from dawn till dusk.
+
+There was simply too much work for one person, so my mother enlisted the help of my grandmother, who was equally skilled with a needle. Naturally, the job of running errands fell to ten-year-old me.
+
+Grandmother’s house wasn’t far—taking the mountain shortcut, the round trip was less than ten *li* (about three miles). Sometimes I went every few days; during peak seasons, I had to make the trip twice a day. One day I would carry a bundle of cut fabric pieces to Grandmother’s to have buttonholes stitched, frog buttons sewn on, and delicate fabric-scrap appliqués added. The next morning, I would fetch them back. The day after that, I would haul a bundle of freshly carded cotton batting and fabric for Grandmother to stuff and quilt by hand. Two days later, I would retrieve the evenly padded, neatly quilted panels, ready for my mother to stitch together on the machine into warm winter jackets or vests.
+
+Having grown up running wild in the hills, I was nimble on my feet. Every time I set out, I bolted like a frisky colt down the road behind our house, dashed like the wind down the hillside, and hopped like a little monkey across the stepping stones in the creek at the bottom of the valley.
+
+Yet the moment I crossed the water and reached the edge of a tiny hamlet of just seven or eight households, all my carefree energy vanished instantly. I would slow to a crawl, creeping forward along the edge of the path like a cautious ant.
+
+Running right alongside the hamlet was a steep, narrow stone path—the only route to my grandmother’s house.
+
+That path was deeply unsettling. Hemmed in by steep slopes on both sides, it rarely saw direct sunlight. Thick, slick moss carpeted the cobblestones, making every step treacherous. Even more chilling were the massive, ancient trees growing halfway up the slope.
+
+The adults called them the *Xiegong* Trees—the Evil Spirit Trees.
+
+No one knew how old those trees were. Their trunks were so thick that three or four grown men holding hands couldn’t encircle one. Their pitch-black bark was deeply fissured like an old man’s face, wrapped tightly in wrist-thick green vines that coiled around the trunks like giant pythons, trailing tendrils that swayed eerily in the cold mountain draft. Every time I passed them, I held my breath, stared fixedly at the stones beneath my feet, and hurried past without daring to flick even a glance sideways. I only knew they were monstrously tall; once, after sprinting breathlessly to the top of the slope, I turned back to sneak a peek from higher ground. Following the trunks upward, the dense canopy blotted out the sky—I couldn't even see the treetops.
+
+During cool summer nights, village elders loved to lower their voices and recount the taboos surrounding the Evil Trees. Years ago, a mischievous boy had climbed the slope to raid a bird’s nest and accidentally hugged one of the trunks. That very night, he came down with a violent fever, raved incoherently, and died within three days. Another time, a traveling peddler rested at the base of the trees and muttered a curse about the foul weather; just steps down the slope, he lost his footing on flat ground and snapped his neck. Adults constantly warned us children: when passing the Evil Trees, never look up, never speak loudly, and never spit or relieve yourself near them.
+
+Passing by in broad daylight was nerve-wracking enough; at dusk, when twilight bled into darkness, the narrow stone path felt like the open maw of a beast.
+
+One autumn evening, I was delayed at my grandmother’s house while waiting for a rush order of wedding garments. By the time I reached the edge of the small hamlet clutching my cloth bundle, the sun had already sunk behind the mountain ridge. Only a bruised purple smear of sunset lingered on the horizon, and a thin gray mist was rising from the hollow.
+
+Panic tightening in my chest, I hugged the bundle close and hurried up the slope with my head down. Halfway up, just a dozen paces from the Evil Trees, I caught sight of a hunched figure ahead of me out of the corner of my eye.
+
+My heart jumped. Looking up, I saw an elderly woman in a black cloth tunic, her hair twisted into a bun, shuffling slowly up the path with her back turned. In the countryside, seeing a neighbor wasn't unusual. I initially assumed it was an elder from the hamlet and opened my mouth to call out, "Granny—"
+
+The word died in my throat. The old woman made no sound at all. Her feet didn't even rustle against the slick moss.
+
+Every hair on my body stood on end. I stared transfixed at the retreating figure. When the old woman reached the largest of the Evil Trees, she angled her body slightly toward the trunk—and melted straight into the bark like a drop of water sinking into dry earth. In the blink of an eye, she was gone.
+
+The path was completely empty, save for the dry *shhh-shhh* of the wind brushing through the hanging vines.
+
+My mind went entirely blank. Too terrified even to scream, I bolted up the slope like a madwoman, running over two *li* without stopping until I spotted the cooking smoke rising from our own roof. I burst into the courtyard and clung to my mother’s legs, trembling uncontrollably.
+
+From that day on, even long after I had cleared the Evil Trees, I refused to speak a single word to anyone I passed on the mountain trail, even familiar faces. I simply kept my head down and walked on in silence.
+
+Yet strange things in the mountains seemed drawn to those who feared them most.
+
+About half a month later, dusk caught me on the road once again. I was hurrying home with a bundle of quilted cotton panels from my grandmother’s. The weather was stiflingly humid, and darkness fell fast once the sun dipped below the peaks. I jogged briskly, finally clearing the mossy slope and leaving the Evil Trees behind. Just as I was breathing a quiet sigh of relief, I rounded a bend in the trail—and heard voices ahead.
+
+I froze, peering cautiously through the gloom. Sitting on a flat boulder by the roadside were two middle-aged women. Both wore faded blue cloth tunics with their hair neatly pinned up, two bamboo baskets covered tightly with blue patterned cloth resting at their feet.
+
+Running into fellow villagers on the mountain roads was common enough. Though I remembered my rule against speaking to strangers, seeing the two women chatting and laughing pleasantly eased the tightness in my chest.
+
+Drawing closer, I saw that the round-faced woman held a handful of roasted peanuts in the shell, while the tall, thin woman held a piece of oiled paper filled with steamed rice cakes. They were shelling peanuts, nibbling the cakes, and murmuring cheerfully to one another.
+
+Eyes fixed straight ahead, I lowered my gaze and tried to hurry past them.
+
+Just as I drew level, the round-faced woman turned her head, smiled, and beckoned to me. Her voice was soft and coaxing: "Little girl, heading home? Come here, Auntie has freshly roasted peanuts and sweet rice cakes. Take a few to tide you over."
+
+The rich, nutty aroma of roasted peanuts seemed to drift over on the evening breeze. For a ten-year-old in lean times, treats like that were rare luxuries. My steps faltered involuntarily, my eyes flicking toward the white rice cakes resting on the oiled paper.
+
+The moment I looked up, however, I noticed something wrong. Though the corners of the women’s mouths were curved in smiles, their eyes didn't blink—showing far too much white around tiny, dark pupils that gleamed coldly in the fading light. Worse still, the peanut shells they dropped onto the dirt had no color at all; they lay pale and ashen, like burnt paper money.
+
+A chill shot straight down my spine. Remembering my mother’s warnings, I snapped my head down, clutched the quilted panels to my chest, and sprinted away without even muttering a refusal. Behind me, I thought I heard two faint, hollow sighs. I didn't dare look back, running all the way home.
+
+Inside the house, the lamps were brightly lit, and my mother was threading a needle at the table. Still gasping for breath, I blurted out the encounter as an oddity—telling her about the two women eating peanuts and rice cakes on the mountain trail who had offered me some.
+
+*Clatter.* The sewing needle dropped from my mother’s fingers onto the tabletop.
+
+I looked up in alarm. My usually composed mother had gone dead white, her lips trembling. She seized me by the shoulders with a grip that hurt, her voice tight with urgency: "Tell Mama the truth. Did you take anything from them? Did you eat even one peanut, or a single bite of cake?"
+
+Frightened by her reaction, I shook my head frantically. "No! I didn't dare look at them. I kept my head down and ran straight home!"
+
+"You're sure you didn't eat anything? Didn't even touch them?" she pressed, scrutinizing my mouth and fingertips.
+
+I nodded vigorously, holding out both hands for inspection. Only after confirming I hadn't touched a crumb did my mother close her eyes, let out a long, shaky breath, and slump back into her chair as if drained of all strength.
+
+That night, unusually, she didn't go straight back to the sewing machine. Instead, she hurried into the kitchen, sliced up a generous platter of cured pork normally saved for holidays, went to the village shop for a jug of strong sorghum liquor, and even unlocked a wooden chest to bring out stashed bags of fruit candies and biscuits. She then went next door and invited several of my older male cousins over for dinner and drinks.
+
+The main hall grew loud and lively. The young men drank liquor, ate cured meat, and laughed boisterously, driving every trace of chill from the house. They stayed late into the night. Lying in bed in the inner room, drifting toward sleep, I could still hear the steady *da-da-da* of the sewing machine in the outer room, accompanied by my mother’s voice chatting loudly with the older cousin who had stayed behind to keep watch until dawn.
+
+Not long after that incident, I woke in the middle of the night for a drink of water. Passing my mother’s bedroom door, I heard the muffled voices of my mother and grandmother inside—Grandmother was staying over for a few days to help finish an urgent batch of clothes.
+
+Pressing close to the crack in the door, I heard my mother still murmuring anxiously about that evening: "Ma, how could those two things dare to sit right out in the open by the road like that?"
+
+Grandmother let out a heavy, weathered sigh. "That stretch of mountain path is over a *li* from the nearest hamlet, right beside the Evil Trees. In the countryside, the moment the sun goes down, every household is run off its feet—bringing in laundry, feeding pigs, penning chickens and ducks, lighting the stove for dinner, bathing the children. What village woman has the spare time to hike all the way into the deserted hills just to eat peanuts and gossip? And even if travelers from another village were passing through after visiting relatives, seeing night fall, they’d be practically flying home. Who on earth would stop to snack right next to the Evil Trees? Those were clearly spirits from the trees taking human shape, looking for a substitute on the road. Thank goodness the child didn't give in to greed—if she’d taken even one peanut and eaten it, her soul would have been pulled straight into those trees on the spot..."
+
+Standing outside the door, I went ice-cold from head to toe. Forgetting my thirst, I tiptoed back to bed, pulled the quilt tightly over my head, and lay awake until morning.
+
+As I grew older, our family bought a bicycle, and my mother gradually began subcontracting work to other seamstresses in town. I rarely had reason to walk that narrow stone mountain path again.
+
+Two years later, in the dead of winter, word reached our village about the small hamlet beside the Evil Trees. Four or five people from two families—both adults and children—had suddenly fallen gravely ill at the exact same time. It began as a low fever and crushing fatigue. Taken to the county hospital, X-rays and blood tests revealed nothing wrong, yet injections and medicine had no effect. Day by day, they wasted away to skin and bone, their eyes vacant, drifting in and out of stupors.
+
+Seeing them on the brink of death, the hamlet’s elders pooled their money and hiked across the mountains through the night to fetch a renowned spirit medium from a neighboring county.
+
+When the medium arrived, she didn't even step inside the sickrooms. Standing at the entrance of the hamlet, she took one look up the slope at the towering canopy of the Evil Trees, and her expression darkened. She set up an incense altar and performed rituals through half the night before finally packing up her instruments and shaking her head at the families' elders. There was no saving them.
+
+Days earlier, men from those two households had been gathering firewood on the slope. Annoyed by the thick green vines hanging down from the Evil Trees and blocking their path, they had hacked several down with their machetes, cursing foully as they swung. Afterward, they neither offered incense and spirit money to apologize nor left the vines alone—they dragged them home and burned them in their stoves.
+
+Before departing, the medium left behind a single pronouncement: "The tree spirits are furious. Their vital essence has already been drained into the trunks. Prepare their funerals—the trees are taking them."
+
+Sure enough, within half a month, those adults and children died one after another. On the day of the burial, as the funeral procession filed past the moss-covered stone path on the slope, the sky was clear and the air completely still—yet the thick green vines hanging from the Evil Trees suddenly began to thrash violently, their leaves rustling in a dry, rhythmic cadence, as if something hidden in the shadows were laughing in triumph.
+
+After that, the remaining families in the hamlet gradually packed up and moved away. The narrow stone path leading to my grandmother’s house was abandoned entirely, swallowed whole by wild weeds and thick green moss. Yet whenever I pass the foot of the mountain and catch a distant glimpse of those towering treetops piercing the sky, I can almost smell, lingering on the twilight air, the eerie aroma of freshly roasted peanuts.

@@ -1,0 +1,603 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/hab3h6/i_was_the_commanding_officer_of_a_special/?utm_source=share&utm_medium=web2x)| [Part 2](https://www.reddit.com/r/nosleep/s/ZGULrTGt36)| [Part 3](https://www.reddit.com/r/nosleep/comments/hc6q4q/i_was_the_commanding_officer_of_a_special/?utm_source=share&utm_medium=web2x)| [Part 4](https://www.reddit.com/r/nosleep/s/WswvuTim99)| [Part 5](https://www.reddit.com/r/nosleep/s/YtkDH9izXk)| [Part 6](https://www.reddit.com/r/nosleep/s/L9sVvFq4F9)| [Part 7](https://www.reddit.com/r/nosleep/s/86cmAQMn9k)
+
+I stood by the window for a little while longer.
+
+"Oh, there you are, sir!"
+
+"Evening, Patty."
+
+"Couldn't sleep?"
+
+"Yeah. Thought I'd get some fresh air."
+
+"Oh! Would you like some company, sir?"
+
+"Sure."
+
+I heard myself laugh.
+
+I hadn't quite appreciated how distinctive my own laughter was until I heard it coming from somewhere outside my quarters.
+
+I tried to figure out where the two of them were standing, but couldn't see anyone other than Zulu. It hadn't moved.
+
+"Have you had dinner, sir?"
+
+"Yeah."
+
+"That's good. I didn't see you at the cookhouse earlier."
+
+I checked my watch.
+
+2356hrs.
+
+*Right.*
+
+I closed the curtains, put the documents on my desk away and got ready for bed.
+
+The two of them were still talking when I turned the lights off at 2359hrs.
+
+I'd just got comfortable when Patty brought up the incident reports she'd brought me the previous evening.
+
+"Did you manage to go through those reports, sir?"
+
+"Yeah. Thanks for bringing them up before lunch, by the way."
+
+*It was half past five.*
+
+I'd very nearly said that out loud.
+
+"Oh, you're welcome, sir!"
+
+I stared at the ceiling.
+
+For some reason, it bothered me that she hadn't corrected him.
+
+"Did you find what you were looking for, sir?"
+
+"Not really. Had a quick look through them over lunch."
+
+*You couldn't have.*
+
+I'd got as far as sitting up in bed before I realised what I was doing.
+
+*For fuck's sake, Rick.*
+
+"Oh, that's a shame."
+
+"Yeah. Never mind."
+
+I lay back down.
+
+"Sir?"
+
+"Yeah?"
+
+"Are you aware of the time?"
+
+"Oh, shit. I'd better get back."
+
+Patty laughed.
+
+"Your lights are already off, sir."
+
+"Yeah. I turned them off before coming out."
+
+"Oh, I see!"
+
+I pulled the blanket up to my chest.
+
+"Well, goodnight, Patty."
+
+"Goodnight, sir!"
+
+I heard footsteps on the grass coming towards my window.
+
+"Sir, that's the wrong way."
+
+The footsteps stopped.
+
+"Sorry."
+
+"Your quarters are over here, sir."
+
+"Right."
+
+The footsteps grew fainter.
+
+"Would you like me to walk you back?"
+
+"No, it's alright."
+
+"Are you sure, sir?"
+
+"Yeah."
+
+I shut my eyes.
+
+"Have you been out for long, sir?"
+
+"Not very long."
+
+"Have you spoken to any of the men this evening?"
+
+"No."
+
+"Nobody at all, sir?"
+
+"No."
+
+"That's good."
+
+I turned onto my side.
+
+"Can you do any of the others, sir?"
+
+"What?"
+
+"The other men."
+
+I waited for him to answer her.
+
+"Yes."
+
+"Could you show me, please?"
+
+"Gooooood evening, sir!"
+
+I opened my eyes.
+
+That sounded exactly like Emmerson.
+
+"Oh! That's quite good. Anyone else, sir?"
+
+I heard the voices of several people I didn't recognise. One of them sounded like a young boy.
+
+"Have you spoken to Margaret?" Patty asked.
+
+"No."
+
+That was my voice again.
+
+"Can you do her as well?"
+
+He took a little while to answer.
+
+"Yes."
+
+"Go on, then!"
+
+"I'd rather not."
+
+"Oh, it'll only take a second, sir."
+
+"Good morning, handsome."
+
+I sat up.
+
+There wasn't a single thing wrong with the way he'd said it. Even the little emphasis Margaret tended to place on *handsome* was there.
+
+"Okay! And would you mind using your own voice, sir?"
+
+"I'm quite comfortable with this one."
+
+He was speaking in my voice again.
+
+"Oh, alright."
+
+I could hear someone moving about outside.
+
+"I really ought to get going."
+
+"Of course, sir. Just one more thing."
+
+"What?"
+
+"Could I have a look at you, please?"
+
+He didn't answer.
+
+"Sir?"
+
+"Please."
+
+"It'll only take a moment, sir."
+
+"I'm sorry."
+
+"Oh! Whatever for?"
+
+"I'm sorry."
+
+"Come a little closer, please."
+
+I heard someone take a couple of steps.
+
+"A little closer, sir."
+
+I'd been trying to figure out what the fuck was going on outside my quarters when I heard myself speak again.
+
+"Please don't."
+
+"Don't what, sir?"
+
+He didn't answer her.
+
+"Sir?"
+
+"I'm sorry."
+
+"Yes, sir. You've said that already."
+
+Patty laughed a little.
+
+"I won't come back."
+
+"Oh?"
+
+"I promise."
+
+I'd heard recordings of myself speaking on numerous occasions over the years.
+
+I'd never heard myself beg.
+
+"Please."
+
+I could hear myself crying.
+
+What bothered me more was that I could still hear Patty laughing.
+
+"Could you keep your voice down a little, sir?"
+
+The crying stopped.
+
+"The CO's trying to sleep."
+
+I didn't hear anything else for the rest of the night.
+
+\>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
+
+I waited until my alarm went off before getting out of bed and opening the curtains. There was nobody outside.
+
+I'd arranged to have a word with Echo Company's OC that morning. Both Harris and Ellis had been given the rest of the previous day off by the medical officer, although neither of them had managed to get much sleep. I asked the OC to send the two of them over to my office later that morning. We went through the remaining statements before he left. Several of the men had reported hearing someone calling out to Harris prior to us withdrawing from the range.
+
+None of them could agree on whose voice it was.
+
+I was making a note of that when someone knocked on my office door.
+
+"Come in."
+
+"Morning, sir!"
+
+*Oh, Christ.*
+
+"Morning, Patty."
+
+"I've got a couple of documents for your signature, sir."
+
+"Right. Put them here."
+
+She placed them on my desk.
+
+"Did you manage to get some sleep last night?"
+
+"Not much."
+
+"Oh, dear."
+
+I looked up at her.
+
+"Patty, were you outside my quarters again last night?"
+
+"Yes, sir."
+
+"What were you doing out there?"
+
+"I was on my way back to my quarters."
+
+"At midnight?"
+
+She smiled.
+
+"Sorry, sir."
+
+I put my pen down.
+
+"Who were you talking to?"
+
+"Oh! Did you hear us?"
+
+"Yeah."
+
+"I thought it was you at first, sir."
+
+"And then?"
+
+"Well, your lights were off."
+
+I stared at her for a moment.
+
+"Patty, did you get a good look at him?"
+
+"Yes, sir."
+
+"What did he look like?"
+
+"Like you, sir!"
+
+"Exactly like me?"
+
+"Pretty much."
+
+"What happened to him?"
+
+"He left, sir."
+
+I tried recalling what I'd heard immediately after Patty had asked him to keep his voice down.
+
+I couldn't remember hearing any footsteps.
+
+"Why was he crying, Patty?"
+
+"Oh, was he keeping you up?"
+
+"That's not what I asked."
+
+"Sorry, sir."
+
+She glanced down at the documents she'd placed on my desk.
+
+"Would you like me to come back for those later?"
+
+"In a bit, Patty."
+
+"Okay!"
+
+She saluted and made her way towards the door.
+
+"Patty."
+
+"Yes, sir?"
+
+"Don't go wandering around after midnight."
+
+"I'll try not to, sir!"
+
+She smiled at me and left.
+
+I sat there for a little while before picking up my pen again.
+
+\>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
+
+Margaret turned up about half an hour later.
+
+"Good morning, handsome."
+
+"Morning, Margaret."
+
+"Oh, sweetheart. You look dreadful."
+
+"Didn't get much sleep."
+
+"What a shame."
+
+She placed the book she'd borrowed on my coffee table and took a seat.
+
+"Margaret, do you know if Zulu ever leaves the range?"
+
+"Of course."
+
+"He was outside my quarters last night."
+
+"Oh?"
+
+"Does he normally do that?"
+
+"Not ordinarily, no."
+
+I told her about the two voices I'd heard outside my quarters.
+
+"Patty was there?"
+
+"Yeah."
+
+"I see."
+
+"At least, she reckons it was her."
+
+Margaret looked at me.
+
+"Did you answer either of them, Richard?"
+
+"No."
+
+"Good."
+
+I got up and retrieved a can of Coke from the fridge for her.
+
+"Margaret, what would've happened if one of my men had shot Zulu yesterday?"
+
+"Well, there wouldn't have been anything standing between your men and the other one, would there?"
+
+I'd always assumed that particular rule existed because of what Zulu might do to someone who engaged it.
+
+It hadn't occurred to me that the rule might've been put in place for Zulu's benefit.
+
+"Would it actually hurt him?"
+
+"I'd rather you didn't find out, Richard."
+
+"Fair enough."
+
+She opened her drink.
+
+"Did Patty tell you what happened to the other one?"
+
+"Apparently, it left."
+
+"Well, that's nice."
+
+"Margaret?"
+
+"Yes?"
+
+"Have you ever heard one of those things cry?"
+
+She looked up from her drink.
+
+"Yes, Richard."
+
+I waited for her to elaborate.
+
+She didn't.
+
+There was a knock on my office door.
+
+"Come in."
+
+My adjutant informed me that the two corporals I'd requested to see had arrived.
+
+Margaret got up.
+
+"I'll leave you to it, handsome."
+
+"You don't have to go."
+
+"Oh, I've got a couple of things to attend to."
+
+She retrieved her drink and made her way towards the door.
+
+"Try to get some sleep tonight, sweetheart."
+
+"I'll try."
+
+\>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
+
+I spent some time speaking to the two corporals. Harris had been keeping quiet for most of the conversation when he asked me something.
+
+"Sir, did it really sound like me?"
+
+"Yeah."
+
+"Oh."
+
+Ellis glanced at him.
+
+"Tell him what you told me last night."
+
+"It's alright," Harris replied.
+
+I turned towards him.
+
+"What is it, corporal?"
+
+"Sir, when it was screaming yesterday, I could hear myself."
+
+"Yeah. I heard it too."
+
+"No, sir. I mean I could hear myself."
+
+I didn't quite understand what he meant.
+
+"You know when you're speaking, sir? How you can sort of hear your own voice in your head?"
+
+"Yeah."
+
+"It sounded like that."
+
+He touched his throat.
+
+"Even when I covered my ears, sir."
+
+"Have you experienced anything similar since leaving the range?"
+
+"No, sir."
+
+I made a note of it.
+
+"Sir?"
+
+"Yeah?"
+
+"Is there something wrong with me?"
+
+"I've heard something speaking in my voice as well, Harris. You're not the only one."
+
+He looked up.
+
+"Really, sir?"
+
+"Yeah."
+
+Ellis had apparently been blaming himself for waving at the man on the range. I told him I couldn't fault him for thinking it was his buddy. I arranged for the two of them to be excused from training for another day and told them to inform their platoon commander if either of them experienced anything unusual. After they'd left, I added Harris's account to the previous day's incident report.
+
+\>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
+
+I spent part of the afternoon writing up the incident outside my quarters. None of the men on duty that night had reported seeing Zulu anywhere in camp. I made a note of that before going through the conversation I'd overheard.
+
+When I got to the bit about the incident reports, I went down to the registry to check the sign-out register. Patty had drawn the folders at 1715hrs on the day I'd requested them. Her signature was beside the entry. I made a note of the time on the pad I'd brought down with me.
+
+I was halfway back up the stairs to my office before it occurred to me that I'd just gone all the way down to the registry to check whether I'd read a couple of folders over lunch.
+
+I knew perfectly well that I hadn't.
+
+*Fucking hell.*
+
+I went back to my desk and got on with the report.
+
+I was just about done when Patty knocked on my office door again.
+
+"Sir, have you had a chance to sign those documents?"
+
+"Oh, shit. Sorry, Patty."
+
+I retrieved them from the corner of my desk and went through them.
+
+"Busy day, sir?"
+
+"Something like that."
+
+She stood beside my desk whilst I signed the documents.
+
+"Did Margaret drop by today, sir?"
+
+"Yeah."
+
+"Oh!"
+
+I handed her the documents.
+
+"Thanks, sir!"
+
+She glanced at the incident report I'd been writing before making her way towards the door.
+
+"Have a good evening, sir!"
+
+"You too, Patty."
+
+\>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
+
+The next few days were quiet. I was due to go up to the rooftop at 0300hrs the following morning. I was on my way to the cookhouse that evening when I came across Emmerson. He'd been sitting on one of the benches outside my building.
+
+"Gooooood evening, sir!"
+
+I carried on walking.
+
+"I take it you'll be going up to the rooftop tomorrow morning, sir?"
+
+I could hear him walking behind me.
+
+"He's still up there, sir!"
+
+*Christ.*
+
+It'd been nearly a week.
+
+"I went up to see him yesterday, sir."
+
+I hadn't expected that. The last time Margaret had invited him up to the rooftop, he'd been quite reluctant to go.
+
+"I thought I'd better, sir."
+
+He wasn't laughing.
+
+"He's been asking about you, sir."
