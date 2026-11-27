@@ -1,0 +1,188 @@
+I was thrilled to finally move into my own place for one key reason. As a kid, I’d always been forced by my folks to clean my room. To me, that just seemed like a waste of time.
+
+Each time I tidied up, made my bed, brought my dishes to the kitchen, vacuumed my floor or put my clothes in the hamper at my parent’s behest, I dreamed of the day when I could finally have a messy room as a grown up. Well, now I would get to do one better.
+
+I could have a messy *apartment*.
+
+Elated by my slobbish freedom, I let the place become a pigsty. Clothes sprawled across various bits of furniture, dishes piled up in the sink, dust layered itself onto surfaces and dirt tracked in over the floor. I didn’t let it get *too* out of control, but it definitely would have made my parents faint if they ever braved a visit. But so what?
+
+It’s not like I was suffering any health or safety risks from it. I didn’t have any allergies to the mustier air and I had fortunately yet to attract any pests to the abode. I simply washed the things I needed to when I needed to and the world outside my apartment was nonethewiser about the mess I lived in.
+
+My parents and their cleanliness had been proven wrong. I wasn’t gonna perish if things got a little unclean.
+
+Anyway, my upstairs neighbours were way messier than me. A free-spirited rocker couple, those two made my place look like a sterile hospital in comparison. The few times I saw their place, not only was there cigarette smoke and bottles everywhere, but even damaged property. Those guys definitely weren’t trying to get their bond back.
+
+Every day after work when I came home, threw my stuff wherever and sprawled out on my unmade bed with takeout, I felt content knowing my messiness had finally found its home.
+
+Until, one evening, I heard a knock on my front door.
+
+Opening it, I found no one there. Just an empty corridor. Odd, I thought to myself and went to shut it.
+
+Suddenly, a man appeared in my doorway.
+
+This startled me so much I tripped over my bathrobe jumping back. I had just peered down the apartment hallway seconds before and hadn’t seen anyone approaching. Maybe he came out of another flat…
+
+Taking in the appearance of the middle-aged man in front of me, I felt compelled to rub my eyes. And then again. There was a professionally-dressed, straight-laced man holding a clipboard. His shirt, tie, tweed jacket and trousers were all pressed to perfection. His hair was slicked in a side part. All immaculately neat.
+
+But that wasn’t what was confounding me.
+
+The man seemed to have a strange misty quality to his visage. His very being was static-y and hazy, an effect which jarringly did not extend to the building around him. I must’ve worked really hard today and been dazed—I *had* just been dozing off on the couch. Surely it was just sleep in my eyes.
+
+“Ahem. Good evening…uh…Hume of 4B, is it?”
+
+The flickering man’s voice interrupted my deductions, bringing my attention back to why he was at my door.
+
+“Sorry. Yeah I am. Can I help you with something?” I replied, overlooking his strange aura.
+
+“Right, of course” he muttered with the cadence of a doddering fogey. “Well, I am here for the matter of which you were previously advised. As you may recollect, you were given notice of an upcoming rental inspection to which you did not respond.”
+
+I frowned, searching my memory. What rental inspection?
+
+“Uh, nope, sorry sir, I definitely did not receive any notices like that. I check my mailbox in the lobby every day.”
+
+The man sighed and pushed his shimmery glasses up his nose.
+
+“Your notice for your upcoming rental inspection was *not* sent to you via mail. As is Vistabelle Heights procedure, your written notice was provided to you in the form of a scrawled note in the mist of your bathroom mirror, exactly one week in advance of your inspection.”
+
+An amused grin formed on my face at this ridiculous joke…and then slipped off my face as I cast my mind back. I did, in fact, vaguely recall seeing a strange print on my fogged-up mirror last week when I exited the shower. It had looked eerily like lettering. But I’d just dismissed it as toothpaste spatters and moved on.
+
+There was no way this flickery man had broken into my apartment to smudge notes onto my bathroom mirror. There was no way he was a real apartment inspector at all, if this was what he was saying.
+
+“To restate my missive, I have been tasked with inspecting the most unkempt apartments in this building in which you reside. For each night of this week, I am conducting an inspection of the upkeep, hygiene and orderliness of a ‘problem’ unit in this building. As you would know if you had read my notice, your inspection is scheduled for *tomorrow*.”
+
+I couldn’t help but chuckle at this. It was a good thing this was a prank because the idea of me being ready for a rental inspection by tomorrow was laughable.
+
+“Well, apologies Mr Building Inspector, but I won’t be able to swing an inspection tomorrow. So I guess you should call the whole thing off, huh?”
+
+Visibly irritated, the man peered over my shoulder at the tornado of a one-bedroom apartment behind me. His already severe looking face tightened, his expression sharp even through his misty haze.
+
+“Young man, you do not deserve the privilege of living in this fine building!” he scolded me, his unassuming warble lurching into a commanding tone. “Many individuals would give anything to *live* in an apartment such as yours, and you desecrate this privilege with this filth. Should you not heed this call to immediately stop abusing it, you will face the ultimate punishment of cessation of your slovenly existence—by means of spectral force!”  
+
+I had no idea how to respond. This supposed building inspector was standing in my doorway policing me like a misbehaving child while raving about nonsense. This was exactly the crap I didn’t need to listen to anymore after moving out of home. Who did this pencilpushing loon think he was?
+
+And yet, I also hesitated to push back. There was something about his echoey, tinny voice that was as imposing and surreal as his form was.
+
+“Get lost, weirdo, before I call building management” I finally retorted. “Go find another condo to harass with your bizarre prank.”
+
+None of this phased him.
+
+“You have until the time of 3am one day from now to make your apartment presentable and appropriate to pass inspection, as to the standards of your rental agreement—or else there will be dire consequences. Be aware, Hume, that there are worse penalties than eviction.”
+
+With that, the man let out a sudden, earsplitting screech before erupting into a horrifying spectre—for a split second. Then it disappeared into a cloud of smoke.
+
+Reeling and dizzied, I stumbled to my bed and shut my eyes. A few moments later, I opened them. That must have been a dream, I quickly assumed. I hadn’t seen a man look and sound hazy because I was groggy—I’d dreamed the whole thing. That was it, of course.
+
+The next morning, I rummaged through the piles of debris around my apartment until I finally found my phone. For peace of mind, I had to make sure there wasn’t really an inspection coming up.
+
+“Building inspection? Ain’t no inspection booked. Who needs ‘em really? I’m sure ya can manage yer own space.”
+
+The current building manager Georgy, who had apparently only stepped into the role recently, put my mind at ease by confirming last night’s threat had just been my tired imagination. Georgy was the type of slack, work-hating manager who didn’t care about the state of his property much at all.
+
+My kind of man, honestly.
+
+Feeling reassured, I continued in my normal messy Saturday routine, adding a cereal bowl to the dish pile, my pajamas to the clothes pile and scrap papers to the overflowing bin.
+
+Then I went upstairs, figuring Zee and Blaine were worth talking to about this. After all, not only were they fellow messy inhabitants of this same building, but they were actually messier than me. If anyone could put my mind at ease about my paranoid dream, it would be them.
+
+When I stepped onto the landing of their floor, however, I saw that their front door was open. That was odd. They lived a loose lifestyle but they still wouldn’t leave their door open like that. Knocking and venturing inside, I was met with the usual state of mess around the apartment…
+
+…and then both of their deceased bodies.
+
+Both Zee and Blaine were laying on the floor, still dressed in their leather gear from the night before, their eyes wide open, not breathing. I might have thought they’d passed from a drug overdose or alcohol poisoning—if not for the fact that their faces were frozen in expressions of utter terror, with mouths gaping and arms shielding.
+
+Of course, I called 911 straight away. Soon enough, emergency services were carrying their bodies out of the apartment, the yellow crime scene tape around their front door a final addition to their clutter.
+
+While waiting for the police to arrive, however, I checked their bathroom. And there I saw it this time, clear as day, on the mirror:
+
+*“Dear occupant,*
+
+*Please be advised that your apartment has been selected for inspection by the phantom who holds dominion over Vistabelle Heights.* 
+
+*You are provided 7 days to prepare for this apartment inspection, which will assess cleanliness, preservation and accessibility of your living space at 3am on Friday 9th October.* 
+
+*Do note all chosen tenants are subject to fatal penalty for failure as per rental guideline 46.2.*
+
+*Best regards,*  
+*Inspector Brooks”*
+
+My blood ran colder than the bodies of my poor neighbours at the sight of that message. I could now recall that was definitely the shape of the uncanny message I’d had on my own bathroom mirror. Which meant…was I next? Was I doomed to suffer this same fate too?
+
+In a panic, I raced out of the apartment and down the stairs, looking to catch some fresh air. Instead, in the lobby, I ran straight into Nora.
+
+“Oh my god, I’m sorry!” I apologised, helping my neighbour back up. I’d had a crush on her since the day I moved in here, her wavy brown hair and green eyes pretty as ever despite her disarray.
+
+“That’s okay, Hume. It’s crazy over here today, huh? Is it true that all those emergency services were here because…Zee and Blaine from 5C are…?” she asked grimly.
+
+I nodded and filled her in on the haunting scene I witnessed.
+
+“God, that’s just awful” she murmured, clutching her mail. “I hope you’re holding up okay.”
+
+“Yeah, it doesn’t look like there was any foul play so I guess…”
+
+Besides the dark circumstances, it was like any of our friendly encounters in the apartment building. I’d wanted to invite her over to my apartment for a drink the longest time—but of course I couldn’t. Not with the woebegone state of my apartment.
+
+In moments like this of feeling ashamed of my squalid living conditions, I finally understood what my parents had been trying to instill in me. Understood why people clean their apartments and keep them presentable. 
+
+“I can’t believe there’s been another tragedy in this building after the last one—within months of each other” Nora wondered to me.
+
+“Wait what other tragedy?” I asked, confused.
+
+“Didn’t you hea—oh, you moved in after that. The previous building manager of Vistabelle Heights died in his apartment back in June. He lived in a flat in the building and there was a terrible accident. I wonder if it’s related. I think his name was something Brooks.”
+
+Inspector Brooks…
+
+That was the last piece of confirmation I needed to understand what was happening. Last night’s ghostly visit hadn’t been a dream. That warning had been a promise. The ghost of our building’s late building manager really was planning to inspect every inch of my apartment at the witching hour of tonight.
+
+And if I didn’t manage to pass that inspection, it was going to horrify the life right out of me.
+
+I looked at my watch—inspection time was less than 12 hours away.
+
+My first thought, as Nora departed, was to run. Leave the apartment far behind, hop in my car and drive until the inspection time. But I quickly disabused myself of this possibility. An otherworldly phantom like Brooks, even one haunting this apartment, would be able to find me no matter where I went. I couldn’t be the first person to try skipping out on mine. 
+
+So, at long last, I begrudgingly, desperately relented to doing the thing I’d put off doing since childhood.
+
+I began to clean.
+
+The task seemed so daunting that I barely knew where to start. First, I began madly throwing out all the disposable clutter throughout my apartment. Things like takeout containers, old delivery boxes, empty beer bottles, full recycling bins and the like. It took multiple trips of running up and down the stairs, ferrying items to the outside bins as we annoyingly lacked an elevator. I was literally running for my life.
+
+Next was washing the dishes and doing the laundry, which meant collecting every bit of glassware and clothing. A trip to the laundromat and sink later, I was onto vacuuming and mopping the apartment. I barely even knew how to work my vacuum cleaner and I’d yet to master figure 8s on my mob, but I learned fast. I cleaned those floors over and over until every inch was spotless. I did not “miss a spot”.
+
+Finally, there was dusting and rearranging everything to be neat and orderly. This took longer than I’d imagined—there were so many knickknacks to dust, so many miscellaneous objects to put away and organise. I cleaned like my life depended on it—at this point, I don’t need to remind you that it did.
+
+Working all night, not even believing I could possibly make the deadline, I looked up at the clock just as I was pulling off my rubber gloves. It was just ticking over to 3am. I only had time to spritz the room spray I’d bought a few times.
+
+*Knock knock.*
+
+Ghostly Inspector Brooks was here. I’d gotten it done—or so I hoped—by the skin of my teeth. Opening the door to him for the second time, my arms were twitching, half from fear and half from exhaustion. 
+
+“Good evening again, Hume,” his fuzzy, supernatural form greeted. “I take it you’ve prepared for your inspection as discussed? And have you been made familiar with the consequences for noncompliance?”
+
+I just weakly nodded.
+
+“Very well—then I shall begin.”
+
+For what seemed like an eternity, I watched as the eery ghost of Brooks made his way around my apartment and checked it meticulously. He peered around every nook and cranny, jotted notes on his incorporeal clipboard and floated to view high surfaces like the tops of doorways and my refrigerator. He even took ghostly, blinding photographs. Nothing I saw surprised me anymore. 
+
+I was just grateful he wasn’t corporeal enough to do a “white glove” dust test.
+
+And then the inspection was over. It had only taken 15 minutes. Phantom Brooks turned to me, smiling graciously.
+
+“I am impressed by your efforts here tonight, Hume. You have achieved a commendable task. Remember that you have a responsibility to keep yourself and others safe through cleanliness.”
+
+His cheerful demeanour took on a sombre tone.
+
+“I was once a resident of these same apartment units. I myself perished due to a gas leak in my unit, which an inspection could have fixed. It certainly would have saved my family. If you treat your apartment like you’ve expired in it, you may just expire in it.”
+
+With that parting lesson, the ghost of building manager Brooks dispersed into a cloud of smoke, less fitfully and loudly as he had before. 
+
+The following night, I made use of my newfound clean apartment and finally invited Nora over for that drink. We talked late into the night getting to know more about each other.
+
+“I love how neat your apartment is, you take great care of it!” she beamed. “Wish I could relate!”
+
+Frowning, I asked what she meant.
+
+“Oh well, my apartment is a bit of a dump. I suck at cleaning. I even thought I saw a message on my bathroom mirror the other day—when it was probably just spilled makeup! I can’t even hear people knocking on my door because there’s so much mess haha.”
+
+My heart froze at her confession. I looked down at my watch.
+
+We had less than an hour to clean Nora’s apartment before her inspection.

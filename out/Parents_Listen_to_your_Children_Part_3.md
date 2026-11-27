@@ -1,0 +1,573 @@
+Continued from [Part 1](https://www.reddit.com/r/nosleep/s/Jz6gZCQX9q) and [Part 2](https://www.reddit.com/r/nosleep/s/EvN8CNm827).
+
+I told him.
+
+A few of you asked in the comments if I would. I did, the morning after I posted. I’m starting there because it’s the one thing I got right this month, and I need something on the board before I confess the rest.
+
+I know you waited a while for Part 2, but I’d finished writing it before the sun came up that Saturday. I sat on it until that night because I wanted every fact down before I uploaded it. This one took longer. About a month. Some of y’all have messaged to ask if we’re still alive. We are. I kept waiting until I understood what was happening before I posted again, and I’ve given up on that.
+
+It’s Thanksgiving night. I’m back at Stephanie’s kitchen table, same chair, same cup of coffee gone cold. Eli is asleep on the floor beside the couch in a sleeping bag her dad lent us. I’ve gotten up to check on him five times since I started typing. He’s breathing.
+
+I wanted to tell him immediately, but how do you go about telling your son you killed any chance he had at a sibling? I couldn’t bring myself to do it for a full day.
+
+That Sunday morning, Stephanie went out for groceries, and Eli and I sat on her couch with a box of dry Cheerios between us. He ate them one at a time. I held a handful and didn’t eat any.
+
+I’d practiced it in my head all night. None of it survived the first sentence.
+
+“Buddy, you know how Mommy was sick?”
+
+He nodded and ate a Cheerio.
+
+“Before she got sick, Mommy had a baby in her tummy. A little sister for you.”
+
+He stopped chewing. “In her tummy?”
+
+“Right in there.” I had to stop. He waited. He learned patience through the same thread I did. A dying mother in a room we could not leave. “Then Mommy got sick, and the doctors said she couldn’t get better and keep the baby too. So we had to let the baby go.”
+
+“Go where?”
+
+The heat ticked in the wall. He didn’t notice it.
+
+“We named her Lily,” I said.
+
+“Lily.” He tried it out. “Was she gonna be big like me?”
+
+“Big for sure. And bossy. She’d have had your mom’s red hair and her temper, and she’d have bossed you around something awful.”
+
+He smiled and I hurt. It was the only picture I carried of Lily, and it was in my head. Just like her mother.
+
+He ate another Cheerio. “I know about her.”
+
+“How, bud?”
+
+“She told me.” He shrugged, like I’d asked how he knew it was Sunday. “She didn’t know her name, though. I found it. In the box with Mommy’s glasses.” He picked a Cheerio out of the couch cushion and ate that too. “Does she get a birthday?”
+
+“I don’t know, Eli.”
+
+I said it, and I was surprised at how true it was.
+
+He leaned into my side, the way he does when he’s done with a subject, and said into my sleeve, “She can hear you now, Daddy.”
+
+“Hear me how?”
+
+“’Cause you said it out loud.” He reached into the box. “You have to say it out loud.”
+
+Stephanie got back around noon with four bags of groceries and a full report on parking downtown.
+
+“Okay, so the meters on Main are broken again, which, fine, whatever, but then this guy in a Silverado literally parks across two spots, on purpose, I’m not even kidding, and I almost—” She stopped with the milk halfway into the fridge and looked at me. “Are you okay? No offense, but you look like you got hit by a truck.”
+
+“Allergies,” I said.
+
+“In October?”
+
+“I’m allergic to October.”
+
+“Mm-hm.” She didn’t buy it, but she let it go. She’s good at that. She went and sat on the floor next to Eli. “Okay, what are we drawing?”
+
+“Doug.”
+
+She leaned over to look. He’d given her pet betta fish about forty more teeth than it actually had. “Oh my God. He’s gonna be so flattered. Look at you, you’re terrifying.”
+
+\---
+
+Steph didn’t ask me again if I was okay. Not out loud. But that evening she stood in the doorway with her overnight bag and didn’t leave.
+
+“You sure? Because I can literally sleep on the floor, I don’t care. I slept in a tent at a music festival for three days in the rain. I’m built different.”
+
+“We’re fine, Steph. Go home to your parents’ place.”
+
+“Okay. Okay.” She still didn’t move. “Oh, and the fridge makes this noise at night like it’s dying? It’s not. Probably. Gus won’t replace it, obviously, because Gus would rather die himself. Just ignore it.”
+
+“Will do.”
+
+“Text me if anything happens. Like, anything.”
+
+“Go home, Steph.”
+
+She left. Eli fell asleep on the couch around nine. I’d tucked the Power Rangers blanket under his chin, and I lay on the floor beside him and listened to the building. The pipes knocked. Somebody’s TV came through the wall. A truck downshifted out on Main. I named every sound in my head, one at a time, like telling beads.
+
+Around midnight, the refrigerator kicked on.
+
+It was an old Frigidaire, older than Stephanie, I was sure. It hummed with a tune you could feel in your fillings. I heard it start, and I heard it settle, and then, underneath it, I heard a little voice say, “Daddy?”
+
+It didn’t come from the couch. Eli was asleep with his mouth open and both fists knotted in the blanket. It came from the kitchen, from somewhere behind the fridge. The same small voice I’d heard under the house, the voice of somebody who hadn’t used it much.
+
+“Thank you for telling him.”
+
+I didn’t answer. I was scared, sure, but mostly I didn’t know who I’d be answering: Lily, or something that had learned to sound like her the way it learned my father’s cough.
+
+I got up, walked into the kitchen, and pulled the plug out of the wall.
+
+The hum died. The kitchen ticked. I stood there in the dark holding the cord until my hand cramped, and nobody said anything else.
+
+In the morning, Stephanie let herself in with two coffees. She handed me one, opened the fridge, and stood there.
+
+“Why is my milk warm?”
+
+“Long story.”
+
+She looked at me, then at the plug lying on the floor. “Why is my fridge unplugged? Is this—okay. Is this a long story I don’t want to know? Because I can totally not know. I’m great at not knowing.”
+
+“It’s that kind.”
+
+“Cool. Love that.” She poured the milk down the sink and plugged the fridge back in, with a look that said she’d be asking about it later. “I’m gonna go get more milk.”
+
+\---
+
+By Monday night, I had a rule of my own.
+
+No hums.
+
+I turned Stephanie’s thermostat to OFF and taped over it. Mind you, it was thirty-four degrees outside.
+
+“Are we camping?” Eli asked from the couch, in his coat and hat.
+
+“Inside camping.”
+
+“Is that a real thing?”
+
+“It is now.”
+
+He thought that was the funniest thing he’d ever heard. I moved the food to a cooler on the fire escape and unplugged the fridge, the microwave, the TV, the bathroom fan, and the little pump that kept Stephanie’s betta fish alive. I moved the fish into a mixing bowl. Doug took it pretty well.
+
+That night we ate cold cereal on the floor in our coats, by flashlight, and Eli asked if we could do Lily’s birthday.
+
+“Tonight?”
+
+“You don’t know her birthday,” he said, like it was the easiest thing in the world. “So it can be tonight.”
+
+I couldn’t argue with that. There was a honey bun in the cooler from the gas station, and Stephanie had birthday candles in her junk drawer, the skinny striped kind. I stuck one in the middle of the honey bun and lit it with a kitchen match.
+
+“How old is she?”
+
+I did the math, and then I wished I hadn’t. “She’d be two.”
+
+He sang to her. The whole song, loud and off-key, the way his mother used to sing in the car. I came in on the last line. He blew out the candle, broke the honey bun in half, and set her half on a paper towel by the couch, and neither of us said a word about it.
+
+In the morning it was still there. I left it.
+
+The streetlight outside the window hums. The coolers at the Dollar General hum. So does the ice machine at the gas station. The highway, a mile off, makes one long low note all night that I had never noticed in my life. I’d lie there at two in the morning and hear the whole town humming at my son, and I’d think, *I can’t unplug the highway.*
+
+Tuesday morning, I went down to the hardware store for batteries.
+
+It takes up the whole ground floor under Stephanie’s apartment, and it looks like nobody’s dusted since it opened: nails by the pound, mason jars, a bucket under a water-stained ceiling tile right next to the counter. The business license taped up behind the counter said GHASSAN \[REDACTED\]. The name tag on the man under it said GUS. He was fifty or so, heavyset, with a gray mustache and a string of worry beads he kept clicking through his fingers. He watched me set twelve packs of D batteries and four camping lanterns on the counter, and he didn’t ring up any of it.
+
+“You,” he said. “Second floor.”
+
+“That’s me. I’m Jeff.” I held out my hand. “Stephanie’s letting us stay a while. Me and my boy.”
+
+He looked at my hand and kept clicking the beads. “Stephanie lease say one person. Only Stephanie.”
+
+“It’s just through the holidays. She’s staying at her folks’, and I’m covering her rent in the meantime.”
+
+“Through the holidays.” He said it like he was pricing it. “You know what I can do? I call the sheriff. I tell him, there is man living in my building, not on my lease. Friday, you are out.”
+
+I didn’t mention that the sheriff already had my number. I let out a nervous chuckle instead.
+
+“Okay. Or?”
+
+“Or.” He finally rang up the lanterns. “Four hundred. Cash. Every first of the month, on top of her rent. Then you are guest.”
+
+“Do guests get a mint on the pillow?”
+
+“Guest don’t get evicted.” He bagged the batteries. “I don’t care what is your trouble. I don’t care why you are here. I care for my building.”
+
+“Speaking of your building,” I said. “The thermostat upstairs. I shut it off, and the heat keeps coming on.”
+
+“Because it does nothing.” He shrugged. “Nobody’s does. Whole building, I wire straight to the furnace. Sixty-eight, all day, all night. Before, people turn it up to seventy-five, I pay. Pipes freeze in January, I pay. Now nobody touch it.”
+
+“What if I need it off?”
+
+“Then you need different building.” He pushed the bag across the counter. “And tell your friend she still owe me for the window.”
+
+“What window?”
+
+“She know what window.”
+
+I took my batteries upstairs.
+
+I was getting Eli a juice box out of the cooler when the register behind the couch started to tick, then to breathe, then to hum.
+
+Eli was on the floor, coloring. He stopped.
+
+Stephanie had told me about this, but believing somebody and watching it happen are two different animals. He just went still, the crayon resting on the paper, and tilted his head to the left, the way a dog does when it hears its name from another room. His eyes were on the register.
+
+“Eli.”
+
+Nothing.
+
+I said his name again and started across the room, and halfway across it, the air changed. It got heavier. Warmer. It smelled like the cab of my father’s truck: Winstons, cracked vinyl, the pine tree air freshener he never once replaced. I hadn’t smelled it in three years. My knees almost went.
+
+“Selah,” Eli said, clear as anything.
+
+I didn’t know the word. Then he said it again, softer, like he was calling to a friend across a classroom, and I understood it was a name.
+
+I knelt down and took his face in both hands. His cheeks were warm. He looked right through me at the register.
+
+His hand never stopped moving. He’d been drawing the whole time, and while I knelt there, I watched him. He drew a house, a regular kid house: a square, a triangle roof, a chimney with a curl of smoke. Then he drew another house under it, below the grass line, the same shape but upside down, its roof pointing down into the dirt. In the strip between the two, between the floor of one and the ceiling of the other, he drew a man lying flat on his back with his arms out in a crucifix, like somebody had laid him there.
+
+Downstairs, the furnace shut off. The register ticked and went quiet.
+
+Eli blinked. He looked down at his drawing, then up at me. “Why are you on the floor?”
+
+“What’d you draw, bud?”
+
+“A house.” He tapped the top one with his crayon.
+
+“What about this one?” I put my finger on the upside-down house under the grass.
+
+He frowned at it. “I didn’t draw that.”
+
+“Who’s Selah?”
+
+“Who?”
+
+I let it go. He asked for two juice boxes, and I gave him two. He set one beside his paper, unopened, next to the man lying flat in the dirt. Then he climbed into my lap with the other one, which he hadn’t done since he was four, and stayed there till it was gone.
+
+The smell of my father’s truck hung around for an hour. After it faded, I found a fresh burn on the arm of Stephanie’s couch, small and round, the size of a cigarette end. The fabric around it was still warm.
+
+Nobody smokes in that apartment. Stephanie doesn’t. I don’t. Gus would hand me my own ass if I started.
+
+My father was a filthy smoker and a filthy liar. He cracked the window only an inch, and we could smell it on him even when we tried to ignore it.
+
+That night, Eli wanted to sleep in his coat.
+
+“You’re going to get hot, bud.”
+
+“I’m cold.” He pulled the Power Rangers blanket up to his nose. Then, from under it: “Did Papa smoke?”
+
+I was sitting on the floor with my back against the couch. I didn’t turn around. “Yeah. He did.”
+
+“In his truck?”
+
+“In his truck.”
+
+“With the window down.”
+
+“Just a crack,” I said. “So nobody would smell it on him.” Everybody did anyway.
+
+He was quiet so long I thought he’d gone to sleep. Then he said, “He says sorry about Stephanie’s couch.”
+
+I sat there until his breathing went slow. Then I got up and ripped the tape off the thermostat, since apparently it didn’t do a damn thing, and stood in front of the register for a while, listening to it not hum. Then I sat back down and didn’t sleep.
+
+That was the first week. The next few went about the same.
+
+My company gave me family leave, which is a nice way of saying they didn’t know what else to do with me. Eli’s teacher emailed worksheets, and we did them at Stephanie’s kitchen table by lantern light, adding apples and coloring in vowels. Stephanie came by most days and talked the whole time she was there, and she started leaving sandwiches in the cooler with my name on them in Sharpie, because I kept forgetting to eat. On the first of the month, I paid Gus his four hundred in cash. He counted it twice, right in front of me, and never once said good morning.
+
+I covered Stephanie’s rent and her bills, plus a little extra, since she was the one sleeping in her childhood bedroom at her parents’ house so we’d have somewhere to go. She fought me on the extra every single time.
+
+“You overpaid me again,” she said one afternoon, holding up her phone.
+
+“No, I didn’t.”
+
+“You literally did. I can do math. I’m in nursing school.”
+
+“Then you know what groceries cost.”
+
+She stared at me. “That’s not—okay, that’s actually a good point. Thank you. I hate it.”
+
+The heat came on whenever it wanted to. Some days nothing happened. Some days Eli went still in the middle of a sentence and finished it in a voice that wasn’t quite his, and came back hungry, and didn’t remember any of it. I stopped telling Stephanie. She stopped asking.
+
+I don’t think I’ve slept a full night since October.
+
+\---
+
+Torres called the Tuesday before Thanksgiving.
+
+“How’s the boy?” was the first thing he said.
+
+“He’s okay.”
+
+“He with you?”
+
+“Stephanie took him to the store.”
+
+“Huh.” He let that sit just long enough for me to hear it.
+
+“You sound like a man who hasn’t slept in a month.”
+
+“I haven’t.”
+
+“Yeah,” he said. “Me neither.”
+
+“Everything we bagged is at the county station,” he said. “The ultrasound, too. It’s locked up. Nobody’s looking at it but me.”
+
+“Okay.”
+
+“I tried the Okafors. Both numbers are dead. I mailed a letter to their last address, down in Georgia, a couple weeks back.” A pause. “Came back yesterday. Return to sender.”
+
+“So nobody knows anything.”
+
+“Somebody knows something. People don’t leave a house like that and forget to forward their mail.” Another pause, longer. I could hear him deciding how to put the next part. “County engineer came out. He’s calling your foundation a collapse hazard. They want to fill the whole thing with gravel Monday morning. Tunnel, rooms, all of it.”
+
+“What happens to our stuff down there?”
+
+“It gets buried.”
+
+I thought about my wife’s sweater under a dump truck’s worth of crushed rock. My father’s cardigan. Eli’s little hoodie with his name in front of it.
+
+“I want our things back,” I said.
+
+He was quiet long enough that I thought the call had dropped. “That house is sealed,” he said finally. “Nobody goes in without the county signing off. That’s procedure.”
+
+Then, after a while: “I’m on duty Thursday. Nobody at the county’s going to be looking at that house on Thanksgiving.”
+
+“Is that procedure too?”
+
+“No,” he said. “But after Monday, there’s no getting anything out.”
+
+I didn’t tell him about the burn on the couch, or the drawing. I’d folded that up and put it in my back pocket.
+
+That afternoon, Eli came and stood by my chair with his hands in his coat pockets.
+
+“Daddy, where’s my blue hoodie?”
+
+“It’s at the old house, bud.”
+
+“It’s on my chair,” he said.
+
+I knew which chair. I’d seen it there, laid over the back with the sleeves on the armrests and a card with his name on it in front.
+
+“I know,” I said.
+
+He nodded and went back to his coloring. I sat there with Torres still in my ear. *It gets buried.*
+
+\---
+
+On Wednesday, the day before Thanksgiving, I went looking into the house.
+
+Stephanie took Eli to the park, on foot.
+
+“No bathrooms with hand dryers,” I told her at the door.
+
+“Like… at Target?”
+
+“Like anywhere. No gas stations. No cars. Nothing that hums.”
+
+“Nothing that—okay. Okay. You’re being so weird right now, but okay.”
+
+“Promise me, Steph.”
+
+“I promise, I promise. Oh my God.” She held out her hand to Eli. “Come on, bud. Your dad’s being a weirdo.”
+
+The courthouse is three blocks from Stephanie’s. St. Anne’s sits on the second block. I crossed to the other side of the street before I got to it.
+
+The courthouse had closed at noon for the holiday, so I walked on across the square to the library. They keep the county’s old deed books and newspapers on microfilm in a back room called Local History, which turned out to be two volunteers, a coffee maker, and a laminated sign that said PLEASE DO NOT REWIND OTHER PATRONS’ FILM.
+
+The volunteers were Doris and Kaylee. Doris was about seventy, with a cardigan buttoned up to her throat that made me look away for a second. She’d been the county recorder for thirty-one years and had retired, she said, “strictly on paper.” Kaylee was maybe seventeen, in a hoodie, with her phone in one hand.
+
+I told them the address.
+
+“The old Hollis place,” Doris said, before I’d finished saying it.
+
+Kaylee didn’t look up from her phone. “She does that.”
+
+“I do not do that.”
+
+“You did it to the chicken farm guy.”
+
+“That was the Mabry place. Everybody knows the Mabry place.” Doris was already pulling a binder off the shelf. She flipped pages without looking at them. “Hollis, 1911. Then a bank, then an estate. Then Dunleavy, Pruitt, Okafor.” She laid the printout on the table like a hand of cards. “My mother wouldn’t drive past that house. She’d go clear around by the river road.”
+
+“Why?”
+
+Doris thought about it. “She said it was always suppertime out there.”
+
+“That’s so creepy,” Kaylee said.
+
+“It’s local color.”
+
+“It’s literally a ghost story, Doris.”
+
+“What else do people say about it?” I asked.
+
+That was a mistake. Doris sat down like she’d been waiting thirty-one years for somebody to ask.
+
+“Well. The one everybody’s mother told them was that Ezra killed his family. Took a hatchet to Ruth and the boys and buried them under the kitchen floor.”
+
+“Did anybody ever actually check?” Kaylee said.
+
+“Honey, nobody checks. The truth’s never the better story.” Doris held up a second finger. “Then there’s the Dunleavy version. Their kids used to swear he dug himself a hole under the house and bricked himself up in the walls, and nobody ever found him because he’s still in there.”
+
+“Sounds like a contractor I used to work for,” I said.
+
+Kaylee snorted. Doris didn’t.
+
+Doris held up a third finger. “And my cousin Darlene swears up and down she saw a man in a farmer’s cap standing on that porch in 1987. Says he waved at her. She thinks he never left. She thinks he’s still out there, living in it.”
+
+“That would make him, like, a hundred and fifty.”
+
+“A hundred and three. He was born in ’84.”
+
+“That’s not the point, Doris.”
+
+“Then there’s the Facebook group,” Kaylee said, to me now, like she’d finally found something interesting about me. “Haunted \[Redacted\] County. One lady on there thinks the house is a portal. Somebody else says Satanists. One guy thinks it’s the government.”
+
+“The government,” Doris said.
+
+“He thinks everything is the government.”
+
+“Which one do y’all believe?” I said.
+
+They looked at each other. Doris straightened her cardigan.
+
+“I believe my mother drove the long way around for forty years,” she said, “and she wasn’t a woman who scared easy.”
+
+Okafor, 2007. Pruitt, 1989. Dunleavy, 1961.
+
+The same names as the jars.
+
+Kaylee set me up at a microfilm reader the size of a washing machine and showed me how to thread it, which did wonders for my pride. She did it with a calm and ease that gave me hope for the generation coming up. Some old crafts may never die after all.
+
+“It eats film if you look at it wrong,” she said. “So, like, don’t.”
+
+I sat back there for three hours. Here’s what stuck.
+
+October 1918: Thomas and Samuel Hollis, sons of Ezra and Ruth Hollis, killed in France nine days apart. There was a photograph of the two of them in uniform. They’d lied about their ages, like a lot of boys did back in the day.
+
+February 1919: Ruth Hollis, influenza.
+
+March 1919, a few lines on page four. Ezra Hollis hadn’t been seen in town for two weeks. A neighbor who drove out to check on him found the house locked and the table set for four, supper still on the plates. The neighbor said that all winter, Hollis had set the table for his whole family every night, and that you could hear him talking into the stovepipe when the wind was up. The sheriff searched the farm and the outbuildings, dragged the pond, and found nothing.
+
+They never did find him. I looked. There’s no obituary and no grave. He freezes in March 1919.
+
+I almost left. Kaylee leaned in the doorway, still on her phone.
+
+“You want the newer stuff, too? It’s all on the computer after, like, 2000.”
+
+“He doesn’t want the newer stuff,” Doris called from the other room. “Nothing happened after 2000.”
+
+“Everything happened after 2000.”
+
+I said sure, because I’m the kind of person who reads the whole thing.
+
+I typed in Okafor, the last name on Doris’s list, and cross-referenced it with the address. I got an old real estate listing, a tax notice, and an obituary from 2019.
+
+*Selah Grace Okafor, age 7, died at home.*
+
+That was most of it. Beloved daughter. Loved to draw. In lieu of flowers, gifts to the children’s library. Above it was a school picture of a little girl with her hair up in two puffs and a front tooth missing, grinning like the photographer had just told her a joke. She had a pink barrette in her hair, shaped like a butterfly.
+
+I said her name out loud once, under my breath, the way Eli had.
+
+The microfilm reader hummed a tune. I knew that noise all too well.
+
+\---
+
+Stephanie and Eli got back right after I did. His cheeks were red from the cold. He went straight to the bathroom, and Stephanie waited until the door shut, and then it all came out at once.
+
+“Okay, so. He made a friend? Kind of? We were there two hours, and he spent most of it over by that big green electrical box at the edge of the playground, the one with the warning sticker, and I kept going over there like, Eli, bud, come on, swings, and he’d come for like a minute and then go right back. Just sitting in the grass. Talking.”
+
+I could hear it in my head, the low, steady hum those boxes make. I’d told her no hums. I hadn’t thought to say transformers.
+
+“Talking to who?”
+
+“That’s what I asked! And he said a girl. He said she used to live in his room, and she misses her mom. And I looked everywhere, and there was not a kid within, like, a hundred yards of him. So I figured, okay, imaginary friend, cute, whatever.” She pulled her hat off and twisted it in both hands. “Then he said she had a butterfly in her hair.”
+
+The bathroom door opened. Eli came out drying his hands on his coat.
+
+“Hey, bud,” I said. “Who were you playing with at the park?”
+
+He shrugged. “Nobody.”
+
+“Stephanie says you were talking to a girl.”
+
+He looked at Stephanie, then at me, with the face kids make when the grown-ups are being weird. “I was playing by myself.” Then he went to find his crayons.
+
+For once, Stephanie’s mouth gaped open without a word following.
+
+\---
+
+Stephanie’s family does Thanksgiving at her parents’ house, a split-level out on the county road with a flagpole in the yard and a deer made of white Christmas lights. They’d invited us before I could think of a way to say no. Her mom, Linda, met us at the door. She hugged Eli, then hugged me, then held on to my arms and looked me over like a nurse checking for a fever.
+
+“So you’re Jeff,” she said. “Steph won’t tell us a thing. Where are y’all from? What happened at your house? Was it a gas leak? The Wilsons had a gas leak.”
+
+“Mom,” Stephanie said.
+
+“I’m just asking.”
+
+“It’s a long story, ma’am,” I said. “Mostly it’s an old house with a lot of opinions.”
+
+“Old houses,” Linda said, and took our coats.
+
+The house was full. Stephanie’s dad, Frank, came up out of his recliner and shook my hand like we’d known each other twenty years. “Get you a beer? Lions are already down ten. Every year it’s a tragedy.” Her brother Josh was there with his two, Tanner and Maddie, eight and five, who took one look at Eli and dragged him off toward the basement stairs.
+
+“The big TV’s down there,” Stephanie said. Then she caught my face and called after them, “Hey—upstairs, guys. Take the Switch.”
+
+Frank was looking at me now. “Steph says you’re a mason.”
+
+“Yes sir.”
+
+“You do that new plant out off 54?”
+
+“Most of the north wall.”
+
+“No kidding.” He clapped me on the shoulder. “Hell of a building. Josh, you hear that? He built the plant.”
+
+Before dinner, I went down the hall to wash up. On my way back, I heard them in the kitchen.
+
+“—just look at him, Steph. That man hasn’t slept in a week.”
+
+“He hasn’t, Mom.”
+
+“So what happened? Is he in some kind of trouble? Is the boy okay? Where’s the mom?”
+
+“Mom. That’s not mine to tell.”
+
+“He’s living in your apartment,” Frank said. It was the first edge I’d heard in his voice all day. “That makes it a little bit our business.”
+
+“Dad.”
+
+“I’m only asking.”
+
+“And I’m only not answering.”
+
+“Your brother’s setting Carol’s plate again,” her mom said, quieter.
+
+“Let him,” Frank said. “It’s Thanksgiving.”
+
+Somebody opened the oven. I went back to the living room before anybody came out.
+
+Ray was in the corner chair by the window, seventy or so, in a sport coat that had fit him better a few years back. He was Frank’s older brother. You could see it in the jaw. He was watching the game without watching it. I sat on the end of the couch nearest him because it was the only seat left.
+
+“You’re the boy’s dad,” he said.
+
+“Yes sir.”
+
+He nodded at my hand. I’d been turning my wedding ring with my thumb without noticing. “How long?”
+
+It took me a second to understand what he was asking. “Two years.”
+
+He turned his own ring once around his finger, the same way. “Carol. Six years in February. I sold the house after and moved in here with Frank.” He tipped his head toward the recliner. “He keeps telling people it’s temporary.”
+
+I didn’t tell him I was sorry. I’d had two years of people telling me.
+
+“She lost her ring the spring before she passed,” he said. “Took it off to do the dishes and set it down someplace, and that was that. I tore our old house apart looking. Twice. Everything I didn’t sell is in boxes out in Frank’s garage now, and I’ve been through those, too.” He looked out the window at the garage. “Linda says I ought to let it go.”
+
+“Have you?”
+
+“No.” He went back to the game.
+
+I thought about a table full of jars under my house, one of them with our name on it, and I didn’t say anything else.
+
+At dinner, her uncle Ray had set a place for Carol at the corner of the table: a plate, a fork, a folded napkin, an empty chair. Nobody said a word about it. Somebody passed him the rolls.
+
+Torres was picking me up at two, so I didn’t sit. I stood behind Eli’s chair with my hands on his shoulders and kept my eyes on him while Frank thanked God for the food and the family and “the company of new friends.”
+
+Eli had his head down and his eyes squeezed shut, the way his mother taught him.
+
+Out front, Torres tapped his horn once, polite.
+
+I crouched down by his chair. “I’ve got to go get our stuff, bud. I’ll be back before pie.”
+
+“From the house?”
+
+“From the house.”
+
+He looked under the table for a while. “Can you get my hoodie?”
+
+“I’ll get it.”
+
+“Papa says it’s cold down there,” he said. “He says bring a coat.”
+
+\---
+
+*Reddit says I’m out of room. The rest is in the next post tomorrow night. I need the rest to stay in one piece, because I could use some help understanding what I saw. If you are keeping up with my testimony, thank you.*

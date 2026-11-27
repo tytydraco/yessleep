@@ -214,7 +214,7 @@ I look that way, then reply:
 
 “What?”
 
-“Lisa you need to get inside and lock the door!” she says firmly, and now her voice is so shaky she can barely get the words out*.* “I can see him on the camera, Lisa. Some guy. He’s been lurking in the corridor and as soon as you left he ran off and Lisa...
+“Lisa you need to get inside and lock the door!” she says firmly, and now her voice is so shaky she can barely get the words out\*.\* “I can see him on the camera, Lisa. Some guy. He’s been lurking in the corridor and as soon as you left he ran off and Lisa...
 
 “He’s in the elevator waiting for you to come out.”
 
@@ -261,3 +261,5 @@ There are sirens in the lot outside and the man falls quiet. There is a muted th
 “Please,” he says in one final desperate plea before a parade of armed police arrive to arrest him. “It isn’t just the photos. I killed him. I *killed* him dead. But now I keep seeing him over and over and over! He finds it fun doing this to me. He knows they’ll fry me unless I get those photos and he thinks it’s so fucking funny! But it isn’t just me he’s been keeping an eye on, is it?
 
 *“His stink is all over you too.”*
+
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1y6t8mo/a_dead_furry_in_a_storm_pipe_part_2/)

@@ -1,0 +1,197 @@
+We decided a book a Disney trip over Thanksgiving week. I know, terrible idea with the crowds. It seemed like a good idea at the time.
+
+We decided to top off the night with Pirates of the Caribbean. It was getting late, but since it’s closing in January for refurbishment, we didn’t want to miss it.
+
+The sign out front said 10 minutes, but soon after entering the stucco building, we ran into a line of people. “I thought it said ten minutes,” I whispered to my husband.
+
+“It probably moves fast,” he replied.
+
+But after a few minutes, we’d only moved two steps. The family in front of us moved at a glacial pace—a mother with a toddler boy on her hip, a father holding the hand of a little girl. “Glad we don’t have kids yet, at least,” I whispered.
+
+And at least it was cold in here, a relief from the oppressive Florida heat. We shuffled forward in a zombie walk, nearly bumping into the family in front of us, as we navigated a turn around a stucco wall. A cannon sat in the corner for decoration, next to window with iron bars over it.
+
+The air grew colder.
+
+“It’s already been twenty minutes. Maybe we should just go.”
+
+But there were dozens of people behind us, crammed in like sardines. “Just a little longer. I bet it’ll start to pick up,” Dan replied.
+
+We made another turn around a stucco wall, as the line looped back and forth to cram as many people in here as possible. And there *were* a lot of people. So many, ahead of us. I sighed and looked around, trying to immerse myself, to breathe in the surroundings. *You can stay off your phone for twenty minutes. You won’t die. Geez…* I’d been trying to keep off screens for most of our trip. It was hard. Harder than I thought it’d be.
+
+That’s when I noticed it.
+
+“No one’s on their phone,” I whispered. “Isn’t that weird?”
+
+He shot me a smirk. “Maybe they’re not as addicted as you, Maggie.”
+
+Unease settled in me. Not a single person ahead of us had their phone out. Not the tired parents in front of us, not the group of teenage boys several feet up. No one. Not a *single* person.
+
+It was really weird.
+
+And as I stared at them, I realized they weren’t really looking around and taking in the surroundings, either. They were just… staring straight ahead. Stepping slowly forward when the line moved. Bobbing with each step.
+
+Cold air breezed over me as we made another turn, following the line. Ahead of us sat another iron-barred window, and my heart leapt. *The skeletons playing chess. That’s close to the end of the line. Isn’t it?*
+
+But that wasn’t the scene in the room below.
+
+Instead, several skeletons lay on the dirt floor. Their arms crossed over their chest, their legs straight and neat, one after the other forming a perfect line.
+
+One was a child’s.
+
+“Is that… new?” I whispered to Dan.
+
+“Woah, that’s dark,” he replied with a chuckle. “I’m shocked they allow that.”
+
+I craned my neck, peering down at the scene—and realized, outside the halo of light cast by the window, there were *more.* Many more. Skeletons lined up in rows, some of them clearly children based on their size. Like mass burial or something.
+
+My heart dropped and I grabbed Dan’s shoulder. “Look—”
+
+Someone bumped into us from behind.
+
+I turned to see a young couple, like us. Both of them wore the same tired, blank expression.
+
+“Oh, sorry—uh, you can go ahead of us,” I said, gesturing.
+
+They didn’t move.
+
+“The order must be maintained,” the man said, in such a deadpan I was sure he was joking. But he didn’t laugh.
+
+I glanced at Dan. He was already jogging ahead to catch up with the rest of the line. I hesitated, then followed him.
+
+We shuffled forward, twisting and turning around the stucco walls, following the ropes that cordoned off our line. Blindly plowing ahead like cattle. The line opened up into another stucco room, another cannon, another little pyramid arrangement of cannonballs.
+
+“We should be there by now.”
+
+“They design these lines to hold hundreds of people,” Dan replied.
+
+“It definitely wasn’t this long the last time.”
+
+“It’s a holiday weekend, Maggie.”
+
+I followed him, our footsteps echoing in the open room.
+
+And that’s when I realized something else.
+
+It was too quiet.
+
+The kids in front of us. No older than five. And yet, they weren’t crying, weren’t complaining. They were just… shuffling along like everyone else. The little girl’s hand in her dad’s, the boy clinging to his mom.
+
+*Something is wrong.*
+
+*Something is terribly wrong.*
+
+“Let’s just go,” I said, tugging at Dan’s arm.
+
+“But we’ve waited so long. We’re almost there—”
+
+“No, we’re not. We haven’t even passed the room where the skeletons are playing chess!”
+
+Dan glanced ahead at the line, hemming and hawing. At the serpentine line of people, twisting and turning in the stucco labyrinth. “Okay, okay. I have to pee anyway.”
+
+I turned around and took a step.
+
+Then I froze.
+
+For a split second, in my peripheral vision… in the dim light… the couple behind us. They were both staring up at something over my shoulder, mouths hanging open.
+
+And so was everyone else behind them.
+
+As soon as I focused on them, they went back to normal.
+
+I closed my eyes and shook my head. *Just get out of here. Now.*
+
+I grabbed Dan’s hand and began leading him back through the line. As we brushed against the other people, they barely even noticed. I mean, they noticed something was touching them—they glanced at me and sidestepped—but no looks of annoyance, no surprise, no nothing. Like they were working on reflexes.
+
+*Why is everyone acting so weird?!*
+
+We continued pushing back through the line. The tunnel widened into a room, and I realized we could save time by stepping into the roped-off area. “Come on,” I whispered, tugging him under the rope.
+
+I stepped over the rope.
+
+Immediately, I yelped in pain.
+
+*What the fuck—my leg—*
+
+“Maggie!” Dan grabbed me and pulled me back over the rope. “Are you okay?”
+
+“It hurts…” I looked down at my leg. My heart dropped. The skin was blistered and red, as if I’d been burned. “Oh what the—”
+
+“Let’s go. Can you walk?” he whispered in my ear.
+
+“Yeah, I… I think so.”
+
+We pushed our way past rows and rows of people, all waiting, all shuffling forward at that painfully slow pace. *What the fuck is going on?!* Pain shot up my leg with every step. I clung to Dan for balance.
+
+We kept walking.
+
+And walking.
+
+“I don’t remember this room,” I said, pointing at the little pyramid of cannonballs balancing upside-down.
+
+“We haven’t passed the window either,” Dan panted, slowing to a stop. “With all the skeletons.”
+
+“Aren’t there supposed to be emergency exits or something?” I whipped around, looking for a glowing red exit sign. There weren’t any that I could see.
+
+Dan pulled out his phone.
+
+Then he paled.
+
+“What?”
+
+“No reception.”
+
+“Okay, so let’s just keep going,” I said.
+
+“This isn’t the way we came.”
+
+The line of people still shuffled next to us, adjusting their path to go slightly around us. But they didn’t even look at us, didn’t even ask us what we were doing. I grabbed my phone and glanced down—no reception either.
+
+*We have to get out of here.*
+
+“Excuse me! Is the entrance up there?” Dan asked a random father passing by.
+
+He didn’t even blink.
+
+So we kept going. Following the rope, walking against the current of people. Taking turn after turn in this stupid stucco maze.
+
+After an hour, it was finally time to admit we’d been walking towards the entrance longer than we’d been waiting on line. My leg burned and I sat down on the floor, hugging my knees, starting to sob.
+
+“This is just a dream. Just a dream,” I repeated to myself. “WAKE UP.”
+
+“Maggie, it’s—”
+
+“We’re not stuck here! It’s not possible! WAKE UP! *WAKE UP!”*
+
+“Listen,” he said softly. “The park closes at nine. That’s in two hours. When they close the park, they have to make sure they get everyone out. Do you know how badly Disney would be sued if they left someone here overnight? How much bad press they would get? Someone will find us. Find all these people,” he said.
+
+I looked up at him. “They’re not people.”
+
+“What?”
+
+“You know they’re not. Babies that don’t cry? Not looking at their phones? This is some sort of illusion. Animatronics. I don’t know. Something to lure us in. So we follow them. We’re the only ones here, and you know it.”
+
+Nine o’clock came and went.
+
+The not-people keep walking. And now that we’re sitting on the floor, instead of walking… I can see they’re wrong. There was a couple with their hands fused together. A child with random squiggles on his shirt that, from a distance, looked like letters. Expressions and detail that changed once I looked away and they marched on in my peripheral vision.
+
+Dan lay behind me on the floor, covering us with his coat. The stucco floor was cold. So cold.
+
+“I told you not to bring that coat. It’s Florida,” I murmured with a forced laugh.
+
+“Really came in handy, didn’t it?”
+
+Somehow we slipped into sleep. Every time I opened my eyes, I saw shoes passing by as the line shuffled on. Sometimes, bare feet. Bare feet with too many toes.
+
+It’s morning now, according to our phones, and we’ve eaten the rest of the snacks in Dan’s bag. We’ve started our way back towards the entrance again. Dan’s hopeful we’ll find it. I think he’s just pretending for me.
+
+I’ve been getting intermittent service on my phone. No calls, but sometimes a website comes through.
+
+If this post goes through, and you can read this:
+
+We are trapped in the line at Pirates of the Caribbean. We have been for almost two days, now. Maybe we somehow split from the main line. I don’t know.
+
+But we’re here, and we need to be rescued.
+
+And if you’re in the parks—
+
+Please, please don’t ride Pirates.

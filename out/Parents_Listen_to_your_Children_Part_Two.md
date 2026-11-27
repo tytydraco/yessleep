@@ -335,3 +335,5 @@ He’s talking in his sleep. Low and quiet and patient, the way he does. For mon
 I’m not going to tell myself it’s the pipes. I’m going to sit here and listen.
 
 “She says it’s okay, Dad,” my son says into the blanket. “She says you can tell me now.”
+
+[[Part 3]](https://www.reddit.com/r/nosleep/s/QaNmnvDRGN)

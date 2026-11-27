@@ -399,3 +399,5 @@ Kayode and I turned the source, exchanging expressions of true, raw fear. The gl
 It reminded me that I could have saved him.
 
 ***End of Part Four***
+
+[Part Five](https://www.reddit.com/r/nosleep/comments/1y6kjh7/i_was_one_of_the_missing_appalachian_trail_hikers/)
