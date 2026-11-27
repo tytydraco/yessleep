@@ -1,0 +1,68 @@
+"Why have you not buried me yet?" my husband, Mark, said through his teeth, standing in our hallway.
+
+I could barely focus on his words. My whole body shook with excitement. He came back!
+
+"Come! Come in, Mark."
+
+His hands were cold, and snow covered his coat, but his body didn't shiver. I pulled him in and sat him in his chair by the fire. His eyes stared dully at the flame. I ran into our bedroom and got all the blankets we had. They would get dirty from his clothes, but that didn't matter.
+
+"Here, here you go."
+
+I put them over him and got the snow off his clothes. He looked up at me; his brows were furrowed, his lips tight.
+
+"You keep calling me. Why am I here?"
+
+"Mark, you're home. I'm so relieved you're here. When I heard the door open, I could not believe my ears. I thought I lost you. You were out there so long, and the storm is so bad. How did you even find your way back?"
+
+"I don't…I'm not."
+
+"I prayed that you would, every night. Last night I saw a star fall. I hoped it was a sign, and it was. He heard my prayers and returned you to me."
+
+Mark looked up. His light blue eyes were now dark, dull. Only now did I notice he smelled like old pines and dirty snow.
+
+"I'll make you some tea. It will help you warm up."
+
+He gripped the seatrests and looked deeper into my eyes. I turned and quickly walked to the kitchen. Something in his eyes didn't sit right with me. The excitement I had felt had gone away, replaced by unease each time he stared at me, but I shook my head and tried to chase those thoughts away. He was my husband, my love, the man who held me on the cold, lonely nights. He just got lost in the snowstorm on his way from the village. What must have gone on those four days? The unease slowly melted, replaced by sympathy for my Mark. 
+
+The tea kettle screamed. I poured water over his favorite green tea and added plenty of honey, just like he liked it.
+
+I returned with the teacup. Mark had taken the blankets off and put them on the floor. Snow covered his coat again.
+
+"Mark, Mark. What are you doing?"
+
+I picked them up and tried to put them on him. He shot his hand out. It gripped my wrist tightly.
+
+"Mark, stop, it hurts."
+
+His fingers were cold as snow, twisting around on my skin as if they were looking for something, moving toward my ring finger. I pulled my hand away. He let go, but his dull eyes stared deep into mine again. The feeling of unease slowly returned.
+
+"Okay, no blankets," I said, picking up the teacup from the table. I could feel my voice starting to shake. 
+
+His eyes were still glued to mine. A gust of cold wind blew from under the door. The fire dimmed. I walked closer and put the teacup before him.
+
+"No!" he screamed and got off the chair, knocking the teacup out of my hand. Its shatter echoed across the room. I covered my head and ran to the kitchen.
+
+"Why have you not buried me yet?!" he called after me.
+
+I locked the door behind me. Floorboards creaked under his slow steps. The smell of old pines and dirty snow filled the kitchen. He banged his hand against the door. Cold wind blew from under the door.
+
+"I need to be buried!"
+
+My whole body shivered. He hit the door again.
+
+"Bury me!"
+
+"Stop, please!"
+
+"Why have you not buried me yet?!" he screamed and banged his hand against the door again, moving it in its hinges. 
+
+My heart beat against my ribs. I crouched on the floor, holding my hands. My Mark wouldn't do this to me. No. Not my Mark.
+
+"Go! Leave! You're not my Mark. My Mark is gone," I screamed, taking my wedding ring off my hand.
+
+The banging quieted. The cold air was gone. I sat on the ground for a long while, waiting, but the house was quiet, dead quiet. I slowly opened the door. The fire was out. The storm outside had stopped. The sun shone on the fresh snow.
+
+I walked to the window by the door. Fresh footprints led away into the forest not far from our house. Under the sun, I could see Mark's snow-covered coat lying below a pine and the shape still inside it.
+
+I need to get the shovel, I thought, and turned toward the [basement.](https://www.reddit.com/r/KanesHorrors/?share_id=HpaRyGTOnHTbHFM2W2fA4&utm_content=1&utm_medium=ios_app&utm_name=ioscss&utm_source=share&utm_term=1)
+

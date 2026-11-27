@@ -10,11 +10,11 @@ You see, my father is a complete shut-in.
 
 
 
-He wasn't always that way. No, he used to be my hero. I guess every boy looks up to his father and remembers the first time they witnessed them start a chainsaw. My father was no different. Then when I was a boy at school my father came back to find my mother in bed with another man.
+He wasn't always that way. No, he used to be my hero. I guess every boy looks up to his father and remembers the first time they witnessed them do something incredible. My father was no different and for me it was starting a chainsaw. Then when I was a boy at school my father came back to find my mother in bed with another man.
 
 
 
-Well, my father snapped. He didn't plan on the man being Big Joe from up the street. No, my father got the life beat right out of him. I remember coming home to them dragging him out on a stretcher. Big Joe leaving in handcuffs. 
+Well, my father snapped. He didn't plan on the man being 'Big Joe' from up the street. No, my father got the life beat right out of him. I remember coming home to them dragging him out on a stretcher. Big Joe leaving in handcuffs. 
 
 
 
@@ -226,19 +226,23 @@ I've never been pulled by my ankle through a hoarder's house but let me tell you
 
 
 
-Under the bed I could see two large red eyes. They glowed with the reflection of the light in them.
+The smell made me gag immediately. My sleeve was wet with something I'd dragged through in the hallway.
 
 
 
-Dark slimy tentacles spread out from under the bed in every direction. One of which was wrapped around my ankle.
+Under the bed I could see two large red eyes. They glowed, reflecting the light from the hallway.
 
 
 
-"NO! Let him go!" My dad swung something at the tentacle around my ankle and the object broke immediately. "No, no, no..." He collapsed to his hands and knees and tugged at the tentacle.
+Dark slimy tentacles spread out from under the bed in every direction. One of which was wrapped around my ankle. They were a deep purple, covered in a weird slime. It looked like it was covered in water and oil. I felt something puncture my pants and rub against my skin.
 
 
 
-"Dad?" I was terrified. I couldn't speak. I couldn't look away from those piercing eyes. I could feel it. In the back of my mind. Pushing through. I could feel the hairline cracks as it tried to worm into my sanity.
+"NO! Let him go!" My dad swung something at the tentacle around my ankle and the object broke immediately. "No, no, no..." He collapsed to his hands and knees and tugged at the tentacle. It tightened further. I could feel my leg struggling not to break from the force.
+
+
+
+"Dad?" I was terrified. I couldn't speak. I couldn't look away from those piercing eyes. I could feel it. In the back of my mind. Pushing through. I could feel the hairline cracks as it tried to worm into my sanity. I was looking into the eyes of true horror. Eye's that were divided up like that of a flies.
 
 
 
@@ -246,7 +250,7 @@ Dark slimy tentacles spread out from under the bed in every direction. One of wh
 
 
 
-The tentacle loosened. 
+The tentacle loosened. The thing responded. The eye's flicked over to my father before falling on me again. I saw a tentacle rest slowly on my fathers back. Almost like it was comforting him.
 
 
 
@@ -254,11 +258,15 @@ The tentacle loosened.
 
 
 
-"But...dad."
+"But...dad." I started, the anger returned to it's eyes full force. It let go of me. I thought I was free. Another tentacle grabbed me from behind.
 
 
 
-I was dragging again. Through the house until I was airborne. I landed hard, facedown on the grass of the front yard. 
+I was dragging again. Through cardboard boxes, stacks of papers, and I managed to catch the edge of a bookcase. I held of until the book case lost its balance and my fingers slipped. I heard it fall as I went airborne. 
+
+
+
+Then I landed hard, facedown on the grass of the front yard. 
 
 
 
@@ -271,5 +279,3 @@ Something has infested my childhood home.
 
 
 Who do I call?
-
-What do I do?
