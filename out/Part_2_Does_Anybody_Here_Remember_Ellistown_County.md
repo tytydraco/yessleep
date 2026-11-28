@@ -1,5 +1,3 @@
-[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/1xttd6g/part_1_does_anybody_here_remember_ellistown_county/)
-
 Right then and there I packed up my things and went back to the campsite, thinking the entire time about the hat in my right hand. Sign from God or not, Milos and Bailey would have thoughts.  
 
  
@@ -115,3 +113,8 @@ And after that, my memories of Ellistown, fade down to a few snapshots and blurr
 \- Will 
 
  
+
+[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/1xttd6g/part_1_does_anybody_here_remember_ellistown_county/)
+
+\[[Part 3](https://www.reddit.com/r/nosleep/comments/1y6yxi5/part_3_does_anybody_here_remember_ellistown_county/)\]
+

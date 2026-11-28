@@ -1,4 +1,4 @@
-[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1y0vlif/part_2_does_anybody_here_remember_ellistown_county/)
+
 
 While I’ve grown up and had a happy life, Ellistown County has always been in the back of my mind.   
 
@@ -100,6 +100,6 @@ It’s strange looking back and realizing how wrong I was.  
 
  
 
- 
+\[Part 2\]
 
- 
+\[[Part 3](https://www.reddit.com/r/nosleep/comments/1y6yxi5/part_3_does_anybody_here_remember_ellistown_county/)\]

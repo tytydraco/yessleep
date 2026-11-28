@@ -74,7 +74,7 @@ He looked at me, and he laughed lightly. “Don’t worry, Matt, I’m not gonna
 
 Even with the knowledge that he didn't lie to me about other things, I didn't fully believe him. I didn't want to believe him. He was messing with me. He had to be. Then the school newspaper came out with details of a body that had been discovered by a railroad, stabbed to death. From what the police could determine, the man—Bill—had come to town from about three states over, hitching a ride on a train. How he had gotten drunk was anyone’s guess. The murder weapon hadn’t been found yet, and police had cordoned off the crime scene. This was a small town, so there were occasional robberies and gang violence, but the nature of Bill’s death was different. We didn’t see cold-blooded murder around here often, if ever. Everyone was on edge. Everyone, of course, except Tyler. He just read the newspaper. To everyone, he just appeared like his usual self. But I could see a particular expression on his face, one he usually kept well hidden: a look of accomplishment and surprise, like a rookie football player scoring a touchdown during his first game without even realizing it.
 
-*He’s just interested,* I told myself*. He’s weird. Fucked up, even. But there’s no way he did it.* Part of me knew I was lying to myself, though, but the idea that I had been friends with a murderer was unthinkable.
+*He’s just interested,* I told myself\*. He’s weird. Fucked up, even. But there’s no way he did it.\* Part of me knew I was lying to myself, though, but the idea that I had been friends with a murderer was unthinkable.
 
 After that, I kept hanging around with him, but more warily. I initially considered reporting him to the police, but as I said, what then? I had no tangible proof; I was going off a hunch, and Tyler was good at lying and putting on an act, even if we juniors and seniors knew better. And even if he was taken in and questioned, he wouldn’t be held long, if at all, and the second he’d be released, he would make a beeline for me. Whether he would murder me or just turn my life into a living hell, the jury was out at the time.
 
@@ -354,7 +354,7 @@ His face, usually so chipper, turned somber.
 
 “Right. It’s today, isn’t it?”
 
-“27 years, Travis,” I murmured. “27 years and I still remember when I first met him.”
+“18 years, Travis,” I murmured. “18 years and I still remember when I first met him.”
 
 He nodded. “Come here, Matt,” he said softly, holding me for a while.
 

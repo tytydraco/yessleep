@@ -1,4 +1,7 @@
+&#x200B;
+
 When I was a baby, my father left me and my family, never once in over eighteen years did I ever hear from him. Around the time that I had graduated high school, one of the many insignificantly significant moments of one's life was when we first made contact.
+
 I remember it being a rather cold October evening, amber sky with accents of fire and blood cast its glow upon the town in the fleeting moments of what was left of another simply monotonous day.
 
 I knew it was him almost instantly because of the worn out picture I had of him in my wallet from what had felt like a lifetime ago. I had to get my mom a pack of smokes from the gas station and was driving back when I spotted him  heading towards the tracks out of town. I pulled up next to him and got out, running towards him, completely blown away that he had come back..  but when I called to him and he turned to look at me, he looked like a shell of the man I had thought he'd be.. sickly, almost twisted and hollow, torn clothes, dirty and presumably homeless. He recognized me and screamed at me to go away and that he'd come find me when the time was right and to not tell anybody that he was here.
@@ -26,6 +29,7 @@ Dave and Mikey were laughing their asses off when it came again, louder than bef
 Almost instantly we knew something was very wrong when we looked down to see these huge tracks leading away from our camp, unlike anything we'd ever seen before, it was about 100 yards out where we found him, completely ripped in half, I tripped over his lower half and most of his upper half was completely gone, just part of his head connected to half an arm stuck to a tree was all we saw. 
 
 It was then that we heard the screaming and the gunshots followed by the most horrifying howl I'd ever heard." What do we do? Should we go back?!" James asked.
+
 I told him "I don't know about you, but if that were me I'd definitely want some help, even if that is some kind of bear or something.. and he's my little brother, I can't just leave him", James shrugged and said that settles it we have to go back.
 
 As soon as we started walking, that smell came back creeping through our nostrils and violating the very fiber of our beings, it all happened so quickly that I hadn't even noticed this thing had bitten me. One moment its just us walking, the next, James and this giant wolf like creature are rolling on the ground, James is stabbing this creature and this thing is ripping him apart with it's claws. 
