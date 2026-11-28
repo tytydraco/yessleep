@@ -1,0 +1,351 @@
+My plate is served last. Yams, macaroni, stuffing, casserole—heaped tall enough to stain my chin with grease if I only leaned forwards.
+
+Mother...she's all smiles as sets it before me. Her face is sweet and loving and worst of all, entirely sincere. I can't stand to look at it. So I don't.
+
+But my gaze is forced back by the rattling of china against table, slow and deliberate. *Clank. Clank.*
+
+When I look up, Mother is still smiling, her eyes kind and endlessly patient, like an NPC. Frozen. Waiting for your response no matter how long it takes—minutes, hours, or until the power finally runs out and the plug is pulled.
+
+Off to my left somewhere, someone stifles a cough.
+
+I clear my throat. "T–thank you..." Another cough, louder. "...Mom."
+
+After a moment, she relents, eye contact mercifully broken as she heads back to her seat beside the head of the table—where Father sits—but instead of sitting down, she claps once, loud and shrill, to get everyone’s attention.
+
+“I’m sorry that the turkey isn’t ready yet. I’m running a tad behind schedule this year.” As she addresses the dining room, she scans the table to make sure everyone is paying attention. None of us meets her gaze.
+
+She bulls through anyway. "It shouldn't be that much longer. Ten–fifteen minutes. The pumpkin pie should be ready by then too."
+
+Silence.
+
+"Yes, yes. I know. I mean, can you even call it a Thanksgiving dinner without the turkey? Ha ha ha..."
+
+Silence.
+
+Mother's hands fidget with her apron, as if she doesn't know what to do with them when she's not cooking. She reaches for Father's hand for support, giving it a gentle squeeze. It's so quiet I can hear the *clink* of their wedding bands, gold against silver. Father doesn't squeeze back.
+
+"So until the real star of the show arrives, let's just call this the rehearsal." And she winks at me. An inside joke. Just not a funny one.
+
+My ear throbs and it takes all I have not to look again at the giant family portrait hanging behind her.
+
+"We should go around saying what we're thankful for," she continues. "I'll start. *I'm* thankful that we could all be here again—*safe and sound*—for what I'm sure will be another wonderful Thanksgiving. And I pray that we'll all be here again next year, and the one after that, and the one after that..."
+
+Her words hang in the air without anything—or anyone—to cover them up. The air in here is stifling.
+
+"Honey, dear." She nudges Father's arm. "What are you thankful for?"
+
+The only response he gives is a dazed grunt.
+
+Concern etches onto Mother's face. "Are you alright, dear? Your back isn't acting up again is it? Do I need to get you your medicine?"
+
+Father stiffens. He's wide awake now. "No no, of course not! Just a little tired, is all. Lets see...um...I'm thankful for just so many things its hard to pick one..."
+
+As he rambles, his eyes drift towards Aunt Megan—his supposed sister-in-law, like he's been doing all evening. With her seated diagonally from him, it's not exactly subtle. We all pretend not to notice. *Rehearsal.*
+
+When father's stream of bs finally peters out, Mother simply smiles, then she kisses him. On the lips. About a second too long for it to be chaste. Father even manages not to look away this time. Progress. Aunt Megan's occupied with stirring spirals into food on her plate.
+
+“That was great dear,” Mother says when they’re done. “Children, what are you thankful for?” Billy’s eyes widen and in panic, looks towards me. Of course. He’s ignored me all evening. Of course it would be *now* that he’d suddenly want me to play the role of *big sister*.
+
+I sigh. “I’m thankful for this wonderful meal you cooked for us, Mom, and that I can share it with all my favorite people in the room: You, Dad, my brother Billy, Uncle Greg, Aunt Megan, Grandma…” as I list the names I look at the people in the portrait, drill them into my memory. I’m not messing up again.
+
+Despite how awkward and forced that must have sounded, Mother looks delighted. “That was marvelous, Avery. Billy?”
+
+He mumbles a butchered version of what I just said, all the while tugging the shirt collar cinched around his neck, two sizes too small.
+
+Somehow, it goes downhill from there.
+
+Grandma says something not in English—Indonesian, maybe?—and judging by Billy’s expression, it’s not something nice. Aunt Megan refuses to say anything at all, but Uncle Greg is the worst.
+
+"I'm thankful for you inviting me today, Mrs. Whitley."
+
+Mother freezes. "What did you call me?"
+
+It takes a second for Uncle Greg to realize his mistake, and when he does, he pales. “Susan! *Sister*. Because that’s what you are—my sister. Ha ha…guess I had a little too much wine—”
+
+Mother leans over the table towards him. Everyone tenses. But then, for some reason, she hones in on *me*. “Oh honey! Dear, your ear is bleeding again!” She takes a napkin, wets it in her mouth before pressing it to my ear, dabbing, spit and all. It stings. All the while she’s shaking her head. “I told you you’re too young to get your ears pierced. What did I tell you.”
+
+When she’s finished, she sets the napkin aside and excuses herself to check on the turkey. She’s cooking it in the basement. The kitchen oven is baking the pie because in her words she “doesn’t want the raw meat smell to seep into the crust.”
+
+Even when her steps have long faded into nothing, we wait—one minute, two—ears strained for any hint of her coming back early, of some kind of trick. When a third passes, the dam breaks.
+
+"Shit!" Uncle Greg whirls towards. "Sis! Are you okay? I messed up real bad."
+
+"I'm okay, Michael," I say even though my ears are still ringing.
+
+"This has to be a bad dream," Megan mutters. Her gaze is distant, almost as far away as her husband's. "I have no idea what's even happening."
+
+Billy snorts. "I'll tell you what's happened: Mrs. Whitley has lost her fricking marbles." Every time he speaks he has to stop to take a breath, tugging on the collar of his sweater vest, two sizes too small. "I told you *nanda* that we should have that we should have just dropped the card on her porch.”
+
+Grandma—not mine but Billy's, *my* grandma hasn't talked to us ever since the funeral—shakes her head. “That’s not the Perera way, Kumar. When a neighbor is in need, we help them.”
+
+My eyes are drawn to the trash can in the corner, overflowing with garbage, the topmost layer the assorted collection of care packages and samples of food. I could see lying on top the condolence card Michael and I brought. Funny how all of us—the Pereras, the Hughes, and Michael and I—had all had the same idea, showed up at Mrs. Whitley's front door at the same time. What a stroke of luck that turned out to be.
+
+Billy—Kumar—sneers “And look at where that got us! Drugged and tied up in some white lady’s kitchen!” He makes his point jangling the ropes tied around his waist and ankles. The same ropes that’s keeping everyone here bound to their chairs. “And we still don’t know where she took Gramps…”
+
+We all try not to look at the foot of the table where Mr. Perera was supposed to sit, or the empty chair, broken in his attempt to escape his binds, one of the legs snapped off and splattered with blood when he tried to club Mrs. Whitley. We especially don't look towards the basement where he is now. Where he has been since we all first woke up here. That must have been hours ago.
+
+Kumar starts to tear up and Mrs. Perera tries to console him, whispering in that tongue only the two of them know, and Mr. Perera, presumably.
+
+Father—*Mr. Hugh,* ugh this is all so confusing—lets out a sigh. “Yeah. We all kind of assumed that if there was anyone Mrs. Whitley would end up hurting, it would be herself.” He winces.
+
+“Tim!” Megan yelps. “Are you okay? How’s your leg?”
+
+“As fine as it can be after being stabbed with a kitchen knife,” he spits out through gritted teeth. Mrs. Whitley hadn’t taken kindly when he tried to call for help.
+
+“I don’t understand any of this,” says Michael. “Why is she doing this to us?”
+
+“Isn’t it obvious.” Everyone turns towards me, and I realize I’d spoken out loud. I swallow. “Mother wants to have Thanksgiving with her family.”
+
+I gesture to the large family portrait hanging on the wall—the Whitleys, all deceased except one—then to us, alive at the table, wearing the exact same outfits worn in the photo. Clothes of the dead. The daughter especially brews an ugly feeling in my gut. My ear—newly pierced as of 30 minutes ago—throbs.
+
+Kumar screws up his face. “So all this just for her to play house? It’s just a sick little game to her?” For the hundredth time he fiddles with the collar of his sweater vest. Billy, Mrs. Whitley’s real son, was a few years younger than Kumar. The sweater’s two sizes too small. He tugs at it like a condemned man trying to slip his noose.
+
+"I don't think so," I say under my breath, though it's loud enough that Kumar gives me a weird look, which I avoid by staring down at my plate. The food smells delicious.
+
+"Don't tell me you're actually going to eat that," Kumar says, horrified.
+
+"I'm just admiring the plate." It's not a total lie—it really is a nice plate. Mrs. Whitely probably made it; she sells pottery on Etsy. I should compliment her when she comes back. Could make for a useful distraction.
+
+"Besides," I continue. "It's not like she would drug us *again*; we're already right where she wants us to be." I'm about to dig when I notice Michael's concerned face.
+
+"You called her mother," he says flatly.
+
+I blink. Did I? "I'm just staying in character." When it looks like he doesn't believe me, I add, "Wouldn't want to *mess up* again." My stomach flips at the guilty look that pops onto his face, but he should really worry about himself instead of smothering me all the time. He's been like this ever since Mom died—our actual one, not Mrs. Whitley
+
+He doesn't have time to respond as we hear footsteps. Mrs. Whitley returns, empty handed except for the rubber gloves she now has on—stained and sopping with juices. She wipes the excess on her already filthy apron.
+
+Her smile, though, is spotless. “I’m so so so sorry but the turkey’s not quite done yet—it’s a new recipe I’m trying. But luckily, like every good homemaker, I have a backup.”
+
+She walks into the adjoining kitchen, heading for the fridge. When she opens the door, food immediately rushes out and onto the floor. The fridge has been packed unto the point of bursting, the shelves bending under the weight of their loads. Mother has to take items out and place them onto countertops to make room for her searching. That answers one of my questions.
+
+Every Thursday afternoon, like clockwork Mrs. Whitley would pull into her driveway from the store, and she and one of her kids would haul groceries inside the house. There’d be enough bags to require multiple trips. That was before the mass funeral.
+
+Afterwards, Mrs. Whitley hauled groceries alone. Same number of bags though, enough for the whole family. Even though that family is now ash beneath the ground.
+
+Watching her was like watching a Roomba doing its rounds in an abandoned house, oblivious to the fact its owner is gone. A machine trapped in its subroutines, continuing to do what it’s always done because it doesn’t know anything else.
+
+Michael and I would wonder what Mrs. Whitley could possibly be doing with all that food. Now we know.
+
+Eventually Mother finds what she’s looking for, placing it on the table after closing the fridge. It’s a ham, spiral and pre-sliced. On the surface it looks fine, but the fact it was buried so deep in a fridge filled with what has to be *weeks-worth* of food didn’t inspire confidence. And, judging by the nervous glances all around, it also casts doubt on the freshness of the food already on our plates.
+
+No one does at first. Everyone simply stares at their plates, no movement made in actually eat it. Mother doesn’t say anything, her expression still patient and serene. On the surface at least.
+
+Underneath the table she clenches and unclenches the handle of a kitchen knife, idly scoring marks on the underside of the table. I’m the only one who notices, being seated directly across from her.
+
+I sigh and pick up a fork, sampling a small portion of the casserole, then a larger one, then some of the yams, then the ham. It’s good. *Really* good. Why did it have to be so delicious? This would all be so much easier if Mrs. Whitley was a bad cook.
+
+Or maybe she is, and it's just I've forgotten what a proper Thanksgiving meal tasted like. Anything is going to taste good compared to the soggy pizza and complementary chips Michael gets discounted from his job as a delivery driver. What we've had for three years in a row and was going to get again this year if not for...all this.
+
+"Are you okay, sweetie?" Mrs. Whitley's staring at me. And so is everyone else at the table. I feel for my ear—mercifully, dry—and find my cheeks damp. I'm crying. Why am I crying?
+
+I try to put on a smile. "It's just that your food is so good, Mom."
+
+"Hmm. This is so unlike you, Avery." Almost idly she twirls the knife in her hand, the tip stained with blood. My blood. *This is so unlike you*. My ear throbs.
+
+Right. Changing tracks then.
+
+I roll my eyes. "Yeah, just like it's so unlike you to cook something halfway decent without burning it to a crisp."
+
+It's inaccurate to say that the room quiets as it's already quiet, but the tension in the air is more palpable than the aroma of food.
+
+Mrs. Whitley seems taken aback, but then her grin returns, warmer and looser than before. "Oh Avery, what have I told you about talking back to your mother?"
+
+"You're not the boss of me."
+
+Mother chuckles. "Well, everyone—dig in!"
+
+Unlike me, the others are hesitant, taking only the smallest bites and slowly. I think they realized that as long as they're eating then they have an excuse not to respond to Mrs. Whitley. Consequently, the room is in complete silence, and in the minutes of muffled chewing and clinking silverware that follows, Mother's mood steadily begins to sour.
+
+I'm polishing off the last of the casserole when I notice something: a face.. I wipe off the food residue revealing more of them. The Whitleys, printed directly onto the plate's ceramic. It's a different photo than the one hanging on the wall, this one Christmas themed with all the Whitleys wearing fuzzy red and green sweaters.
+
+All of them except Avery, the daughter. The daughter I'm supposed to play as. She wears all black in the photo, all spikes and leather, like she's a cashier working for Spencer's back in 2011. I guess the only thing more dead than the girl herself was her sense of fashion.
+
+And as if to really sell the whole *teen rebel* look, her expression's one of utter apathy and distaste, as if she'd rather be anywhere but there with her family. What is she rebelling from? The fact that her parents are still together and love each other? The fact that her mom is still around to cook for her instead of being pulped into mulch by some drunk bastard's truck?
+
+Hey, these are important questions to ask if I want to play her perfectly. After all, being a bitch doesn't come easy to me.
+
+Mother notices my empty plate and heaps on a second helping without prompting. Michael also notices. "These plates are beautiful, *Susan.*" Hey! That's my line! I'm surprised that he speaks up at all, though. He must still feel guilty about earlier.
+
+Mrs. Whitley beams. "You do? I made them last Christmas."
+
+"You made them? Wow! I thought these were store bought with just how amazing they look." Okay Michael, calm it down some.
+
+"Nope! I made them downstairs in my own personal kiln."
+
+"Really now?" Aunt Megan chimes in. It's the first time she's spoken to Mother since...ever. A bad feeling brews inside of me.
+
+"Yes. Actually, I'm using it to bake the turkey."
+
+"Now that's a surprise! I wouldn't have expected you to be so comfortable around *fire* after...you know what."
+
+We all hold our breath. What the hell is she doing? Is she trying to rile her up?
+
+Fortunately for us, Mrs. Whitley doesn't seem to catch the insinuation. "Pardon? Why wouldn't I? I've been into pottery for a long time; you should know that."
+
+"I'm not talking about that," Megan huffs, a nasty look spreading across her face. "I'm talking about this summer. The *barbeque.*"
+
+"This summer..." A far away look enters Mother's eye. "It was a splendid 4th of July, but I don't recall you and Greg being able to make it to the cookout. You're not still upset about that, are you?"
+
+"Stop playing coy! I'm talking about the housefire! You know, the one that killed your family, burnt them to ashes, should have burned *you* to ashes if you hadn't been on a grocery run." She's panting by the end of it, and we're all left horrified of what's to come next, so shocked none of us thought to try to stop her. Not that we could have—tied up, remember?
+
+We all look to Mrs. Whitley, whose expression is inscrutable. A long, tense moment passes before, "Are you ok, Meg? Do you need to lie down?"
+
+"Damn you! My name's not Meg you psycho, and we're not your family. Your real family is *dead* and all of this? It's pathetic. Just a sad little game by a sad little *widow*."
+
+A game. Billy called it that too. Why am I the only one here that understands? I search Mother's face and only find confusion. Not even an inkling of doubt or recollection. Exactly as it was at the funeral. They say the first stage of grief is denial, but I don't think Mrs. Whitley even got that far, that she even processed the fact that she even should be grieving.
+
+Losing everyone you know and love in one fell swoop like that—I don't think the human mind is equipped to handle a loss so deep, so sudden. Mrs. Whitley's mind just...rejected it, kept living life the way she's always had, the way it *should* be.
+
+I wish I could just call her crazy, that this is all madness, but it'd be hypocritical when even three years later I still catch myself telling Mom goodbye before I leave the house, still look for her blue Kia in the parking lot before remembering I have to take the bus home now.
+
+Mrs. Whitley doesn't respond, instead making her way to Father, stroking his arm possessively, her brow bent in worry. "Oh dear, I'm afraid we might have to take your sister to the hospital. I think she's having an episode."
+
+"Enough!" Megan screams. "That is enough! Stop fondling *my husband*.”
+
+Mother blinks, face carefully blank. “You mean Greg? Why on earth would I do such a thing to my own brother?”
+
+"We get it already! You’re crazy and depressed because your family died. Boo hoo. But we are *not your family* and I am not married to fucking Michael—no offense, Michael.”
+
+“None taken,” he mutters.
+
+“I’m married to the man you can’t keep your filthy hands off of. My Tim! Not Stephen. Tim! You see this?” She raises the hand with her wedding band on it, the same circlet of silver that’s on Stephen’s. “You see this? He’s mine. We’re married. You’re not. We have the same wedding band!”
+
+Mrs. Whitley blinks. “What wedding band?”
+
+“I know you’re crazy but are you blind too you psycho? This one.” She raises her hand higher. “This you—”
+
+Mrs. Whitley snatches Megan’s wrist with one hand, her other the meat cleaver. Before anyone can realize what’s happening—there’s a flash of steel, a swish, and two meaty thumps sound on the table.
+
+In that infinitesimal moment between heartbeats, it’s like the world’s on pause, torn on deciding which sight is more haunting: Mother wiping the blood off her cleaver; the two pearly white fingers floating in expanding soup of crimson; or the hand they originated from, surprisingly free of blood, as if Megan’s body is just as much frozen in shock as the rest of us.
+
+Then time resumes, the heart beats again, sending a spurt of blood through the butchered stumps, twin splurts that slash halfway across the table like red paint thrown at a wall.
+
+Megan screams.
+
+Her screams’s loud and high, waking the others from their daze, skipping right to panic mode. She cradles the ruins of her hand. Her pinky and ring finger had been cut clean off, but the middle had only been chopped into halfway. It’s still connected to her hand, barely, by a few strands of sinew and muscle. The nerves fray each and every way like steel wool. The digit flops and sways with every rocking motion Megan makes as she blubbers.
+
+All the while, Mother’s completely unreactive. Almost casually she picks up the detached finger, screwing off the silver wedding band and slipping it onto her own. It slides on easily with the blood.
+
+Mother smiles, “We’ve been talking about renewing our vows, haven’t we?"
+
+Father's not listening. He's focused on Megan. He tries to get up, but the ropes around his waist are too tight. The exertion causes fresh blood to spurt against the bandage on his leg.
+
+Michael only sits back in horror and Billy looks like he's about to throw up what little food he's eaten.
+
+And me? I realize that my plate is now empty; my fork—and my mouth, full. I'm chewing. Never stopped, even during this whole spectacle. The food is still delicious.
+
+Mother notices and smiles. "You should save some room for the turkey, sweetie. That should be about ready now. Just hang tight." And she disappears back into the basement, heedless of the chaos she's leaving behind.
+
+"Sarah! Sarah!" Tim calls out. "Speak to me! Someone help her!"
+
+"How can we when we're all tied up?" Michael says miserably. "We *all* need help."
+
+"No, not all of us." Billy shoots me a dangerous look, glancing at my empty plate. "Your sister here was chowing down the whole time without a care in the world, like we aren't in trapped in a real life slasher flick."
+
+Great, now everyone's looking at me again. "I haven't eaten all day," I try.
+
+"Bullshit! I thought you were scared earlier back when you were crying, but it's the opposite, isn't it? You're *enjoying* this. Are you in on all this? Are you helping her?"
+
+"Don't be ridiculous, Billy."
+
+"My name is Kumar you crazy bitch."
+
+"Hey!" Michaels slams his fist on the table. "Don't talk to my sister like that you lil shit!"
+
+And of course that draws Mrs. Perera into the argument, yelling expletives at Michael half in English half not.
+
+I tune them out. Ignore them, just as I try to ignore Kumar's accusations, ignore the niggling feeling that maybe there *is* some small part of me that might not totally hate this. That I'm so broken that I'd latch onto the first shred of affection thrown my way, even if it comes from a raging psycho.
+
+It's already been three years since Mom died, five since Dad left us without looking back, not even for the funeral. Michael can't take care of me—he's barely an adult himself. I need to grow up already.
+
+The others are so into their shouting match, they only realize Mrs. Whitley is back when the food cart rolls and smacks into the table.
+
+Mrs. Whitley stands smiling behind the trolley, wiping the sweat from her forehead. It's one of those heavy-duty carts like they use in professional restaurants. Its top is covered by large white cloth, so sodden in grease you can almost see through it. "The turkey's done!" She says before ripping off the cloth.
+
+We gasp.
+
+On one Thanksgiving, my Aunt bought a Butterball, a monstrous bird weighing nearly thirty pounds—too big to fit in our oven. We had to make do with rotisserie chicken that year. What's before me now is at least five times bigger than that. It's the biggest "turkey" I've ever seen, almost larger than myself.
+
+That is, if it's even a turkey at all.
+
+It's roughly the shape of a turkey. Very roughly. Even ignoring the ridiculous size, some of the details just don't...sit right. Like how the body of it is oddly skinny, almost *cylindrical*, instead of being round. I can see the snaking ridge of a spine peaking out from the top of it.
+
+And the skin, despite appearing to be the right shade of crispy brown, still shows veins spiderwebbing underneath, thick and black. All in all, it's grotesque.
+
+And then the smell hits us and our gasps become gags.
+
+It doesn't smell *anything like a turkey*. It smells like...I don't know what. I read once that dogs are capable of dreaming in scents; I know that this meaty stench will infect every nightmare I'll have for the rest of my life.
+
+"It's a big one right?" Mrs. Whitley says while retrieving an electric carving knife from her apron. "Had to cook it in my pottery kiln. Anyway, let's eat!" With that, she turns it on and plunges the knife straight into that monster.
+
+If the stench was bad before, it's outright lethal once the skin is broken. Where did she even find this abomination? I meet eyes with Michael. Neither of us has any idea how we're going to "act" our way through this.
+
+That's when I notice Kumar paling. His eyes are wide with something past mere revulsion, and when I follow his gaze, I see it. On the turkey near the joint connecting "wing" to body, there's a large, black-blue mark. It looks like a bruise at first, but the mark is too detailed, too intricate, like some kind of script—curling and flowing like Arabic.
+
+It's a tattoo.
+
+Kumar gulps, a painful movement as Adam's apple has to squeeze under the tight collar of his shirt. "Where is granddad?"
+
+Mother keeps carving into the "turkey". It must be really really dense as she's barely made progress.
+
+Horror, too, dawns on Mrs. Perera. "Where is my husband?"
+
+Mother keeps sawing. "Oh Mom. Did you forget that Dad couldn't make it to dinner this year?"
+
+“Don’t give me that crap! I’m done with your games. Now where is my—”
+
+The knife suddenly punches through the dense muscle; a large gash opens up in the turkey. Out spills a tsunami of blood, boiling hot and steaming, and something long and sinuous. Intestines. Much too thick to be from a bird.
+
+When Mr. Perera was knocked out, Mrs. Whitley dragged him towards the basement. The same basement where this entire time she’d been preparing the “turkey.”
+
+Everything that I’d eaten comes right back up and onto my plate. Over the sounds of my own retching I hear the cacophony that makes up the room’s reactions. Michael’s horrified gasp, Mrs. Perera devastated wail, and…a strange gurgling sound.
+
+It takes all my willpower to open my eyes to this nightmare and seek out the source: Kumar. Like me, his first reflex was to puke his guts out, and I see a mound of bile traveling up from his clavicle and through his throat. Only to be stopped halfway by the collar.
+
+He’s tugging at it but still can’t get enough air. He’s choking on his own vomit.
+
+Before I can cry for help, there is a crash to my far left. Mrs. Perera, on the floor surrounded by the splintered remains of her chair. She must have flung herself backwards, fallen on purpose, to break out of the chair. I can’t imagine how painful doing that would be, and as Ms. Perera springs to her feet, I count numerous splinters sprouting from the bloody mess of her back.
+
+But she’s beyond pain at this point. Her eyes are wild with rage, lips snarled like a bulldog. Armed with a broken chair leg, she lunges at Mrs. Whitley.
+
+Whitley brings up the knife in defense, but Perera bats it away with the chair leg. They’re both on the ground, clawing and scratching at each other. At one point, Perera jabs a thumb into Whitley’s eye, eliciting a howl of pain.
+
+Their rolling scuffle ends up near me, and I notice the knife had also landed by my feet. I can’t bend down to pick it up, still bound to the chair, and I doubt I could free myself with only my feet. But…
+
+The knife is still on and vibrating, its handle mere inches from my foot; and Mrs. Whitley, back towards me as she fights off Perera, isn’t much farther away, her neck fully exposed.
+
+All it would take is a kick.
+
+Just one little kick and this nightmare would end.
+
+I'm lining up the angle when, in the blade's reflection, I see myself for the first time today. I don't look anything like myself—black lips coated in gloss that tastes like ash, ears pierced, my hair greased and swept to one side in one of those punk faux-mohawks.
+
+I don't even have to check the portrait to know that I'm the spitting image of Avery. A girl who lived not appreciating all that she was fortunate to have, and who died not knowing all the misery her passing would cause.
+
+I can't forgive Mrs. Whitley. What she's done to Mr. Perera, to Sarah, to *us*—is monstrous, and to forgive that would also be nothing short of monstrous. The right thing to do would be to kick this knife right into her neck, saving us all. That's what a hero would do. A good person.
+
+But...I'm learning that maybe I have more in common with Avery than I thought. I never was a good daughter.
+
+So instead of doing anything constructive, I bawl my eyes out like the baby I am. Pathetic.
+
+Even through the scuffle, Mrs. Whitley hears me. She throws Mrs. Perera off of her and right onto her back, the floor driving the splinters further into her frail form. Mrs. Perera doesn't get back up.
+
+I feel arms around me, a hand gently stoking through my hair. "There there," Mother coos. "There's nothing to be upset about."
+
+If it wasn't sobbing, I'd probably be laughing at how absurd that sounds. Would have to force myself not to point out the Hughes, tied up and bleeding; or the Pereras, Mrs. Perera still groaning on the floor, Kumar frightfully still, choked on his own vomit; or the fact that even as she consoles me, I feel blood drip onto my face from Mother's wounds.
+
+There's a rumble from the direction of the basement. Loud enough it shakes the whole house. It's followed by a high keening noise, like a kettle. Or an air siren. "What's that?" I manage to get out.
+
+"Oh it's nothing to worry about, sweetie. I thought it was a shame that we never got to see the fireworks this July, so I decided to cook up something extra special as a treat." There's an undertone of sadness in her voice, but despite that a dangerous glint enters her eye. Sharp, like the knife that I see she must've picked it up, now brings its sharp edge closer to me. 
+
+And closer...
+
+...and she begins cutting on my bonds. "It's such a shame I won't be able to see you grow up to be the young lady I know that you will become," Mother continues speaking even as she frees me. "Just know that no matter what happens, you are *loved* and that I will always cherish this last dinner we were able to have together." And she winks.
+
+I don't know what to say. I'm stunned, forgetting to move even after the last of my bonds have been cut and Mother moves onto Michael's.
+
+When she's done freeing him, there's tears in her eyes. "Now go on, children. Mama's still got some work she needs to do." She turns towards the basement where the kiln has been getting louder and louder, a high pitched whine.
+
+I start to reach out to her, but Michael grabs my arm and before I know it, we're already outside.
+
+Michael drags me behind him as runs across the street. I look over my shoulder just in time to see the Whitley's residence go up in [flames](https://www.reddit.com/r/nosleep/comments/1y5r75n/they_wont_tell_us_why_all_the_flights_are_grounded/).

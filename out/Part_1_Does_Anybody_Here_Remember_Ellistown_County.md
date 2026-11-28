@@ -1,5 +1,3 @@
-
-
 While I’ve grown up and had a happy life, Ellistown County has always been in the back of my mind.   
 
 It was a beautiful place off the Coast of California, one of the many places I lived as a child. I was one of those kids who was always bouncing across the States with my mom while she found work in different fields (And before you ask, my mother died a few years ago, bless her soul. She told me very little about Ellistown while she was alive). It had a large beachfront and a marina, where my mother worked at a fish bar and where we lived. There was also hillier countryside up north, near downtown. 
@@ -100,6 +98,6 @@ It’s strange looking back and realizing how wrong I was.  
 
  
 
-\[Part 2\]
+\[[Part 2](https://www.reddit.com/r/nosleep/comments/1y0vlif/part_2_does_anybody_here_remember_ellistown_county/)\]
 
 \[[Part 3](https://www.reddit.com/r/nosleep/comments/1y6yxi5/part_3_does_anybody_here_remember_ellistown_county/)\]

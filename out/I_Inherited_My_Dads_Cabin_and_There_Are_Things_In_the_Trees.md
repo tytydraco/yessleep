@@ -1,0 +1,263 @@
+I guess a little background information might help. I’m in my early 30s, single. I live with my dog Karma in an apartment in the suburbs. My mom died a couple of years ago of cancer, and my dad moved to a cabin out in the woods nearby, I won’t say where so nobody goes there and possibly puts themselves in danger, to be alone and to retire. I think it was his way of grieving because he wasn’t really good about showing emotions around other people.
+
+ 
+
+I have three sisters and two brothers, but they all live in other states. So, when my dad got sick, it was up to me to take care of him. He had a lot of heart issues, but it was dementia that was really causing his life to go downhill fast, and so he asked if I would come care for him, and it’s a good thing I did because shortly after I packed up the dog and my things and turned in my apartment keys, he passed away. I got there just in time to hold his hands as he died. Hospice was there. They were lifesavers for me in the weeks just after his death.
+
+ 
+
+I wasn’t much for living out in a cabin in the woods. Too creepy for me, although his cabin wasn’t entirely isolated. I mean, you could see his neighbors’ lights through the trees, and there were a lot of hikers walking past where the back property fence was heading down to the ridgeline for the views. I have to admit there was a beautiful view on that ridgeline of the lake area.
+
+ 
+
+My dad had a big husky dog named Cody and sometimes when I would visit, I would bring Karma and the two dogs got along swimmingly. Cody was super depressed, not having my dad around, but I think having Karma there really helped.
+
+ 
+
+I love the woods. Don’t get me wrong, I grew up in a little town where we had woods and a huge lake behind our house and as kids, we would go through a big hole in our backyard fence and play in the woods. But I knew I could go home at any time and be in my little suburban neighborhood where there was a lot of noise from kids playing outside and dogs barking and it wasn’t anywhere near as isolated as this cabin. Still, my dad had left the cabin and a quite a bit of money to me in his will, and it was kind of nice to not have to worry about paying rent.
+
+ 
+
+I spent most of the first few months I was living there going through my dad’s things and just allowing myself to grieve. Most of his clothes and books I brought down to the local Goodwill in town. I bought a lot of books to the library and donated them, and they were so thrilled. Dad was a scientist, so he had a lot of really cool science type books, but he was also really into UFOs and the paranormal. I kept a few of my favorite books of his, and I also kept a couple of pieces of clothing and some personal items.
+
+ 
+
+My dad wasn’t a hoarder, so it wasn’t that difficult to go through the stuff, and it gave me something to do while I was waiting for his ashes. In his will, he asked that I spread his ashes in the woods behind the cabin. That would be easy enough. Except I think it’s illegal to do that, but I figured if I went in the evening and made sure there weren’t any hikers around or sheriff’s deputies, I could easily spread the ashes quickly and get back inside without anybody knowing.
+
+ 
+
+I didn’t go out into the woods behind the yard boundary fence until I actually got the ashes from the mortuary. I did admire the woods from a picnic bench that my dad had in the backyard while the dogs were running around playing. I thought I would probably start hiking sometime soon because I really loved to go on short solo hikes. When I got the ashes, I got the dogs on their leashes and we cut around where there’s a hole in the fence that we could walk through just a little bit off of our property line. I carried the urn while I tried to hold onto the two dogs, which was a little tricky, but when I found a good spot, it’s almost like they knew what I was there to do because they calmed down long enough for me to open the urn and spread the ashes around this beautiful grove of trees that had a peekaboo view of the lake.
+
+ 
+
+I started to cry as I said a prayer and said goodbye to my dad and told him I would take good care of the cabin and of Cody, and that I missed him already. My dad and I were close, but he wasn’t one of those gushy, super affectionate dads. But I knew he loved me because he was always sharing information with me. I think that was his love language, sending me articles and stories about everything from Bigfoot sightings to UFOs to new discoveries in quantum physics or earthquake activity in the area. 
+
+ 
+
+So, when I did spread the ashes around, it was evening and it was getting dark and with the trees overhead, it really makes it appear a lot darker quicker. The dogs were very calm. Their ears were perking up every time they heard birds. Everything sounded wonderful. The rustling of leaves. We could even hear some hikers on the ridgeline, laughing and talking. I hung out for a while with the dogs, letting them sniff leaves and whatnot, and then I thought it was time to head back to make a late dinner.
+
+ 
+
+That’s when I heard whatever it was that I heard, a loud rustling in the trees above my head. I froze, not sure what I was hearing, but figured it was some kind of creature like a racoon or a possum or squirrels. I think the first thought that went through my head was that I didn’t want whatever it was to shit on my head. Never did I think it was anything like a bear or a mountain lion because it was way up in the trees. But I will say that the dogs kind of reacted and by that I mean they froze and their tails went still and then they started sniffing around and making a sort of low growling sound that I’d never heard either one make before.
+
+ 
+
+I looked up into the trees to see if I could see a critter moving around, and that’s when I saw the two red lights looking down at me. I assumed they were eyes, the way that they were spaced, and I stared at them for a while and they did blink. I knew that I had read somewhere that moonlight or any kind of light could cause the eyes of animals in the woods to glow, and it was just reflection, so it didn’t concern me too much until I saw another pair on another tree branch nearby, and then another pair. That’s when I started to get kind of creeped out, so I got the dogs out of their little stupor and pulled on the leashes to head back towards the fence line.
+
+We went back through the hole, and I have to admit I hustled across the backyard a little quicker than usual, got the dogs inside, and locked the door. I forgot about it 10 minutes later when I was making dinner for me and getting the dogs fed, and then there was a knock on the door.
+
+ 
+
+It freaked me out because I was alone with the two dogs, who were now barking their heads off and scratching at the front door, but I figured whoever was there would realize that if I opened the door and they tried anything funny, I had two huge dogs that would put them out of their misery. My dad also had a shotgun and shells, and I had kept it loaded just in case, but it was in his den. I thought about getting it before I went to the door, but instead I yelled, “Who’s there?”
+
+ 
+
+A man’s voice yelled. “Deputy Mark Rogers. Just checking to see how you’re doing. I knew your dad really well.”
+
+ 
+
+OK, that was cool. I opened the door and he was so good looking I almost gasped. My age, sweet smile, God I love a man in a unform. I wanted to glance down at his hands to see if he had a wedding ring on, but instead I motioned for him to come inside. The dogs by then had realized that he was friendly since I wasn’t screaming. Cody jumped on him and licked his face, and I realized that he really did know my dad, and if Cody was OK with him, then I was OK. 
+
+ 
+
+He took off his hat. “Hey, I just wanted to offer my condolences to you. I was friends with your dad and checked on him often, and I wasn’t able to get up here much when he was really sick. I feel bad about that, but I wanna let you know that if you need anything, I’m here.”
+
+ 
+
+I thought that was really sweet of him. “That’s really cool. My name is Lark. I’m his daughter.”
+
+ 
+
+“Oh, OK, so you’re gonna be living here? Are you gonna put the cabin up for sale?” Mark was so cute I had to force myself not to stare at him.
+
+ 
+
+“I thought about it, but I think I’m gonna stay here for a while. My dad loved this place and it’s nice and peaceful, and since I’m a writer, it might really be a great place for me to get a lot of work done without too many distractions.”
+
+ 
+
+I asked him if he wanted to sit down and have a beer, so I got two out of the fridge and cracked them open, and we spent the evening talking and getting to know each other while the dogs lay and snoozed at our feet.
+
+ 
+
+“I went out in the woods a little earlier,” I said, wondering if I should say anything about what happened. I figured, what do I have to lose. “I got a little spooked when I saw some red eyes up in the trees looking down at me. The dogs seemed a little anxious too. I’m hoping it wasn’t a good climbing bear or mountain lion.”
+
+ 
+
+Mark laughed, but it wasn’t a condescending laugh.  “We don’t have very many bear or mountain lion sightings around here. Most of them are on the other side of the lake where there’s less people, but we definitely have a lot of smaller tree-climbers like raccoons and squirrels, and they can make a lot of noise. And as for the red eyes, that’s definitely light reflecting off of them. It’s pretty spooky the first time you see it.”
+
+ 
+
+We chatted some more, and then he realized that he needed to get back down to the Sheriff’s office down the road in town. I felt bad because he was on the job and here I was taking up all his time and making him have a beer. But he laughed and said nobody would know, and it wasn’t a big drive down the hill, so he would be very careful. Told him I wouldn’t tell that he was drinking and driving. Man, he was so easy to talk to.
+
+ 
+
+I walked him to the door, and I swear there was this attraction between us, and I was so thrilled when he asked if I wanted to have lunch with him on the weekend. It was Thursday, and I knew I didn’t have anything much going on, so of course I said yes.
+
+When he left, I actually leaned against the door, grinning like the dickens, just like you see in one of those dumb romance movies. 
+
+ 
+
+I went and cleaned off the table. I made sure the dishes were done, and that’s when it kind of hit me because I was still thinking about those eyes looking down at me, the red glowing eyes. I realized that there had been no moon out, and there still wasn’t, so what light was reflecting off their eyes? I blew if off because I was tired, so I got prepared for bed and watched a movie on my dad’s Roku. I fell asleep in the middle of it, never got to see the ending, which doesn’t say much about that movie, does it?
+
+ 
+
+I woke up about 2 o’clock in the morning to the sound of the dogs howling and moaning. They’re out by the front door, and of course I got scared and rushed out to see what’s going on. They’re pawing at the front door. OK, I figured they had to take a piss or a shit, so I opened the door and they went running out. They ran straight to the back of the fence and were jumping up and down, staring up at the trees, howling. I thought about going to the den to grab the shotgun and then wondered why I hadn’t left it by the door, which would’ve been the smart thing to do.
+
+ 
+
+I watched the dogs for about five minutes before they finally backed down and came running back into the cabin. Neither one pooped or peed, but they both looked kind of meek with their tails between their legs before I closed the door. I looked back over to the trees and I could see up in the treetops several sets of those eyes, red and glowing, but there was no light, no moon, no nothing. I closed the door and locked it, and then I called Mark.
+
+ 
+
+I told him what had happened, and I asked if he thought that these were again possums or raccoons. He reassured me they were and teased me about being a suburban girl and asked if I wanted him to come over and stay on the couch after his shift. I said, “No, I’m fine. I am just I’m not used to this. Thanks for reassuring me, though.” We hung up and I went back to bed. The dogs never made another sound that night. 
+
+ 
+
+The next day I did a lot more cleaning and I pretty much had all of my dad’s stuff organized that I hadn’t already taken down to charity. I was going to box it up and keep it in the closets so that I could organize the one bedroom and the den and the living room, so there was more space. Not that I had a lot of furnishings and stuff. I didn’t.
+
+ 
+
+My apartment had been furnished, so I didn’t have much but my clothes and writing files.
+
+I wasn’t into clutter, but one interesting thing that I did find was in my dad’s den. He had an office file cabinet and I looked through to see if there were any important documents or anything, pictures of my mom or whatnot, and I was absolutely shocked to see that my dad had been saving newspaper clippings and stories printed out from the Internet on UFO sightings and strange cryptic sightings in America’s national parks and forests, including Bigfoot and large cats and thunderbirds. I didn’t know why he was saving all that and I made absolutely no connection between that and the eyes that I was seeing up the trees . But it’s something that I tucked in the back of my mind for later, realizing that it was important but not necessarily knowing yet why.
+
+ 
+
+That night, after a nice dinner, I watched a movie out in the living room this time. The dogs were hanging out with me, chewing on some bones that I had gotten them down at the general store. Yep, they had a general store there right next to the Sheriff’s department. I had popped down earlier to get some things and accidentally (ha ha) ran into Mark, and we had a nice little visit before I headed back up the hill to the cabin. It was about 9:00 at night when I heard all kinds of a ruckus behind the cabin, howls, growls, thrashing around, and a scream. I know it was a scream, a human scream, but I do know that there are animals that can sound like humans, foxes for instance, rabbits when attacked. They can sound human.
+
+ 
+
+I completely froze. Then I turned down the volume of the TV and listened. I did not move. The dogs were listening, too. They weren’t howling or at the door scratching. They were just sitting stock still, with their heads high and their ears completely perked up. I didn’t hear anything for the next five minutes, and I finally got up the courage to go to the window that looks out on the back yard. I turned out the back light so that it was completely dark, and I looked beyond the fence into the dark woods and up to the treetops.
+
+ 
+
+There were so many eyes, so many pairs of red glowing eyes. I felt my heart go into my throat, and I thought I might piss my pants. Had the dogs not been there, I’m sure I would’ve pissed my pants. I grabbed my phone and I called Mark. I didn’t wanna do it and I apologize profusely, but I think he could hear the terror in my voice because he was up at the cabin in five minutes flat. I let him in the front door quietly and motioned for him to come to the back window. We looked out together and he could see all of the eyes looking down.
+
+ 
+
+“You can’t tell me those are all raccoons,” I said. “And where is the light coming that’s reflecting off their eyes and making them look that way? It’s a new moon.” My voice was trembling. Mark didn’t really answer, but he told me to stay inside. He took out his sidearm and went out the back door into the yard.
+
+ 
+
+There was no way in hell I was gonna let him go out there alone, so I said, “Mark, I’m right behind you. Don’t shoot me,” and we stood there for a few minutes just listening to the weirdest growling and howling, I can’t even describe the sounds that were coming from up in the trees.
+
+ 
+
+“Mark, there are things in the trees! What do we do?”
+
+ 
+
+He moved closer to the back fence, and I was right behind him. I was tempted to grab his hand, but I didn’t. We stood there for a minute, just looking up at the eyes and listening, so far nothing threatening had happened. They were just making a ruckus, but as we stood there, two dark figures suddenly dropped from the treetops onto the ground below. Mark and I both gasped and stepped back. These figures, whatever they were, they were hunched over, and then they stood up and they were so tall, maybe eight or nine feet tall, and they were thin. I mean, this wasn’t Bigfoot. These things were thin and gangly, and those red eyes, the glow was even deeper, darker, like blood red.
+
+ 
+
+“Holy shit, we need to get inside,” Mark said. “Go, go, go!”
+
+ 
+
+We ran back into the cabin, and as we did, we heard movement. Whatever those things were, they were on the move, but luckily it was away from us. Once we got inside the cabin, we peeked out the back window and we could see there was nothing there.
+
+“They’re gone now,” Mark said. His voice was low, trembling.
+
+ 
+
+Mark stayed overnight. Neither one of us could sleep, and no, we didn’t have sex. We were both too freaked out by what we had seen. I actually think we did fall asleep around four in the morning because the next thing I remember it was morning and I woke up before he did and put on some coffee, took a quick shower and got dressed.
+
+ 
+
+Then he woke up and he took a shower. We sat at the little kitchen table with our coffee. “I’m thinking of going into town and getting some trail cams,” Mark said. “We could put them on the back of your back fence, but we can also put a couple on the closest trees, just beyond the fence and aim them up at the treetops, and maybe we can get a good idea of what this is that we’re dealing with.”
+
+ 
+
+I agreed it was a good idea, and I said I would pay for it. I cleaned up and took care of the dogs. He ran into town and in about two hours came back with seven or eight trail cams. He spent the better part of the day there, putting them all up and showing me how they work with the memory cards that we would later pull and put on my laptop to see what images we could see.
+
+ 
+
+I was terrified. I didn’t wanna see anything on those memory cards. I almost preferred not knowing what was out there and just thinking that it was normal wildlife and that we really didn’t see these tall lean things stand up. I mean, maybe they were bears, maybe they were mountain lions rearing on their back legs. Wouldn’t that make more sense than the other thoughts that we’re going through the back of my mind?
+
+  
+Mark had to work a shift that evening, so I would be on my own with the dogs. He had tried to talk me into taking the dogs to his place and staying there, but I just felt like I wanted to be there because I could feel my dad’s presence, and I didn’t want to feel like I was lacking courage and I would run so quickly from something I didn’t even know. Stupid, I know.
+
+ 
+
+Knowing that the trail cams were out there actually did make me feel a little better because I figured by morning, we would have a much better idea of what we were dealing with and who we needed to call to take care of it. 
+
+ 
+
+I saw quite a few hikers behind the fence walking back-and-forth, and that also made me feel a lot better, like I wasn’t completely alone. I went to bed a lot later that night than I usually do, but fortunately there were no noises, no red lights, or red eyes. The dogs weren’t going crazy. I even let them out about eightish to go do their business, which they did promptly, and came right back in, acting normal. So, I started to let my guard down.
+
+ 
+
+I slept through most of the night, which was good because I was so anxious, but I must’ve been exhausted. Nothing could’ve awakened me short of something banging on the windows. Mark came by at about noon the next day and he took the memory cards out of all of the cameras. He didn’t have a shift till later the afternoon, so we figured we had a couple of hours to go through all the footage. I made him a sandwich and coffee and we sat down at the kitchen table where my laptop was set up and we started to watch. I’m not gonna waste your time, but I’ll tell you right now that most of the footage showed some deer moving around, raccoons, nothing really, until we looked at one camera he had set up a little bit deeper in the woods and it was facing the treetops.
+
+ 
+
+On the footage, you could see images of something draped over a branch with red glowing eyes. There was no moon, so it was kind of hard to make out the shape. It just lay there for a long time, and Mark thought well, maybe it is a mountain lion that got up on a high branch, but of course that didn’t explain all the other glowing eyes that were up there too.
+
+ 
+
+But that was it. It didn’t come down from the trees. It didn’t drop down to the ground. It didn’t stand up and look like a tall skinny shadow figure. It was a bit of a letdown. Then he checked the last camera. That was when we saw it, the thing. It was not a mountain lion, or a bear...it slid down from the tree branch onto the ground and stood up. It was nothing we had ever seen before. We stared at the screen, speechless.
+
+ 
+
+Until Mark’s phone rang, and it was the sheriff telling him he needed to come in. He was on the phone for about five minutes, and when he got off, his face was pale as a ghost, and that’s what he told me that the report had come in of a camper who reported another camper disappearing at the campsite, not too far from where we are. Apparently, the camper witnessed something coming down from the tops of the trees and grabbing the person and dragging him off. Mark said that they were going to get a search and rescue up and running.
+
+ 
+
+I asked if I could help, and if I could bring the dogs. He said yes, since they often needed volunteers, ground pounders as they call them, so the day that I thought I was going to be spending looking through footage and not doing much else, I ended up spending with about 60 other forest service personnel, Sheriff’s deputies, park rangers, and a search and rescue group, and along with my two dogs, there were several others. We got into grid formations and combed the area.
+
+ 
+
+It only took about 15 minutes before somebody yelled over here. The sheriff and his deputies were first on the scene, and they were pushing people back because apparently, they didn’t want us to see what had been found. Cody and Karma were pulling on their leashes wanting to get close, but I had a hold them back. Within about 10 minutes, there was an ambulance coming up the road. And then about five or six EMT came rushing into the woods to wear a body that had clearly been torn apart from head to toe lay in a pool of blood. 
+
+ 
+
+I watched in horror as they took the body away. All the other search and rescue people were in a daze. I mean, it was like we were just in a complete daze. I heard people whispering about Bigfoot or some kind of monster like Bigfoot that tore the person apart, but I thought to myself, there is no way in hell a Bigfoot could get that high up in the trees. I had seen the thing. I saw them drop down. It wasn’t Bigfoot. 
+
+ 
+
+I had to go back to the cabin alone with the dogs. Mark went back to the sheriff’s department and told them our experiences, and he also bought the footage with him that had the things in the trees. Around 11 o’clock at night, there was a knock on the door and I knew it was Mark because he had texted me that he was coming. I let him in. He looked shell-shocked. He said that there were going to be bringing in the National Forest Service and calling a press conference the next morning to keep people from coming to the area, and they would be cordoning off the woods behind the cabin all the way down to the ridgeline for about a quarter of a mile until there could be further investigation. 
+
+ 
+
+He stayed with me that night, and this time we slept in the same bed, and we did make love, and it was absolutely incredible except for the fact that we couldn’t get what had happened off of our minds. We talked into the wee hours of the morning about what we thought might be out there, out in the trees. Mark wanted me to temporarily move in with him. He didn’t want me in the cabin anymore, and I was starting to think maybe that was a wise idea, or that maybe I would take some of the money my dad had left me and just get a place down in town. He’d be nearby, and I would be around people again. I would try to find something with a yard for the dogs.
+
+ 
+
+But it broke my heart to have to leave the cabin that my dad loves so much. The next day, the sheriff’s department, the National Forest Service, and the Department of Agriculture did a huge press conference and it kind of freaked me out because I thought if this is just a predator like a mountain lion, why is the DOA here? I got the feeling that there was something going on that we weren’t being told about. During the press conference, the DOI spokeswoman said that they were dealing with a predator and wanted to make sure that no campers or hikers were permitted in the area until further notice. OK, that did make sense, but again that’s something that the sheriff’s department could’ve easily said, and yeah, I get the forest service guys want to come in. I mean, it is their territory
+
+ 
+
+Something just didn’t sit right with me. I asked Mark if I was going to get my memory card back and he said no, they were keeping it for evidence. But he also told me that he had backed everything up while we were talking. We still had that footage of those things in the trees, dropping down, hunched over onto the floor of the forest, and then standing up, red eyes glowing, standing tall, like giants. Long limbs, lean, unless Bigfoot had lost a lot of weight, this was something else. These creatures, these things in the trees, were they just in the woods behind the cabin? Were they all over the area? Were they all over the country and national parks and forests and woodlands? 
+
+ 
+
+Strangest thing of all is when government agents came by and said that we had to sell the cabin because they were going to quarantine the whole area and that they would give us two weeks to get everything out and they would help pay for a new place and the moving costs and buy the cabin out for whatever the going price was. I said I didn’t wanna do it, that it was my dad’s cabin, and they had no right to tell me I had to sell it, but Mark said that the Sheriff told him and the other deputies that they needed to encourage the several people who were being displaced to comply.
+
+ 
+
+Apparently, the Sheriff’s department was getting pressured from higher ups in the park service, the department of agriculture, and even the department of homeland security. I mean, honestly, why the fuck would the DHS be involved in a predator situation? If that indeed is what it was, and I think Mark and I knew it sure as hell wasn’t.
+
+ 
+
+In the end, I ended up taking the money, which was the substantial amount, and I bought a house with a nice little yard, a few blocks away from Mark in town. Whether or not our relationship continues, and I hope it does, I ended up falling in love with the whole area and I didn’t wanna go back to the busy traffic of suburban life anytime soon.
+
+ 
+
+Mark and I drove up the hill towards the cabin about a month later, and the entire area was under lock and key with no trespassing fences all around. What the hell were they hiding in there? What were the things in the trees? I have to assume that since they’ve got the place on complete lockdown that those things are still up there and there’s absolutely nothing that can stop them from getting into other trees in other places. There were notices everywhere that the cabins in the area would be demolished to discourage squatters and hikers from hiding in the area. That broke my heart, too, but it made sense.  
+  
+
+
+I watch a lot of videos and reels on social media, so imagine my shock when I saw a post on a paranormal page three weeks later that said, “I live in a very woodsy area, and I think we saw them, the things in the trees...My husband and my two kids and I, our house backs up to the woods, and I think we saw them, the red glowing eyes high up in the trees. I think they’re here now!” There were also reports coming in from some national parks in the northwest about mutilated bodies being found off trails and hikers reporting dark, slinky figures coming down from tree branches and growling. One guy posted, “About four of us saw them, they jumped down from the treetops about fifty yards away, and we ran like crazy. Heard someone scream as we got into our car. We got to the ranger station and reported it. Not sure what happened after that.”
+
+ 
+
+I guess they are everywhere now.
+
+  
+  
+  
+
+
+ 

@@ -1,6 +1,6 @@
-&#x200B;
 
-I know the story I am about to tell will sound completely out of whack and I have asked myself many times just what the fuck is happening and how did I end up holed up in my childhood room, unable to do anything but watch random movies and TV shows. My friends and family think I am depressed and ridden with guilt and they are partly right, but that’s not why I am not leaving this damn room. I am not leaving, because I can’t. Not in a safe way, anyways. I am also not sleeping much, but let’s not get ahead too quickly. I’ll start at the beginning, so you can follow the thread and make up your own mind. I will omit nothing, even though I am not proud of my thoughts and decisions. After all, someone has to know the whole truth. Whoever you are, wherever you are currently sitting, reading this… welcome to my hellscape of a life. You are the chosen one - the one who will be graced with the unasked for knowledge of how I ended up looking completely psychotic even though I am not. Ready? 
+
+I know the story I am about to tell will sound completely out of whack and I have asked myself many times just what the fuck is happening and how did I end up holed up in my childhood room, unable to do anything but watch random movies and TV shows. My friends and family think I am depressed and ridden with guilt and they are partly right, but that’s not why I am not leaving this damn room. I am not leaving, because I can’t. Not in a safe way, anyway. I am also not sleeping much, but let’s not get ahead too quickly. I’ll start at the beginning, so you can follow the thread and make up your own mind. I will omit nothing, even though I am not proud of my thoughts and decisions. After all, someone has to know the whole truth. Whoever you are, wherever you are currently sitting, reading this… welcome to my hellscape of a life. You are the chosen one - the one who will be graced with the unasked for knowledge of how I ended up looking completely psychotic even though I am not. Ready? 
 
 It all started a few months ago, particularly on the 5th of September, when I dropped my two heavy bags of luggage right next to the hot, dusty old bus in my hometown. I arrived at 12:30pm and obviously, summer was still here. I was sweating through my long jeans, my armpits stained my second hand t-shirt and I surely smelled like a construction worker at the end of a long day. At least I had the foresight to put my long unkempt hair in a pony tail, so my neck was getting some air. 
 
@@ -16,7 +16,7 @@ My father pulled over in no particular parking spot, as anyone else who came to 
 
 He started the car and stayed silent for a minute, not driving, not moving. 
 
-“You were together for six years. It must have meant something.”, he looked at me and then started the car for a short, five minute drive to our house.
+“You were together for six years. It must have meant something.”, he looked at me and then started the five minute drive to our house.
 
 “Clearly not to him.”, I said firmly. I knew I sounded bitter, but couldn’t help it. 
 
@@ -134,11 +134,11 @@ The moment the door clicked into a closed position, Maria pulled up a bag of ins
 
 “Thirty.” I said quietly, trying to predict what she was going to do. I was a little nervous for the chicken. 
 
-The old woman pulled out pieces of lead in a plastic bag and started counting. Apparently my age meant something here. She got out a metal bowl with a wooden handle, a bigger metal bowl that she filled with water from a bottle in one corner of the room and lit up the gas stove. She did all of this, never letting go of the chicken underneath her left arm, then handed me a towel and instructed me to put it on my head, like a bride’s veil. I did as I was told and my view of the room immediately turned to a half done puzzle where I was supposed to guess what’s happening in the upper two thirds of the picture. 
+The old woman pulled out pieces of lead in a plastic bag and started counting. Apparently my age meant something here. She got out a metal bowl with a wooden handle, a bigger metal bowl that she filled with water from a bottle in one corner of the room and lit up the gas stove. She did all of this, never letting go of the chicken underneath her left arm, then handed me a towel and instructed me to put it on my head, like a bride’s veil. I did as I was told and my view of the room immediately turned to a half-done puzzle where I was supposed to guess what’s happening in the upper two-thirds of the picture. 
 
 Maria kneeled down next to her three legged chair and put the lead pieces in the small metal bowl on the gas stovetop. The blue flames sucked the bottom of the bowl as if she was putting it in water and it got somehow connected to the fire. 
 
-“She can kneel down at this age?” I know it was a stupid thing to think about, but my mind was grabbing onto anything that wasn’t at the extreme end of weirdness in this situation. I looked at the lead as it was melting slowly and heard Maria start to chant words that I couldn’t make out for the life of me. She sounded a little like a priest and a little like a hungry cat meowing. It was such an odd combination of sounds. It had a rhythm and it seemed to intensify as she kept half singing, half wailing.
+“She can kneel down at this age?” I know it was a stupid thing to think about, but my mind was grabbing onto anything that wasn’t at the extreme end of weirdness in this situation. I looked at the lead as it was melting slowly and heard Maria start to chant words that I couldn’t make out for the life of me. She sounded a little like a priest and a little like a hungry cat meowing. It was such an odd combination of sounds. It had a rhythm and it seemed to intensify as she kept half-singing, half-wailing.
 
 I heard a quick thud, a raspy chicken clucking that ended way too fast and something warm sprayed all over my hands and knees. I looked down. Blood. Everywhere, warm, sticky, dark red. I gasped, tried to lift my gaze and immediately found out why I shouldn’t. On the three legged chair was the chicken, or at least the chicken’s body, twitching frantically, still kicking its legs in the air and a huge wound bled all over the white fluffy rug right where the chicken’s head was a moment ago. 
 

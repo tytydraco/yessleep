@@ -1,0 +1,616 @@
+Occasionally in life you get pulled along the thread of inevitability. Everything that is happening to you was supposed to happen. They wrote it down in that book one thousand years ago and by some bumbling chance you stumbled right into those ancient paragraphs. 
+
+I’ve felt like that a couple times in my life. The story I’m about to go into is probably the most fucked up example of that feeling. 
+
+When I was younger I was a drifter type. I left home cause I couldn’t stand my father and my mother died from lung cancer so there wasn’t much of a reason to stick around anymore. I started in New Jersey and made my way down South. Hitchhiking town by town, occasionally sticking in one town for a bit, working, getting my money back up, and then quitting and continuing on. I wanted to make it to California. 
+
+I was somewhere down in Mississippi, walking along the road, and smoking my third to last cigarette when I decided I was sick of walking and needed a ride. There was nothing ahead of me or behind me but trees. The road was a bumpy old slim jim covered in cracks. The sky was post-rain grey. It was warm and humid. Cicadas buzzing. 
+
+My ears were strained listening for the building roar of a distant car but my mind was fuzzy with images. A hodgepodge of lines of prose from novels that I liked, a chorus to a pop song by the Beach Boys, and the warm inviting glow of an oven. What was in the oven? The oven opened and steam poured out. Apple pie, my stomach growled.
+
+My feet were aching and I hadn’t eaten in hours. If a squirrel walked out onto the road there was at least a fifty percent chance I would’ve pounced on it right there. Seizing it with my teeth like some rabid animal and shaking it around.
+
+I tossed down my cigarette and stomped on it. Just as I did this my ear picked up what it was searching for. A distant, building roar. I held out my thumb and... 
+
+It passed by without even slowing down.
+
+“Yeah, that feels about right.” I said aloud. I jumped at the sound of my own voice. Wind shifted the limbs of the trees around me. My feet ached. I was really hungry.
+
+I turned to continue walking but stopped when another building roar came from down the road behind me. I lifted my thumb again. The truck was a silhouetted square in the distance bursting through the heat haze. It was an old blue Ford; a bumpside from the late 60s. It began slowing down and I saw in the driver's seat an older man. He was stout. He had a button-up shirt with some Pall Malls in his shirt pocket. He had stubble over his wrinkled and sagging face. He was also wearing a Guy Harvey hat that had a graphic of a bass getting yanked out of the water with a fish hook. The truck came to a stop. I heard Steely Dan drifting from the half-opened driver's window. I walked up to the passenger side window. 
+
+The old man saw me, smiled, and then leaned over to crank down the passenger side window. This took a couple minutes. We stared at each other while this happened. It was a little awkward. My stomach growled again.
+
+“Hello kid, you need a ride?” The man asked.
+
+“Yeah.” I said.
+
+“Where ya headed?”
+
+“I just need to get to a town so I can check into some motel for the night, maybe get something to eat.” 
+
+“Ain’t no motel in town, but I know some good eatin.” The man said. 
+
+“No motel? Every town has got a motel.”
+
+“Well there was one motel but its done closed a couple years ago. Nobody has come along to open up a new one yet.” The man had a thick Southern accent that was hard to decipher. I took the few words I did get from that sentence and filled in the gaps in my head.
+
+“Motel shut down?” I asked, and he nodded and smiled. I looked down from the window and mouthed the word ‘fuck’. 
+
+“You should get in, I can take you up to town.” The man said.
+
+“Yeah, okay thank you sir.” I said and opened the truck door and got in. The truck smelt like cigarettes, coffee, air freshener, and weirdly enough, semen. 
+
+“You're welcome.” The old man said politely, I nodded. I cranked up the window and the old man cranked up the radio. He then started to drive.
+
+There was no console separating me and the man, just an empty leather middle seat. The middle seat had brown coffee stains on it. Dog tags hung from the rearview mirror alongside a cross. Empty coke bottles rolled around the floorboards.
+
+“Hey, you got any snacks or something? I’m sorry, I’m just really fucking hungry. Haven’t eaten since last night.” I said apologetically.
+
+“You’re fine kid. Take a look in the glove box there should be some pringles or some chex mix or something.” He said.
+
+“Thanks.” I said, and opened the glove box. Papers, pictures, some pringles, and a Glock-19. I stared at the gun for a moment. 
+
+“America is a beautiful country ain’t it?” The man said.
+
+“The American South is.” I said, grabbing the pringles. The man laughed. 
+
+“You from up north aren’t you? New York or something? I hear it in your voice.”
+
+“New Jersey actually.”
+
+“Like Tony Soprano.”
+
+“No, I’m Jewish New Jersey, not Italian New Jersey.” I said. 
+
+“Jewish Tony Soprano!” The man said with mock surprise and then laughed at his own joke. I smiled politely. 
+
+“I’m gonna have to figure out a place to sleep after dinner. What do they have around town foodwise?” I asked.
+
+“Well you got all sorts of fast food joints. I like to go to this one diner. A lot of the old timers do. People from the logging company like to eat there too. They serve breakfast all day.” 
+
+“Sounds good.” I said.
+
+“You wanna eat there?”
+
+“Yeah, I think so.” 
+
+“Good, good choice.”
+
+A strange silence.
+
+“Do you mind at all if I eat with you? I wasn’t really going anywhere and I guess I’ve been feeling a little lonely. Y’know how folks get in empty houses.” The man said. The man said this sadly. Almost ashamed of even asking.
+
+“Empty houses? You don’t have a wife or anything?”
+
+“I’ve been divorced for a couple decades now. And I’m old. Not many friends are still around if you get what I mean.” The man said. I considered it for a moment.
+
+“Yeah no problem at all. You’ve eaten there a lot. You could be like a, uh, menu guide.” I said. 
+
+“Thank you, sorry if you weren’t wanting any company. You strike me as the solitary type.”
+
+“You’d be surprised.”
+
+“And don’t worry bout that menu, it ain’t complicated at all, just get the breakfast platter.” the old man said. “What’s your name by the way?”
+
+“Paul.” I said.
+
+“That’s an old man's name, my name’s Ernest Weatherferd.” He said. 
+
+
+
+The town was small. In fact, it felt inaccurate to even call it a town, more like the dregs of a town at the bottom of a much larger teacup. Houses were scattered sporadically, small shops sat between these sporadic scattered houses, and the entire town was built around two or three gas stations. 
+
+Every billboard had an advertisement for a church which made sense as the most common type of building you saw was a church. Clearly the church business was the most booming local industry and they were buying out all the ad space. 
+
+The second largest business however, was clearly the logging business. About seventeen big trucks hauling trailers filled with logs passed us by. Every time one big truck would get in front of our truck I imagined a log getting loose and impaling me through the windshield. The logs dangled off the edge of the big trailers, wagging in the wind, pointed spears for giants. 
+
+We pulled into the diner. The parking lot was half-empty. The building looked just like a diner from a black and white nineteen fifties movie. Except for a neon sign that said open. The sun was getting lower and everything was overcast with a near-night blue. The lights inside the diner were orange and bursting with burning life. I smelled the bacon from the truck. I grinned stupidly at Ernest, who returned my stupid grin enthusiastically. 
+
+We walked inside the diner. Red, yellow, blue, green, blasting dopamine inside my skull. The smell of bacon was even stronger inside, coffee, eggs sizzling on a griddle, partially eaten waffles drowned in syrup and butter sat on customers’ plates; an image almost pornographic to my hungry eyes. Cushioned red seats, white and black tiled floors. A jukebox playing Bob Seger.
+
+
+
+JUST TAKE THEM OLD RECORDS OFF THE SHELF!  
+I SIT THERE LISTENING TO THEM BY MYSELF!
+
+
+
+A bit of a niche reference but: I understand David Lynch’s obsession with Americana now.
+
+Ernest and I wandered over to our seats. We sat down and both ordered the breakfast platter. A waitress poured us steaming coffee.
+
+“You drink your coffee black?” Ernest asked. I nodded. He smiled in respect. 
+
+We got our breakfast platters and began chowing down. My empty stomach was filled with a heavy satisfied fullness. The food was fantastic and greasy and gloriously bad for you. 
+
+And then after dinner came laughter. Ernest, despite being old, had a pretty young sense of humor. We riffed off each other for about an hour. He told this great story about some redneck midget kid who tied a fridge to a fourwheeler, got into the fridge, and had his buddy absolutely floor the fourwheeler.
+
+I was wheezing and catching my breath when another strange silence fell between me and Ernest.
+
+“So Paul, you got any stories yourself?” Asked Ernest. I frowned.
+
+“No, not really.” I said. Ernest frowned.
+
+“I think that’s bullshit. You’ve been hitchhiking from somewhere. You come here from all the way up in Jersey. You're bound to have some type of story to share.” Ernest said.
+
+“I really don’t.” I said.
+
+“Spit it.”
+
+“It’s personal. I don’t want to make you uncomfortable.”
+
+“Uncomfortable? Son, I fought in the war. I saw the hollowed out head of Jap. I don’t get uncomfortable.” 
+
+“Alright.” I said. I stretched and took a sip of coffee and a bite of buttered toast. “I come from New Jersey. I just turned twenty one a couple months ago. I guess you could say I’m a runaway. My father, he’s a piece of shit. He’s always been a piece of shit.”
+
+“Abusive?”
+
+“I think so. I’ve only ever had one dad so, how can I judge really? When I was younger he would beat on me a lot, and my mom. He became less physical after she got lung cancer. And after she died he became quieter. He didn’t stop completely though. One day I came home late, a little drunk and it woke him up. He tried to beat me like he did when I was a little kid. Said I was disrespectful. I knocked him out in one punch. After that he did stop completely.” I said, Ernest looked at me horrified. “Sorry.” 
+
+“No, kid, you're fine. I just didn’t expect this kind of conversation. Or at least I didn’t expect you to be so upfront.” He said, I laughed.
+
+“Maybe I’ve been looking for someone to talk to about it.”
+
+“And that someone is some old fart that just picked you up from the side of the road?”
+
+“Sorry.”
+
+“No, you’re fine. I’m interested anyway.” Ernest said.
+
+“I was also getting shit on at work. I was a cashier, rude customers, overbearing manager. Y’know work. All my friends were smart and going off to college. On top of that I wasn’t handling mom’s passing all that well either. One night I came home, grabbed my dad’s revolver and just picked a direction and walked. Ended up on a pier. I decided that was as good a place… The Atlantic being the last thing… Well y’know I put the revolver in my mouth, but I just couldn’t…” 
+
+Ernest looked at me with sad eyes. I finished:
+
+“I decided to run instead. It was better than looking at the Atlantic.” I said. 
+
+Ernest sat back in his seat and looked me up and down.
+
+“Well, given my age, I should be telling you some great advice, quoting Herman Melville to you. I don’t really know what to say though. My home life was fine as a child, and I loved my parents. Especially my mother. My innocence was robbed much later, on Iwo Jima and Okinawa.” Said Ernest.
+
+A third strange silence. 
+
+“Where you plan on goin’?”
+
+“California. That’s the plan at least.”
+
+“You wanna be an actor?”
+
+“No. LA sounds like a hellhole. People talk about it the way my grandparents talk about Auschwitz. It’s more that old saying ‘go West young man, go West’. I just think desert feels right for me.” I said.
+
+“What about tonight?”
+
+“Tonight?”
+
+“Where are you staying?” 
+
+“Next town can’t be that far.”
+
+“Next town is that far.”
+
+“I guess I’m fucked then.” I said. 
+
+“You can always stay with me.” Ernest offered.
+
+“I don’t know, I wouldn’t want to bother you.”
+
+“You gonna sleep on the dirt with the bugs and snakes? I don’t have company anyway. It’s an empty house right now.” Ernest said. I realized that I had been leaning over the table, tensed up with my shoulders raised. I leaned back, relaxed, and exhaled.
+
+“Just for the night.” I said.
+
+“Yeah. Just for the night.” 
+
+“Thank you Ernest.” I said. 
+
+“No problem kid.” He said. I had to pee.
+
+“You mind if I go to the bathroom real quick?” 
+
+“Go right on ahead, I’ll handle the check.”
+
+After establishing that every urinal had unflushed piss in it, I picked a random urinal. The bathroom door swung open. He was a big man, with a beard, wearing a red hat for Marvin’s hardware store. He got in the urinal next to the urinal next to me.
+
+He stared at me. He had a look of disgust and anger on his face. It was making me uncomfortable. I flushed the urinal, and walked to the sink. I soaped up and began to wash my hands. 
+
+The man in the Marvin’s hat took the sink next to me and shoulder bumped me. I nearly fell over from the amount of force from the shoulder bump and had to catch myself on the sink. 
+
+“Hey fuck you buddy.” I said. He didn’t respond, he just shot me another disgusted look and walked out of the bathroom.
+
+I took a few minutes, collected myself, and then walked out of the bathroom. Ernest was sitting at the table flicking through his wallet.
+
+“This asshole in the bathroom was super fucking aggressive. He shoulder checked me and nearly knocked me off my feet.”
+
+“Who was it?” Ernest said, looking around the diner. The asshole in the Marvin’s hat was sitting at the bar with his buddies. Laughing and drinking coffee. I pointed him out.
+
+Ernest laid some dollars on the table for the waitress. He stood up, motioned me to follow, and we walked out of the diner.
+
+It was night time. While we were eating, mist had crept down from the skies and covered the ground. My feet had disappeared underneath the diseased wispy clouds. Crickets chirped and a car flew by the diner. It was dark.
+
+“Who was that guy? Do you know him?” I asked Ernest.
+
+“Yeah I know him.”
+
+That was all he said. I pressed Ernest.
+
+“So?”  
+“He thinks I’m weird for some reason. I don't really know why. Probably saw you eating with me.”
+
+We got in the truck. The headlights suddenly shone into the woods in front of the diner. The radio came to life with David Bowie belting out:
+
+
+
+It’s not the side effects of the cocaine
+
+I really do think it must be love!
+
+
+
+“He was a dick.” I said.
+
+
+
+The drive to Ernest’s house was quiet. We left the town heading West. I listened to the radio. I was tired.
+
+Ernest didn’t say anything. His features were obscured in the dark. I could see patches of yellow skin curved by dark lines. Darkness pooled in his eyes. 
+
+I realized I had never gotten a chance to see his eye color. Was it green eyes? Was it blue eyes? I couldn’t remember. 
+
+Passing cars intermittently illuminated his features. The cars would pass quickly, dragging the brief illumination with them. You could watch as the darkness filled his face again, filling up his eye sockets like a tin cistern collecting water. 
+
+The air conditioner in the truck was humming. The air was blowing right on me. I was getting cold. I turned the air conditioner filter to the side so it didn’t blow on me. I was tempted to fall asleep in the car. I didn’t, his house couldn’t be that far away.
+
+What felt like hours passed. I was just about to say something when:
+
+“Right up here.” Ernest said. He turned the truck on a dirt road and the headlights fell onto a large house. The entire building was painted white. It had two stories with a balcony. A white porch with a swing. A screen door and a heavier wooden door behind the screen door. It was bigger than I expected.
+
+“What did you do for work?” I asked.
+
+“I owned a small shop for fishing and hunting and tending to animals. I sold it a couple decades ago, after my wife left me.” Ernest said. He parked and turned off the truck. “Welp, we’re home.” He said and looked at me in the dark.
+
+His shadowed face stretched in the dark. It was a smile, but I couldn’t see his teeth. His mouth was filled with darkness. 
+
+  
+
+
+The house was dusty and dimly lit by small golden lamps on small wooden tables. The floor was a dark reddish brown wood. Stairs were next to the entrance, a side hall leading to a library, and from the entrance forward a kitchen and a living room.
+
+“I would appreciate it if you didn’t go upstairs.” Ernest said.
+
+“Why, what's upstairs?” I asked him, curious.
+
+“Nothing. Nothing is upstairs, just messy. I’m a little embarrassed about the state of the house. I don’t usually have a reason to pick up mess.” Ernest said. I nodded.
+
+“I get it.” I said, he patted me on the shoulder.
+
+“You’ll take the couch in the living room. I wanna catch the nightly news if you don’t mind.” 
+
+“No, I don’t mind at all actually.”
+
+Me and Ernest walked into the living room. It was a couch and a cushioned recliner positioned around a TV. The couch was facing away from the hallway. A coffee table was covered in empty Saltine cracker wrappers and soda cans. There were two ashtrays out. A fan was plugged in beside the TV, turning left and right, left and right, left and right. Ernest gestured to the couch and I sat down.
+
+The couch had one of those blankets that had floppy strings around its edges. A wolf with a nose covered in snow was growling at me on the blanket. I pulled it over and wrapped it around me. Ernest noticed this and unplugged the fan.
+
+Ernest walked from the unplugged fan, to the coffee table where he picked up the remote, to the cushioned recliner. He sat in it and flicked on the TV. The quiet house rang out with the sounds of gunfire.
+
+Bonanza was playing. Cowboys were shooting each other. Ernest giggled.
+
+“I love them, ol' Westerns. You like em’?”
+
+“Nothing wrong with a little Clint Eastwood. I don’t know about TV Westerns though. They're all formulaic.”
+
+“You just don’t get it. You're probably too young to get it.”
+
+THPPPPP!
+
+Something shook upstairs. Ernest looked up. I looked up.
+
+“What the fuck was that?” Ernest asked. Taking the words out of my mouth. I began to stand up, but Ernest jumped to his feet and motioned me back down. “It’s probably nothing. I’ll be right back.” 
+
+Ernest walked down the hallway and disappeared up the stairs. I looked up at the roof. I shrugged. 
+
+I watched Bonanza while I waited for Ernest to come back down. Ben, Hoss, and Little Joe were currently going to this town to help out some guy that got wrongfully arrested, but the entire town was held under the thumb of this corrupt sheriff. The family had to clear up this kid's name. 
+
+I looked back over the couch behind me. It was dark in the hallway. My eyes adjusted. A silhouetted figure stood watching me beside the stairs motionlessly. 
+
+My heart pulsed painfully. The figure took a step forward into the light of the TV. It was just Ernest.
+
+“Sorry about that. Some packages fell over in my storage closet up there. Don’t know why.” Ernest sat down. He picked up the remote and flicked through the channels before landing on the news. 
+
+The news was always a fun experience. A panel of two guys dressed exactly the same and one girl who dressed the same as the two guys but in a female font, sat around a glass table and told you that the complete breakdown of society was upon you but you should stick around past the commercials for the next guys on the broadcasts tonight. That night's news apparently: forty five percent of the entire country's population was currently overdosing on opioids right now, the entire economy was crashing tomorrow at approximately 11 AM central standard time, hemorrhoid pill commercial here, welcome back the entire economy is still crashing tomorrow and the president has aids! 
+
+As I thought this I was trying hard not to laugh. Ernest however was watching the news with perfect seriousness. He sniffled and was leaning in towards the TV. 
+
+A segment came up. About gay protestors outside the mayor's office in New York. A riot broke out, bricks were flying at cops. A mob overtook one cop and beat him to death. This came after police had been violently raiding and harassing gay bars across the city. They had had enough. All of this chaos in the midst of increasingly contentious debates about whether gay marriage should be legalized.
+
+I became more serious when this segment came up as well. Ernest grumbled something under his breath.
+
+“What’s up?” I asked. 
+
+“Nothing.”
+
+“I don’t really care. I’m not gonna get offended.” I said. Ernest nodded.
+
+“It’s just disgusting isn’t it?”
+
+“What is?”
+
+“F\*ggots. I can’t imagine…”
+
+He was an older man. No use in arguing with him.
+
+“Times are changing.” I said, trying to make my position vague enough that an argument didn’t break out.
+
+“It’s just disgusting.” Ernest looked at me, “I can’t imagine wanting that as a man. To have sex with another man. It’s disgusting. Perverse. Jesus wouldn’t like it and I don’t like it either.” Ernest pushed.
+
+“Yeah, I guess.”
+
+“I just don’t see how you can be human and be gay.”
+
+I should have let it go. I should have. 
+
+“Y’know I’m gay.” I said. Ernest’s face twisted into shock. “I’m not any less of a human am I?” I said. Ernest couldn’t find words. He sat back in his chair. 
+
+“Sorry. I didn’t know. You’re a good kid.” Ernest said. He reached forward and grabbed the remote and turned the TV off. The entire living room went pitch black. I could only see the vague shape of Ernest. His footsteps were loud in the empty house as he left the living room and up the stairs. 
+
+I sat up on the couch. My heart began to beat very fast. It was too fucking creepy in the dark. The dark was all around me. Was there something in here with me?
+
+I turned on the TV just for some light. I made sure the volume was very low just for some sound. I pulled the blanket over me and laid down on the couch. I started thinking about my first boyfriend. I was sixteen, that was a long time ago. He was so cute. We held hands on that depressing New Jersey beach and kissed. That was a long time ago.
+
+Was it a smart idea to tell him about… 
+
+Probably not.
+
+
+
+It was warm. The Atlantic rolled up the shores, then slid back down the sands. Leaving behind wet mulchy mud. 
+
+I was lying next to him. Trying hard to not breathe weird and to control my twitching. He was holding my hand. He was actually holding my hand.
+
+Grey clouds rolled overhead. Drifting lazily in the blue. The clouds were logs in a river.
+
+He pulled me closer. 
+
+I woke up.
+
+My eyes struggled to form patterns in the dark. Someone was touching my thigh. 
+
+“What the fuck?” 
+
+“Sorry. Sorry.”
+
+“What the fuck?” I repeated. Ernest stood up from the side of the couch. He backed into the coffee table and I heard a clatter in the dark.
+
+“I wasn’t doin’ nothing.” Ernest said.
+
+“What are you doing?”
+
+“Nothing.” Ernest said. He stood over me, slightly leaned over. 
+
+“No, you were doing something.” 
+
+“I was just watching. That’s all.”
+
+“What?” 
+
+“I wasn’t going to do anything. Nothing at all.” Ernest said. “You were…”
+
+I was erect. As soon as I noticed horror curled around my ribcage constricting me. The erection quickly dissipated. 
+
+“You were very pretty in your sleep.”
+
+“Okay.” I said. I stood up. I exhaled, biting down my anger. I started walking to the door.
+
+“Where are you going?” Ernest asked and started to follow behind me. I whirled around.
+
+“There's a motel in town isn’t there?”
+
+“No! No I didn’t lie to you. I don’t lie to people.”
+
+“I don’t know, it seems to me you're carrying around a pretty big lie.” I said.
+
+“I am NOT what you are implying I am boy.”
+
+“Fuck you, creep.” I said. 
+
+“I was nice to you. I picked you up and offered you my house.”
+
+“So you could try and molest me in my sleep.”
+
+“NO I WAS NOT!” He screamed. His voice dripped with vitriol. I felt the hairs stand up on my arms. “I am not a sissy. I am not no f\*ggot. You want me to be, but I am not. And if you say I am, or imply I am one more time I will gut you like the little fucking pansy pigfucker that you are. You understand me boy?” 
+
+I noticed a dark, sharp shape in his hand. He raised this sharp shape towards me.
+
+“Now you are going to lay down on that couch. You are going to go to sleep, and tomorrow I’ll drop you off in town. You won’t say anything about this little spat to anyone. Right boy?” Ernest said. I nodded. 
+
+I walked carefully around him and his sharp object and sat down on the couch.
+
+“Lay down and look up.” Ernest commanded. I did so slowly. I couldn’t see him anymore. I just saw the roof.
+
+“The smart thing to do would’ve been to drug me dumbass.” I said.
+
+“YOU FU-” Ernest’s foot slammed into the back of the couch and I tumbled off the couch onto the floor. 
+
+I scrambled to my feet and started to move around the couch. I instinctively ducked and felt air fly over my hair as Ernest swatted at me with the knife. Ernest came stumbling around the couch with the knife. I backed away, turned around, and went running to the door. Ernest chased after me.
+
+I ran through the hall to the door. I could hear Ernest's footsteps behind me, shaking the house. I grabbed the doorknob and… 
+
+I ducked. A knife slammed into the door. I felt arms wrap around me from behind and pull me back from the door with surprising strength. I fell to the floor, on top of the stairs. 
+
+Ernest wedged himself between me and the door. He was holding up the knife. He was panting.
+
+“Stop it.” Ernest said. “Please.”
+
+I stood up and backed up the stairs, away from his knife.
+
+“Look, you have my disease as well. You like it too. I’m good at it, I’ve picked up plenty of young boys just like you, and I’m… Large for an old man. I don’t even have to put it… You could just watch me touch it.” Ernest whispered this, desperate. He coughed. “Just sit back down on the couch. Please. You like it, I know you do. I felt it through your jeans while you were sleeping.” 
+
+I ran upstairs. Ernest didn’t follow me.
+
+
+
+I got upstairs and looked around. It was just a hall with doors leading to different rooms. A window on the side let the moon light in. The moon light captured floating dust particles in its rays. 
+
+The balcony, I needed to get to the balcony. I walked toward the right side of the hall towards a door that had light streaming in from a window. I opened it and cool air brushed against my face. The balcony had two chairs around a table with an ashtray on it. Tree leaves covered the balcony floor.
+
+I would jump off the balcony and make a run for it. I walked to the balcony railing and looked over. It wasn’t that far of a fall. Was it?
+
+I heard a nasty crack sound in my mind. Ernest came out and dragged me back into the house.
+
+I took three heaves of air, lifted my foot to the railing. No, fuck no. I placed my foot back down and just as I did the door below the balcony slammed. I heard Ernest start to walk across the porch. I stepped back so he couldn’t see me. I heard a truck door open, some shuffling, and a truck door slamming. 
+
+I needed to get back inside the house. I turned around and walked back through the balcony door. The hall was warm, the air was dry. I closed the door behind me.
+
+THMP!
+
+The sound came from a door. A door just down the hall. It came again.
+
+THMP!
+
+And then sounds of a muffled voice. A voice? I walked slowly towards the door the sound came from.
+
+I noticed for the first time that my hands were shaking. My heart was beating very fast. I could feel it pump blood through my body towards my skull. The veins beneath my forehead were about to burst. Every muscle took ten times the effort to move.
+
+I opened the door.
+
+A room lined with red walls. In the center, a rack, tied to it was a skinny man in a gimp suit. 
+
+I saw his eyes. His eyes were screaming at me. He was screaming at me. His screams were strange though, muffled. Muffled by the ball gag in his mouth. Saliva hung in ropes from it, staining his latex suit.
+
+“What the fuck.” I said, not a question, just said. I walked up to the man and he cheered me on through his gag begging me to come closer and untie his ropes. He was crying. I pulled at the rope that bound him. It was a struggle at first but I eventually freed one hand, he helped me with the other hand, then he ripped the ball gag out of his mouth.
+
+“Let’s go right now. Let’s go right fucking now please, please let’s get the fuck out of here please.” He begged me. He was having a hard time standing up. He pulled off his mask. He had sandy blonde hair and blue eyes. He was really young, I wasn’t sure if he was even over eighteen.
+
+“We’re gonna get you out of here.” I said, and I reached down and started to pull him. 
+
+He looked up at me. He smiled, relieved.
+
+His eyeball popped out of his skull. A skull fragment grazed my forehead. I watched in slow motion as his wet, squelchy, brains splashed against my face.
+
+Ernest stood in the doorway with his Glock. The kid’s body thumped to the floor. I was quiet for a moment, then I screamed.
+
+Blood poured from the dead kids’ cracked open skull. I didn’t know what to do but scream. This couldn’t be real. This couldn’t actually be real. 
+
+Ernest walked towards me aiming the gun at my head. I stumbled back and fell onto the floor. Ernest was advancing on me with his aim steady. My hands began slipping in the kid's blood with squeak sounds as I tried desperately to back away from him. 
+
+“Please, please don’t please. I’ll suck your cock please don’t I’ll do anything you want please. Please don’t fucking kill me.” I said sobbing.
+
+“No. It’s past that now. You and that boy were gonna run into town and tell everyone about MY secret.” Ernest replied. He walked closer, the cold barrel of his gun pressed against my forehead. 
+
+I closed my eyes. Waiting for the bullet to cleave through my head. Slicing in half my last thoughts on this earth.
+
+The pressure against my skull went away. I heard coughing. Ernest was breathing heavily. I opened my eyes, he had one hand on his knee, he was doubled over. He was covering his mouth with the arm of his gun hand. 
+
+“You gave me a chase kid.” He said. He laughed. My eyes burned with tears. 
+
+I started sobbing some more. Ernest straightened himself. 
+
+“Quit sobbing. I need your help.” Ernest said, and he motioned me toward the body with the barrel of his gun. “Help me pick him up.” 
+
+“Okay, okay.” I said and crawled over to the kid's body. His face was caved in. A giant red hole you could stick your finger right through and touch the floor underneath. I gagged. I grabbed the kids arms. Ernest slipped the Glock into the front of his jeans, bent over and grabbed the boy's legs. 
+
+“We’re taking him behind the house, into the woods.” Ernest said. He coughed again. 
+
+The boy's body was heavy. Blood spilt from the hole in the back of his head like a half tipped over water bucket. It painted thin strips across the wooden floor as we carried him out of the house. I tried to keep his blood off my shoes but it didn’t work. 
+
+I became distinctly aware of the weight of my own body as I carried the kid down the porch steps. I was heavy just like the limp corpse of the kid. I was a heavy sack filled with wood chips for a grill.
+
+Ernest’s face was concentrated. He was directing me and the body, looking over his shoulder every now and again to make sure he didn’t back into a trip. The gun in his waistband bobbed up and down with each step.
+
+It hit me. I was gonna die. In a couple minutes I would be dead. Running from the Atlantic was just postponing, stalling, putting off this moment. I was being punished for my ignorance.
+
+I don’t wanna die. How could I have ever wanted to die? Was I fucking crazy?
+
+I was breathing heavily. We were in the woods now. Ominous trees cradled us in the dark. Yellow eyes peered at us from branches. I became aware of the crickets. 
+
+They were roaring tonight. They were roaring all around us. A great cascading chirping. Crick crick crick crick crick. We were moving through the open ground of their stadium. They were watching us and chirping. 
+
+I was going to die.
+
+I felt Ernest drop his side of the corpse. He stumbled around in the dark as I slowly lowered my side of the body. Ernest bent down and picked something up. A click and a flashlight beam blinded me. 
+
+Ernest turned the flashlight across the ground. Eight mounds of dirt. Eight graves. Three empty graves with piles of dirt waiting to fill them sat beside those eight graves. Crudely fashioned crosses impaled the earth in front of the filled graves.
+
+Ernest had brought young boys home before. They never left his home though. They were still here, in the ground. Ernest had the foresight to dig three more empty graves for the next few boys apparently. Ernest pulled out his gun, pointed it at me, and then pointed it at one of the empty graves. 
+
+I dragged the corpse slowly, on purpose. I kept looking up at Ernest. Every time I looked up at him, he was more angry than before. Finally he said
+
+“If you don’t get your tail in gear I’ll fill these graves up alone.” 
+
+I started moving significantly faster and dumped the kid's body in the pit. Ernest pulled out a cigarette from the pack in his shirt. He lit it, inhaled. I watched him waiting. He shone the flashlight on the shovel stuck in the most recently filled grave’s mound of dirt.
+
+“What are you waiting for?” Ernest asked. 
+
+I started scooping the dirt pile and tossing that dirt onto the corpse of the boy. Sounds of dirt getting stabbed, and sounds of crickets. When the boy was covered, worms would slide over his skin. Getting underneath that tight latex suit. Wriggling their way into his orifices, dissolving him, breaking him down with their slime. That was going to happen to me. I felt the weight of the dirt on my dead body already. It was crushing, suffocating. 
+
+A twig snapped somewhere in the dark and I jumped. Ernest laughed. I gave him a look of pure contempt.
+
+“Yeah, it’s damn creepy out here at night. That look on your face, funny. Cute. Reminds me of my wife.” Ernest said. His voice made my skin crawl. 
+
+I finished burying the kid. 
+
+“Good boy.” Ernest said. He smiled at me tenderly. “Kneel in front of that grave right there.” Ernest pointed to the empty grave right beside the one I just filled. 
+
+‘It’s happening, oh God, it’s happening. This can’t be happening. This isn’t a movie.’ I thought, panicked. I didn’t even realize I was pissing myself. I walked slowly in front of the grave, and got on my knees. 
+
+“Open your mouth.” Ernest said. I did.
+
+He slid the barrel into my mouth. 
+
+I looked into the eyes of the man that was going to kill me. He looked into mine. His eyes were angry, disgusted, but also scared. He was building up courage. He was almost there. He was almost resolved. His finger looped over the trigger.
+
+His eyes changed. His eyes became filled with passion. With lust.
+
+He pulled the barrel out of my mouth. Saliva connected the barrel to the tip of my lips. My hands plowed into the dirt and I exhaled deeply.
+
+“Oh fuck.” I said. I looked up at Ernest who was looking down at me. 
+
+“Were you serious earlier?”
+
+“What?” I asked.
+
+“Were you serious earlier when you said you would… Suck my…” He asked. “You have pretty eyes. Blue eyes.” 
+
+My stomach burned.
+
+“Yeah. I was serious. I will.” I said. 
+
+Ernest reached one hand and unzipped his pants. They slid down to his feet. His cock was fully erect. It was covered in grey hair. I gagged looking at it. 
+
+I crawled towards it. Its tip touched my face, it was wet with precum. Ernest grabbed the back of my head and shoved his cock between my lips while placing the gun on the side of my head.
+
+It was disgusting. It didn’t taste like skin. It tasted slimy, unwashed. Hairs scratched against my tongue. I felt vomit start to come up and I pushed it back down.
+
+Disgust came first, and then something else. I was angry. Unbelievably angry.
+
+My hand shot up and wrapped around the barrel of the gun and wrenched it backward away from my head. The gun went off. I felt the bullet slice through my hair. Despite the scalding heat that burnt the palm of my hand, I gripped the barrel tightly. I felt Ernest’s free hand push me away from him.
+
+When Ernest pushed me, I bit down onto his shaft, skinning his cock as I fell backward. Ernest screamed in agony and he let go of the gun. The taste of iron filled my mouth as I fell to the ground. My mouth dripped with blood. Ernest staggered back clutching himself.
+
+I took aim.
+
+A flash of light and red mist as the bullet slammed into his chest.
+
+Another flash and even more red mist as another bullet slammed into his chest again. I steadied myself and took aim, pointing the gun upwards.
+
+A bullet sliced through Ernest’s neck. A spout of red shot from the hole like oil bursting forth from desert ground. I brought the gun up even higher.
+
+The upper half of Ernest’s head was cleaved in half. His body thudded against the ground. I spit hair from my mouth, let the gun fall from my hand, looked up into the star studded skies, and began to cry.
+
+
+
+After a couple of minutes I got up and I walked back toward the house. After I reached the house, I kept walking. I was shaking the entire way to the town’s local sheriff’s department. I wasn’t cold. I was just shaking.
+
+The men at the police office sat me on a wooden bench. A girl police officer wrapped a blanket around me. Got me coffee and donuts.
+
+After they interviewed me they asked me if I had anyone to call. I told them no. One of the deputies laughed soberly. 
+
+“It’s not your fault but, this is what you get for hitchhiking in Mississippi. Never hitchhike in Mississippi. All sorts of crazy folks down here." He said.
+
+I remembered that. For me it became shorthand for stranger danger. Don’t blindly trust people, because truthfully people are sick fucks. I learned that the hard way. I didn’t hitchhike after what happened with Ernest.
+
+I just stole some poor guy's car in New Orleans and drove the rest of the way to California. 
+
+If you’re reading this, and you expected some supernatural twist, I’m sorry. None of that shit is real anyway. People are real though. 
+
+When you place a bunch of people on a small rock, a disaster is waiting to happen. It’s bound to happen. It was written in ancient paragraphs long ago. At any point you can find yourself being pulled along the threads of inevitability, pulled right into those ancient paragraphs.
+
+All by some bumbling chance. 

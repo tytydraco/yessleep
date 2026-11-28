@@ -50,7 +50,7 @@ I was terrified by it, frozen by a primeval dread etched in my humanity. But not
 
 “That’s impossible,” I countered, forcing our reality back into place.
 
-The shadow slowly lifted one of its long bough-like arms, exposing the claws that sprouted from its hand like branches. As it moved, the wind followed, swirling into a twister at the edge of the firelight, just between me and it. The force from it was awesome, and I had to put a foot forward to brace myself.
+The shadow slowly lifted one of its long bough-like arms, exposing the claws that sprouted from its hand like branches. As it moved, the wind whistled, swirling into a twister at the edge of the firelight, just between me and it. The force from it was awesome, and I had to put a foot forward to brace myself.
 
 From a small vortex on the ground, the phenomenon grew taller and taller, until it reached roughly the height of my neck—about my wife’s height. The storm collapsed on itself, sculpting its chaos into her form. Everything about her was perfect. Every curve and every blemish was exactly where I remembered it. This was not the dying woman she had been forced to become; it was her as she had always been within, even in the end.
 

@@ -1,6 +1,6 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/1wwl46a/i_went_to_a_fortune_teller_and_it_changed_my_life/)
 
-Lights in different colors were covering every little piece of the scenery. People bumped into me and gave me annoyed looks that they spilled their drinks.The smell of food was so strong, intrusive, irritating my senses to the point of nausea. The music was loud, but the chatter of the crowd around me was even louder. In the far right corner a big clearly artificial construction towered over the whole square and glimmered in all the colors. A two-story tall Christmas tree.
+Lights in different colors were covering every little piece of the scenery. People bumped into me and gave me annoyed looks because they spilled their drinks. The smell of food was so strong, intrusive, irritating my senses to the point of nausea. The music was loud, but the chatter of the crowd around me was even louder. In the far right corner a big clearly artificial construction towered over the whole square and glimmered in all the colors. A two-story tall Christmas tree.
 
 I couldn’t understand a word of what anyone was saying around me, as my agitation grew more and more. German. That I could recognize - these people were German. I looked around like it was my job. Frantic, impatient, scared. What the fuck? How did I end up here?   
 Before I could analyze any further, a serious mass of people came at my back like a wave, pushing me forward and carrying me towards the fake Christmat tree. I did not resist it much, as I quickly found out that it would be borderline suicidal to try and stay in place against the wave of wide-eyed, screaming faces. They were like scared cattle.
@@ -58,7 +58,7 @@ I thought about how an incident like that would go and how I could participate i
 "Those are the last ones, the heaviest and most powerful category of boats. Then we'll go." said Paul, sipping on his cold coffee in a green plastic cup. 
 
 We heard the countdown one more time and three boats started doing their laps. Dora was gathering the used cups and leftover food.  
-I looked at my phone to see what time it was. The roaring of the boat engines was cut off. Bang. Loud, deafening crash. I didn’t want to look up and I don’t want to remember what I saw when I did look up. 
+I looked at my phone to see what time it was. The roaring of the boat engines was cut off. Bang. Loud, deafening crash. I didn’t want to look up and I don’t want to remember what I saw when I did. 
 
 To my right people were slowly gathering at the edge of the riverbank. “What happened?” “Are they okay?” The murmuring was slow, confused, scattered.   
 Right in front of our spot two boats had crashed. One hit the other from the side, leaving it almost snapped in two. Three-four people were swimming their way, trying to find the guy from the snapped boat. The other one just sat in his seat, covered in his own blood and looked around wide eyed. He knew. He didn't want to believe it, but he knew he had killed someone by accident.   
